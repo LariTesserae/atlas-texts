@@ -1,0 +1,21 @@
+Nothing here owns the summit. It is held, instead, by a crowd.
+
+The smallest residents are almost invisible: a living film in the cracks, pale as breath on glass. They take what rises from the vents and lay down the first thin skin on the raw stone. Mineral gathers around them in delicate crusts. Where their film thickens, other things feed. Where it fails, the rock stays newly black. The ridge is not growing green, but it is being quietly occupied, grain by grain.
+
+The bead-sized swimmers above the basins are the most easily mistaken for one creature. They hover in a loose globe, each clear body barely more than a lens around a dim blue point. When danger passes, or a current shifts, a light travels through them—not all at once, but from one to the next. The swarm contracts, loosens, and turns as if it has received an instruction. Seen from certain angles, its flashes seem to come from beneath the rock. The swimmers do not appear troubled by this.
+
+The translucent fish are quicker and less orderly. They pour through the basalt’s folds in flashing sheets, vanish into seams, and spill out elsewhere in the same instant—or what feels like the same instant. They graze the mineral films and snap up smaller animals, always moving against the pressure of the current. At rest, they hold themselves nose-first into the flow, their bodies trembling as though the ridge’s low rumble were passing through them.
+
+The broad flat creatures scarcely seem alive until their fringes stir. They cling to stone in overlapping patches, dull on top and soft underneath, their edges lifting and settling with the water. They filter what the current brings them, and shelter things too small to be seen. Sometimes one draws its fringe tight and peels away from the rock, gliding a short distance before fastening itself down again. The place is full of such quiet departures: lives that move only when the stone or water makes remaining impossible.
+
+In the mineral fissures, the pale eel-like animals have made homes that should not fit them. Their bodies narrow to threads, slipping into cracks and vent throats, then widening again in dark hollows beneath the ledges. They emerge with their heads turned into the flow, testing the water with delicate mouths. They do not seem to hunt the larger swarm. They feed on what the vents and the other animals shed: flakes, films, soft debris. Their pale bodies are crossed by faint bands that brighten and fade as they pass through shadow.
+
+There are larger animals, too, though none stays long in view. A dark, many-limbed shape will appear under an overhang, gathered tight against the stone, then unfold and travel along the underside of a rib with slow certainty. Broad mouths open and close among the pillow rocks. Something long and silver sometimes crosses above the summit, its shadow arriving before it does—or after. The residents make room for these visitors without scattering. They fold into the rock, wait, and return to their work.
+
+That work is not a plan. No creature directs the others. Yet the summit’s life is arranged by need: the film feeds the grazers; the grazers feed the hunters; the loose flakes feed the scavengers; the seams offer shelter and the currents carry everything onward. The animals do not tame the ridge. They make use of its unfinishedness. Fresh fractures are colonized first. Stable hollows collect the densest crowds. When a vent shifts or a shelf breaks, the living layer thins there and gathers again nearby.
+
+At the edge, they hesitate.
+
+They assemble in strata along the last ledge: the little fish close to the rock, the bright swarm above them, the broad clingers pressed flat, the eel-like bodies threaded into their narrow refuges. Beyond is only open water, a drop too large to provide shelter. The animals face outward, but they do not leave together. A few slip over the brink and disappear into the dimness. The rest hold their places, listening, perhaps, to the deep currents—or simply feeling the change in pressure through their bodies.
+
+Behind them, the vents breathe. The stone cools. The crowd shifts, flashes, feeds, and waits. For now, that is what it means to live here: to make a small body in a place still becoming.

@@ -1,0 +1,7 @@
+A hand’s breadth below the surface is a chamber scarcely large enough to turn a stone in. It is bright all the way into its corners. The pale clay gives off a steady, milk-white light, so that each grain of sand casts a sharp little shadow and the few dark things—a root hair, a beetle’s leg, a pocket of water—seem inked onto it.
+
+Nothing here has had room to weather. The walls are raw and close-packed, with small, clean cracks that look as though they have only just begun to open. Moisture beads inside them but does not run. A few root tips enter from above; they end among crowded bodies and leave no space for leaves. Mud cells, each no larger than a seed, have been fastened to one wall by something that lives here. Some are occupied. Others are neatly sealed.
+
+The sound is immense for such a small place. Beetles rasp against the clay; soft-bodied things press and release air through the narrow passages beneath it. Together they make a continuous, close hum, with a thin ringing note wherever the chamber narrows. You can feel it through a fingertip laid on the ground above.
+
+Yet the place never seems to advance beyond this moment. A crack remains a crack, not a fissure. The hanging beads never fall. Creatures feed and call and settle back into the same crowded positions, while the bright clay holds every shadow exactly where it was.

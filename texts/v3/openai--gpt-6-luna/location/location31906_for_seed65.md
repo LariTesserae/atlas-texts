@@ -1,0 +1,25 @@
+The plateau begins where the mountain runs out of slope.
+
+It is a high, open country of pale stone, lifted so far above the lower valleys that the horizon seems to have been set down beneath it. Ridges cross one another in long, deliberate lines. Between them lie broad basins, not quite flat, their floors scored with old channels and shallow hollows. The stone is mostly grey, but where the light strikes it directly it flashes white and blue, as if the whole country had been rinsed clean and left to dry in the cold.
+
+It never quite dries.
+
+Moisture comes and goes without much weather to announce it. A low cloud brushes the rim of a basin; a skin of condensation forms in the shadow of a boulder; rain passes across one ridge and leaves the next untouched. Water gathers in cracks and dimples, in little pools that hold the sky. Here and there, narrow streams slip over the rock—not enough to cut the plateau anew, but enough to keep old channels dark and shining. At the great escarpments, water falls in veils from ledges above, breaking into mist long before it reaches the ground. The falls are too distant to look large until their sound reaches you.
+
+Then there is nothing else.
+
+The roar fills the open country, enormous and steady. It rises from unseen drops and enclosing cliffs, from wind passing through stone throats, from cascades hidden behind the far folds of the land. The sound has no clear source. It presses in from all directions, a deep, continuous rush with finer notes inside it: a hiss, a shiver, the occasional abrupt crash of falling water striking a ledge. Even the silence between gusts is loud. Voices would be useless here. A cry might travel a little way, then be taken apart by the noise.
+
+The plateau is bright beneath this sound. The air is thin and hard-edged, and the sky occupies more of it than seems possible. Sunlight falls sharply on ridges and leaves the basins full of cold blue shadow. On clear days, distant ranges appear with unnerving precision: every band of rock, every cut and shelf, visible across miles of air. Clouds move low beneath the highest ground, drifting through valleys below as though the plateau were the deck of a ship sailing over weather.
+
+Vegetation keeps to the seams. Small grey-green cushions cling to sheltered cracks; low, wiry plants spread around spring mouths and along the margins of pools. In a few hollows, tough grass grows in thin patches, bent permanently away from the prevailing wind. There are no forests, and no generous meadows. The plants are far apart, each one making a modest claim on a place that has never promised much soil.
+
+The animals are less modest. They are abundant, but the openness makes them seem scattered. Pale, long-legged grazers stand in small groups on distant shelves, so well matched to the stone that they vanish when they lower their heads. Black-winged birds wheel above the cliffs in numbers, tracing great circles in the updrafts. Tiny creatures live in the seepage cracks, flashing briefly among wet stones. On warm rock, lizards lie motionless until a shadow crosses them; then they are gone. Their calls are almost entirely swallowed by the falling water, so the plateau feels empty even when it is not.
+
+Nothing here appears to be moving very quickly. The cliffs have been rounded at their edges by an age of weather. Channels curve through the basins with the settled assurance of things that have found their courses and kept them. Pools return to the same hollows. The thin plants occupy the same sheltered places. Even the mist tends to collect at familiar ledges, rising and thinning in patterns that seem less like weather than a habit of the land.
+
+There are no roads, walls, markers, or abandoned works. No straight line interrupts the rock. A person could cross the plateau with simple tools and good judgment, but would have little reason to leave anything behind. Stone is everywhere and yet difficult to use; water is present but never quite convenient; shelter exists only in the lee of ridges, under overhangs, or in narrow clefts where the roar becomes a pressure in the chest. The country does not forbid passage. It simply makes clear that passage is temporary.
+
+At the outer edge, the land ends in a succession of cliffs and terraces, each dropping away into whitened depth. Looking down, one sees the lower world through veils of cloud: dark forests, rivers, distant slopes blurred by moisture. Looking back across the plateau, one sees the same stone, the same open basins, the same far-reaching brightness, and the waterfalls forever falling without seeming to diminish.
+
+The place is not dead. It is crowded with life, wet in hidden ways, loud enough to drown thought. But all that life is held at a distance from all the rest. Between one animal and another lies a mile of bare stone; between one pool and the next, a whole basin. The plateau has made room for everything by leaving almost all of itself empty.

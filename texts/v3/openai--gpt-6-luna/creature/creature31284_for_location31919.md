@@ -1,0 +1,19 @@
+The people who live there have learned to listen before they look.
+
+They can tell which pump is tiring by the pause between its knocks, which channel has begun to rise by the change in the animals’ clicking beneath the grates. They know the difference between water that is merely warm and water that has come through a newly opened seam. A sudden silence is more alarming than a loud failure. When the district goes quiet, everyone stops what they are doing and waits to hear what has changed.
+
+There are not many of them. They live in the dry rooms above the channels, sleeping close to the pipes for warmth and leaving their boots by the door so the damp can drain from them overnight. Their coats are patched with rubber and sheet metal. Their hands are roughened by valves and railings, their hair permanently curled with moisture. They move carefully on the narrow walkways, not because they fear falling so much as because the water below is full of delicate, hungry life.
+
+Children learn the channels before they learn the machinery. They can spot the pale fish flickering under a grate, or follow a thread of crustaceans away from a cooling outlet and guess where the heat is escaping. They are told not to put their fingers into the water, though they do it anyway, quickly, to feel the fine current tugging at the skin. The older children leave crumbs for the things that cling beneath the walkways. They give them names that change from week to week.
+
+The adults insist the animals are not pets. They are indicators, scavengers, neighbors—whatever word is least likely to make someone careless. If a mass of eels gathers beneath one platform, people take the long way around. If the little crustaceans vanish from a channel, someone fetches a lamp and a wrench. Their presence is useful, but usefulness is not the same as ownership. The district belongs to whatever can make a living in it, and the water has never asked permission.
+
+Most of the residents work in pairs. One handles the machinery; the other watches the water, the walls, the animals. They patch leaks with whatever will hold. They move a pipe, raise a plank, brace a slumping ledge with salvaged concrete. Their repairs are not monuments to permanence. They are arguments made against the next few inches of change.
+
+There are quieter lives, too. Someone tends the weak lamps, coaxing them to last another week. Someone keeps a ledger of pump rhythms and water levels in a room where the paper never stays dry. Someone sits by the assembly hall door in the evenings, mending nets, listening to the rasp and click beneath the floor. Now and then, a resident goes missing for a few hours and returns with a new scrape, a wet sleeve, or a pocketful of pale shells. No one asks too many questions unless the person seems frightened.
+
+At the warmest outlets, the animals gather so thickly that the water seems to have grown fur. The people do not drive them away. In the thin light, they watch those living shapes rearrange themselves around the hidden currents and try to read what the rock is doing. The machines hold the district together, but the animals tell them where it is coming apart.
+
+They have no name for the place that everyone agrees on. Each name sounds too final. They speak instead of the lower rooms, the warm side, the new channel, the place beyond the boiler where the wall has begun to sweat. When the ground shifts, they move their things. When the water changes course, they change theirs.
+
+They live here as if the district were not yet a home but a question, one that keeps arriving in the form of dripping stone, tired engines, and small blind bodies turning beneath the grates. Each morning they answer as best they can: by listening, by repairing, by leaving space for whatever else has found its way into the dark.

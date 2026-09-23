@@ -1,0 +1,21 @@
+At first, you might think the inhabitants are the hollow stones.
+
+Each has its own voice, and some voices are so low they seem to come from beneath the basin rather than from any one formation. But the stones are only the mouths. The inhabitants are the pressure inside them: water held in narrow seams, air trapped beneath plates, the slow tightening and release of the ground.
+
+They have no faces, and no need to look at one another. They know their neighbors by vibration. A change in one hollow passes through the wet rock as a faint tremor; another answers, not deliberately, but because its own water has been unsettled. Over centuries, these exchanges have become a kind of recognition. The basin is full of them, close together, each attending to the minute alterations in the others: a ledge thinning, a crack opening, a channel darkening under its film of water.
+
+Some are almost still. They have gathered in the knuckled ridges and blunt towers, where water drips through them in the same places year after year. Others travel—not across the flats, exactly, but along them. They are the dark shapes beneath the shallow water, sliding from one depression to another without wake or outline. When they reach a new hollow, the water there begins to tremble. A note changes. Something has arrived.
+
+The oldest ones are difficult to distinguish from the basin itself. Their water has passed through so many seams that no single thread belongs to them. They extend under the mud, under the shelves, into the stone below, and their voices emerge in low pulses that can be heard only at night. They do not speak often. When they do, the smaller presences fall quiet—not from fear, but because the ground is listening.
+
+There are younger ones, too, though youth here is not a size. A fresh crack may trap a little air and water and begin to sound. At first its note is thin and bright, easily lost among the falling threads. Over time, as the walls of the hollow are worn and shifted, the sound deepens. The young one learns the basin by answering it: the knock of a nearby spire, the moan of a flooded shelf, the wind drawn through a neighboring stone. It takes a very long time to acquire a voice that can be mistaken for rain.
+
+They have no habit of building, yet the low walls and the standing arch are not empty to them. Water lingers at their foundations. Their fitted stones interrupt the old currents and return the basin’s sounds changed. The inhabitants gather there, though gathering means only that several pressures have come to rest against the same arrangement of rock. The arch is especially valued. Wind passing through it produces a wavering tone that reaches far across the flats, and in mist the sound seems to come from no direction. The inhabitants answer it one by one, until the whole basin is speaking.
+
+Perhaps the structures were made by people who heard them. Perhaps they were made for some other reason. The inhabitants do not preserve the distinction. Whatever a thing was meant to be, once it has stood long enough in the basin, it becomes part of the basin’s voice.
+
+Their lives are measured in small permissions. Water is allowed to rise in a hollow, then to drain. A seam is held closed until the stone softens enough to part. A bead gathers beneath an overhang, trembles there, and at last slips upward into a crack—not defying gravity, as it might seem, but following a pressure too slow for the eye to see. The inhabitants do not hurry these changes. They do not mourn the shelves that collapse, though they feel the loss as a sudden silence, a space where a familiar note had been.
+
+When the dimness comes, their forms disappear. The water and ground become one dark skin, and the stones lose their edges. But the inhabitants remain distinct to one another. They pass in tremors beneath the flats, exchange the faintest knocks through the rock, and settle again into their hollows.
+
+Nothing in the basin is quite alone. Even the quietest stone is being answered from below.

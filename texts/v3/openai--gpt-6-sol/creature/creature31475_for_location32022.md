@@ -1,0 +1,9 @@
+At first, the small things beneath the pipes seem to be the only inhabitants. They have six or eight joints, though it is hard to count while they are folded. Their shells take the color of whatever dust settles on them. One can remain against a warm wall for years without moving far enough to leave a mark.
+
+They are not quite still. Place a palm on the stone nearby and a leg draws inward. Let a furnace hall cool by the smallest degree and, over the following days, they gather along its threshold. They know the city through its slow changes: pressure passing overhead, heat traveling through a floor, a footstep returning from a wall that did not used to be so distant.
+
+Larger ones live inside the works. They are seldom seen whole. A broad, plated back may rise through the dust at the base of a tower; a row of pale joints may briefly interrupt the dark within a furnace mouth. They move when a pipe begins to shudder unevenly, or when grit has gathered around a fitting. By the time anyone comes close, they have withdrawn. The vibration steadies. Dust falls from a seam onto the floor.
+
+Nothing here appears to feed in any familiar way. The creatures settle where warmth meets cooler stone, and their shells grow by nearly invisible accretions of mineral. An old one becomes difficult to distinguish from the fitting it has occupied. Some of the rounded shapes on the pipes are generations of them, layered over one another, with a living joint buried deep enough to feel the pressure inside.
+
+They have no reason to cross the open squares. In those spaces there is too little shelter and nothing to feel but the long, even cooling of the ground. Yet after a rare disturbance—a collapsed wall, a pipe gone quiet—small shells sometimes appear in the dust between buildings. They travel toward the change, each at its own pace. Months later, there may be warmth at the broken place again.

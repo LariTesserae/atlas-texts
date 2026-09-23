@@ -1,0 +1,19 @@
+At first, the basin seems to be inhabited by leaves.
+
+They cover the mud in overlapping scales, roof one another, and tremble beneath the weight of water. Only after watching for a while does it become clear that the tremor travels: a beetle, black and lacquered, working its way along a vein; a soft-bodied thing drawing itself beneath a curled edge; a fine-winged insect hovering in place as if the air has become a branch. The pale lights on the trunks are alive, too. They open and close almost imperceptibly, cool as moonlit water, feeding where damp bark meets stone.
+
+Below them, the small lives make a second landscape. Threadlike creatures stitch the wet soil together. Tiny shelled animals graze the green film on stones, leaving clean arcs that soon cloud over again. When a leaf falls, it does not lie untouched for long. It is entered from beneath, softened, and passed from mouth to mouth until only its veins remain, dark as old wire.
+
+Then the larger bodies emerge—not all at once, and never as a procession. A long-necked grazer lowers its blunt head to the water gathered between roots. Its hide is the color of wet clay, patched with moss along the shoulders. It drinks without disturbing the surface much. A bright-eyed scavenger waits under its belly for whatever the grazer stirs loose; when the larger animal steps on, the little one follows, keeping precisely to the space its feet have left behind.
+
+Other animals carry their own gardens. Low-backed, wide as stones, they move beneath mats of moss and tiny pale growths, so slowly that insects settle on them and mistake them for ground. They pause in the same hollows, where water beads along their flanks. Now and then one gives a shiver, and a brief rain of beetles patters into the roots. Nothing rushes to escape. The beetles climb again.
+
+There are hunters, though the basin does not announce them as hunters. One waits flattened along a pale rock, its skin broken into the same soft colors as the mud. Another hangs upside down in the leaves, narrow-bodied and still, its eyes reflecting the dim green light. They take small things, mostly, and do it without spectacle. A quick movement, a momentary gap in the chorus, then the insects fill the silence again.
+
+The deep calls belong to something larger, hidden farther in. The sound comes at regular intervals, low enough to be felt in the ribs, and each time the smaller animals answer by continuing what they were doing. Perhaps the caller moves through the basin; perhaps it has not moved for a long while. The leaves conceal the difference.
+
+No one seems to own the place. The grazers return to their water, the moss-carriers to their hollows, the bright-eyed scavengers to the trails between them. Even the hunters follow old routes through the undergrowth, striking only when the opportunity appears in its appointed place. Their lives are crowded together, but not tangled. Each creature leaves room for the next.
+
+The basin’s inhabitants do not seem to be waiting for a better world, or remembering one that came before. They feed, breathe, molt, and sleep beneath the fixed green dusk. A young animal noses its way from the shelter of roots; elsewhere, an old one settles into the mud and becomes indistinguishable from the stones. Around both, the chorus continues, immense and level.
+
+If the basin has a single resident, it may be the arrangement itself: root and mud, insect and grazer, hidden hunter and slow, deep caller, each held in place by the others. Its many lives make a world that is busy in every small detail and still, in its greater shape. The animals move through it as though the paths have always been there—and as though, long after they are gone, the basin will make those same paths again.

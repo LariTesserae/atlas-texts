@@ -1,0 +1,9 @@
+At first, what lives here seems to be whatever can fit under a stone. Shrimps lift themselves from the gravel in brief, transparent strokes. Snails travel the submerged rails, leaving clean tracks through the pale film. Beneath each lip, a crab holds its claws open in the overflow, taking what arrives without stirring the water enough to warn anything upstream.
+
+The long animals in the holes are harder to know. One may show only the end of a narrow head, another a length of dark, supple back. They come out after a foot has passed and the gravel has stopped shifting. Then they nose along the seams where the water rises, finding small things swept against the stone. They never cross an open pool if they can follow its edge.
+
+The crabs have learned those edges too. Some are no bigger than a fingernail. Older ones carry a rough coat of mineral deposit that makes their shells look like pieces chipped from the shelves. A crab may remain so still beneath a lip that a shrimp settles beside it. Its claw closes once; the other stays open to the current.
+
+When the flywheel knocks, the nearest animals vanish. A moment later the shrimps farther out flick backward, then those in the next pool. Nothing appears to command them. The sound has passed through iron and stone and water at different speeds, and each creature responds when it reaches its own hiding place.
+
+They live in the routes the water takes: above a bolt, under a shelf, down through gravel that briefly gives way beneath a foot. There is food enough in those routes, and shelter a few inches from almost anywhere. Once the pools grow quiet again, a snail extends from its shell, a crab eases forward, and the long narrow heads return to the seams.

@@ -1,0 +1,9 @@
+At first I would mistake myself for a drop.
+
+I would hang beneath the pleated belly of an old pale animal, clear enough for the black wall to show through me. From above, water would swell slowly along a fold. From below, a dozen others like me would wait on hooked feet. The drop would fall; we would meet it in a sudden, silent crowd. Then the great body would shift, and we would scatter into the space between its shell and the stone.
+
+I think I would live there, in the narrowest spaces. Not at the hot seam, where the large ones feed for hours, and not deep in the cracks, where the flat hunters can fold themselves thinner than I can. I would know the old animal by the ledge worn into its back. When it climbed, I would climb beneath it. When it held a chip to the wall, I would wait by the shining line the chip made, taking only what spilled past its mouth.
+
+Cloudfall would draw me out. Cold mist would touch the warm wall, and water would appear everywhere at once—on stone, on shell, across my own skin. I would cross the band of disagreeing shadows to reach it. There, a hunter might arrive with its feet already closing. I would slip beneath a pale body before it moved aside, or find that I had come through safely without remembering the middle of the crossing. I would not stop to understand it. The wet place would be drying.
+
+By evening the chip might be gone. The old animal would settle against the seam again, and I would fit myself beneath its familiar fold. In the thin air, I would hear a foot tick against rock and a drop strike somewhere below. I would wait for the next one.

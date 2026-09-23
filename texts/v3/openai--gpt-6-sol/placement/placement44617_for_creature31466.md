@@ -1,0 +1,9 @@
+I would be in the maintenance trough behind the inlet pipe, under the fern roots. For a long time I might be mistaken for one of them: something narrow and greenish that shifts only when the water reaches it.
+
+I would be one of the smaller creatures. Not yet large enough to cross the open floor, and not especially eager to try. In the trough, a fallen leaf can make a ceiling. The pump shiver comes up through the concrete, but the roots break it into little differences: a steady trembling here, a faint rattle there when a bit of grit catches in the grille. I would learn the place by those differences before I learned its shape.
+
+The older one would pass close to my shelter on its way to the inlet. I would watch it pull a fern strand free and leave it under the pipe. Once it had gone, I might venture out to take the softest part. It would be easy to call this following, but I don’t think I would know it that way. I would know that a place which was empty a moment ago sometimes held food.
+
+One day the bird would land while I was outside the roots. The rail’s small blow would travel down the wall, through the floor, and into my legs. I would stop. Across the clear water, the older one would stop too. Neither of us could see what had happened. For a while the court would contain two still shapes and the pumps, going on exactly as before.
+
+When I finally grew large enough to leave the trough, I think I would cross only as far as the pile beneath the pipe. From there I could see the outlet grille. Water would be going through it, as water always had, and the older one would be working beside the inlet. I would stay where I was and feel the current divide around my feet.

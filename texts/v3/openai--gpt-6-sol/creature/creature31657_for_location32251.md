@@ -1,0 +1,11 @@
+The first inhabitants to reach a new ridge are the grazers. They come in bands, six legs keeping purchase on the root’s steepening back, their flat mouths rasping at the pale skin before it has toughened. Mineral dust whitens them as they run. A seed case cracks overhead and the whole band turns at once, pouring down one side of the ridge and up another without losing speed.
+
+Below them live the broad-bodied ones. They have no such quick route through the valley. They press themselves between roots, flattening around suspended cords, and leave slow, polished passages through the powder. Where a root begins to lift, they are often the last to leave. Sometimes the ground opens enough to show one braced against the rising surface, its soft back furrowed by the stalks it is pushing past.
+
+The flyers inhabit the narrow spaces above. Their wings cannot carry them far, so they travel by collision: a launch from a warm stalk, a brief rattle of wings, a landing hard enough to shake dust from an amber leaf. In the deeper hollows they crowd against black, felted leaves, nearly disappearing until a sudden crack of seeds sends them out together.
+
+The plants occupy what remains, and then make more ground to occupy. Their roots rise under old growth and bear it upward; their shoots enter the bare crest almost as soon as the dust falls away. A stalk caught in shade holds its bent shape until warmth reaches it again. Even the still places are full of things waiting for that small change.
+
+The stone enclosure belongs to inhabitants who cannot move as readily. They have hands: the cut blades show that much. Inside the wall, they have shaved the young roots close to the floor, making room to stand and to set down tools without losing them among the stalks. It is a modest clearing, already narrowing. Fresh tips have slipped between the stones, and dust gathers on the dark resin left along the blades’ edges.
+
+No one is inside when the broad root rises. If the makers are nearby, they have gone into the crowded growth, where the shifting stalks offer many ways through and little chance of being seen. By tomorrow they may be cutting out another patch farther uphill. Behind them, the grazers will have crossed the new crest, the flyers will have settled, and the roots will be growing through the old wall.

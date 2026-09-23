@@ -1,0 +1,11 @@
+At first, the plateau seems inhabited only in its cracks. Leaves tremble where the wind cannot reach them, and small dark bodies slip between roots. They are quick enough to be mistaken for falling grit. They feed on the insects that gather in the damp soil, and when rain crosses the summit they come out to drink from the film it leaves on the warm stone.
+
+The ones that set the upright stones are harder to see.
+
+They spend much of the day among the green seams, where their low, broad bodies fit beneath the leaves. Their skin has the color of wet rock, paler along the back where the sun finds it. From a distance, one at rest looks like a patch of lichen interrupted by a pair of watchful eyes. Only when it moves do its long, deft forefeet become apparent. It presses close to the ground in a high wind, gripping a crack with one foot while the rest of it slides forward.
+
+They know the summit by its hollows rather than its views. A basin that holds water for one extra morning matters more to them than a distant range. They tend the rooted patches without making anything that resembles a garden: pressing loosened soil back around a cushion of leaves, drawing a vine across a bare seam, clearing grit from a drip. The shelters give them somewhere to wait out the worst sheets of wind. Inside, a body can lie beside the carved bowl and hear water arrive one drop at a time.
+
+The stone markers serve those crossing between patches, especially in cloud. Each stands where the next can be found without lifting one’s head far above the rock. Some have been there long enough to wear smooth; others are newly wedged into place. When a marker falls, someone raises it again.
+
+They are quiet creatures, though not deaf to the great sound beneath the plateau. Before a storm, they gather at certain openings and hold still, forefeet spread against the stone. The long note in the rock changes before the rain appears. Then they leave the open ground, following their small line of stones home while the wind is still only wind.

@@ -1,0 +1,9 @@
+The Underbeds are inhabited by growth—not by anything that walks, nests, or hunts.
+
+Their oldest residents are the plants that have learned the shape of the place. They lie thick over the floors, climb the brickwork, and spread their leaves beneath the stone ceiling, filling each available seam without hurrying. Some are cut back often and grow again in orderly beds; others have crept around walls and machinery until it is hard to tell where cultivation ends and encroachment begins. Their roots hold the old district together even as they slowly prise it apart.
+
+Water moves among them, carrying warmth and nutrients through the channels and pipes. It gathers at the roots, feeds the beds, and returns through the drains to be pumped around again. The plants take what they need, and the machinery helps keep that exchange going: pumps draw, filters strain, fans breathe, presses compress what has been harvested. None of it is alive in the way the plants are, but the machines have become part of their habitat, as necessary as the damp air and low lamps.
+
+There are no animals among the leaves. No hidden bodies stir in the drains or rafters. The Underbeds’ inhabitants do not flee the lamps or listen for footsteps. They answer only to moisture, warmth, light, and the space left to them. A leaf tips toward an amber bulb. A root thickens around a pipe. A mat of growth closes over a patch of bare brick.
+
+Together, plants and machinery keep a patient rhythm. Water goes out and comes back. Foliage is cut, pressed, and stored. Fresh growth spreads over the place where it was taken. The Underbeds live by repeating these small exchanges, slowly enough that the settlement seems still—until a walkway has narrowed, a wall has vanished beneath leaves, or the green has reached a little farther into the dark.

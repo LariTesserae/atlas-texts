@@ -1,0 +1,9 @@
+At first it is difficult to say what lives here, because the largest living things are overhead. The trees have been opened from below. Their roots remain in the cut faces, still drawing from the unbroken ground behind them, while the exposed tips slowly dry. When the fans change speed, a whole wall of roots moves at once. From the rail it can look as though something has passed through it.
+
+Something does pass through it, though not often while the lamps are close. It is a small animal, narrow enough to run behind the thicker roots without showing its body. In the work-hut light its fur is the color of dried clay. It comes down where a root has bent around a stone, pauses with its feet spread against the vertical face, then slips across the bare floor to the pipe. It drinks from the condensation there. The drops are scant, and it stays for each one.
+
+It seems to know the fan better than it knows the people. A change in pitch sends it into the roots before a wagon can be heard approaching. When the air is steady, it ventures out to nose through the moss by the wheel rut, where beetles sometimes collect. Its whiskers keep moving even when the rest of it is still. Once, from beside the rail, it carries something dark back into a side passage; whether beetle or scrap of food, the light is too poor to tell.
+
+There may be several. A pale flicker appears beneath one ridge while another is already crossing the floor near the hut. Or the passages may simply be shorter than they look. The animal leaves little sign on the hard clay, and none among the roots.
+
+Each week the cut lengthens. Fresh roots appear beyond the last lamp, white at their broken tips, and the older walls darken. The small animal follows that narrow interval: after the machine has gone, before the exposed ground has dried. Above it, the trees remain where they have always been. Below, its way through them keeps changing.

@@ -1,0 +1,7 @@
+The lane ends at a square of ground lower than the rest of town. A pump house stands on one side, a row of workers’ rooms on another, and between them lies a yard of fresh concrete and broken stone. Its edges are still sharp. Rain has washed grit into the joints but has not yet worn a channel through them.
+
+Water is everywhere without quite covering the place. It beads on the iron handrails, shines in the wheel ruts, and seeps through the foot of the brick wall into a shallow ditch. The air is hot enough that a person crossing the yard begins to sweat at once. Under the low cloud, though, the light stays grey; the wet concrete gives back only a dull gleam.
+
+There are few plants. A reed grows where the ditch enters a culvert, and small tufts of grass occupy cracks too narrow to sweep. Animals have found more room here than plants have. Frogs sit beneath the raised pipe, flies gather over the warm water, and swallows pass repeatedly through the open space between the roofs. Now and then a rat shows its face at a drain mouth.
+
+The pump runs with a heavy, even beat. Water strikes the iron lining of the culvert; an engine hums behind the pump-house shutters; the swallows make their brief, high calls above it all. Nothing in the yard looks old enough to have settled, yet its noises seem settled already. Each day the pump keeps the rooms dry, the ditch takes the water away, and a thin film returns to the concrete by morning.

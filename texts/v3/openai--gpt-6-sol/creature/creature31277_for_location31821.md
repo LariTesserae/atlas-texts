@@ -1,0 +1,7 @@
+The first thing to live here is small enough to be mistaken for a flaw in the mortar. It came in with the green shoots, clinging beneath a leaf while the joint was still damp. Now a freshwater snail, no larger than a fingernail, works its way along the seam. Its shell is the color of weak tea. Through it, when the sun reaches the far wall, a darker spiral shows.
+
+It has learned the wheel. At the first wooden knock it draws in its two fine feelers and holds fast. The cool water presses the shoots flat, but the snail stays where it is, its broad foot spread against the rough lime. White dust passes over its shell. When the knocking ends, it waits through the last small shivers in the water before extending itself again.
+
+The new tiles offer it little to eat. It follows their edges instead, grazing the faint film that gathers where a square face meets the uneven mortar. Its journeys are slow enough that the sunlit squares cross it and leave it behind. Once in a while it climbs all the way to the bright ceiling, touches the air, and begins the long descent.
+
+Under the lip of the clay pipe is a clear patch no bigger than a coin. In certain light it looks like a little spill of water that has caught there and refused to fall. Inside it are eggs. The snail passes beneath them when it makes its circuit, while above it the wheel starts up again.

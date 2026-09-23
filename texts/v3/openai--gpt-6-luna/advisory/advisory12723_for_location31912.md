@@ -1,0 +1,17 @@
+The Sluice Garden sounds less like a wilderness expedition than a visit to a working town that happens to be very good at staying damp. Prepare for mud, machinery, and small surprises—not for a grand or especially remote landscape.
+
+**Wear clothes for cool, wet weather.** Bring a waterproof outer layer, and wear sturdy shoes or boots with good grip. The ground can change abruptly from paving to loose gravel, sharp stone, slick roots, or a shallow pool hidden in an old wheel rut. Trousers you can brush clean and a spare pair of socks will be useful. A hood or cap may be more practical than an umbrella around narrow paths, branches, and busy work areas.
+
+**Expect the sound to be part of the visit.** The engine house, belts, pipes, and water will carry across the small basin, with birds and frogs making their own contributions. If you are sensitive to steady noise, bring earplugs—but keep them out when crossing roads or walking near machinery, where you’ll want to hear what’s moving. The place may feel busy even when there are few people around.
+
+**Treat the workshops and water channels as working infrastructure.** Stay on paths and ask before entering yards, buildings, or garden plots. Keep well clear of the conveyor, engine house, loading ramps, grates, and drainage channels; a channel that looks quiet may carry sudden runoff after rain. Don’t climb the raw earth cuts or sharp stone shelves. They’re still settling, and rain can make loose ground less reliable than it looks.
+
+**Be cautious with water and plants.** The streams and puddles are attractive, but they run through an industrial settlement and should not be treated as drinking water. Bring your own water, and wash your hands before eating—especially if you’ve handled railings, wet stone, or plants. Avoid sampling leaves, berries, or mushrooms unless a knowledgeable local identifies them. The greenery is part of how the banks and walls hold together, so don’t pull up plants or disturb roots.
+
+**Give the animals room.** Most of what you’ll notice will be small birds, bats, frogs, rats, and other familiar town wildlife. Keep food contained, don’t reach into pipes or roof gaps, and don’t approach foxes at dusk. After rain, listen for frogs and watch where you step near water pockets; in low light, use a flashlight rather than trusting the path to be clear.
+
+A compact day bag should be enough: water, a snack, a small first-aid kit, a flashlight, a charged phone or other reliable navigation device, and perhaps a cloth for wiping condensation from glasses or camera lenses. Check the weather before setting out. After showers, the streams and wet ground will be more noticeable; in still weather, the basin’s machinery may seem especially loud.
+
+On arrival, take a few minutes to orient yourself. The roads loop back, and the landscape is small enough that distant clatter can make it hard to judge where a sound—or a path—leads. Ask a local which routes are open and which plants are maintained for bank stability. The town seems to have made peace with its damp, overgrown edges, but that arrangement depends on people knowing where water should flow and where machinery needs space.
+
+Go slowly. The Sluice Garden’s appeal is in its little changes: runoff exposing a bright stone, a bird flashing across a factory window, moss softening a wall, or water ticking through a grate beneath the steady hum. A traveler who arrives dressed for wet footing, respectful of the working parts, and willing to linger will be well prepared.

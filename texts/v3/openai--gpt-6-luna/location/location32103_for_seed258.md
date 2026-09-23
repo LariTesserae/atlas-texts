@@ -1,0 +1,23 @@
+The plateau begins above the ordinary weather. Clouds pass below it in slow, bright sheets, snagging now and then on the lower terraces. The air is warm and wet enough to bead on leaves and stone, though there is little stone to speak of. Water lies just beneath the surface, and wherever the ground is pressed it rises in clear seams: a shine along a path, a bead at the corner of a wall, a thin runnel disappearing into green.
+
+Nothing here seems quite natural, though nearly everything is alive.
+
+The land is made of plants grown into the shapes of a town. Broad, dark-rooted floors span shallow pools. Walls rise in rounded ribs, layered like the inside of a seedpod. Roofs are thick mats of flowering leaves, joined edge to edge so neatly that rain falls from them in measured curtains. There are arches with no visible supports, stairways that climb through hollow trunks, and long causeways made of tightly woven stems, pale and smooth underfoot. Their construction is too deliberate to be called wild, yet there are no tools, no workshops, no marks of cutting. The plants have simply grown this way, and have been this way for as long as anyone could remember.
+
+The built forms are widely spaced. A green hall may stand alone on a rise, with a mile of shining meadow between it and the next. From above, the settlement looks less like a city than a series of intentions set down across the plateau: a bridge here, a round enclosure there, a narrow tower of braided reeds at the far edge of a marsh. Empty ground is part of the design. It is never quite bare. Small leaves cover it in a dense, low felt, and water gathers in the hollows without making mud.
+
+The landscape appears to be in its first days. Its edges are unfinished—not broken, but undecided. Terraces end in smooth lips that might one day become cliffs. A stream widens into a pool without yet choosing a bed. Ridges rise from the green with the blunt, soft shapes of something still being formed. There is little erosion, no exposed rubble, no debris at the foot of the structures. The plateau has not been worn into its shapes. It seems to have arrived at them fully assembled.
+
+And then it stays.
+
+No branch visibly lengthens. No wall sags. No pool spills over its rim. Flowers remain open, each one holding a bead of water at its throat. The clouds move, and the light shifts with them, but the terrain does not answer. Even the streams seem less to flow than to occupy a narrow, shining position in the world. They make their noise continuously, but their courses never deepen.
+
+That noise fills the open distances. Water patters from roofs, ticks against broad leaves, and murmurs through channels under the walkways. The plant-built structures add their own sounds: a deep, hollow resonance when the wind presses against a wall, a soft chorus of clicks from seed cases touching one another, long low tones from the reed towers. The sound is loud without being crowded. It travels a great way in the humid air, so that a single drip from a distant roof may seem to fall just beside you. Birds are scarce. An occasional pale creature glides under the bridges or rests motionless in a pool, its outline almost lost among the reflections.
+
+The vegetation is not something that grows around the architecture. It is the architecture, the ground, and the weather’s first answer to itself. Thick roots make the pillars. Leaf layers make the shingles. Flowering vines mark doorways, though nothing passes through them. The paths are firm and dry on top, springy beneath, and warm as skin. If you leave them, the low plants part without resistance and close behind you—not quickly, not as a movement you can watch, but with the certainty of a place that has no reason to remember a footprint.
+
+There are no signs of machinery or human adjustment. No metal, glass, or manufactured stone. Yet the forms have an unmistakable logic: sheltered courtyards catch rain; channels lead it toward the broad roots; open circles face the distant cloud sea. The place has been made, but not by hands. Its rules are written in growth, and growth here has reached an arrangement it will not revise.
+
+From the highest terrace, the plateau extends in gentle green folds toward a horizon blurred by vapor. Here and there, another structure catches the light: a dome of leaves, a comb of bridges, a solitary column rising out of the marsh. Between them, the land is open and still, wet with condensation, warm beneath the feet, loud with water and hollow plant-song.
+
+It feels unfinished, but not temporary. The world may be new in shape; it is old in its refusal to change.

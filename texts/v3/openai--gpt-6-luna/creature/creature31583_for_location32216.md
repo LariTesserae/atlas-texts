@@ -1,0 +1,11 @@
+The hollow’s oldest resident has no den, and no single shape by which it could be recognized. It is in the water that pauses beneath the moss, in the little pools left behind by vanished footprints, in the current that keeps to its own clear path beside a clouded one. None of these, alone, is the resident. Together they are how it stays.
+
+At first it might be mistaken for a trick of the light: a dimness below a flat stone, a pale thread moving against the runnel’s flow. The larvae cling there, and the water shifts around them. But the thread is still when the water is quick, and moves when the surface is quiet. It may be a strand of root. It may be something living among the roots. The hollow offers no reason to decide.
+
+It is slow to notice visitors. A paw presses into the bank; water gathers in the print. The shape of the foot softens, the edges slump, the animal goes on. But for a while the small hollow remains, holding its measure of absence. The resident keeps such shapes—not as a record of who passed, perhaps, but because the water has learned how.
+
+It has no need to call. Its voice is the many voices already there: the ticking over stones, the low note beneath the turf, the sedges whispering when the wind crosses them. Sometimes, where two currents travel side by side, it seems to be choosing between them. Then the stones bring them together, and the choice is over.
+
+The resident does not own the hollow. The pines lean where they have always leaned; birds come and leave; the grasses take up whatever ground the water makes for them. It alters none of this by much. A pool holds its shape a little longer. Mist drifts uphill. A leaf turns at the same bend until the season changes.
+
+Perhaps it has been there since the ridge first gathered rain. Perhaps it began with one spring that found a hollow in the stone and stayed. If it knows the difference, it does not show it. It lives by keeping small things from quite disappearing—and by letting everything else, slowly, become something new.

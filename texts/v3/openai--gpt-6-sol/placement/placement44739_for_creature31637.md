@@ -1,0 +1,7 @@
+At first I think I would live in one of the houses, with a leaf roof that tips the rain away from my bed. But I keep coming back to the street: the warm water along its center, the bridges that wait just long enough, the places where a path was yesterday and might be again tomorrow.
+
+So I would be the person who goes out after rain to clear the small channels. I’d carry a hooked reed for lifting fallen leaves and a shallow bowl for fish stranded where the water has stopped. My work would be modest. By the time I reached a blockage, the roots might have opened another way around it.
+
+I’d live near the lowest part of the basin, where water lingers after the roofs have emptied. In the morning I could hear which hollow stalks were running before I opened my door. Some days I’d spend an hour getting to a channel only a few streets away, because a bridge was still drawing itself together. I would have learned to bring breakfast.
+
+Perhaps I’d once have kept the instruments among the roots. I’d still go to look at their records: the exact moment a stem tightened under a foot, the slow release after a cart passed. Then I’d step outside and wait for the bridge to finish moving before I crossed. At dusk I’d bring the empty bowl home, or leave it beneath a gutter where a frog had settled into it.

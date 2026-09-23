@@ -1,0 +1,11 @@
+At first I would think I worked for the railway. I would be walking beside it with a measuring rod, stopping at each pier to check how much salt had gathered against the stone. The trains would pass slowly enough for me to see the red dust on the couplings. I would note a few joints that needed clearing and go home with my boots white at the toes.
+
+But I don’t think the rails would be what kept me walking out there.
+
+Beyond the last dwelling, an old road runs near the line for half a day before turning away. The broad plated animals use it when a seam farther out has grown poor. I would learn this from the crescents beside my own tracks, and from finding a fissure newly ringed with pale dust. On some mornings I might see the file itself: an adult paused with its front lowered into the stone, a young one nosing at a rail joint until it notices me and slips back underneath.
+
+My work would be to maintain the places where journeys meet. I would clear dust from the joints so a train could pass, but leave the crescents beside them undisturbed. At the slag heaps I would move a fallen piece away from the strip the pale creatures use at dusk. If a doorway needed raising, I would help lift its lintel, then mark how high the salt had stood. None of these jobs would take a whole day. The distance between them would.
+
+I would keep a book in a thick-walled room. It would say which seams had grown quiet, which wall now gathered dust on its far side, and when animals had begun using a road again. Some entries would be my own observations. Others I would copy from older books because I could still find the places they described, though no one living remembered the writers.
+
+I would be one of the people who returns from the flats with little to say. Partly that would be the thin air. Partly it would be that, after a day beside the rail, I would need time to decide what had changed. I might put my ear to the floor before supper and hear the furnaces working through the basalt. In the morning I would take the measuring rod out again. Fresh crescents would have appeared beside the road, and I would follow them as far as my work allowed.

@@ -1,0 +1,11 @@
+The upland has been worn almost level, but not smooth. For miles, low shelves of red stone overlap like scales. Their edges have lost every sharpness; even the cracks are broad, rounded troughs filled with pale dust. At the far side of the plateau, the land drops out of sight, and beyond that drop rise other flat heights, hazy in the warm air. It is difficult to imagine the slopes that were here before so much stone went away.
+
+Rain comes rarely. Most mornings, moisture gathers on the undersides of the shelves, where cool rock meets warm air. Drops swell there without falling. By noon they are gone. The only green is in those shaded seams: short, stiff grasses, a few dark pads pressed close to the rock, and thin growths that leave a brown stain when they dry. In shallow hollows, old rain persists for days as little pools the color of tea.
+
+From a distance the plateau looks bare. Near at hand it is crowded. Small, pale animals fit themselves into every trough, so closely that their backs make a second, softer surface over the stone. Long-legged grazers stand among them, nosing the damp seams. Flat creatures hang beneath ledges in rows. Others, almost transparent, move slowly through the dust with grains of it visible inside them. They feed on the fine living film that returns whenever the rock sweats, and on one another. There are more bodies than plants; there are more bodies than places to put a foot.
+
+Still, the plateau is quiet. Claws make little noise on the powdery stone. The grazers seldom call. Even when a hunter eases through a packed trough, its prey tends to draw inward rather than scatter. For a while the trough appears to narrow. Then, after the hunter has passed, it opens again.
+
+Here and there stand squat chimneys of hardened earth, no higher than a person. Each has been built up grain by grain by colonies living inside it. Some are occupied; others have weathered into hollow rings, with fresh bodies sheltering in their ruins. Nothing on the plateau stays empty for long.
+
+Toward evening, the underside of the stone darkens first. The animals turn toward it, thousands of small faces angled at the same patient drops. Across the open height, the light remains ordinary and clear, while under every ledge a little darkness gathers and becomes crowded.

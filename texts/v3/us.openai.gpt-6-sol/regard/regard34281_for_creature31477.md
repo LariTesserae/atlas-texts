@@ -1,0 +1,11 @@
+The power watched through one hot day and one freezing night before it touched anything.
+
+It saw a bird lift insects from a seam that looked dry. It saw a small animal come out after dark to rake the same seam’s damp grit into a fan. It saw a grazer lower its head at the shed seep, drink briefly, and leave enough mud at the edge for smaller feet. It saw the pumps draw water from farther down, where no tracks could be read. The pumps did not run quickly, but they ran on days when the chutes were dry and on days when they flashed with rain.
+
+The power did not bring a great spring up through the valley floor. Water offered in one generous place would draw every thirsty creature there, along with every hunter. A new stream would carry the grit out of cracks that had held it for years. Even a little more shade, laid carelessly, would take the morning warmth from the lizards’ rocks.
+
+Instead, at the next hard rain, the power held a little of the runoff back. It let water pass into old fractures beneath the fins rather than hurry down the polished chutes. The storm still ended when it would have ended. The stone still dried from the top down. But for several more mornings the seams kept their dampness, and the bird found insects there after the pale faces of the rocks had warmed.
+
+At the pumps, the power did something a person could notice. On the driest days, each motor began to falter just as the water in its crack fell below a certain depth. Nothing broke. When rain replenished the cracks, the motors ran again. The people who tended them checked the intake pipes, then the water levels, and eventually set the pumps to stop at that depth themselves. They lost some water they had counted on. The power made no attempt to conceal that loss or make the choice painless.
+
+For a season it stayed. It watched to see whether the seep by the shed endured, whether the grazers could still find their way down, whether the little fans of grit appeared after dark. They did. Then the power left the valley its fierce noon, its brief rain, and the small remaining water that so many lives knew how to find.

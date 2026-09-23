@@ -1,0 +1,7 @@
+At first, the bird seems to have the town to itself. It lands on the market roof, watches the square, and slips away at the sound of a foot on stone. Beneath the eaves, though, cut stems have been turned so their damp undersides can dry. Someone has swept the moss from a threshold without pulling it from the cistern beside it. The people here are easier to find by what they have done than by where they stand.
+
+There cannot be many of them yet. Six stalls wait for a market larger than the town can fill, and house stakes stand among seedlings that have had a whole season to grow. Those who live here seem to spend the clear mornings where the streets cannot be seen from the upper stair: beside the weeping seams, on the unfinished terraces, or in the sheltered rooms where wet timber is stacked apart to dry. By the time anyone crosses the square with a bundle on their back, the work that brought them out may already be done.
+
+They know the bowl by its sounds. A jar left beneath a drip is not forgotten there; someone set it where the water would fall. When the wind is up, they lift their voices only enough to reach the next person. When it dies, a call from behind a wall carries across the paving.
+
+They are still making room for themselves. A new step meets raw stone; a cord holds a gate that has not yet been given a proper fastening. They leave broad spaces between the houses and tend what grows in them, as though they expect both the town and its gardens to need more years than their hands alone can give.

@@ -1,0 +1,13 @@
+The highest part of the mountain is a room no wider than two outstretched arms.
+
+To reach it, you climb a ladder of knotted roots through a dark shaft. The rungs are warm and damp. At the top, the ladder ends beneath a low ceiling of fitted stone tiles, and you must turn sideways to enter. There is no bare rock here. Every surface has been laid, tied, tamped, or woven: pebble-sized blocks of soft black clay, reed matting, little retaining walls no longer than a thumb. The mountain is still being made, and this room is where its summit is assembled.
+
+Water beads on the ceiling and falls heavily onto the work below. In the heat, some drops vanish before they land; others hit the clay and leave deep round marks. Moss grows over the marks within minutes. Ferns push between tiles that were set this morning. Their fronds brush your face, wet enough to keep you from seeing far, though the room is already dim. There is no space to step without bending a stem or putting a foot in someone’s unfinished wall.
+
+You can hear the work even when no one is present. Clay knocks softly against clay. Reed bindings tighten with sharp little cracks. Behind the walls, water runs through narrow channels, striking hollow stones with a noise like many hands beating drums. Now and then a much louder sound rises through the floor: a long scrape as the mountain gains another piece underneath you. The ladder shifts when this happens. The ceiling does not.
+
+At this height the air should be cold. Instead it is close and hot, and smells of wet leaves and the sour clay kept in baskets beside the entrance. A small pale moth rests on one basket. It is the only animal in sight. When a drop strikes near it, it opens its wings, but does not fly.
+
+The builders have left their tools in the room: a flat stone for pressing joints, a sharpened stick, a loop of cord marked with knots. They use the cord to measure each new wall. The measurements do not always stay put. A wall set at the length of six knots may be seven by evening, while the cord remains unchanged. If you lean your hand against the wall, you can feel it adjusting—one damp block nudging another, slowly and with considerable force.
+
+Outside the room there is sky on every side. It shows briefly through a gap in the reedwork: dark cloud, then a strip of bright distance far below. The next fern unfurls across the opening before you can tell whether the mountain is growing upward or whether the world beneath it is sinking.

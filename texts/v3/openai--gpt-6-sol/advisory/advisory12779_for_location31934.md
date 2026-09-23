@@ -1,0 +1,9 @@
+Prepare as though you are entering an enormous, operating animal facility, not crossing open countryside. Before you go, find out who maintains it, whether visitors are permitted, and which service routes are safe. The basins may be shallow, but their repetition will make distance hard to judge; a wall that looks nearby could take hours to reach.
+
+Wear waterproof boots with good grip, clothes you can wash, and gloves for handholds. Bring your own drinking water and food. Neither the fresh-water runs nor the feed slots are meant for you, and the standing water may contain waste or cleaning chemicals. The air sounds warm and still, so carry water for a humid walk even if the wet paving makes dehydration seem unlikely.
+
+Keep to marked walkways if there are any. Watch for slick glaze, submerged joints, grates, and the low rims that are just high enough to trip you. Stay clear of pipes, valves, and overhead condensation channels: the steady operation of the works does not mean every discharge is harmless. Do not climb a service bridge without knowing it is open and sound.
+
+Give the animals room, especially at feed and water points. They seem accustomed to the machinery, not necessarily to strangers. Move slowly, avoid loud sounds, and do not touch, feed, or startle them. Clean your boots and equipment before and after the visit; a place this densely stocked could spread disease easily between its basins and wherever you travel next.
+
+Carry a reliable route map, a way to mark your return path, a light, and a means of calling for help. Do not depend on a memorable skyline: the gantries and basins repeat beyond sight. Go with another person if possible, set a turnaround time, and tell someone which access point you used. Above all, resist the impression that this quiet place is idle. Its pumps, animals, and water are all following a routine you do not yet understand.

@@ -1,0 +1,15 @@
+Inside a blister in the black rock, smaller than a walnut, the mountain keeps a furnace.
+
+The blister lies high on the shoulder of a young volcanic ridge, where the air outside is thin and the slopes have barely begun to take shape. Nothing has had time to soften them. The surrounding stone is fresh, sharp-edged, and crowded with bubbles that never opened to the sky. This one is sealed except for a hairline throat, invisible beneath a flake of glassy basalt. Heat rises through it from below, slowly, without flame.
+
+There is no water here. The floor is a crust of iron-dark grains and pale sulfur bloom, with little hooked crystals thrust through it like splinters. The walls shine in patches, not with moisture but with fused mineral, black as an unlit stove. A dim redness gathers deep in the stone—too weak to illuminate anything, just enough to make the nearest crystal edges seem warm when the eye has waited a long time.
+
+The chamber is almost entirely occupied.
+
+Blind, heat-loving creatures pack the hollows between the crystals: many-legged, pale-bodied things no longer than a grain of sand, their backs plated in mineral dust. They crowd over one another in slow, purposeful tides. Some rasp at the sulfur crust. Others wedge into the seams and remain there, pulsing their sides against the rock. Nothing grows; nothing has leaves or roots or soft green tissue. The living things feed on the thin deposits and on one another’s shed skins, and their numbers make the floor seem to crawl even when it is still.
+
+Their movement makes the blister loud. Claws ticking on crystal, hard plates brushing, a thousand minute jaws grinding at the crust. Beneath that is the deeper sound of the mountain: a steady industrial hammering, as if a hidden press were stamping the rock from within. It comes from the throat of the cavity, where hot gas works through the pinhole and makes a narrow shard of basalt tremble against its socket. The shard does not turn or unlock anything. It is only stone, vibrating in its seat—yet the creatures arrange themselves around its rhythm, feeding and nesting in the pauses.
+
+The world here changes by fractions. A crystal lengthens across the span of generations. The throat narrows as its rim anneals. Fresh grains settle from the ceiling, and the packed colony absorbs each fall without scattering. There is no weather inside the blister, no horizon, no open distance—only a hot, crowded dark in which every presence touches another, and every sound passes through the whole small world.
+
+When the mountain cools, the chamber will contract. When it warms again, the glass will swell. The creatures will continue their slow traffic through the mineral maze, unaware of altitude, unaware of the vast bare slope beyond their ceiling. Their entire landscape is a hidden pocket in a stone still becoming itself.

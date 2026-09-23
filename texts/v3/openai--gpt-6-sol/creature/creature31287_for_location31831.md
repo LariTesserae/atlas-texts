@@ -1,0 +1,11 @@
+At first, the basin appears to hold only the quick things in the fractures. One shoots out beneath a wall and crosses a patch of pale stone: a narrow, clear body with a dark knot at one end. Another follows the same path before the first has reached it. They might be two animals. They might be one animal seen twice.
+
+Where the current meets itself, something larger is difficult to distinguish from the water. Its body is long and nearly transparent, visible chiefly by the chips of black stone caught against it. They hang in uneven rows along its sides, not embedded but held there by a succession of small, steady movements. When the creature bends, the chips spread apart and show the soft tissue between them. It has no obvious head. At one end, fine limbs search the basin floor; at the other, similar limbs brace against the rim.
+
+It spends much of its time at the three walls. Each narrow enclosure contains a length of its body, folded so closely that the stone courses hide it. A limb will extend above one wall, feel along a joint, and withdraw. Soon afterward a block may lift from the broken fourth wall. The creature does not seem to carry it. It holds itself across the current until the block turns into place, then lets the water go past.
+
+The small shapes live in the fresh fractures. They come out to take the bright mineral exposed when stone splits, and disappear before the faces close. Some have the same clear bodies and dark knots as the larger creature, though no one has seen one grow. When a crack sounds, several may already be waiting beside the seam.
+
+The larger one feeds there too. It puts its searching limbs into the gap and keeps them there while the rock becomes whole around them. For a while it is fixed to the mountain, stretched between the walls and the rim. Its chips rattle in the opposing currents. Then a burst of bubbles passes over it, its limbs come free, and it folds back into the basin.
+
+It has remained on this small summit long enough to know every new edge, but not long enough to leave anything worn smooth. Its young wait in the stone. Its body lies in the water and among the walls. When it crosses the basin, it takes much longer than a pebble, and the walls remain close behind it all the way.

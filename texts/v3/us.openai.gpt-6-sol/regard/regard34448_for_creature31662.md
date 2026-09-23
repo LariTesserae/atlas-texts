@@ -1,0 +1,9 @@
+The power would stand at the rim for a long time before doing anything. From above, it would be easy to mistake the town for something in need of rescue. From below, it would see how carefully its inhabitants had learned to live with water, roots, and one another. It would not raise the basin or dry it out.
+
+It would notice the eastern wall. A second fall was coming—not today, perhaps, but soon enough that the people were already watching for it. The power would not make the wall unbreakable. It would loosen one small stone at dawn, while no one was beneath it, and let it strike the others on its way down. Those listening would hear the hollow places behind them. They could choose where to move the path and which roofs needed clearing.
+
+Then it would turn its attention to the cold. Not to banish it: the reeds, fish, moss, and people all lived by seasons. But in the open courts where people gathered during the coldest hours, it would let the pale walls hold a little more of the day’s warmth. The difference would be modest. An old person could sit outside a while longer; wet clay pressed into a wall would set before night.
+
+After that, the power would wait. If a child carrying mud stopped to put a fish back in the channel, it would leave the water clear enough for the fish to find its way. If a household chose to duck beneath a growing branch, it would let the branch grow. The people knew more about their town than any visitor could learn from the rim.
+
+In time, they might speak of a morning when the eastern wall warned them, or wonder why one court stayed warm after sunset. They need not agree on what had happened. The path would be moved, the fish would swim on, and by next season seedlings would be growing in the fresh earth.

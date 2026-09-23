@@ -1,0 +1,7 @@
+Behind the pumping station is a space scarcely wider than a room, open to the sky on one side. A new retaining wall closes the other three. Its concrete still has the crisp corners and faint grain of the boards that shaped it; nothing has had time to round them. Along the floor, water presses up through a seam and spreads over the concrete in a sheet too shallow to ripple. The place is wet without seeming refreshed.
+
+Heat gathers here. In ordinary daylight, the wall gives back what it absorbed all morning, while beads of condensation form on a cool pipe crossing its face. They swell, fall, and make dark spots that disappear into the larger dampness below. A few pale reeds have taken hold where the floor meets the open ground. Between them are long stretches of bare concrete, rust-colored bolts, and one strip of black silt left by an earlier overflow.
+
+The machinery is out of sight, but it fills the recess with sound: a continuous, heavy rushing, with a lower vibration felt through the soles of the feet. Drops strike a loose metal cover at irregular intervals, sharp enough to hear through the roar. Nothing calls back. There are no insects over the water, no tracks in the silt.
+
+A painted line on the wall marks the level the water must not reach. It lies well above the present sheet, bright and untested. For now the changes are smaller: a drop works its way down the pipe, a mineral rim grows at the seam, and the reeds hold still in the hot air.

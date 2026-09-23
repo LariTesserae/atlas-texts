@@ -1,0 +1,13 @@
+The people who live in the hollow look like people who live anywhere with too little room: they carry their shopping sideways through narrow doors, recognize one another by coats, and complain about repairs until a repair crew is needed. They are good at remembering small things. A baker knows which customers must leave ten minutes early to arrive on time, and which can wait until the bread is cool. At the school, children are taught to count drain covers without looking down.
+
+There are other residents, though no one agrees on how many.
+
+Some live in the newly laid walls. A mason will set a blue-gray slab between two older ones and return to find a window in it, no bigger than her hand. From the street she can see a little depth beyond the glass: the edge of a table, perhaps, or the pale blur of a curtain. The view is never the same from inside the building. These windows have no latches and do not cloud when someone breathes on them. The crews leave them in place unless they weaken the wall.
+
+Something also inhabits the space between a sound and its arrival. It is most noticeable on the stairs beneath the streets. You hear another shoe behind you, matching yours badly—too slow on the first step, too quick on the last. If you stop, it finishes climbing. No one has seen its owner. Residents do not call out to it; a voice is less reliable than a footstep, and they have no wish to send it somewhere else.
+
+Near the channel are smaller lives, if they are lives at all. On mornings when the water has given way to soft mineral, the slabs bear faint, branching marks. Surveyors first took them for impressions left by runoff. Then a worker found one crossing a cut he had made only minutes before. The marks are delicate and disappear as the material hardens. He now sets aside the first slab lifted each morning and waits a little before carrying it away.
+
+The oldest resident may be the district itself, although *oldest* is a strange word for a place still acquiring its habits. Its corners are only beginning to wear. Water is trying out routes through it. Some streets have learned to keep their length for months; others cannot yet manage a whole day. People speak of these changes the way they speak of a child growing—mostly in practical terms, while keeping photographs they cannot quite explain.
+
+They have not stopped living ordinary lives on its account. They mend clothes, miss appointments, bring soup to sick neighbors. When someone is walked home, the companion waits until the right door has opened and shut. Then they count their way back, giving the district time to settle around them.

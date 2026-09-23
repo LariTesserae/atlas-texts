@@ -1,0 +1,11 @@
+At first, the largest inhabitants look like loose lengths of the ridge itself. They rest along the underside of the canopy, brown backs against brown growth, with their narrow tails hanging into the open water. Only when one pushes away does its shape become clear: a long, soft-bodied swimmer with four small pairs of limbs beneath its chest. The limbs are poor for swimming. Each ends in several fine, strong fingers that can enter a woven wall without tearing it.
+
+They come down to the terraces singly. One will stop at a column and remain there for hours, drawing dead fibers from an opening and feeding living shoots into their place. Its mouth holds the fibers while its fingers work. When it lets go, the new weave has the same curve as the old one. It does not build quickly enough for anyone watching to see the wall change.
+
+The young live higher on the ridge, where faint light reaches the green seams. They are pale and restless, slipping through openings too narrow for the adults. They eat the soft growth there and leave behind the harder rooted strands. As they grow, their backs darken, and they begin to follow the older swimmers down through the columns. An old one may spend days on a single terrace. Its fins become ragged at the edges, and it knows the wall by touch: which hollow stem carries water, which pocket shelters grazers, which strand has begun to give.
+
+The little pale grazers are as much a part of this work as the swimmers. They clean the inner passages with their clicking jaws, eating growth that would close them. The swimmers eat some of the grazers and leave others. Silver fish pick at what falls away. Nothing here clears a wall completely.
+
+In the open space beneath the canopy, the swimmers rarely call. The water is already full of sound. Instead they lay a hand against a support and press in short, deliberate sequences. Another, farther along the terrace, stops working and sets its own fingers to the wall. The low roar continues unchanged to an outsider, but the two hold still for a while, feeling what passes through it.
+
+When one dies, it settles where the ridge catches it. Small animals take the soft parts. Roots enter what remains, and in time there is no easy boundary between the body and the work it kept.

@@ -1,0 +1,17 @@
+The first inhabitants to notice are the shrimp.
+
+They travel the walls in bright, narrow lines, turning together when the current shifts. Their bodies are almost clear, except for a dark bead of gut and the silver points of their eyes. They pick the mineral glaze clean, and where their paths cross, the metal shines faintly, as if polished by tiny, patient hands. When startled, they scatter into the bolt-holes and lamp-cups, then return one by one, always to the same routes.
+
+The fish are harder to see. They live inside the chamber’s ribs, in the long hollow conduits and the blind pockets behind the terraces. Most are dark as old oil. They leave their hiding places in brief, unannounced flurries, turning their sides to the light so that a school becomes, for a moment, a single bright shape. They feed on drifting larvae and the smallest shrimp. They know the machine’s rhythms. At the first deep shift below, they vanish into the walls before the leaves have flattened.
+
+The larger creatures scarcely seem to move at all. They hang beneath the root-curtains, bodies soft and pale, their frilled mouths opening and closing against the rising water. Their feeding combs catch what the current brings: scraps of leaf, minute animals, the silver dust loosened from the old surfaces. They are slow enough to look like another kind of growth. Sometimes one detaches from its resting place and drifts a little higher, trailing a fine ribbon of eggs that settles among the roots.
+
+They are called bell-mouths by no one in particular. There is no one here to name them; the name belongs to the shape they make when they feed.
+
+The plants, too, are inhabited. Tiny crawling things live beneath the leaves, grazing the soft films that coat their undersides. Pale worms thread through the root-mats. Something builds delicate, transparent cases in the seams between metal and ceramic, and something smaller still takes shelter in those. Nothing in the chamber is entirely alone. A loosened leaf becomes food, a hiding place, then a drifting raft for eggs. The mineral bloom feeds the plants; the plants shelter the grazers; the grazers draw the fish close. The old architecture holds them all in its many accidental hollows.
+
+In the deepest conduit lives a long-bodied animal with a blunt head and a faint, cold light along its sides. It leaves its den only when the pumps turn over. Then it rises through the dark, following the warm pulse from below. It does not chase. It waits where the chamber narrows and lets the current bring small fish within reach. One quick bend, one flash of pale mouth, and it is gone again into the machine’s hidden anatomy.
+
+The others know its passing. The shrimp fold themselves into crevices. The dark fish press deeper into their ribs. The bell-mouths close their frills, and for a few moments the forest of leaves seems to be listening. Then the light along the hunter’s body fades below, and the chamber resumes its ordinary drift.
+
+If there is a keeper of this place, it is not the long animal, nor the oldest bell-mouth, nor any creature that can claim the chamber as its own. It is the congregation: the beings that have learned, separately and together, how to live inside the machine’s weather. They wait through its groans. They feed on what it sheds. They shelter in what it broke. When the buried pumps send up their warm breath, they rise into it, and the whole small world stirs—leaves reaching, fish turning, shrimp brightening along the walls—before settling again beneath the pale circle of glass.

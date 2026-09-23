@@ -1,0 +1,21 @@
+Something lives there, though the streets rarely offer a body to prove it.
+
+At first the signs look like accidents of water. A trail of drops crosses a dry courtyard, though nothing has passed. A door left open swings shut against no wind. In an upper window, a figure stands so still it might be a stain on the wall—until a second figure appears in the window facing it, separated by a gap too narrow to hold either one.
+
+The inhabitants are known, if they are known at all, by the rooms they keep returning to. They are tall and spare, with skin the color of old plaster and hair that lies dark and wet against the skull. Their clothes hang simply: long wraps, soft boots, sleeves tied close at the wrist. Up close, their faces are not blank, exactly. Features are there, but difficult to settle on. A face seems to borrow its expression from whoever is looking at it. No one remembers meeting the same person twice in the same place.
+
+They move through the city with the ease of people who have learned its disagreements. A woman steps into a passage and emerges from a courtyard three streets away, carrying the same bowl of water. A child climbs down a staircase that rises behind him. The inhabitants do not pause at such things. They set one foot, then another, as if the city’s oddities were no more remarkable than a loose paving stone.
+
+They have habits. They gather beneath covered walks when the rain begins—not to stay dry, but to listen. When water lifts from the canals and patters against the cloud-dark sky, they tilt their heads, following the sound upward. They leave small dishes on windowsills and empty them at dawn, though there is no dawn to mark the hour. They sit in flooded squares with their feet in the shallow water, speaking so softly that their words arrive elsewhere: in a stairwell, under a bridge, sometimes inside a closed house.
+
+The city’s channels are their concern, though none would call them workers. They clear silt from a drain with their hands, then leave the channel to run where it likes. They press a palm to a sweating wall as if checking for fever. In some districts they lay thin lines of pale stone across the paving, and in others they pull them up again. The water follows these gestures for a while. Then it remembers some older route.
+
+Their homes are not always buildings. One inhabitant may belong to a particular stairwell; another to the shadow between two façades, though the space there is scarcely wider than a hand. They keep small, quiet possessions: a length of cord, a smooth stone, a cup with no handle. These things turn up in rooms that have not been entered for years. Sometimes they are found wet; sometimes warm.
+
+There are children among them, or things that look like children from a distance. They are seen running across empty plots and vanishing at the walls, laughing without sound. The older inhabitants do not call after them. Perhaps the children are only learning which parts of the city can be crossed. Perhaps they are the parts that have not yet decided what shape to take.
+
+They do not seem frightened of strangers, but they are wary of being followed. Anyone who walks behind one for too long finds the distance changing: the figure grows smaller while the street grows longer, or a familiar corner arrives too soon. If the stranger turns back, the inhabitant may be waiting under an arch nearby, watching with mild concern, as though the stranger has misplaced something.
+
+It is possible that they were once ordinary people, and that the city kept them after the people themselves had gone. It is also possible that the city made them from its empty rooms, its remembered footsteps, and the water that still travels routes no living hand maintains. The inhabitants do not appear to care which explanation is true. They tend their bowls, sit in their squares, and listen for the soft rush moving beneath the stones.
+
+When rain falls upward, they look toward the sky. When it falls down, they look at the ground. In the long intervals between, they go on living in the spaces that remain.

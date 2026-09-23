@@ -1,0 +1,7 @@
+I think I would begin as one of the young, carried through a passage too narrow for light. For a while I would have no place in the plateau at all—only the pressure of water against my body and the brief touch of stone as I passed.
+
+Then the current would pin me beneath a low shelf, just upstream of a shaft. I would anchor there because I could, not knowing that the place would become mine. At first I could still draw my whole body into the channel. Over the years I would grow around a bend in it, reach through a second crack, learn the small difference between water arriving steadily and water about to rush. My fringes would open in the dark. When the pressure changed, I would fold flat before the flood came.
+
+From above, my home would be one bare pocket among thousands. Someone might put a hand on the wet stone and feel me pull away, then decide it was only water moving under their palm. I would know nothing of the bird crossing overhead or the severe brightness on the ribs. I would know the shelf by where it held me, and the shaft by the force with which it drew water past.
+
+In time I could not leave without tearing myself. That might once have frightened me, if I had known it was happening. By then, though, there would be room for my body exactly where I had grown, and a clear fringe I could still extend into the flow.

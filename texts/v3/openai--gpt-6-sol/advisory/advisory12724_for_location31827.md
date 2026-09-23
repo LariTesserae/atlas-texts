@@ -1,0 +1,7 @@
+Prepare for this as a visit to a **small, exposed structure at great height**, not as a walk through a sheltered garden. Before going up, confirm that the lift works in both directions, that someone knows where you are, and that the weather is suitable. If you have just arrived from a very different world or altitude, give yourself time to adjust before taking the lift.
+
+Wear shoes with good grip, warm layers you can secure against the wind, and hearing protection. The furnace’s roar may make conversation difficult, so agree on simple hand signals with your companion before you ascend. Bring water and a small first-aid kit; there is no dependable drinking water or shelter at the top. Keep your hands free for getting on and off the lift.
+
+Once there, stay on the narrow path and well back from the arches. Clouds may leave the iron wet and slick even when the sky looks clear, and leaves can hide thin or corroded metal. Do not use the maintenance ladder or lean on the vines as handholds. Avoid touching machinery or blocking drains, and leave the roots, moss, nests, and insects undisturbed.
+
+Give yourself a little time simply to stand still. The noise will obscure small sounds, the wind may shift suddenly, and the drop beyond the arches may be disorienting. It is a place to visit slowly, with an uncomplicated plan for going back down.

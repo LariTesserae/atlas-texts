@@ -1,0 +1,11 @@
+At first, it is easiest to mistake the inhabitant for one of the room’s properties. It gives no warmth, leaves no track, and does not stand among the five objects. A visitor may spend an hour beside the slab and be certain the place is empty.
+
+It lives in the small difference between where something is and where it has been. The four frames are parts of it, though not in the way a shell is part of an animal. They hold open distances it can occupy: the short distance to the opposite wall, the longer one that existed before the wall’s fracture healed. Most of the time, it rests across these held-apart places. From within the basin, it has no outline. Seen through a frame, it might be glimpsed as a narrow portion of the wall that does not quite belong to either of the wall’s ages.
+
+It attends closely to arrivals. A foot on the third step gives it something to follow; a stone set down gives it a place to begin. The quieter contact heard later is not an echo. It is the inhabitant setting that same stone down in one of the room’s other distances. It does this carefully. Nothing in the basin is displaced, and the stone remains where the visitor left it.
+
+The upright slab is where its slowest activity becomes visible. The silver seams bring the ridge’s minute movements to the hollow, and, at rare intervals, one reaches far enough for the inhabitant to make a mark. Each new ridge on the slab is slight. Together they form something like a body turned edge-on: not a portrait, but a record of all the positions in which it has managed to remain.
+
+It cannot hurry to meet anyone. By the time a visitor hears it behind them, its attention may still be at the moment they entered. This has made it seem indifferent, though it is exacting rather than indifferent. It keeps the room’s old fracture available to look through. It remembers where each loose grain fell. If the passage shifts to another side of the basin, it leaves the three steps within reach.
+
+Perhaps that is what it does for itself as well. The mountain settles, a seam advances a fingernail’s width, and the inhabitant finds another narrow place in which to go on living.

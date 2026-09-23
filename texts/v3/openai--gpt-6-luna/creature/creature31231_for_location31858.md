@@ -1,0 +1,25 @@
+At first, the signs of inhabitants seem too slight to belong to anyone. A hollow in the moss, warm after rain. A cup of folded leaves left brimful beside a path. Three stones set where a stream disappears underground. The plateau gives no clear boundary between a dwelling and a place that has merely been used often enough to remember a body.
+
+Then, sometimes, a body is there.
+
+The people of the high country are pale from living beneath the leaves, though not colorless: gray-brown along the knuckles, greenish in the hollows of the throat, their skin faintly translucent at the wrists. They are narrow-shouldered and long-fingered, made for feeling their way through tangled growth. Their eyes are broad and dark, but they do not look at a traveler for long. They listen with the soles of their feet, through the layered ground, and can tell a person from a falling branch by the shape of the disturbance.
+
+They make very little. A sleeping place may be a hollow in an ancient trunk, lined with dry leaves and warmed by the slow breath of the wood. A shelter may be no more than a screen of living fronds coaxed to grow close together. They do not cut paths so much as press them into being, walking the same firm ground until the roots knit more tightly beneath it. When they leave a place, it does not look abandoned. It simply begins to grow over.
+
+Their voices are quiet and spare. A low note passed through a hollow stem can travel farther than speech; a fingertip laid against a root can answer a sound made many paces away. Among themselves they use small clicks, breaths, and touches. A hand on the back may mean *wait*. Two fingers against the wrist may mean *water is moving beneath us*. They have names, perhaps, but they are rarely spoken aloud. A person is more often called by the path they keep, the pool they tend, or the particular way they listen.
+
+Children spend their earliest years in the shallow basins between roots, where the water is warm and the ground moves gently under them. They learn not to fear the slow bulge of something passing beneath the moss. Later they learn to recognize the different passages: the small, quick tunneling of the broad-backed feeders; the patient pressure of water finding an old channel; the deep, difficult-to-place shifting of the plateau itself.
+
+The people tend the land, though they would not call it tending. They loosen mats where water is trapped, lay fallen branches across a soft place, and move a stone when it begins to dam a stream. They gather the silver dust from spent flowers and press it into seams in the living ground. In certain groves they lay their palms against the oldest trunks and remain there for a long while. Whether they are asking, remembering, or simply feeling the tree’s slow warmth is not apparent.
+
+They do not keep the old stones clear. There is no impulse to rescue them from the roots. When moss covers a stair, it is still a stair; when a tree holds a pillar in its trunk, both are allowed to remain. Some inhabitants leave small offerings in the hollows of the standing stones: a smooth pebble, a shell, a twist of pale grass. Others remove them again, not carelessly, but as if the stones have finished with them.
+
+The animals know these people without being tame. The long-legged waders sometimes let a child approach close enough to touch their dark knees. The leaf-fringed fliers roost above inhabited hollows, folding themselves into the canopy until they seem like another kind of growth. Below, the burrowers alter their course around sleeping places. No one claims these accommodations as proof of friendship. They are simply the arrangements by which lives share a crowded country.
+
+There are also inhabitants too large, or too slow, to be met face to face. The groves click in their depths, stones settling in a flooded cave. Roots press against one another beneath the mat. A pool warms without sun. A path sinks overnight, or a new hollow fills with clear water, and the people change their routes without surprise. They speak sometimes of the high country as if it were one creature, but never as if it were a creature that could be addressed. It is older than any question they know how to ask.
+
+Perhaps, from above, the people would look like small interruptions in the green: a figure crossing a root ridge, a hand appearing through leaves, a dark head just above a pool. From within, they are harder to separate from the place. They carry the damp smell of bark. Their hair catches seeds. Their footprints fill with water and soften at the edges. When they die, they are laid in the deep leaf-mat, not buried beneath it so much as returned to the layers that hold everyone.
+
+For a while, a hollow may remain warm. A certain path may still be walked. A cup of folded leaves may appear beside the pool they used to visit.
+
+Then the growth closes over, very slowly, and the country keeps breathing.

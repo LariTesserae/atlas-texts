@@ -1,0 +1,23 @@
+At first, the basin seems empty. Then, in the shallow water, a small jointed thing crosses a shelf of stone.
+
+It is no longer than a hand, though its proportions are difficult to hold in mind. Its body is made of dark plates, almost the same color as the grit beneath it. Fine, transparent limbs unfold and refold under its weight. It leaves no tracks. When it reaches a seam in the stone, it stops—not to feed, or hide, but to listen. The roar passes through its body. For a moment, the joints tremble in sequence, as if a message were traveling through them. Then it goes on.
+
+There are many of these, though no two are often seen together. They move only when the basin changes: after a crack beneath the plain, during a shift in the water’s direction, at the onset of a storm. They are called nothing by anything that might name them. They do not pursue one another or flee. They collect at the edges of disturbances, testing the altered ground with their limbs, and then disappear into water too shallow to conceal them.
+
+Their young are nearly invisible. A bead of water held in a black cup of lichen may contain one: a pale thread curled inside itself, turning very slowly. When the cup dries—which happens less often than it should—the thread slips into the mist and is carried away. It may settle miles distant, or return to the same stone after a season that has not yet happened.
+
+Below the water, life is denser. The plain is laced with something like roots, though roots suggest a single plant and this is not one thing. It is a braided multitude of soft filaments, mineral-crusted cords, and hollow chambers pressed flat beneath the weight of the layers above. They drink what seeps through the stone: salts, warmth, old fragments of living matter. They also take in sound. The basin’s enormous roar moves through them without end, and each small impact becomes part of a slow, distributed sensing.
+
+Sometimes the hidden mass contracts. The water swells over a patch of plain. A channel opens where no channel stood; a low ridge rises, smooth as if it had always been there. The surface animals gather near the change and touch it with their delicate limbs. Far beneath them, the buried life has shifted itself—perhaps in response to pressure, perhaps to something heard at a distance too great for any single body to understand.
+
+The old pillars and broken rings stand among its densest places. Whether they were made by the buried inhabitants, or merely found and adopted, cannot be told. Thin strands creep through their cracks and vanish inside. When storms gather, the stones sometimes groan. The creatures come to them then, clinging in rows to their submerged sides. They do not shelter there. They face outward, toward the moving water, and wait.
+
+There are other presences, less easily called creatures. Beneath certain pools, the light gathers in pale, wavering flecks. The jointed animals avoid these places. The buried filaments do not. They bend toward the light, though no opening can be found beneath it, and the water above remains dark. Afterward, something in the basin’s arrangement is different: a shelf missing, a new stretch of reeds, a hill appearing where the plain had lain flat. The change is already softened, already old.
+
+The reedlike growths are not plants in the familiar sense. Their clear stalks extend only when the water passes in both directions at once. They feed on the disagreement. Their fine tips tremble, and the tremor travels down into the buried cords, where it may be felt for miles. In time, a patch of reeds can become the center of a great migration—though the creatures move so slowly, and over such distances, that no one sees it happen.
+
+Nothing here hunts in the open. Nothing calls to mate. The basin’s inhabitants have no need to hurry toward one another. The water brings everything, eventually; or the plain folds until what is distant becomes near. Their lives are measured in pressures, in long changes of temperature, in the arrival and fading of sounds. What seems to a passing traveler like a single day of storm may be, to them, a sudden disturbance in a history too deep to surface.
+
+When the roar grows loudest, they become still. The small animals lock their limbs around stone. The reeds bow without choosing a direction. Beneath them, the buried multitude tightens through its endless layers, holding the soft floor together while it shudders. For a few breaths, the pale lights appear under the water.
+
+Then the basin settles. The creatures resume their patient crossings. Somewhere far below, the filaments loosen and continue spreading through the packed dark, listening for the next change in a world that is always moving, and has nowhere else to go.

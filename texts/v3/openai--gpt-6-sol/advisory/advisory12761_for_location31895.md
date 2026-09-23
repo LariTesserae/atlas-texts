@@ -1,0 +1,11 @@
+Prepare for this city as you would for a long stay in a working flood-control system, not a walk through a picturesque old town. Its streets, buildings, and waterworks are all in use, and a route that was safe this morning may be closed by evening.
+
+**Before you go, arrange a local point of contact and a place to sleep.** Choose lodging that can explain its flood procedures, has an accessible exit when the lower streets fill, and can tell you how to get home if the nearest gate closes. Learn the local warning tones and what residents do when they hear them. Ask how to recognize painted crossing marks that have *settled*: if a walkway or bridge is moving, wait with everyone else rather than trying to judge it yourself.
+
+Pack for persistent damp rather than a single rainstorm: footwear with good grip that can tolerate ankle-deep water, quick-drying clothes, a light waterproof outer layer, and dry bags for documents and electronics. Carry a small light for dim lower lanes, but keep your hands free on stairs and crossings. The pumps, freight, rain, and warning tones may be exhausting; hearing protection could help during travel, provided you can still hear alerts and nearby people.
+
+Keep your daily plans flexible. Use current local route information, leave extra time, and learn an alternative way back to your lodging. In an unfamiliar district, prefer marked public routes to service tunnels, flood channels, or a tempting shortcut across a shifting walkway. Stay clear of grates, gate machinery, and street crews at work. Keep food and belongings secured around gutters and markets where animals forage.
+
+Do not assume standing or running street water is safe to drink or wade through unnecessarily. Establish where to get reliable drinking water and wash promptly after contact with floodwater, especially if you have a cut. Carry any essential medication in a waterproof package, with enough spare supply to outlast a district closure.
+
+Most of all, follow the residents’ pace. They know when to keep moving and when to stop and let the city change shape. Be ready to speak close enough to be heard, yield space to freight and repair crews, and accept that “the usual way” is only the usual way until the next rain arrives.

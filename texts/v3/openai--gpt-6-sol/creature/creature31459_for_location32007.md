@@ -1,0 +1,11 @@
+The easiest inhabitants to see are the black stems. They look solitary, but a leaf caught in a seam may be miles from the plant that shed it. The moving tiles carry the leaves outward until they snag; there they dry, curl, and become shelter for the small jointed animals. A plant can lose its stem and wait beneath the surface. The animals cannot wait so long. They follow the loosening seams at dusk, and by morning they are under cover again.
+
+There is a larger inhabitant, though most visitors take it for a flaw in the plain. It appears first as a patch where the hexagons sit unevenly: perhaps a dozen tiles, their centers raised a little higher than their neighbors. The patch advances so slowly that anyone watching it would see nothing. Return after a season and it has crossed a groove you remember.
+
+Beneath it is a creature no thicker than a hand, broad and pale, with a fringe of fine gripping limbs along its edge. It does not burrow. As the warmth opens the seams, the limbs take hold of tile rims and draw the body forward; when the tiles close, it lies flat and lets the plain hold it. Dust caught underneath feeds a rough mat on its back. Sometimes a black stem grows there for a few days, until the creature passes under a narrowing seam and the stem snaps.
+
+The little jointed animals know these raised patches. After the overhead light has passed, they visit the gaps around one, picking through the grit the larger creature has disturbed. Some ride on its back. They leave when it reaches a band of broken casing, where the shelter is better and the food lasts longer.
+
+No one has seen one of the broad creatures cross open ground. Their young are found instead under loose tiles: pale, nearly transparent things with limbs already set around the rim. They grow while the plain carries them. By the time they are heavy enough to shift a tile themselves, they may be far from where they began.
+
+At midday even a raised patch can disappear in the glare. Only its shadow remains, a thin dark line where the tiles should meet.

@@ -1,0 +1,7 @@
+At first, the place seems empty. No one stands at the crane or calls from the workshops. The cart moves only when the hopper is ready for it, and the pressure gate holds itself open for exactly as long as it must.
+
+What lives here is difficult to separate from what has been built. Inside the brick houses, belts carry a slow, continuous motion from one shaft to another. Valves feel the rise of pressure and ease it into the next pipe. When water begins to fall from the ceiling, shutters fold over the vents before a drop can reach the hot metal beneath them. The cart waits, advances a few yards, and waits again. Each small movement makes room for another somewhere else.
+
+The district has no single heartbeat. Its rhythms pass through iron, water, and stone at different speeds. Heat rises without pause; a gate answers it. A sleeper darkens under the drip; the gutter carries the water away. For a while the thin stalks by the seam are the only things that look alive in the usual way. Then the seam dries, the shutters reopen, and the work goes on in its altered pattern.
+
+If there are keepers, they have left little need to show themselves. The pipes cross low enough to make visitors duck, but they do not seem to have been laid out for visitors. Everything is close because each part must reach the next. From the floor, among the warm rails and shaded doorways, it is less like walking through a district than standing inside something that has learned to keep itself going.

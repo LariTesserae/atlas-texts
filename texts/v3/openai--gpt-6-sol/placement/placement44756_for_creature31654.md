@@ -1,0 +1,7 @@
+I would live on the shaded side of the middle column, inside a case so small that a lizard could pass within a whisker of it and never turn its head. I would be one of the black fly larvae waiting above the morning waterline.
+
+At first I would know the basin only by what reached me: heat through the column, the scrape of lizard toes, a shadow crossing the stone below. Then, each afternoon, the water would climb past my case. It would be possible to let go. I would feel the pull toward the blunt top, where the others vanished into brightness and came down somewhere among the pools.
+
+For many days I would hold fast. The column would seem like the whole of my place: one cool side to shelter on, one wet hour to wait for. But I would begin to recognize what happened below when the rain fell. Frogs left their cracks. Shrimp crossed stone that had been dry at noon. Hollows I had taken for separate places became one shallow passage.
+
+One afternoon I would let the water lift me. I might land only a few paces away, under a blade of grass, with the column already out of sight. That would be far enough. I would spend the rest of my small life knowing that the distance between two pools could disappear, and waiting for the hour when it did.

@@ -1,0 +1,9 @@
+In the quiet below a stone shelf, a fish can be mistaken for a stain in the rock. Its back is mottled gray and cream; its wide fins lie flat against the stone. Only the clear rims of its gills move. When a current brings something edible across the shelf, it lifts just far enough to catch it, then settles again in almost the same place.
+
+The young live higher up, among the pondweed. They are narrow and bright, and they vanish with a flick of the tail whenever a shadow passes overhead. As they grow, they move out toward the old channels, where water travels steadily between boulders. There they learn the shape of the bottom by its flow. A fish resting behind a cobble knows when another has crossed the open ground upstream: the current reaches its skin changed.
+
+They feed where the lake is being disturbed. After rain, they gather along the edges of the brown river plumes, taking insects and small animals shaken from the gravel. When wind drives the water toward one shore, they shift to the sheltered side of the shelves and wait out the turbulence. They do not always judge it well. A sudden turn of current can roll one into the open, where it rights itself and beats back toward the bottom.
+
+The oldest fish are broad across the head, with fins frayed by years of holding against stone. Each spring they return to the same few gaps beneath the shelves. One guards a patch of eggs in the dark there, driving away intruders with abrupt, clumsy rushes. Later, the young drift up into the weeds, where the lake looks green from within.
+
+Near the intake, the fish keep their distance from the screens. The pull is too strong, and the shuddering weeds offer little shelter. But they gather downstream of the disturbed water, where food comes loose. The pumps begin, the fish take their places, and across the lake a wave lifts gravel from one beach and drops it on another.

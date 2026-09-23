@@ -1,0 +1,9 @@
+What lives on the plateau is difficult to count. From far away, each stand appears to be a forest. Inside it, the separate stems remain visible, but their roots spread into films so fine that one plant’s hold on the stone meets another’s. Charge passes through the crowded growth. A blade at the edge can turn toward the light because stems deep in the stand have stored enough for both.
+
+The tallest blades rise in overlapping ranks, green where the light strikes them and copper where they shade one another. Below, small fronds fill the cracks so densely that little dark stone shows through. Their gloss is not moisture. Nothing drips from a cut stem; there is no damp earth underfoot. The leaves open fine pores to the still air, while the films beneath them keep contact with the active seams. To live here, a growth must first become large enough to help sustain itself.
+
+At the passages, that abundance stops. Blades lean over the exposed mineral, but none take root in it. You can walk a straight, bare way through the stand and watch the green wall on either side hold to its invisible boundary. Beyond the last frond lies rock that looks much the same, extending for miles without a sprout.
+
+During the long bright day, the stand works slowly enough that its movement is easy to miss. Stay in one place and a gap between leaves will narrow; a copper surface will turn green in the light. Farther off, the same adjustment travels through the blades. Once in a while a stem gives a dry click as its tension eases. There is no rustle of animals moving underneath, no water running among the roots.
+
+Each stand is alone across an immense floor of stone, yet within its edges it is crowded, connected, and busy. Standing in its shade, you feel enclosed by life. Step out past the last conductive seam, and it ends at once.

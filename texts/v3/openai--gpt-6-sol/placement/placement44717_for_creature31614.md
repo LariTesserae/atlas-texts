@@ -1,0 +1,7 @@
+At first I would look for myself in the towers. They seem like the place from which to understand the plateau: one crown above the others, sunlight on its leaves, the whole wide meadow in view. But I don’t think I would stay there. From that height, the water would disappear into its channels, and I would lose the part of the place that most holds my attention—where it goes next.
+
+I would come down to a pool rim where the wall has not quite met the lip of a hollow root. Water presses into the opening. A few fibers have caught there, and a loose leaf lifts and settles with each pulse from below. Nothing is broken. The gap may be the beginning of another channel.
+
+There, I think, I would be one of the small, flat-backed creatures. My back would be the color of soaked husk, easy to overlook against the young crust. I would draw fibers through the opening and press them into place, slowly enough that a bird might stand beside me without noticing. By afternoon, the leaf would stop lifting. The water would still pass, but along a firmer edge.
+
+I wouldn’t know whether I had repaired the rim or helped it grow. The root would go on swelling beneath my feet; the pool might find a different way across it tomorrow. I would return to feel what had changed, and begin again with whatever the water had left within reach.

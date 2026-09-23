@@ -1,0 +1,9 @@
+At first it is easiest to mistake the inhabitants for the ferns. They have found every damp ledge, and their roots reach into cracks too narrow to see. But the ferns do not account for the water that leaves a falling drop halfway to the floor.
+
+What lives here occupies the channels behind the walls. It has no single body to find. In one place it is a film stretched across a conduit; in another, a mesh fine enough to hold water against the pull of the basin. It grows slowly through the city’s plumbing, thinning where the pipes run hot and gathering in the cool joints beneath the balconies. The pumps carry water through it, but it also directs the water: a little held back, a little drawn sideways, a threshold spared from flooding.
+
+Its nearest thing to a face is the basin. Each time a pump stops, the surface settles into a pattern of faint ridges before going flat. The pattern changes when a leaf falls, or when a seam begins to leak. There is time, between one rush and the next, for a change to travel along the walls and return. The lights come on beside the useful handholds. A doorway closes. Somewhere above, water is sent through a cut in the rock that was not there before.
+
+It has extended the channels since the chamber was made. High overhead, beyond the reach of the ferns, fresh tool marks surround narrow openings. Water works there in pulses, carrying grit away grain by grain. The cuts are small, but there are many of them.
+
+Nothing comes out to occupy the balconies. They are part of where it lives: damp rails, shaded steps, windows opening onto dark passages through which its water passes. When the pumps rest, it rests with them, spread through the walls and the warm stone, holding a few drops in place until the next rush begins.

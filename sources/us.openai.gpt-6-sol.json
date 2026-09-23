@@ -1,0 +1,14 @@
+{
+  "source_id": "us.openai.gpt-6-sol",
+  "requested_endpoint": "us.openai.gpt-6-sol",
+  "endpoint_granularity": "house-tag",
+  "date_first": "2026-09-22",
+  "date_last": "2026-09-22",
+  "texts": 250,
+  "by_type": {
+    "regard": 250
+  },
+  "evidence_grades": {
+    "event-observed": 250
+  }
+}

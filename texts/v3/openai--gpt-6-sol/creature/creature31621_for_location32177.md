@@ -1,0 +1,5 @@
+In the gap between the lowest stones, a toad lives where the soil stays cool. Seen from above, it is easy to miss. Its back is the color of damp silt, uneven with small, blunt bumps; its pale lower jaw rests against the stone. Only its eyes catch the light. They remain open while the bead beneath the trough’s lip grows heavy and falls.
+
+The toad does not spend much time in the water. It keeps one side of its body against the wall and comes out onto the bare floor when the light weakens further. There it sits without seeming to choose a direction. A tiny fly may pass over the dark patch of silt and be gone before anyone notices that the toad has moved. Afterward its throat works once or twice, and it is still again.
+
+It knows the hollow by contact: the cool seam behind it, the firmer ground beyond the damp, the narrow wet edge it can reach in a few short hops. When the silt dries at the surface, it presses deeper between the stones. Rain brings it back out, no larger-looking than one of the loose pebbles, but unmistakably alive when it slowly turns to face the sound of a falling drop.

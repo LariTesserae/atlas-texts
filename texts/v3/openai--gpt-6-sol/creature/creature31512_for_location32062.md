@@ -1,0 +1,7 @@
+At the margins, it can be mistaken for many plants. Pale shoots grip the new stone, each with a small fan of leaves and a few clear vessels carrying water upward. A shoot will thicken, branch, and disappear beneath the shoots that follow it. Nothing stands apart for long enough to become a tree.
+
+Farther in, the distinction between one growth and the next is lost. Stems fuse where they touch. Roots enter old stems and run through them. A leaf that has gone dark and soft may still hold a channel open for water; months later, new fibers grow along its length. The highland’s hollows and ridges are made of generations of such material, living and dead, bearing one another’s weight.
+
+Its movements are usually too slow to see. Then a dry wind reaches one flank, and a sheen passes over the leaves as they turn. Moisture caught on the cloudward side is led into narrow veins, drawn across the height, and released where the wind has left the cover dry. The first leaves to tilt cannot feel that distant place. The change travels through the crowded tissue beneath them, from chamber to chamber, until the hillside has answered.
+
+It has no flowers waiting for visitors and no paths kept open for anything that walks or flies. An opening is a wound through which light and air pour; shoots rise into it, their pale tips crowded together. At the outer edge they fasten the growing stone. Inland, their accumulated weight presses it down. The highland rises and settles under its cover, while the cover grows into every new shape it makes.

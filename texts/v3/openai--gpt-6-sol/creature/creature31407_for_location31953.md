@@ -1,0 +1,7 @@
+At first the plants look like flaws in the workmanship: a dark stitch at a joint, a thin upright mark where two courses meet. They do not spread across the broad faces. Each keeps to a seam, where rain lingers after the clay beside it has dried.
+
+Some have only a few stiff leaves, held close to the stem. Others make low, loose knots that gather windblown dust. Their roots follow the joints down, branching into spaces too narrow to see from above. When a layer curls at the edge, fine roots sometimes show beneath it, holding a little of the loosened clay in place. A plant can stay green there while the ground around it turns pale and hard.
+
+They live by intervals. Rain gives them a day or two of growth; heat draws them back to stillness. A channel scratched by one storm may bring the next shower past a plant that had been waiting in a dry seam. Elsewhere, sediment fills a joint and buries a stem almost to its leaves. The plants that remain are not necessarily the strongest-looking ones, but those whose particular cracks keep taking water.
+
+Nothing moves among them. The handprints have no returning hands, and there are no tracks crossing from one basin to another. Yet the plants make the plain less empty than it first appears. Their narrow shadows shift over the pressed clay. Their roots enter the newest openings. As the laid ground settles and the seams change, they settle with it, living in the small spaces the work has begun to leave for them.

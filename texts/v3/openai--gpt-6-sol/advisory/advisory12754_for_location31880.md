@@ -1,0 +1,13 @@
+Prepare for this as a **cold-water dive to an inhabited place**, not a walk through a picturesque ruin. The houses admit current, the lanes are water, and the description gives no reason to expect breathable air anywhere below the surface. An ordinary human needs appropriate diving equipment and training—or a competent guide and a means of visiting without entering the water. If neither is available, stay above the lake.
+
+Before going down:
+
+- **Confirm the conditions.** Find out the town’s depth, the lake’s elevation, water temperature, visibility, and whether local people welcome visitors. A mountain lake can be cold even in bright sun, and diving at altitude changes dive planning. Arrange a surface attendant, a buddy, and an agreed return time.
+- **Use equipment suited to the depth and temperature.** Bring reliable breathing gas, thermal protection, and a dive plan that leaves ample reserve for a slow, controlled return. Don’t rely on breath-holding or a snorkel. Keep hoses, straps, and tools close to your body: the plants, roots, and house lashings offer many places to snag.
+- **Plan your route before entering.** Approach from the open water, then use the cleared lanes. Sunlight may make the lake look transparent from above while the town itself is difficult to distinguish among the stems. Carry an appropriate navigation aid, but agree that losing the route means turning back—not pushing through vegetation.
+
+Once there, move as though every wall is a living garden someone has spent years tending. Maintain buoyancy rather than standing on the lakebed; silt can cloud the water, and a fin stroke can break a doorway that took seasons to grow. Don’t pull yourself along stems, cut plants to make room, disturb lashings, or enter a house without invitation. The spring below the square helps keep the passages open, so leave that flow and its surroundings alone.
+
+Expect to **hear the town before you fully understand what you see**. Tool strikes and calls carry far through water. Keep your own noise modest, and establish simple hand signals with your companions before descending; do not assume speech or surface-style gestures will work with residents. Ask permission before photographing, handling baskets or tools, or offering anything from another world. Bring nothing living into the lake, and take nothing living out.
+
+Finally, allow time just to watch. The inhabitants weed only what they need and let the rest of the lake grow. The best visitor will follow that example: pass through the lanes carefully, give the fish and the deeper shadows room, and leave the town’s slow work undisturbed.

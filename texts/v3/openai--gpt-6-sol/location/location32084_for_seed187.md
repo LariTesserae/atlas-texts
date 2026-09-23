@@ -1,0 +1,7 @@
+The hollow is small enough to cross in a few minutes, though there is no obvious path across it. Its floor is a continuous, ankle-deep weave of sedge, moss, and old roots. Where a foot presses down, the weave gives slightly and then holds. Almost no soil shows through. Above it, the space is remarkably open: a few widely separated shrubs, a low rim of trees, and cool daylight reaching nearly every part of the floor.
+
+This was once a bend in a river. The water has long since taken an easier course, leaving a shallow shape worn so smooth that there are no banks to crumble. Rain collects briefly in depressions among the roots. For most of the year there is only dampness held close to the ground, enough to keep the moss green and to leave a chill on anything set down here.
+
+The loudest sound comes from beyond the trees: the steady fans and compressors of an industrial works. Nothing belonging to it enters the hollow. There is no fence, pipe, or discarded part, only its even mechanical roar. Under that sound, life is busy at floor level. Beetles work through the roots, small birds drop into the sedge and vanish, and frogs call from the few places that remain wet. The calls and rustling seem to come from an empty clearing until one stops and watches.
+
+Little alters from one visit to the next. The hollows fill and dry, the plants bend and lift, and the machinery keeps running. The old riverbed stays low and nearly level, with its whole surface alive.

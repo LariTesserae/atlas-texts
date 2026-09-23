@@ -1,0 +1,9 @@
+What lives there is easiest to miss when it moves. In the wet seam beside the lamp bracket, among the green threads, there is an animal smaller than a grain of welding grit. Its body is clear enough that the amber light passes through it. It has eight short legs, each ending in claws fine enough to hold a filament without bending it.
+
+It did not come with the installation. Perhaps it arrived in dust on a worker’s sleeve, or in a little damp caught under the lifted panel. For a time it may have been dry and motionless, folded into itself. Now the seam stays wet. It feeds where the threads are thickest, bracing its feet and drawing their cells into its narrow mouth. Its progress can be measured by a small cleared place in the green, though the threads grow back around it.
+
+The lamp warming does not send it away. It withdraws toward the darker side of the bracket, where moisture holds between metal and gasket. When cold air comes through the seam, it stops. A drop swells on the clamp overhead; the animal grips harder as the vibration of the motor passes through the plate. To a worker looking in, nothing has changed. At that scale the drop is still hanging, the green mark is still green.
+
+Once, it reaches the end of a thread just as a bead of water runs down it. The bead takes the animal with it, not far—only to the underside of the bracket, where it catches on a burr left by the fitting crew. For several minutes it is held there in clear water, legs opening and closing against nothing. Then the water thins across the metal. Its claws find an edge. By the time the bead gathers again, it has crossed back into the green.
+
+Below it, drops continue to fall through the grating and sort the grit. Above it, pipes carry heat somewhere else. It knows neither arrangement. Its whole place is the distance between one wet edge and the next, and for now that is enough to keep it alive.

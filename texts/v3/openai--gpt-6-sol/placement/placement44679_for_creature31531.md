@@ -1,0 +1,7 @@
+I would be under a moss bed near the middle of the basin, where a warm seam comes close to the stone. Most nights I would know little of the cliffs or clouds. I would know the root above me by the way it lifts against my back, and the rock below by the places my feet can hold.
+
+I would be one of the pale grazers. When the root fills, I let it carry me upward until I can rasp at the tender growth beneath the leaves. That is also when the blue light comes on. I cannot see it clearly, but I know what follows it: a faint touch on the moss, then a stillness that spreads through all of us feeding there. I draw down against the stone and wait for the root to empty.
+
+One mist might find me at the edge of the bed, with the food thinning beneath my mouth. I would cross the bare rock then, quickly, while it was wet. The next patch would be close enough to smell, though a hollow of dark stone would lie between us. I would avoid the still water in it. Something waits there longer than I can.
+
+If I reached the far moss, I would press into its narrow warmth before the frost took the rock. I might bring a little of the old bed caught against my feet. In the dark I would never know whether it took hold.

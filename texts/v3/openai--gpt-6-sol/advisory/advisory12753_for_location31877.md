@@ -1,0 +1,9 @@
+Prepare for a small, warm, damp cave rather than a long underground expedition. The entrance may be easy to miss under grass, and the descent is likely to be more awkward than the chamber looks from above. Go in daylight with a companion, tell someone where you’re going, and check whether access is permitted.
+
+Wear shoes with good grip, light long sleeves, and a helmet if you’ll be ducking beneath rock. Bring a headlamp even for a daytime visit—the light reaches only part of the hollow—and keep a backup light handy. Expect wet limestone, loose leaves, roots, and rounded ledges that are slippery despite having no sharp edges. Move slowly and keep your hands free for balance.
+
+**Do not enter during rain or if more rain is likely.** Water arrives through both the entrance and the ceiling, and the sloping floor directs it toward the basin. Leave promptly if trickles begin to run or the rock starts darkening with fresh water.
+
+Carry drinking water rather than relying on the stone cups or basin. In the close, humid air, you may get hot without noticing how much you’re sweating. Watch where you place your feet and hands: lizards, frogs, insects, and young plants occupy the same sheltered pockets you might reach for. Avoid disturbing the stacked stones, breaking mineral crust, or pulling aside vines to make room.
+
+The best visit would be quiet and unhurried. Give your eyes time to adjust, then sit somewhere dry and out of the animals’ paths. The hollow’s interest is in small changes—a drop falling after the rain, a leaf moving without wind, creatures emerging into the brief patch of sun. Leave before the fading light makes the grassy entrance hard to find.

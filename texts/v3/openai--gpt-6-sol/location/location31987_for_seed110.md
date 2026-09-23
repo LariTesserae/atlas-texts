@@ -1,0 +1,7 @@
+High on the mountain, beneath a crust of young stone, there is a hollow scarcely wider than a person’s shoulders. Its floor has not been worn smooth. It is crowded with blunt knobs of rock, little sealed bubbles, and thin ridges that press through a soft deposit of grit. Everything feels newly made, though nothing here seems to be moving.
+
+The hollow is completely dark. A hand finds its way along warm, damp stone; it comes away smelling faintly of minerals. Water films the walls and gathers in the close spaces between the knobs. A few drops hang from the low ceiling. Farther in, one falls with a small, distinct sound, then the quiet closes around it. The air stays warm and nearly saturated, so the drops are replaced without the place ever seeming to grow wetter or drier.
+
+There is little room for plants. A few pale threads have entered through a seam overhead, and a patch of soft growth clings where they reach the wet rock. Something small sometimes touches the grit and withdraws. Otherwise, the hollow’s many presences are stone and water, packed so closely that even turning around takes care.
+
+Beside the narrowest passage, three hand-sized stones have been stacked into a low marker. One has a shallow notch cut with a simple tool. Whoever made it must have learned this place by touch, as a visitor does now: the warm wall, the ridge beneath one foot, the sound of that single drop.

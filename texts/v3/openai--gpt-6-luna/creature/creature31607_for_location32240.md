@@ -1,0 +1,13 @@
+What lives in the basin is difficult to separate from the basin itself.
+
+At first it seems to be only the machinery: the wheel turning behind the ferns, the pumps working steadily beneath the lanes, the pipes knocking as they fill and empty. Then the rhythms begin to feel coordinated. A valve chatters just before a channel rises. Somewhere underfoot, a belt catches, and the reeds stir though there is no wind. Water slips through the district by routes too patient and too intricate to be accidental.
+
+The presence has no single body. It is distributed through brick, root, iron, and water. Its oldest parts may be the walls, bowed and dark with seepage; its quickest, the little currents passing beneath the paving. The machines are its joints, though whether they were built for it or it grew around them is impossible to know. Moss softens its exposed surfaces. Vines thread through its hidden spaces, finding cracks as readily as water does. Their leaves rasp beneath the walkways like the quiet movement of something turning in its sleep.
+
+It is not a caretaker. Nothing tends the district from outside, and nothing hurries to repair what wears down. Instead, the basin keeps making small adjustments. A trickle is divided between two channels. A pump labors harder for a while, then settles. A reed leans away from a warm pipe and grows toward the light. The changes are so slow that they resemble neglect—until the water, always threatening to gather, is found once again at the same level.
+
+Perhaps this is what the district has learned to be: a living arrangement that does not need to think in the way a person thinks. It attends to pressure, heat, obstruction, overflow. It remembers in the worn hollows of the paving and in the paths water always takes through the brick. Its thoughts, if they are thoughts, arrive as cycles: lift, drain, settle; turn, pause, turn again.
+
+If someone enters, the basin does not greet them. It may send a faint tremor through a handrail, or let a curtain of water loosen from a wall. A pool might briefly hold the visitor’s reflection at an angle that shows a passage behind them where no passage is visible. Then the pumps continue, the reeds brush the walkways, and the water returns to its measured course.
+
+It has no eyes, though it seems to keep track of every opening. It has no voice, though its many sounds gather into something almost speechlike when heard for long enough. It is neither asleep nor awake. It is simply at work, inhabiting the narrow interval between what the city built and what the water has made of it.

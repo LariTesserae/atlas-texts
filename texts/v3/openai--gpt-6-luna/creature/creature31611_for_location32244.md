@@ -1,0 +1,21 @@
+At first, the country seems empty because its inhabitants do not make the usual signs of being there. No doors open. No smoke rises. Nothing hurries across the bright paving. But in the shallow water, a second population moves.
+
+They are easiest to see in the courtyards: slender figures passing beneath the reflections of roofs, though the pools are too shallow to conceal them. Their bodies seem made from several things at once—wet clay, reed-shadow, the pale undersides of leaves. At a distance they might be people in long garments, carrying baskets. Close by, their outlines resolve into ripples and then into the small, deliberate joints of hands. Their faces are smooth, or turned away, or merely difficult to keep in view.
+
+They go about the rooms with the patience of those who have never needed to finish. One kneels beside a basin and lifts water in both hands, letting it pass through the fingers. Another stands on a roof ridge, looking out across the country as if checking that it remains level. They touch no wall, yet sometimes a seam gleams after they have passed. They carry no tools. Still, a crooked reed will be straight again by morning, and a fallen blossom will be resting in the mouth of a drain.
+
+Some may be the builders, or what the builders left behind when their work was done. There is a certain human care in them: the habit of pausing at thresholds, of setting one small thing precisely beside another. But their gestures are too slow to belong to a living day. A figure may stoop to pick up a leaf and remain stooped for hours. Another will cross a courtyard, disappear behind a pillar, and be seen a moment later in the water ahead of itself.
+
+The animals know them. Frogs sit on their shoulders without climbing there. Birds give way on the ledges, then return to the exact places they occupied before. The soft-backed creature beneath the grove sometimes opens one dark eye as a figure passes. Flowers grow in the tracks they leave, though the tracks fill at once with clear water.
+
+There are smaller inhabitants, too, difficult to distinguish from the place itself. Pale fish swim through the reflected country, slipping beneath the image of a parapet and vanishing into the sky beneath it. Reedlike things stand in the canals, rooted nowhere, bending toward sounds that have not yet happened. In the cistern mouths, something blinks behind the gathered frogs. At night—which may be only a dimming in the water—tiny lights collect in the cracks between the paving stones, like windows seen from very far below.
+
+The inhabitants do not seem to eat, or sleep, or gather in numbers. They keep apart, each within a distance that feels chosen. Yet they sometimes look toward one another across the open courts. A bird lowers its head. A figure turns its smooth face. A vine tightens around a trellis. These exchanges may be conversation. If so, it is conducted in slight changes: a reflection held steady, a leaf turned pale-side up, a single bead of water released from a wall.
+
+Now and then, one of them looks toward a passerby. Not with alarm, nor welcome. More as a person might look at a room whose furniture has been moved by an inch. The attention lasts only a moment. Then the figure is gone, or has become the shadow of a reed, or is standing on the other side of the water where there was no passage.
+
+Perhaps the country is made for them. Perhaps they made it and have remained only as the gestures of making: smoothing, measuring, setting a vessel down without a sound. Or perhaps they are what the place grows in the absence of change—lives that have learned to inhabit a world where nothing is lost, and nothing can be completed.
+
+At the final parapet, where the channel reaches the bright edge and does not fall, one figure is often waiting. It faces outward, its feet just beneath the shining surface. Behind it, the country remains whole and green. Before it, there is only brightness. The figure does not seem to be watching for anyone.
+
+It seems to be holding the place open.

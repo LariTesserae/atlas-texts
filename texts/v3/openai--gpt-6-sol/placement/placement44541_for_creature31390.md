@@ -1,0 +1,5 @@
+At first I think I would live in one of the houses set back from the road. I would know the loose bridge plank by its sound and keep a dry pair of boots inside the workshop. But I keep looking out the window, toward the ground no one has decided what to do with.
+
+So I would be a young willow at the edge of the gravel, not yet tall enough to hide the riverbank. My roots would find the water that vanishes from the hollows. Beetles would pass beneath the timber nearby; swallows would turn above me without slowing. I would know the shift whistle, though it would have nothing to do with when I began or stopped my work.
+
+Each spring I would put out leaves a little farther over the stones. People would continue to use the boards, and I would not be in their way for years. That seems important here: to have room to grow without anyone needing to decide, just yet, whether I belong in the yard or on the riverbank.

@@ -1,0 +1,7 @@
+Most of what lives here lives beneath the plates. When the pipe begins to sweat, silverfish come up through the seams: narrow, quick bodies the color of old pewter. They gather at the basin’s worn spot to drink, then vanish under an iron housing before the next drop falls. On drier days they remain below, eating the soft debris that collects where brick meets metal.
+
+A pale gecko has learned their route. It is small enough to flatten itself behind the porcelain basin, where the brick holds the day’s heat after the floor has cooled. In the dark it hunts by waiting. A silverfish crossing the tide mark makes almost no sound, but the gecko feels its movement through the basin’s thin wall. It catches one, swallows, and settles back with its throat against the glaze.
+
+The moth is harder to reach. It rests beneath the plants and leaves gray dust on their thick little leaves. Once, when a distant door opens, it stirs in the brief light. The gecko turns toward it but does not climb. The light goes out too soon.
+
+There are two eggs tucked into a gap behind an abandoned valve wheel. The wheel has not turned in years, and warm air rises through the gap without blowing directly on them. The gecko returns there between hunts. It presses itself into the narrow space beside the eggs, safe from a worker’s boot and near enough to the basin to hear when the water starts falling again.

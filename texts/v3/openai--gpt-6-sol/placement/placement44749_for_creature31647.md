@@ -1,0 +1,9 @@
+At first I think I would be at the dew works, because everyone has to pass through it. I could learn the town by the vessels people bring: a broad pot on a generous morning, a cup held carefully on a dry one. But I don’t think I would be the keeper with the copper keys. She has to decide when to open the taps. I would be the person she sends up to find out why last night’s water tastes of soil.
+
+I would live in one of the narrow dwellings, in a room whose shelf has been moved twice for the same persistent shoot. My work would take me along the ceiling on a ladder light enough to carry alone. I’d hold a lamp to each copper sheet, feel for a cold edge, and follow the drops backward. There would be a notebook in my pocket, softened by damp, with drawings of cracks that look almost alike until you have spent a season watching them.
+
+The keeper would ask whether one could be patched. I might say, “Not yet.” That would mean I had seen beetles using it, or felt air coming through when the belt stopped. It would not mean the water could be left dirty. We might shift a sheet beneath it, put a finer cover over the tank, and look again tomorrow.
+
+I would get things wrong. One spring I’d mistake a searching root for a length of old fiber and leave a tray beneath it. By the time I noticed, its tip would have crossed the tray and found the wall. I’d tie a thread beside it, then have to explain to the family below why their tray needed moving.
+
+At dusk I would come down before the bats filled the court. I’d know the pump keeper was home by the chime of her keys somewhere across the roots, and I’d stop to listen if the belt faltered. Most days, though, it would keep turning. I’d carry my ladder back through the wingbeats, leaving one newly found crack open until I knew who else had been coming through it.

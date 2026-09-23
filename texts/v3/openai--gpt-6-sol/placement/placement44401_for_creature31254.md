@@ -1,0 +1,5 @@
+At first I think I would be in the stair joint, where a beetle can turn around inside the wall. Then I notice how dry the stone is there. I would keep going down, past the ferns rooted in the risers, to the underside of the cistern lid.
+
+I would be a springtail: one pale fleck among many, feeding on the fine fungus in the damp the wood has saved. The court would not look like a court to me. It would be a close, dark ceiling, a grain of mortar to climb over, and the distance to the next cool patch of stone.
+
+When the lid lifted, I might spring into a crack before the light reached me. By morning I would be back underneath it, if it was still damp. I would never know who had opened the lid, or who had made sure the drain stayed clear. I would know only that the water had somewhere to go, and a little had remained.

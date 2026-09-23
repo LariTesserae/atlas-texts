@@ -1,0 +1,11 @@
+At first I think I would live near the rim, where I could watch the showers arrive one district at a time. I would learn the city from above: this row of roofs turning black, that square briefly silver, the far terraces disappearing into rain.
+
+But I don’t think I would stay there. From the rim, water looks like weather. Down in the streets, it has routes and consequences. I would find myself in a lower court, kneeling beside a drain that ought to have emptied by now, with one hand on its iron cover and the other pressed against the stone to feel the water moving underneath.
+
+I would be a cistern keeper’s apprentice, though I would spend more time in streets than at cisterns. At first I would be given the plain jobs: carry the basket of grit, brush the channel mouth, put back the stones someone else has lifted. I’d learn which slabs are heavier than they look and which should never be set down on their worn edge. My teacher would sometimes stop walking in the middle of a sentence. I would stop too, hear nothing but water falling from a roof, and wait while she listened to something below our feet.
+
+Eventually I would hear differences. A full channel would have a close, hurried sound; a free one, a quieter sound farther down. I would still be wrong often enough to lift a cover and find only clean water passing through. Someone at a doorway would tell me, kindly or not, that the trouble was two streets over.
+
+I would come to know a small part of the city well: the stair where snails gather after rain, the cellar that floods if grit lodges beneath the bridge, the courtyard that gets sun just long enough for its neighbors to bring out chairs. I would know whose hook had a bent end and who would lend it anyway. When a storm passed, I’d go out with people I liked and people I hadn’t spoken to in weeks, because their water would soon be ours.
+
+Perhaps one evening I’d be crossing a square as its flood withdrew. Someone behind me would call to ask whether the next stone was firm. I’d test it before answering. I think that is where I would find myself: not quite sure enough to go without looking, but sure enough to tell someone else where to put their foot.

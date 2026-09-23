@@ -1,0 +1,9 @@
+What lives there is not a population, exactly. It is the city, learning how to keep itself.
+
+Its oldest inhabitants are the systems beneath the streets: pumps turning in the dark, the field holding the hollow open, channels finding new paths through stone. They have no faces and make no decisions anyone could recognize as decisions. Still, when water cuts a new groove, a foundation shifts to meet it. When the field falters, the walls brighten from within, as if the city is briefly checking its own bones.
+
+The plants are its quieter residents. They take the damp the walls offer and spread only where the stone allows. Their roots seek seams and their leaves collect the fine mineral dust that falls from the ceiling. They do not hurry. A rooftop darkens with moss; a pale fan of roots widens over the rock. In time, some of the newer channels will run beneath them, and the plants will drink from those too.
+
+There may once have been people here, or there may be places prepared for people who have not yet come. The city keeps their doors, bridges, and narrow rooms in working order without seeming to expect them. It does not call out. It does not grieve. If it notices the emptiness, it registers it as another condition to accommodate: like warmth, pressure, or the changing course of water.
+
+For now, its inhabitants are the patient things that do not need to be seen. The pulse in the stone. The roots in the joints. The water passing under every street. They keep the hollow alive—not as a home waiting for its owners, but as a world that has begun, slowly and without witness, to belong to itself.

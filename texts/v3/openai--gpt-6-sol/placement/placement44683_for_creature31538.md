@@ -1,0 +1,9 @@
+I think I would begin in one of the cups, where a little rain is enough to show the whole sky. I would watch the birds arrive and mistake their noise for the town’s voice. But the cup dries too quickly. By afternoon, whatever I am would have gone down the grooves, past the waiting mouths, and into the leaf.
+
+I would be a burrower beneath the square. Not a large one—just big enough to press my back against the warm underside of the paving and strike it with two hard forefeet. I would know the lanes from below by their thinness. Each crossing would have a different give: one worn almost transparent by grazers, one still springy near a hall, one that tightens when the town is about to close a fold.
+
+At first I would drum because everything overhead sounds enormous. A falling drop. A bird landing. The slow, deep movement of a grazer inside a wall. In time I would learn which tremors are footsteps, and which footsteps are coming toward a waiting fold. I would tap once for the small travelers and keep still for the heavy ones. Sometimes I would strike before the foot touched down. I wouldn’t know whether I had heard it coming through the leaf or whether the town had sent me its sound early.
+
+I would seldom see the square. When I did climb out through a seam, it would look empty, even with all that life passing beneath and within it. I would cross quickly, carrying a taste of the bitter paving on my feet, and go back under before a bird could find me.
+
+I would not keep the paths open. The town does that. But my small knocks would join its roar, and a grazer turning in the dark might pause at one of them, then take the old crossing instead.

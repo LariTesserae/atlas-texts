@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **140** source folders · **162,094** texts
+- **145** source folders · **165,319** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -142,6 +142,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `anthropic--claude-opus-5` | 1,053 | 2026-07-25→2026-08-16 | advisory·74, creature·249, location·250, placement·245, regard·235 | house-tag | event-observed 1,053 |
+
+## claude-opus-5.5  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `anthropic--claude-opus-5.5` | 1,075 | 2026-09-22 | advisory·75, creature·250, location·250, placement·250, regard·250 | house-tag | event-observed 1,075 |
 
 ## claude-sonnet-3  ·  1,600 texts
 
@@ -457,6 +463,18 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `openai--gpt-6-astra` | 1,075 | 2026-09-06 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gpt-6-luna  ·  825 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-6-luna` | 825 | 2026-09-22 | advisory·75, creature·250, location·250, placement·250 | house-tag | event-observed 825 |
+
+## gpt-6-sol  ·  825 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-6-sol` | 825 | 2026-09-22 | advisory·75, creature·250, location·250, placement·250 | house-tag | event-observed 825 |
 
 ## grok-3  ·  1,000 texts
 
@@ -787,6 +805,18 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `antrastudio--talkie` | 75 | 2026-05-30 | location·75 | route | event-observed 75 |
+
+## us.openai.gpt-6-luna  ·  250 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `us.openai.gpt-6-luna` | 250 | 2026-09-22 | regard·250 | house-tag | event-observed 250 |
+
+## us.openai.gpt-6-sol  ·  250 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `us.openai.gpt-6-sol` | 250 | 2026-09-22 | regard·250 | house-tag | event-observed 250 |
 
 ## unresolved  ·  12 texts
 

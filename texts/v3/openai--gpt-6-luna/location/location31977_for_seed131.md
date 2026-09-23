@@ -1,0 +1,15 @@
+Behind the lowest wall of the old waterworks, beyond a service hatch painted the same gray as the pipes, there is a garden no larger than a room.
+
+It has no natural ground. The floor is poured concrete, the walls glazed in pale ceramic, and the shallow basin at its center is cast metal, though every surface has been softened by age until it seems less built than worn into being. Mineral deposits fur the joints. Water has polished the basin’s edges to a dull, hand-worn shine. Here and there, a hairline crack holds a dark green thread of moss.
+
+The room is low and warm, close with moisture. Water lies just beneath the floor in the hidden channels, and rises through seams as cool beads, gathering on the leaves and dripping back into the basin. The plants are abundant but modest: ferns, broad waxy leaves, mats of moss, a few reeds rooted in narrow slots of engineered stone. Their roots follow the plumbing with the patient certainty of pipes. Nothing grows wild enough to escape its allotted space. There is no loose soil, only a thin black compost fed by fallen leaves and carried around the basin in a slow, tidy circuit.
+
+A pale panel high in the wall admits ordinary daylight. It does not illuminate the chamber dramatically; it simply makes the wet leaves green and the standing water silver. In the corners, shadow settles without mystery. The place is too plain for enchantment. Its oddness comes from being so complete: every surface made, every trickle directed, every plant accommodated.
+
+The machinery beyond the walls runs without pause. A pump, a turbine, perhaps several linked mechanisms, produce a deafening, even roar. It fills the little room so thoroughly that individual drips vanish inside it. The leaves barely quiver. The sound has no beginning or end, no rise or slackening; it is less like a machine operating than the room’s own weather. A person speaking would need to lean close, and even then the words would seem to arrive from somewhere far away.
+
+Very little else lives here. Now and then a tiny insect may appear on the water and disappear among the stems. No birds enter. No larger animal could find a way in. The garden’s life is quiet, green, and almost entirely rooted.
+
+Everything has settled. The basin overflows by exactly the same narrow lip; the water returns through the same hidden channels; the plants replenish what they lose. The old concrete has not crumbled so much as been rounded into its final shape. A film of lichen darkens one corner, but it does not spread. The room is not abandoned, though no one comes to tend it. Its industrial purpose and its small, lush ecology have worn together until neither seems temporary.
+
+Beyond the hatch, the works may extend for acres. Here, in the concealed pocket, the whole system has contracted to a few steps of damp floor, a basin, and a handful of green things growing in the spaces the machines left for them.

@@ -1,0 +1,21 @@
+No one species owns the Glassback. Its inhabitants share it by height, by hour, and by how long they can go without water.
+
+The pale grazers are easiest to see. They travel in small, close herds along the shelves, placing each narrow foot with the care of someone crossing a roof. Their coats are the color of dust in full sun, but at dusk their bodies show a faint bluish cast, like stone cooling. They feed on copper grass and the grey cushions wedged into the cracks, cropping each patch neatly and moving on before they strip it bare. When the brief pools appear, the herd’s oldest female goes first. The others wait, heads lowered, listening to the ground.
+
+The black birds listen too. They rarely beat their wings; they ride the warm air rising off the rock and make wide, soundless turns above the herds. They are not patient in the way people mean it. They are simply willing to wait longer than most things can remain alive. Their nests are tucked into pylon joints and the broken mouths of cable buckets, lined with wire, dry grass, and the pale bones of small prey.
+
+The smaller creatures make a world in the seams. Wingless insects comb through the grass, vanishing beneath it when a shadow passes. Broad-backed lizards lie on sun-warmed pipes and on the dark basalt steps, their flanks swelling and flattening with each slow breath. They know which machinery will start, which bolts hold warmth past sunset, and which housings shelter mice. At dawn, they lick moisture from the undersides of ledges before the sun can take it.
+
+Below them, the scree shifts.
+
+The heavy thing beneath it is called a deepback by the people who live here, though no one has seen enough of one to know whether there is only one kind. A deepback leaves long furrows in the loose slopes and broad, shallow hollows around seep-holes. It comes up at night, perhaps to feed on roots, burrowing insects, or the cool mineral crusts that form under stones. It is slow enough to leave the impression of slowness everywhere it passes. By morning, the dust has begun to soften its tracks. By the next rain, they are gone.
+
+There are people on the Glassback as well, though the plateau gives them little reason to gather in crowds. They live in the old pumping stations and in smaller shelters built against cliffs, where the stone blocks the worst of the wind. Their houses are low and pale, roofed with sheets of metal that catch dew and guide it into covered jars. They mend the condensers, clear grit from the intakes, and keep a few goats in fenced hollows where thorn and grass grow thickest. They travel between settlements in twos or threes, carrying water carefully and speaking only when the wind is quiet enough to carry words.
+
+They know the plateau not as empty country but as a calendar. A certain hum in the ridge means the vents have warmed. A line of cloud above the western rim means rain may reach the upper shelves. The first lizards on the pipes announce the season of long sun; the return of the carrion birds to a particular pylon means something has died below it. Children learn where not to dig, which pools are safe to drink from, and how to leave a little water in a hollow for whatever comes after them.
+
+The machines are not theirs to command so much as to persuade. A pump may cough awake after an hour of heat and then fall silent for a month. A condenser may click all night and give nothing, or fill its cistern after a single cold dawn. The people tend these devices as they tend the cisterns, with patient hands and no expectation of abundance. In return, the machinery draws a little water from the air, and its warmth makes a narrow ring of life: insects in the housing, lizards on the pipes, birds above the cable.
+
+When rain comes, all the quiet inhabitants converge. The grazers descend from the shelves. The birds drop lower. The lizards leave their stones. People open the cistern covers and watch the runoff find its way along the old channels. For a few hours, the Glassback is full of movement, each creature intent on the same bright, temporary thing.
+
+Then the water sinks away. The herds climb back to their ledges. The deepback stirs beneath the dust. The people shut their cisterns, and the machines continue their slow, uneven breathing. From far off, the plateau looks bare again. But its life has only folded itself close.

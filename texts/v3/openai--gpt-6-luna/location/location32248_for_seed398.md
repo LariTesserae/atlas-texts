@@ -1,0 +1,23 @@
+The city is hidden inside a mountain that has not finished becoming one.
+
+From outside, the mountain is a black, narrow tooth thrust above the cloud line, its sides too steep for snow to hold. The rock is young: broken in bright-edged plates, split by seams that still glow faintly at their deepest points. Wind combs the summit and finds no ledges, no trees, no nests. It makes a thin whistle through the cracks, then is gone.
+
+The city occupies one hollow in the tooth, a chamber tucked behind a slab of stone no wider than a house. It is easy to miss. The entrance is a dark line that appears only when the mountain warms and the rock shifts a fraction apart. Beyond it, the hollow opens into a space about the size of a public hall: large enough to lose sight of its far wall, small enough that its warmth reaches you everywhere.
+
+There are streets, though none go anywhere in the ordinary sense. They run in narrow terraces around the chamber, crossing on bridges that cling to the walls or pass through the air without visible support. Buildings rise in spare ranks from the floor: towers, sheds, narrow-faced blocks, blank public façades. Some are made from the mountain’s own black glass; others are pale metal, so finely joined that their edges seem drawn rather than built. The whole settlement has the orderly reserve of a city expecting crowds that never arrive. Between its structures are broad, bare distances. No carts, signs, wires, people. No litter. Nothing has been allowed to accumulate.
+
+At this scale, the city feels less like a place for inhabitants than a device arranged to resemble one. Its streets follow invisible measures. Its corners meet at angles that trouble the eye: a lane appears level, but walking it brings you gently downward; a bridge seems short, yet takes several minutes to cross. In the upper tiers, gravity leans toward the mountain’s core. A dropped bead rolls uphill, slows, and rests in midair, held there by a field too subtle to see. The buildings do not sway, but their shadows occasionally move ahead of them.
+
+The air is hot, mineral, and damp in patches. Moisture forms where the hollow’s cooler seams meet its warm interior. Beads of water gather on the ceilings, brighten in the dimness, and fall at long intervals. Some strike the stone and vanish with a small hiss. Others are taken up by the city’s walls, drawn through hair-thin channels into cisterns that cannot be found by following any pipe. The smell is of warm iron and wet ash.
+
+There is no sun inside. A muted light comes through the stone itself: a low reddish-gray, like embers under a deep bed of ash. It gathers around joints, doorways, and the undersides of bridges, but never quite reaches the ceilings. Farther into the hollow, the city thins into silhouettes and then into black. A few surfaces brighten when approached, not with a glow but with the softened clarity of a thing suddenly remembered.
+
+Nothing grows here. Nothing moves on its own, unless the city counts. There are no leaves, roots, spores, or recognizable animals. The only changing shapes are the new fractures in the walls, which lengthen by grains at a time, and the faint ripples of heat traveling across the stone. Every so often, an entire block gives a minute adjustment: a tower shifts its alignment by the width of a hair; a stair turns one degree; a blank doorway deepens. These changes are accompanied by no alarm. They seem to belong to a schedule older than the construction.
+
+The sound is mostly the absence of sound. A drip, a distant metallic tick, the low pressure-hum of mechanisms concealed in the rock. If you stand still long enough, you hear the mountain settling around the city: a slow internal creak, like a ship moving in a dark sea. The streets carry sound strangely. A whisper can travel from one terrace to another without growing louder, while a shout dies within arm’s reach.
+
+The city has weather, though it has no sky. Heat wells up from below in tides. During a warm phase, the glass walls sweat and the hidden channels fill; during a cool phase, the droplets hang motionless, held on the ceilings like a second, inverted settlement. Sometimes the mountain’s outer cracks admit a thread of cold air. It crosses the chamber in a straight line, bends at a corner that is not there, and leaves by a different seam.
+
+At the far end, a row of small buildings faces an empty square. Their doors are sealed with seamless dark plates. Beyond them, the stone is newly broken, its exposed edges still sharp and faintly luminous. The city stops there—not at a wall, exactly, but at the point where its careful geometry meets the rough, unfinished mountain.
+
+Nothing has been built beyond that boundary yet. Nothing has decided not to be built.

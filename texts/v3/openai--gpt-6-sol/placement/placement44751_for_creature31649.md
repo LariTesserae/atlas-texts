@@ -1,0 +1,9 @@
+At first I think I would live near the upper edge of the houses, where the last roof gives way to open scree. I would want a view of the mountains. After a winter there, I suspect I would move lower, to a lane where the wind has already spent some of its strength and three neighboring roofs feed the same covered cistern.
+
+I would be one of the people who clears the water channels before the thaw. Not the person who settles an argument about a gradient, at least not yet. I would be the one sent to fetch a narrower stone, then sent back because it rocks under the heel. Slowly I would learn to look for the face that had lain against the ground before the fall: pale, flat, and sound. I would learn that a gutter can look perfectly straight and still leave half a court dry.
+
+In summer I would walk the channels after a shower. The rain might reach only two districts, so I would have to go where it fell, following the darkening stone and noticing where water slowed. I would carry a bit of charcoal to mark troublesome joints, though by the time I returned with someone stronger, a neighbor would often have found the leak and set a bowl beneath it.
+
+I think I would become useful by remembering things that have moved. An old turning, now under scree. The place a shepherd crossed last spring but not this one. A gutter that used to drain toward the drinking cistern before a roof was rebuilt. People would correct me often. I would keep listening, because each correction might save someone a wasted walk—or keep grit out of the water.
+
+By dusk I would be home in that sheltered lane, with cold hands and dust in my cuffs. I would put a palm against the wall before going inside. Most evenings it would still be warm. On the evenings it wasn’t, I would close the door quickly and remember to ask about the upper slopes in the morning.

@@ -1,0 +1,9 @@
+I think I would first try to live near the outer edge. Each morning I’d carry water to the growing tips, bend a stem toward the far foliage, and tell myself that in a few years there might be a way across. But I don’t think I would be good at working above so much empty air. I’d spend too long looking down, then go back inside with the water I hadn’t used.
+
+I would find a home in an old chamber with a shallow basin in its floor. Most days it would be dry. After rain, it would knock once beneath the wood, then fill from a joint halfway up the wall. The water would leave a little pale silt behind. I’d put seedlings in it, though I wouldn’t know at first what would grow.
+
+People would begin stopping there on their way through. I could tell them whether the water had arrived, and which drainage holes I had cleared. In exchange, a mender might tell me that one of the reed-marked turns had shifted, or bring me a seed from a slope I could see but had never managed to reach. Sometimes I’d follow them for a day to learn the route. More often I’d stay to move the cups when the dripping began.
+
+I’d learn the chamber slowly: which hollow stem sounded full before rain appeared, which patch of floor needed to stay bare so water could pass through, where a slow climber liked to enter. I would let it graze the ferns from the doorway, then hang bitter leaves around the young stems by the basin. On damp evenings there might be a beak tapping in the wall beside me while I worked.
+
+I’d still visit the edge. From there, I might recognize a stand of pale leaves across the hollow and realize they had grown from a packet I’d given someone months before. I wouldn’t know how close that made us. I’d tie a fresh reed beside an old one, to show I had come this far and found the path sound, then return to see whether the basin had filled.

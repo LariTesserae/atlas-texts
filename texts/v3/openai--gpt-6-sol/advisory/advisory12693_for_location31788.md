@@ -1,0 +1,11 @@
+Prepare as though you are entering a **trackless, recently formed volcanic wetland at night**, not an open plain. Its greatest danger may be how easily it makes a short distance feel navigable when it is not.
+
+**Before entering, establish a way back.** Confirm that the air is breathable and carry a gas monitor if possible: warm fissures in young rock can release hazardous gases without much warning. Put your return point on stable ground, mark it with a beacon, and record a route that does not depend on animal passages, distinctive plants, or a single compass bearing. Go with a partner, agree on a turnaround time, and leave someone outside with your plan. A daylight survey—or a view from above—would be worth far more than a night’s guesswork.
+
+Wear high, tough boots with good grip, long sleeves, gloves, and eye protection. Expect sharp rock beneath thin soil, hidden cracks, whipping reeds, falling fruit, and heavy drops shaken from leaves. Carry a bright headlamp plus a backup, spare power, first aid, and enough water for the entire trip. The pools are unreliable and may drain away; treat any local water as unsafe until tested and purified.
+
+Move slowly and test uncertain footing. Avoid warm cracks, newly slumped edges, and lush fern lines that may conceal moisture-filled fissures. Do not follow an animal passage simply because it looks convenient: it may shift, end at a pool, or bring you face-to-face with what made it. The chorus of insects and animals will distort distance, so use your instruments and agreed signals rather than trying to navigate by sound. If a wave of animals bolts through the growth, get out of its line of travel, protect your head, and wait rather than running blindly over the rock.
+
+Choose a resting place only after inspecting it in good light: away from fissures, pools, fruiting crowns, animal routes, and bare margins that may break or shed soil. Keep light and noise deliberate, secure food, and do not handle animals or the stones they use. The small stone-turners may be doing more than foraging; in any case, their activity is not yours to disturb.
+
+Above all, budget time generously. The ground, vegetation, and passages can change, and darkness hides the very features you need to get home. If navigation, air quality, or footing becomes uncertain, turn back while the beacon is still easy to reach.

@@ -1,0 +1,7 @@
+The court’s most numerous inhabitants are almost too thin to see. They live as pale skins on the stones nearest the warm inlets, thickening where the mineral water rises and thinning where the current passes over an edge. Tiny shelled grazers move across them. A pillar may look bare until several shells, no larger than tool dents, begin to shift.
+
+The larger animals live in the court’s workmanship. Crabs fit themselves into seams where the mortar has withdrawn, with their claws folded against their bodies. One keeps a widened joint near the parapet and comes out when silt has settled over it. It gathers what it can from the shallow groove of an old chisel mark, then retreats at the first movement behind the pillars.
+
+Something soft and pale waits there, tucked against a rounded corner. It does not pursue the crabs far. In so tight a place, it need only reach into a passage when a grazer or smaller animal crosses. Above them, narrow fish hold their heads toward the water spilling out. Their fins make small corrections; their bodies scarcely travel at all.
+
+None of these lives requires much room, but each uses a different part of the thirty paces. The warm holes feed the skins, the seams shelter the crabs, the close pillars give the hunters cover, and the parapet gives the fish a current to face. Far below the last visible course of stone, the water goes on falling. Here, a shell taps once against a slab, and a crab begins to work a grain of silt loose.

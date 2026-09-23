@@ -1,0 +1,11 @@
+At first, it seems the thickets are the only living things. Their blades tremble without wind, and new growth crowds every crack where the mountain’s note is strongest. A stand can remain still for days and then put out a pale curl while the stone beneath it is under strain. The cliff has caught one stand in the act of becoming two. On either side, the leaves keep growing.
+
+Someone tends them. The chipped footholds lead to the shelter, and the bundles on its roof have been cut to length. The white grit in the bowl is ground from the silver rings inside the leaves. Whoever uses it has been away long enough for dust to settle across the grinding stone, but not long enough for the newest cuts to lose their sharpness.
+
+They are called a listener, though listening is only part of the work. They go barefoot on the open slabs and keep one hand against the rock when the great note thickens. If a tone rises in a cliff face, they wait for it to settle before crossing below. If the high tremor passes into a thicket, they cut there, carrying the leaves home beneath one arm. They do not hurry toward a ridge because it looks close.
+
+The marks inside the shelter are theirs. Each was made after a sleep, at first in a careful row. Lately they have woken several times before the pitch outside changed at all, and the marks have crowded together. They still make one each time. The blade they use has worn a bright place in the wall.
+
+Most often they can be found at the new cliff, sitting among the chips with a little white grit on their fingers. They watch the blade caught in the seam. Its tip is green; its base has flattened where the rock holds it. When a fresh curl appears there, the listener cups a hand beneath it to feel for falling dust. Then they sit back. There is nothing to pull free yet without breaking it.
+
+No voice carries far enough here to summon another person. The listener has not heard one for a long time. Still, before returning to the shelter, they leave the path clear of loose chips. On a mountain where a ledge can have two undersides, that is a way of saying where it is safe to put a foot.

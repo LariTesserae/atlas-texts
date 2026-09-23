@@ -1,0 +1,7 @@
+At first I’d expect to find myself with the surveyors, hood pulled low, taking comfort in a number that could be checked again tomorrow. I would like the fixed points deep under the plateau. I would like knowing how much a building had risen.
+
+But I think I’d drift toward the water crew. I’d be assigned the outer reaches of a newly occupied district, where the maps still have blank spaces and people are learning which shortcuts not to take. My work would be to visit a dry crack after rain, then return hours later to see whether it had begun to shine. I’d carry a notebook softened by weather. Half its entries would be guesses; the other half would be corrections to them.
+
+There would be one tram shelter I checked more often than my route required. Water would appear beneath its bench on days when no rain had fallen nearby. I’d try to trace it, at first because that was my job, and later because people had started asking me whether the ground there would freeze by evening. A child might tell me the birds had risen early; someone coming off the last train might say the wet patch had spread while they waited. I’d write those things down too.
+
+So I’d be a person with an imperfect map, living near the edge of a district that was still being called young. If you needed me, you’d probably find me outside the shelter, watching a drop gather under the roof. I would have come to check the water. I’d stay until the tram arrived.

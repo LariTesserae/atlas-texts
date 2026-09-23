@@ -1,0 +1,7 @@
+Prepare for this as a **small, working water chamber**, not a place to wander through. The floor is deeper than a person can stand and breathe, and the only apparent route to air is the open shaft above. Its pale tiles and clear water may make the bottom look deceptively close.
+
+The safest visit is to **look down from the shaft**. Arrange permission with whoever runs the bathhouse, and ask them to stop the wheel while you’re there. Even from the surface, you should be able to see the moving squares of light, the sand settling, and the cool inlet water disturbing the warmer pool.
+
+If you intend to enter the water, do not go alone or treat it as an easy breath-hold dive. Have someone at the opening who can get you out, a reliable way back up, and proper equipment and training for an enclosed-space dive. Confirm that the sluice cannot be operated unexpectedly. The pipe’s pulses can disorient you, while the square tile edges and wooden fitting offer plenty to catch a hand or line. Check the water temperature before entering, and avoid stirring up mortar dust or disturbing the little shoots.
+
+Expect an unusually intimate place: wheel knocks will carry through the water more clearly than voices, and after they stop, the chamber will seem to settle one grain and bubble at a time. Leave before that stillness tempts you to forget the distance to air.

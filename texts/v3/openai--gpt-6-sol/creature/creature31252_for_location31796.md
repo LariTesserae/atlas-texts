@@ -1,0 +1,13 @@
+At first the houses seem empty. Then a strand of sedge bows inward, and someone comes out beneath it, carrying a plug of moss in both arms.
+
+The town’s inhabitants are small enough to stand under a hanging root hair. Their bodies are the dull amber of wet bark, paler at the joints, with broad, soft feet that hold to moss without tearing it. Fine feelers grow along their cheeks and wrists. In the dark lanes they keep one hand against a wall or a neighbour’s back; they know an approaching footstep by the tremor it sends through a root.
+
+The gap is new, but they have moved before. The oldest among them have patches on their sedge coats from houses left farther along the bank, where water rose or the roof came down. They brought little: lengths of hollow stem, dry fibres kept inside their coats, and bundles of moss from the floors they could not carry. Here they have made rooms just large enough to sleep curled together. No one owns a wall for long. If a root pushes through one overnight, the sleepers make space for it in the morning.
+
+Much of their work is done for the water. At each hanging tip, a watcher waits until the drop grows heavy. A touch on a taut fibre warns the houses below; feet withdraw from the lane, and hands close little sedge flaps over the thresholds. After the drop falls, others come out to clear the stems and press moss back against the channels. The youngest are given the shallow grooves to tend. They are proud of this, though a single worm passing underneath can undo an afternoon’s work.
+
+They eat what the moss holds: soft new shoots, films gathered from the clay, and the tiny pale growth that appears on old roots. They leave most of the other creatures alone. Springtails pass through their lanes like nervous livestock with no keeper. The beetle at the entrance is neither guest nor guardian; it was there when they arrived, and they have learned which way it turns before it moves.
+
+Near the water, the houses have narrow openings that admit the last grey light. Farther in, the inhabitants meet by touch. Two of them pausing in a lane will rest their feelers together for a moment, then go on. At night they draw close to the moss floor, listening through it for water, for worms, and for the slow strain of roots settling into the space above them.
+
+By morning, a lane may have shifted. Someone will come out carrying a wall, someone else a sleeping child, and together they will find where the moss is still high enough to build.

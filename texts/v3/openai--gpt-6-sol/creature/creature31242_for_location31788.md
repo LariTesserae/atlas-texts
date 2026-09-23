@@ -1,0 +1,9 @@
+The ones overhead are heard first. They travel in loose, quarrelsome bands through the crowns, catching themselves with long fingers when a branch gives way. By day they eat fruit, shoots, eggs, and whatever they can pry from bark. At night they keep calling to one another, even while feeding. An alarm from one band can send another crashing through the leaves before either has seen what frightened the first.
+
+Some come down to the pools. Smaller than their companions in the crowns, they squat at the water’s edge and turn over stones with both hands. They strike shells against the rock, lick out the soft bodies, and leave the stones behind. A good pool draws them back until it dries. Then they go looking for another, carrying nothing but what they can eat on the way.
+
+The loud tearing in the reeds belongs to herds of heavy leaf-eaters. Their flanks shine with moisture where the plants have brushed them. They advance slowly while feeding, nosing aside stems, but a sharp cry can set the whole herd running. The young stay in the middle. Behind them, broken reeds point the way they went; before morning, other animals may be using the opening. Where the herd has cropped a thicket down to its roots, new leaves will come up within reach again.
+
+Not everything follows the herds. Long-bodied hunters wait beside the passages, choosing places where stone or dense growth gives a fleeing animal only one way through. Frogs survive in hollows the hunters pass without noticing. Insects hatch from water that may be gone before they have grown wings; others live all their lives in the warm cracks, emerging after dark to feed among the roots.
+
+None of them can hold a place for long. A pool sinks away, a seam opens, or a season’s growth closes a passage that was clear the night before. They learn the plain by moving through it, and their movements alter what the next animal finds.

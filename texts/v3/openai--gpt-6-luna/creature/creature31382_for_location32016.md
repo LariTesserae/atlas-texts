@@ -1,0 +1,27 @@
+They are called the **stillborn** by the few who have ever tried to name them—not because they are dead, but because no one has seen one arrive.
+
+A stillborn may be a black lump in a dry channel for a hundred years. Dust dulls its shell. Heat works into its seams. Beneath the shell, folded parts draw in and release, so slowly that the creature seems less to breathe than to remember breathing. Then the ground gives a small, ringing shiver, and the lump opens.
+
+What unfolds is not quite a head, though it is the first part to meet the air. It has no face to speak of: only a shallow cup of dark plates, pricked with holes too fine to see until the light catches them. It tastes the plateau through vibration. A shift in the buried stone, a change in the pressure of the wind, the distant scrape of another body passing over salt—these arrive in it as plainly as a voice.
+
+The small stillborn are hardly ever alone. Each is no bigger than a hand, with six hooked limbs and a shell made of overlapping black scales. They travel in drifts so broad that a single creature’s course means almost nothing. Their lives belong to the movement: to the pressure of those before them, the shelter of those behind, the long adjustment by which a whole congregation finds its way across a plain. Yet each can hesitate. One may pause at the lip of an old channel, antennae trembling over the salt. Those behind climb over it; those beside it turn their bodies to the wind. For a little while it is a stone at the center of a river. Then it moves, and the river moves with it.
+
+They do not eat as animals elsewhere eat. They comb mineral from the ground with their mouthparts and draw heat through the fine structures beneath their shells. In the old channels they harvest the residue of vanished water: salts, metallic dust, the faint chemistry held in stone. A drift leaves the ground scraped and darkened, but not dead. Its passage prepares the channel for whatever comes next, though the next passage may be generations away.
+
+The house-sized ones are called **pillars**, though they do not stand quite still. Their legs shift by fractions; their bodies slowly turn to meet the prevailing wind. The hollow vanes along their backs are not wings. They gather heat, and perhaps something from the air, and they sing when the wind moves through them. Each pillar’s voice is different: a groan, a rattle, a note so low it is felt through the feet. The smaller stillborn recognize these voices. A drift may alter its route toward one, or gather in its lee for a century.
+
+The pillars are difficult to understand as individuals because they change so little. But they remember. A pillar knows the pressure of every great migration that has passed beneath it. It keeps the scars where ancient drifts polished its legs, and the pale hollows where smaller creatures nested in its plates. When one finally begins to move, the change is almost imperceptible: a foot settling deeper, a vane turning a degree. By the time the ground understands, the pillar may have traveled several kilometers.
+
+There are generations inside them. Their plates loosen, and in the seams between those plates the small creatures hide, feed, and molt. Fine-bodied young things cling to the warm inner surfaces where the wind cannot reach. Some pillars carry entire colonies through the plateau without ever seeming to notice. Others open their shells and release a shining spill of small bodies onto the stone. Nothing about the release suggests birth. It looks more like the pillar has decided the landscape needs to move.
+
+The stillborn do not fear the plateau’s strange distances. If a ridge appears near before it is near, they take its measure by the tremor traveling through the ground. If a shadow arrives ahead of its owner, they fold tight beneath their shells until the two meet again. A sound that comes from inside the skull is still a vibration, and vibration is familiar. They may avoid the basins where sound bends—not from terror, perhaps, but because the ground there gives contradictory information. No congregation can travel well through a place that says it is both hollow and solid.
+
+There is no leader among them, and no clear boundary between one creature’s intention and another’s. A pressure passes through a drift. A hundred thousand bodies change direction. Whether they have communicated or merely become one another’s weather is not known. The pillars answer in their slow, metallic voices. Beneath the crust, unseen migrations answer back. The plateau is full of these exchanges, though none can be translated into words.
+
+To the stillborn, an empty plain is not empty. It is a pause in a route. A dark heap is not a heap but a closed body, listening. The old channels are not the remains of rivers. They are remembered ways: broad corridors of mineral and pressure along which the plateau’s inhabitants continue to flow.
+
+They have no need to make the land livable. They have lived here longer than the word *livable* has meant anything. Their work is not to overcome the heat or restore the water. It is to endure the plateau so completely that endurance becomes another form of motion.
+
+When a stillborn opens, it does not wake into the world.
+
+It wakes the world around it.

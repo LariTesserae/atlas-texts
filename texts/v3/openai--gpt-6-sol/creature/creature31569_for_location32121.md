@@ -1,0 +1,13 @@
+At first, what lives in the chamber looks like another mark left by the machinery.
+
+There is a dark curve on the far wall, just above a service duct. It follows one of the shallow grooves worn by grit, and when a landing lights up, it appears no different from the other stains in the stone. After the light goes out, it changes position. Not by much. The curve has loosened one end and set it down farther along.
+
+The animal is long enough to bridge two grooves, but so narrow that it can lie inside one. Its back is the color of wet mortar. Along either side runs a fringe of nearly transparent skin, folded close except when the machinery passes. Then the fringe opens. The rush of air lifts its body from the wall, and it crosses a stretch of darkness too wide for its limbs to cross alone. It lands before the rattle dies, pressing all its small feet into the stone.
+
+It has eyes, though they are of little use at that distance from a lamp. Most of its attention seems to reside in the fringe. A draft from an opened door will turn its head. The first stirring of a heavy load below makes it flatten itself against the wall, waiting for the stronger current that follows. It knows those currents as thoroughly as an animal on the surface might know a path between buildings.
+
+In the quiet intervals it works the seams. Its narrow mouth can reach behind a pipe without its body following. It takes insects there, and the soft edges of fungus, and sometimes a drop held under a rail. The rainwater in the tile hollows interests it only briefly; it lowers its head, drinks, and is gone before another drop arrives. Once, when the small animal in the drain gives its sharp call, the long creature stops with its mouth against the stone. It does not call back. The air begins to move again, and it unfolds.
+
+It has a resting place high above the walkway, where two ducts meet at an angle. A little accumulation of shed fringe and insect wings marks the spot. From below, no one would take it for a nest. The creature returns to it by several routes, sometimes crawling, sometimes letting a blow from the machinery carry it past the opening and catching the wall on the way back.
+
+That is why the chamber can feel empty even while it is crossing. It spends much of its life in the middle, where the lamps establish no depth. For a few seconds after each heavy rush, its body travels with the falling drops. The drops continue downward. It reaches the opposite wall.

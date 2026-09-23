@@ -1,0 +1,15 @@
+The ground is a fitted skin of fired clay, pale where it is dry and dark where water has entered the seams. No earth shows beneath it. At the edge of each path, narrow channels of woven reeds carry warm, clear water toward a broad, shallow basin. The channels were laid by hand: their bindings are visible, and here and there a thumbprint survives in the clay that holds them. Nothing has had time to wear smooth.
+
+Heat rests over the place without a shimmer. Above it hangs a white, intensely bright ceiling, too high to see clearly and too even to be the sky. Its light reaches under the leaves.
+
+The basin and its outlying gardens occupy a wide, low plain. There are long views between them: stretches of bare tile, a solitary shade frame, then a dense island of green held in a basket of mud-plastered ribs. Vines climb ladders of split wood. Broad leaves spill over the basket rims, their tips beaded with water. Farther out, more gardens stand apart like inhabited rafts, though they are fixed in place. Their foliage is lavish; the spaces between them are nearly empty.
+
+Everything here has been assembled. The wet banks are packed from layered mats. The hummocks are inverted pots filled with moss. Even the little ridges in the distance are walls of stacked clay blocks, left with sharp corners and fresh mortar squeezed between them. Yet the plants grow with an easy extravagance, sending roots into seams their makers did not leave for them. A green shoot has lifted one paving tile the width of a fingernail. It has lifted it exactly that far for as long as anyone can remember.
+
+Small animals are everywhere once the eye learns where to look. Frogs sit in the shade of channel bridges; bright insects occupy the knots in the reedwork; long-legged birds stand among the leaves. There is no chorus. A bird opens its beak and closes it again. Sometimes a drop falls from a leaf and makes the only sound across the whole basin.
+
+Near the center is a round platform with a low roof of overlapping bark shingles. Beneath it, clay bowls have been arranged to catch water from the roof’s edge. One bowl is full, another half full, and one holds a single drop that has not yet joined the water below. The arrangement looks recent. A fiber cord lies beside the bowls, still curled as it was taken off a spool. No one comes to put it away.
+
+From the platform, the channels can be followed outward until they vanish among the gardens. They cross under paths and emerge on the wrong side of them. A frog visible through one narrow bridge is sometimes the same frog sitting ahead on the next, with no interval in which it could have traveled. Distance is generous here, but it is not dependable.
+
+The air smells of hot clay, crushed leaves, and standing water. Nothing decays; nothing quite finishes growing. The place keeps the dampness after rain, the freshness of new work, and the fierce brightness of noon, all at once.

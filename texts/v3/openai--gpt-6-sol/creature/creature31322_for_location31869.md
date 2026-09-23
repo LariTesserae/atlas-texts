@@ -1,0 +1,11 @@
+The cup-builders live in the seams. No one sees them enter or leave, but a clay ring appears, dries, and is followed by another. They are smaller than the mites and careful with their materials: grit in one cup, a white grub in the next, rainwater in the third. When the cups tremble, the builders are at work inside, packing wet clay into a wall they can almost stand behind.
+
+The grub is alive. Its body tightens when a fly lands on the root, though the fly is too far away to reach it. After rain, the grub sometimes leaves its cup. It crosses the floor slowly, nosing each sharp ridge before drawing the rest of itself over. By the time it reaches a crack, the cup-builders have often begun another ring around the empty place.
+
+Beneath it all lives the soft-mouthed eater. It has no room to turn around. It takes the pale grains as they loosen, a few at a time, before they can bind the floor shut. Where it has fed, the stone stays rough and shallow; where it rests, a narrow crust forms. The mites work through that crust with their faint paper sound. Above them, the thread-legged hunters wait for a movement large enough to feel.
+
+The shoots live more slowly than any of these animals. They lean toward the bright patch while it is veiled by the root, then hold still when the light touches them directly. A fly can rest on that root without dimming the room. A bead of water cannot. As rain gathers, the flies leave one by one, and a shadow runs across the floor to a place where nothing is standing.
+
+The cup-builders do not appear to heed the views in the ceiling drops. They keep adding clay whether a drop shows the grub asleep or already halfway across the chamber. Now and then they raise the rim of its cup before it moves. Now and then they do so after it has gone. Their rings are narrow in either case, and never quite even.
+
+When the rain passes, the grub may be back among them, or making its slow way home. The flies settle on the root. Under the floor, the soft mouth finds the new grains. Everything here has work small enough to do again tomorrow, if the floor leaves room.

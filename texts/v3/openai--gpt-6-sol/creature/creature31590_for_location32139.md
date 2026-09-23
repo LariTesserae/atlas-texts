@@ -1,0 +1,7 @@
+The people here know one another first by sound. A shutter striking stone means someone has begun the day; the slow rasp behind a wall means grain is being milled. Footsteps on the steps tell of a visitor before the visitor comes into view. In the square, a person may stop to speak without having to step aside for anyone else.
+
+They live with the slope rather than against it. They carry what is needed up the long paths and keep a little open ground beside each house for setting down a load, laying out work, or standing in the sun while the stone is still cold. Under the low roof, someone chooses a block for a repair and tries it against the old wall. A smaller stone fills the space it leaves. No one expects the fresh edge to look fresh for long.
+
+Rain briefly changes their tasks and their attention. They make sure the roof spouts run clear, watch water find the channels across the square, and leave the basin until it empties. Then they scrape out what it has carried in. In dry weather, they cut back the thorn beyond the last wall and clear wiry grass from a step before its roots loosen the joint.
+
+There are few other creatures among the houses. A bird passes overhead; beyond the walls, the thorn holds its place in the wind. The moss lives beneath the dripping spouts. Most of what moves through the town is human, and unhurried enough that each small sound has room to be heard.

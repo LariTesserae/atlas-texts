@@ -1,0 +1,9 @@
+The chamber is only a little wider than a house, but its far wall is hard to make out. Water fills it to the ceiling. What light reaches down through the glazed roof has already passed through several metres of sea, and lies in pale strips across the floor.
+
+There is no exposed stone here. The floor is laid with heavy ceramic plates; the walls are concrete faced with metal, and a broad iron shaft crosses the room from one sealed housing to another. Everything was assembled, down to the narrow trenches that collect grit beneath the floor grilles. The station has been underwater for so long that its sharpness is gone. Rivet heads are low and smooth. Corners have rounded under passing water. The embossed names on the housings can be felt more easily than read.
+
+Beyond the walls, the tide still works the machinery. At intervals the shaft turns a few degrees, catches, and turns again. A deep knocking travels through the iron, followed by the loose, bright rattle of a grille. Sound comes through the water and through the floor together; even the quiet between strokes has the steady rush of water in the old ducts. A cloud of fine mortar dust lifts from a trench, hangs in the dimness, then settles back where it came from.
+
+Small fish keep to the open middle of the chamber. They scatter at each knock and slowly gather again, flashing silver when they cross a strip of light. Crabs pick along the seams between plates. In one wall, an eel occupies the space where a cable was removed, its head just visible among the corroded fittings. A few short fronds of weed grow from the upper bolts, the only green in the room.
+
+The water is cool enough to preserve the feel of the place: bare metal, close walls, a current that strengthens and slackens without ever leaving. Nothing here has quite stopped working. The tide turns the shaft, the shaft shakes the grilles, and the grilles shelter the small animals that wait for what the water brings in.

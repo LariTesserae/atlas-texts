@@ -1,0 +1,7 @@
+At first I think I would live high up, in one of the houses reached by a bridge. I would know the city by its openings: which court receives the first light, which stair stays warm after sunset. From there I could watch a new current cross the pale floor and see, almost at once, where it had failed to go.
+
+But I don’t think I would stay above it for long. I would be down in the streets with a few cut wedges in a carrying cloth, trying to judge a dry channel by touch. I would put my palm where the small pale animals had gathered. Sometimes I would feel nothing and move the stones elsewhere; by morning, their path would prove better than mine.
+
+I would be young enough to know the safe stairs as they are now, not as they used to be. My room would be one of three still occupied in a long house. Behind its shutter I would keep a chisel, a little food brought from above, and several stones already cut to fit places that water might never visit again. I would keep them anyway. A bank can be made in an hour if its pieces are ready.
+
+By evening, when the air begins to pull dust along the street, I would go back to the basin I had left untouched. Its floor might look dry. I would crouch beside it and wait long enough to see a hunter emerge from a joint in the paving, then another. After that I would carry my stones farther on. Somewhere beyond the basin, the water would still be making its way through.

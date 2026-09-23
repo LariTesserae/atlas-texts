@@ -1,0 +1,9 @@
+At first the landing appears to belong only to water. Even the bird finds nowhere to stay. But in the clean gap beneath the maintenance mark, behind the flexible joint, a small animal lives.
+
+It is nearly the color of the stone. In the cold it holds its six legs close to its body and looks like a chip left by the cutting tools. When the channel fills, it comes down the wall in short, deliberate runs. One of its hind legs is bent, so each run ends with a slight turn. It waits at the edge until a drop strikes the water, then steps out onto the surface.
+
+There is food here, though none of it is large enough to see from standing height. A film gathers where water passes through the stone: cells and fine particles carried out of the cliff. The animal combs it from the channel with its forelegs. It has only the minute before the water sinks away, and seldom uses all of it. As the surface draws flat, it retreats to the warm side of the wall. The white rim forms behind it.
+
+The gap is deep enough to shelter it from the brief frost. Farther in, where the joint bends around the shifted rock, others remain still through most of the day. They do not know the maintenance mark as a mark, or the buildings as buildings. The pale panels give them a narrow band of warmth; the channel brings food; the movement of the mountain has left them a place to hide.
+
+When a vehicle passes, the animal stops with its forelegs lifted. The pressure reaches it through the stone and is gone. After a while it lowers them and works its way along the seam, toward the first bead of water collecting for the next fill.

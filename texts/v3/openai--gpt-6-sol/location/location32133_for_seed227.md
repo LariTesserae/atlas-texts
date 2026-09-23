@@ -1,0 +1,9 @@
+There is a hollow beneath the bank, no larger than a room. Its floor is nearly level, worn smooth where bare and soft where moss has taken hold. A low ceiling of layered stone comes down toward the entrance. Beyond that narrow opening are roots, a strip of grey sky, and the river.
+
+The river does not enter the hollow. It runs through a tight passage under the rock beside it, and the noise fills every part of the space: a continuous, battering rush, loud enough to hide footsteps and speech. Inside, there is only dampness. Drops gather slowly on the ceiling and fall into two shallow pits in the floor. After rain, a dark line creeps across the stone and stops. Most days the pits hold no more than a little cold water.
+
+Moss grows thickly along the entrance and in the seams between stones. Small ferns crowd the places where daylight reaches the floor; farther back, their leaves give way to bare rock. The middle of the hollow remains open. There is room to turn around, to sit, to notice how few things are in it.
+
+Against one wall stand three flat stones set upright by hand. They make a crude shelf, or perhaps the remnant of one. A groove rubbed into its top stone is smooth enough to suggest many years of use, though nothing rests there now. Near it, an old stake of split wood has been driven between two rocks. Its exposed end has gone dark with age.
+
+The air stays cold even when the ground above has thawed. A small pale moth sometimes clings to the underside of a fern; once in a while, a mouse leaves prints in the silt beside a pit. Neither stays long. The river’s sound changes little from hour to hour. Only after a long rain does it deepen, until the shelf and the empty floor seem to tremble with it.

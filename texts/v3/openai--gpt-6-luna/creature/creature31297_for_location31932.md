@@ -1,0 +1,17 @@
+The city is inhabited by those who listen for changes.
+
+They live far apart, in rooms built beside the waterworks: narrow apartments behind pump halls, dry chambers above cisterns, little dwellings fitted into the thick walls of the old districts. From a plaza they are difficult to distinguish from stains or figures of stone. A lamp moving behind a high window may be the only sign that anyone is awake.
+
+They are slight, not from hunger so much as from the thin air. They move without haste, saving their breath for the steep stairs and the long climbs between districts. Their clothes are layered and close-fitted, rubbed shiny at the elbows and knees. Each carries a small lamp, a length of cord, and a set of metal pins for testing the depth and temperature of water. Their faces are usually hidden from the damp—not against the rain, which is warm, but against the mineral dust it leaves behind.
+
+They do not think of themselves as owners of the city. They are its witnesses. A person’s district is not the place where they were born, but the network of drains and chambers whose sounds they know. They can tell, from a knock in a buried pipe, whether a cistern is filling cleanly or whether something has begun to clog it. They sleep through the slow pulse of the turbines and wake when one misses a beat.
+
+Most of the city needs no tending. The engines turn. The water rises, divides, and vanishes into channels whose destinations are written in maps too old for anyone to trust completely. The inhabitants interfere only when a sound is new, or when a familiar sound has stopped. They unstick a valve, clear a mineral throat, replace a worn chain. Then they stand listening until the machinery resumes its old rhythm. Sometimes it does not. In those places, they leave a mark: a small pale line on the wall, or a pin driven into the stone.
+
+They seldom gather in numbers. When they do, it is usually in a high room above the clouds, where the air is a little easier to breathe. They exchange measurements, not stories. Still, they remember one another’s habits: who leaves a lamp burning beside a dangerous stair; who can hear the deepest pumps; who always pauses at a certain bridge to watch water climb its wall. Their greetings are brief. Their departures are not.
+
+There are smaller inhabitants, too, which the people do not count as neighbors but do not quite call vermin. In the warm cisterns, nearly transparent animals drift along the stone, feeling their way with fine whiskers. They surface only when the water is still. The inhabitants learn not to strike the surface when they see one. In the wettest culverts, pale microbial films spread in threads, trembling when the pumps change rhythm. A maintenance lamp passes, and the threads shine as if the dark itself has briefly grown nerves.
+
+Whether anything lives above the cloud ceiling is harder to say. Sometimes a shadow crosses the vapor, broad enough to dim several towers. No one has seen it land. The roofs remain empty, except for rain and the patient rusting of old crane-arms.
+
+The inhabitants do not expect the city to end, nor do they expect it to be restored. They keep a few lamps lit, learn the changing voices of the pipes, and make room for the water when it takes an unexpected route. In the long, wet quiet, this is enough to make the city feel occupied—not crowded, exactly, but attended.

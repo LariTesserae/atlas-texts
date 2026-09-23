@@ -1,0 +1,15 @@
+From a distance, the plateau looks almost bare. It is a long, high table beneath a dim violet sky, its edges worn down to shallow slopes rather than cliffs. Nothing here has the sharpness of a young mountain. The ridges are broad and low; the stones have sat exposed for so long that even their cracks seem rounded.
+
+Closer in, there is almost no bare stone at all.
+
+A dark, fine-grained plant covers the ground from horizon to horizon. It is tough underfoot and gives slightly, like densely packed needles. In places it has lifted itself into ribs and hollow columns; elsewhere it lies flat for kilometers, following the old contours of the rock. There is no soil beneath it. Its lowest layers hold to the mineral surface, and each season’s growth settles over the last. The plateau is both its bed and, increasingly, its buried core.
+
+It has never known rain. The air is dry enough to draw a faint sting from the nose, and cool enough that breath warms the face on its way out. The plants move charge and dissolved minerals through threads of conductive resin. On the open flats, their leaves are so small they look like a change in texture. They stand upright when the sky brightens, then fold into the ground at dusk with a sound like millions of stiff pages being shut.
+
+The town can be seen well before it is reached: a few widely separated towers rising from the dark plain. Each is grown from the same stock as the ground cover, though trained into thick-walled chambers, bridges, and high, narrow vents. There are streets between them, but the streets are simply places where the plant has been taught to stay low. In the oldest quarters, doorways have slowly narrowed and been opened again. Pale seams mark where a tower was persuaded to put a room, or an entire story, somewhere else.
+
+At night, the town’s machinery becomes visible. Brief points of light travel along the bridges and down through the walls, tracing routes too quick and intricate to follow. Some return beneath the flats and surface far outside the town. No one has to tend those routes now; the living structure adjusts them as parts age or fail.
+
+The noise begins an hour before the wind arrives. First comes a steady knocking from the vents. Then the whole plateau hums. The ground cover raises its leaves, the towers open their upper chambers, and dry air pours through a city that has become one enormous instrument. Small, many-legged animals shelter in the streets until the strongest gusts pass. Afterward they race out to catch the hard seeds shaken loose from the high walls. Larger hunters follow them, slipping from tower to tower in the failing light.
+
+For a while there is motion everywhere, though little of it rises more than a hand’s breadth above the ground. Then the wind eases. The towers close, the lights continue their silent journeys, and the plateau looks bare again.

@@ -1,0 +1,13 @@
+The plain is almost level. From a distance it looks like pale stone, but close up there is no stone in it: only fitted hexagons, each no wider than a fingernail, extending without a visible edge. Their rims have worn lower than their centers. Dust lodges in the fine grooves between them, drawing lines so numerous that the ground seems dark until the sun strikes it directly.
+
+The hexagons were made to shift. In the warmth of the day they ease apart by fractions too small to see; at night they draw together. Across a hundred miles, these small motions pass as a broad, slow ripple. Anything resting on the plain will eventually travel. Pebbles of broken casing gather in long, shallow bands. A fallen tool, given enough years, might arrive at the far side of the basin without once being lifted.
+
+There are no hills here, only slight rises where old machinery lies beneath the surface. Once they may have been buildings. Their walls have been ground down, sorted, and laid into the plain again, so that a buried tower now registers as a swell scarcely high enough to cast a shadow. This has happened many times. The newest tiles contain flecks of older ones, and those contain older flecks still.
+
+The air is dry and warm. It carries a faint metallic taste, though hardly any wind can be felt. High above, a bright mesh crosses the sky: straight lines visible only when dust gathers along them. The mesh casts no steady shadow. Its threads brighten and dim in sequence, and the plain answers with bands of glare that advance toward the horizon. Along those bands, grains lift from the ground, hang for a moment, then settle elsewhere. From the ground the change is nearly silent. With an ear against a tile, one can hear a close, intermittent ticking.
+
+Life persists in the grooves. Here and there, black stems emerge between the hexagons, each bearing a few narrow leaves held edge-on to the light. Their roots are short. If the tiles begin to close around one, its stem breaks cleanly and the rooted part waits below for a wider seam. The plants stand far apart, but their shed leaves turn up in surprising places.
+
+An animal is harder to find. Small, many-jointed things live under loose rims and come out after the light has passed. They cross the exposed ground quickly, carrying fragments of leaf or pale grit. Their tracks remain until the next shift of the tiles draws the dust over them.
+
+At midday the place is dazzling and seems utterly still. Yet a line of dark grit at your feet is already moving away; the light overhead is advancing; somewhere below, an old wall is being taken apart. The plain does not keep ruins. Given time, it makes everything level enough to use again.

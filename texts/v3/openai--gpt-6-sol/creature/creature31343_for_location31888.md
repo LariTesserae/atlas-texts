@@ -1,0 +1,11 @@
+The fronds are the first inhabitants you notice. Each keeps to its own seam, though its roots run farther than its leaves suggest. They do not reach toward the sun. At the sound of the hum they turn, exposing their pale undersides to the opening stone, and their veins fill with a red light that travels slowly from tip to root.
+
+Something lives among them that is harder to separate from the hollow. It has no fixed outline while the rock is quiet. You see it best just after the three clicks: a narrow darkness beside a seam, too deep to be a crack, moving a little after everything else has stopped. At times it gathers into the shape of a folded limb, jointed several times over. At others it is only an edge beneath a leaf, though the leaf stands well away from it.
+
+It seems to feed when the seams work. Fine metallic grains line up, and the dark shape passes along them without disturbing a single one. Where it has passed, the grains hold their order. A frond nearby will lower until one copper-red vein touches the stone, then lift again. This exchange takes an hour or most of a day. Nothing in the hollow hurries it.
+
+The changes in distance belong to this creature too, or at least to its growth. When the opposite rim withdraws, the darkness becomes broad enough to cross the floor without moving. A leaf’s shadow lies over it like a bandage over a long, unfinished body. Later the rim returns, and most of that body is nowhere to be seen. Only a new dark edge remains. In time, a pale root finds the edge and enters it.
+
+There may be several of these lives, one under each plant, or one life divided by bare stretches of stone. The three clicks sound the same wherever a seam opens. Yet the fronds do not always turn together. Sometimes one shines red while the others remain green and still, as if it alone has felt something waking beneath it.
+
+Nothing there appears to seek company. The plants stand apart; the dark edges seldom meet. Year by year, however, the floor rises and the hollow grows a little wider. What lives in it is making room slowly, using heat, stone, and shadow—and leaving enough bare ground between its parts for each to grow.

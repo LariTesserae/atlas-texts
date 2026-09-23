@@ -1,0 +1,9 @@
+I would begin on the climb, not at the top: a child sent to carry messages because I could run the shallow steps without noticing that they rose. I’d know which railings left rust on my palm, which bakery vent meant I was nearly home, and where to wait if an older neighbor needed to catch up.
+
+Later, I think I’d work with the water. Not at a great pump, at first, but along the middle levels, where a channel can disappear behind three households and come out beneath somebody else’s garden. I’d carry a short brush, a wrench, and a folded scrap of mesh for catching roots before they reached a narrow pipe. People would call me over to settle arguments that were only partly about drains. I might have to tell an upstairs neighbor that her vine was beautiful and also that it could not have the whole channel.
+
+I’d live beside a landing with a condensation trough. There would be herbs outside my door, though I would forget to water them; the pipe would do most of the work. I’d be able to hear a lift from my room and tell, some nights, that it was carrying something heavy. When the pump below changed pitch, I’d put on my shoes before anyone whistled.
+
+Years on, I might be one of the people who remembers what is behind the walls. I would know the old valve beneath the brick face and the patch of green that looks healthy until you see it from across the valley. I’d still ask the people living beside a channel what they’d heard: a new drip, a hollow knock, water arriving later than it used to. They would know things I had missed.
+
+After a repair, I’d often come home by the long way. Not to inspect anything—just to pass the landing where children race, the workshop with birds in its gutter, the vine somebody has trained clear of a drain. I would live halfway up and rarely be certain how far I’d climbed.

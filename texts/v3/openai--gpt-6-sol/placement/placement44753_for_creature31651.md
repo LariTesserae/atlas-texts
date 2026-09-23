@@ -1,0 +1,9 @@
+I think I would live in a doorway that has sunk below the street. People passing would see the top of my head first, then my face as I came up the steps with a coil of cord and a piece of chalk.
+
+At first I imagine myself a mason, because the city seems to ask for one everywhere you look. But I wouldn’t be especially good at shaping stone. I would be the person sent ahead of the mason: a drain worker who finds out where the water has come from, and whether it is going somewhere new.
+
+I would know the north market from below. There is a place under one of its stalls where you can tell, by the grit left in a channel, whether the market was washed down the night before. I would know which wheels ought to make the cord quiver when I hold it against a wall. On my way home I would still glance at stairwells and the dark seams between paving stones, not quite able to leave work behind.
+
+One morning a woman would catch my arm outside her house and show me a narrow wet line beside the door. I would touch it. It would be warm. She would see my expression before I could explain, and point toward the eastern works. I’d raise a palm—wait—then go to find out which route had changed. It might be no great disaster. Someone might need to shut a wheel down for an afternoon, and a mason might spend three days persuading the water back through an older gap.
+
+I think I would be proud when the repair held, though almost no one would know it was mine. That evening I’d go home, put my dry shoes on the shelf by the door, and sit close enough to hear someone tell me about their day. Beneath our feet the wheels would keep turning. I’d listen for them a little longer than I meant to, then turn and look at the person speaking.

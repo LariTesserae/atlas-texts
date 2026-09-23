@@ -1,0 +1,27 @@
+At first, the pale shapes seem to be the only animals in the high country.
+
+They pass across open basins without stirring the water: long, translucent bodies, narrow as streamers, each trailing a fringe of fine filaments. They have no obvious eyes. Their heads taper to blunt points, and their bodies are so nearly clear that what gives them away is not their shape but the slight disturbance they make in the light. One may cross a whole valley in an afternoon. Another may drift beside a ledge for days, keeping pace with the slow turn of the fronds.
+
+They are not, however, the only inhabitants.
+
+Under the terraces, threaded through the oldest stone, something lives at a scale difficult to see. Pale cords run through cracks and hollows, as thin as roots and far more deliberate. They enter the honeycombed walls and emerge miles away, where they vanish beneath a soft coral-colored bed. In places the cords gather into knotted chambers, warm and faintly luminous. The plants grow thickest above these, though nothing feeds there. The currents alter around them. Even the sediment seems to pause.
+
+The drifting creatures are parts of this hidden life—or, perhaps, its messengers. They travel between the chambers, carrying a subtle charge along the filaments that trail from their bodies. When one brushes a pillar, the pillar’s growth closes around it without harm. When one crosses a current boundary, all the nearby fronds lean in the same direction, then slowly return. The high country has no calls, but it has answers.
+
+The creatures have no fixed faces. In brighter water, a faint seam shows along each body, opening and closing like a gill; in the dim valleys, they look like folds in the water itself. They steer by pressure, by warmth, by the touch of distant currents against their filaments. A ridge far away can be known to them before it can be seen. They do not swim so much as allow the water to carry them, then make small, exact corrections—toward a warmth, away from a silence, into a passage that should not be there.
+
+They gather in the pale basins. Not in numbers, exactly; sometimes a single one appears there, and sometimes the basin fills with faint, overlapping shapes. They hover above the smooth stone and lower their filaments toward its impossible reflection. The image beneath them does not always match. A creature may see its own length doubled, or shortened, or trailing behind it like a memory. It will remain very still until the reflected shape moves first. Then it follows.
+
+No one knows whether the basins show another place, another time, or only the deep country’s way of remembering itself. The inhabitants seem not to care about the distinction. They attend to what appears there with the same grave patience with which they attend to a change in the current. Sometimes, after a long vigil, one leaves the basin and swims toward a distant shelf. Sometimes it stays until the season of stillness has passed, and the reflection fades from beneath it.
+
+They do not build the arches or pillars. Those are older than any creature anyone has followed. Yet the inhabitants preserve them. Fronds will overgrow a fallen column, but stop at the threshold of an open doorway. The drifting ones pass through such openings one at a time. Beyond them, the water is often motionless, and the walls are bare of the fine cords that appear everywhere else. The creatures enter and do not emerge for many days. Once, a traveler watched a doorway for a whole season and saw, at last, a strand of pale light pass across it from the inside.
+
+The inhabitants have no young that anyone has found. They divide, perhaps, in chambers beneath the stone, where the hidden cords thicken and separate. Or they are made by the high country in some slower fashion, loosened from its roots when a valley is ready to let them go. The smallest are almost indistinguishable from drifting filaments. They cling to the undersides of leaves, and there learn the currents: the tide along the slopes, the upward flow from the valleys, the strange crosscurrents that make distance lie.
+
+When the water grows warm, they travel more often. The pale bodies appear in the open basins, while beneath the terraces the cords pulse with a soft, scattered glow. In long still spells, the creatures settle into crevices and hang with their filaments gathered close. Then the plateau seems empty again—though the plants lean toward one another, and the stone holds its warmth.
+
+They make no sound. But the landscape changes around their attention. Sediment lifts from a basin in a slow turning veil. A current that has flowed uphill for years slackens, pauses, and resumes in a different direction. Somewhere, a buried chamber opens to the water. Somewhere else, one of the pale shapes slips through a doorway that has been waiting, untouched, since before the first living thing learned to swim.
+
+The high country is not their home in the way a den or a reef is home. They do not possess it. They are threaded through it, moving between stone and water, between the visible terraces and the country beneath them. Perhaps they are inhabitants. Perhaps they are the plateau’s thoughts, made briefly mobile.
+
+Either way, when one passes through a basin, the reflected landscape watches it go.

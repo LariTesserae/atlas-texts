@@ -1,0 +1,9 @@
+At first I think I would be the pale animal. It knows the basin by openings rather than walls, and can drink from a puddle without needing to decide where the water ought to go. But I would be too curious about the footsteps. I would stay under the tile when I should run.
+
+So I am probably one of the builders, though not the one who can set a straight course of bricks by lamplight. I carry a lamp and go ahead of the sled crews. I know which passage needs its left runner lifted, and which stair has a loose top step. When I hear a call, I go far enough to learn whether it was meant for us, then come back with the answer. This is useful work, if not work that remains visible.
+
+Over time I would acquire another task. I would be sent into roofed rooms after the crews leave, to stand still and listen. A new ceiling makes small sounds as its weight finds the walls. Most are harmless. I would learn the difference slowly, from someone willing to wait beside me in the cold and say, *That one. Hear how it comes again?* I would mark a doubtful brace with chalk and fetch people who knew how to strengthen it.
+
+I would sleep with the lamp near my hand. On waking, I would sometimes find that the room marked in chalk the night before had a wall across it, and the way back to my work had changed. I think I would be glad to know a place that thoroughly, yet never be able to take the same route through it twice.
+
+Once in a while, someone would break a tile and hold it up to the light so we could see the print beneath. I would put my own hand against it, without quite touching. Then I would carry the lamp where it was needed, leaving that older hand in the dark until someone uncovered it again.

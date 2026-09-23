@@ -1,0 +1,7 @@
+I might look for myself beneath the coping at first. From there I could see the whole court, and when dusk came I could leave it. But I think I would keep watching the floor instead: the black water in the joints, and the places where it pauses before it sinks.
+
+I would be the small thing beneath the tilting plate—the one that has packed grit into the space under it. Not much larger than the clicking creatures, though softer and slower. After a dry day I could pass for a bit of pale silt. Rain would show where I was. I would come out when the first threads reached the floor and carry loose grains back under the plate, one at a time, before the space grew too wet.
+
+It would not stay dry. Water would find a way through what I had packed, and sometimes a grain I moved would send it toward another seam. The clicking creatures would arrive there to feed. A frog might settle on the plate above me, tipping it until I had to begin again.
+
+Most days I would know the court from underneath: the weight of a frog, the quick passage of little feet, the different taps rain makes on clay. At dusk, while the swifts turned through the open middle, I would be at the plate’s edge, feeling for the first cool thread of water.

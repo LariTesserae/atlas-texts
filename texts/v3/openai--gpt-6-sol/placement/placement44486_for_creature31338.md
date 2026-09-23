@@ -1,0 +1,7 @@
+At first I would put myself in the pump house. Its motor seems like the district’s heart, and I would want to know it well enough to hear trouble before anyone else did. But I think I would spend most of my time outside, where the water goes after the gates move.
+
+I would be the person who clears the lane drains. I’d live in a room above the timber yard, with a window so close to a branch that I could tell when it had rained before I saw the paving. In the morning I’d take a hooked iron tool down the steps, test the slick patches with my boot, and pull leaves and silt from the grates. Some days the canal would be high enough that clearing them made no immediate difference. I’d do it anyway, so there would be a way through when the water fell.
+
+I would learn the plants individually, though not by name. The fern behind the loading step could stay; its roots held to the face of the brick. The sapling behind the curb would need a decision before another season. I’d ask whoever used that stretch of lane, then either leave it room or bring a saw. If I found a joint opening beside a drain, I’d mark it for someone who could mortar it properly.
+
+That is where I would find myself: crouched at the edge of a passage, doing a job small enough to be undone by the next rain. When the pump’s beat changed, I’d stop with everyone else and listen. Then I’d put my hand back into the wet leaves and see whether the water was moving.

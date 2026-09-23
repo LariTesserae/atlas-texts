@@ -1,0 +1,7 @@
+At first I think I would be in one of the clear pools, a creature small enough to hide beneath a stone when the light crosses it. But the pools seem too temporary. I would want to live where the water can pass through without taking everything with it.
+
+So you would find me some distance upstream of the grate, at the edge of a low shelf of rock. I would be a patch of moss growing into its sharp underside—not one plant so much as a close company of stems. Water would seep through me even when the surface looked still. Silt would catch there, and perhaps a sedge seed, and the small things that graze the green film on the gravel.
+
+From the ridge, I would make no visible difference. Up close, I would be a dark, yielding place in the pale stone. A larva might shelter below me; a fly might land for a moment and leave. I would hold what I could without knowing what would stay.
+
+I would hear the powerhouse always, though I could not distinguish it from the pressure of water moving through my stems. After hard rain, part of me might come loose and go through the grate. What remained would keep growing into the rock’s edge. It is a modest place to find myself, but in this valley even a little shelter can become somewhere else begins.

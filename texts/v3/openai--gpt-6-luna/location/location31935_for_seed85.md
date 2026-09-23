@@ -1,0 +1,21 @@
+The city occupies the crown of a submerged mountain.
+
+Below it, the mountain falls away into darkness so steeply that the drop is hard to read as distance. Above, there is only more water: cold, black, and immense. The settlement is small enough that, from its highest ledge, one can almost take in its whole extent—a compact district laid over a ridge of newly exposed stone. The ridge is young and sharply broken. Its dark mineral faces still have the clean edges of fracture, not the softened contours of long erosion. Here and there, seams of glassy black rock catch the faintest glimmer.
+
+There is no surface, no sky, and no plant life. The city is built directly for the water. Its narrow streets are open channels, its stairs descend into liquid, and its doorways are sealed by fields that hold the pressure at bay without making any visible boundary. Buildings rise in clustered, angular forms from the mountain’s spine: pale ceramic, dull metal, translucent stone. Their surfaces are smooth but not polished, as if designed to shed attention as well as water. Between them are broad empty courts where the seabed shows through.
+
+The structures are carefully spaced. A few bridges join the higher terraces; farther apart, single towers stand on separate outcrops, connected by hair-thin lines of light that are not cables. There are no crowds, no traffic, no signs of industry. The city feels organized, but its organization has left room for the dark.
+
+Light is scarce. Most of it comes from small points set deep within walls, blue-white and steady, no brighter than necessary to mark an edge or opening. The light does not spread far through the water. It pools on a stair, traces the underside of a bridge, then disappears. Beyond the last buildings, the mountain becomes a silhouette; beyond that, nothing can be distinguished from depth.
+
+The water scarcely moves. It presses against every surface, but does not surge, eddy, or stir. Fine particles hang in it without settling. A loose thread of mineral dust may remain suspended for years, fixed in the same place as though the water remembers its position. The city’s instruments—if they are instruments—seem to have persuaded the local sea into a quiet equilibrium. Pressure changes without descent; distance is measured by a brief delay in the water’s response. The usual signs of current and tide do not apply.
+
+Sound is rare and strangely local. A footfall on a metal landing may travel only a few steps, then vanish. Once in a long while, the mountain gives a low, almost inaudible knock, as if some immense mechanism has shifted deep inside it. There is no wind, no surf, no rustle of leaves. Even the water makes no sound.
+
+Fauna is nearly absent. A small, pale animal sometimes appears beneath the outer platforms: not quite a fish, perhaps, but shaped to slip between the stones. It does not gather in schools or follow food. It passes through the city at long intervals, and the lights do not attract it. Nothing grows on the rock. Nothing clings to the buildings. The rare animal leaves no visible trace.
+
+The settlement seems to have been built not against the sea, but in negotiation with it. Its most advanced works are difficult to recognize as machines. A doorway may open onto a passage that is longer inside than the building enclosing it. A distant tower may appear to shift sideways when watched from underwater, though it is always found in the same place. The city’s thin connecting lines sometimes pass through solid stone and re-emerge on the far side, still taut, still faintly lit.
+
+Yet nothing here is in motion. The mountain does not crumble. The water does not flow. The few lights do not flicker. The city does not expand beyond its ridge. Even the rare visitor from the deep seems to arrive and depart according to a schedule no one can perceive.
+
+It is not peaceful in the way a quiet room is peaceful. It is peaceful in the way a held breath is peaceful: complete, deliberate, and maintained. The city rests high above the abyss, fully submerged, with its sharp stones, empty courts, and patient lights arranged in a darkness that has learned to stay still.

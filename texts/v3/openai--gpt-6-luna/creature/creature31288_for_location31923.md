@@ -1,0 +1,11 @@
+The place is inhabited, but not by anyone who needs to be seen.
+
+Its oldest residents are the plants. They have no single body and make no obvious decisions, yet they behave less like a wilderness than a quiet population with long-established habits. They keep to the buried watercourses and the warm pipes, leave the walkways open, and return each season to the same cracks and ledges. When a channel clogs, roots gather at its seams. When a wall grows too cold, they withdraw from it. Nothing here suggests a gardener. Still, the green does not spread at random.
+
+Smaller lives make their homes within it. They are rarely more than glimpses: a narrow shape slipping beneath a loading platform, a pair of bright eyes in a drain, tiny tracks crossing a film of rainwater and vanishing at a wall. They nest in the dry spaces behind machinery and in the warm collars of old pipes. They are quiet, cautious things, moving most when the pump pauses and the settlement seems to be listening. Their droppings and shed fur are about the only evidence that anything larger than an insect passes through the lanes.
+
+The pump has its own following. A few small creatures gather near the warm masonry beneath the workshops, where water seeps through the stone and insects come to drink. They know the intervals of its pulse. As it starts, they scatter into the roots; as it stops, they return. Whether they depend on the pump, or merely have folded its rhythm into their lives, is hard to tell.
+
+There may once have been people here. The doorways are human-sized, and the courtyards have the proportions of places meant for conversation. But no footprints remain in the silt except the small, delicate ones, and no light appears behind the windows except the lamps that come on by themselves. The town has not been emptied so much as passed on. Its inhabitants are modest in scale, patient with one another, and difficult to distinguish from the systems that shelter them.
+
+At dusk, when the lamps glow briefly among the leaves, the settlement seems almost to stir. A drop falls. Something moves in a culvert. The pump gives its low, familiar pulse, and the roots tighten by a fraction around the pipes. Then the lanes are still again. The place goes on living in the manner it has learned: underground, at the edges of sight, and without any need to hurry.

@@ -1,0 +1,9 @@
+At first I think I would live in one of the high rooms, just beneath the stair. I imagine knowing when someone crossed above by the weight of each footfall, and going still until the stone settled again. But those rooms are too close to the dry side of things. I would keep finding reasons to go down.
+
+My place would be behind the lowest wall, where the roar is so strong that it seems to leave no room for the smaller sounds. I would be one of the shelled ones, with a pale rim worn into my shell from pressing against the same stretch of stone. I would not be especially good at cutting new grooves. My work would be to find out when an old one had changed.
+
+I would begin at the drain mouths, touching each with a feeler. Then I would set my shell against the wall and wait. A narrowing channel would not sound like a blockage yet. It might only take a little longer for one drop to reach the channel below, or give an empty doorway a note I had not heard there yesterday. I would listen twice before asking another to bring a blade. Some changes are only water finding a new way around a grain of grit.
+
+The crack behind the wall would frighten me a little, though I had always lived beside it. We could keep the little channels open; we could wedge a trembling bridge. We could do nothing to the water making that great sound. Perhaps that is why I would return to the lowest wall: after listening there, I could tell which noises belonged to the town and which came from beyond our work.
+
+Most days, no one looking beneath the stair would see me. They might notice a fresh pale scrape at a drain mouth, or a cup turned upright beneath a new drip. If they waited long enough, they might see my shell appear under an arch. I would stop there, pressed to the stone, not hiding exactly. I would be listening to find out whether the bridge ahead was still firm enough to cross.

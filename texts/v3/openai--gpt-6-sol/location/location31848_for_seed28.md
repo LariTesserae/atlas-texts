@@ -1,0 +1,11 @@
+There is a courtyard beneath the city that most of the city has forgotten. It is no larger than a room, though its walls rise through six tiers of dwellings and disappear into a square of white sky. The floor lies below the street: a shallow bowl of worn brick, warm enough at noon to make the air waver.
+
+Almost nothing occupies the courtyard. A stone bench. An abandoned handcart without wheels. A door at each end, both sealed with fitted clay. Between them grows a thicket so thick that its leaves meet overhead. They are long, pale-green blades with a sheen like polished horn. Each emerges rolled tight from a seam in the brick, opens in the heat, and curls again at dusk. No one has seen a flower. When a blade breaks, it gives off a sharp resinous smell and seals before a drop can fall.
+
+The city above was built with arches, steps, and narrow channels, all shaped by hand. Its channels carry no water. They conduct air. Warm drafts rise from the streets and enter the courtyard through small square mouths in the walls; cooler air descends the open shaft. The builders left gaps behind the brickwork to make the passage easier, or perhaps to tune it. No one remembers which.
+
+By late morning the sound is enormous. Air strikes the mouths with a low, continuous roar. Loose tiles chatter on the upper tiers. Inside the walls, hidden chambers answer one another in notes so deep they can be felt through the bench. The thicket adds its own bright rattle, thousands of hard leaves tapping and parting. Someone at the cart could shout across it and not be heard.
+
+Yet the place is seldom visited. The old doors are awkward to open, and there is little reason to come down. Once in a while a mason brings a chisel to replace a cracked brick. Tiny ash-colored insects live under the curling leaves; sometimes one ventures onto the sunlit floor and is gone before it reaches the bench.
+
+The bricks have rounded edges where generations of blown grit have passed over them. Their repairs are rounded too. New clay takes a few years to lose its sharp corners, then becomes difficult to distinguish from the rest. In the afternoon, sunlight reaches the bottom of the shaft and fills the whole small court. Shadows of the leaves race over the empty floor while the walls keep up their long, unbroken noise.

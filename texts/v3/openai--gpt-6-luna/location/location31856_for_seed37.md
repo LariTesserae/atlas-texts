@@ -1,0 +1,17 @@
+Behind a thumb-thin skin of pale rock is a room no larger than a washbasin.
+
+It is cool there, and damp in patches. The floor has not quite decided to be floor: a shallow shelf of raw stone feathers into grit, then into a soft, unformed hollow where the rock looks poured rather than broken. Nothing is old enough to be properly worn. Edges are sharp but gentle, like the edges of things still being imagined. A few seams in the stone hold clear water. Now and then, a bead gathers beneath the ceiling and falls—though the drops sometimes rise instead, wavering back into the crack they came from.
+
+The room is intensely bright. Its light has no visible source. It seems to come from the wet surfaces themselves, a clean, wintry whiteness that leaves no shadow where a shadow ought to be. In one corner, a narrow passage appears to continue into the earth; look away and it becomes a crease in the wall. The cavity never grows larger than it is, but occasionally gives the impression of containing a great distance folded tightly inside it.
+
+There is little greenery: three fine, colorless threads rooted in a pinch of dark sediment, and a low tuft of translucent fronds that might be moss. They do not sway. Instead, their reflections sway a moment after the plants have become still.
+
+The animals are everywhere, though the place first seems empty. Pale mites cross the stone in scattered lines. Tiny, many-legged creatures occupy the seams in the rock; their bodies briefly show through the stone, as if the mineral were clear water. A soft, round animal with no visible face clings beneath the ceiling. It contracts, and the room brightens. Near the water, several winged specks hover without stirring the air. Their wings make no sound. When one settles, it is sometimes a small insect and sometimes only the place where the insect was about to be.
+
+These animals do not flee from movement. They respond to attention. Look directly at one and it becomes less distinct; glance aside and it is sharply present, busy with its own small errand. Nothing hunts in any familiar way. A dark, slender creature passes through the floor, and the mites scatter from its *reflection*, which arrives before it does.
+
+There are signs of other visitors, but no tools: a half-ring pressed into the damp grit, a small upright stone balanced in a place too narrow for a hand, a line of shallow marks that stop at the wall. They could be traces left by animals. They could be the earliest attempts at shelter. Their meaning is not yet settled.
+
+The room is quiet enough that silence feels like another material. There is the occasional tick of a drop touching stone, the faint hush of fronds rubbing together, and once in a while a sound like someone taking a breath on the far side of the rock. Nothing answers it. The bright light remains steady, except when a creature crosses its path and briefly leaves the room dimmer than its own shadow could account for.
+
+This place is not a cave so much as the first enclosed thought of one. Its stone is beginning to gather. Its water is learning where to stay. The lives inside it are already plentiful, making paths and pauses through a world that has not finished deciding what paths and pauses are.

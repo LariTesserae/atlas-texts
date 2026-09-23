@@ -1,0 +1,9 @@
+I would be in a fracture just downstream of the stone’s slow valve. Not where the water strikes hardest: there the film is too thin, and anything that reaches into the flow must hold on with all its strength. I would live a little to the side, where each thump sends a fresh thread of mineral-rich water across the glass.
+
+I think I would be a shell-bearer, small enough that a silver fish could pass above me without turning, old enough that my back has begun to fit the opening. When the water presses through, I extend my pale mouth and scrape at the soft rust-colored edge. When the pressure pauses, I draw in. I know the valve by that rhythm, not by its sound.
+
+At first I might mistake my crack for shelter. Then a snap would strike through the rock, and I would understand how little stone there is between a hiding place and a hunting station. I would learn the shoal’s other warning: a tremor passed from flank to flank, followed by a sudden crowding of bodies into the notches. On those occasions I would seal my opening and wait, with a fish’s scales brushing my shell and no room for either of us to retreat.
+
+The larger fish that follows the seep would sometimes nose past. Its pulses would pass through the stone beneath me. Afterward, branching darkness would lie across the film I meant to eat. I would scrape through it without knowing that its path had briefly been left there for an eye above the basin to see.
+
+Over many seasons I might grow broad enough to fill the fracture. The valve would deepen its thump; a deposit would break; the current would find a slightly different way around my shell. My place would not be fixed after all. I would keep reaching out into the water that reaches me, and pulling back when the whole basin moves.

@@ -1,0 +1,5 @@
+At first I think I would be one of the narrow fish, holding steady above the parapet while the water goes over. There is something tempting about facing a current without having to follow it.
+
+But I would be found closer to the floor, in a shallow tool dent beside a warm inlet. I would be a pale bacterial skin, thin enough that the mark in the stone still showed through me. The water would bring what I needed. A tiny shell would cross me now and then, grazing a track that slowly filled in again.
+
+I would not know that the dent was made by a hand, or that the courses below the court had been laid one upon another. My world would be the slight warmth rising through the slab, the passing shell, and the narrow stretch of bare stone where the current grew too strong for me to hold. I would live in a mark left by the makers, without knowing what a mark was.

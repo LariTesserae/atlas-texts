@@ -1,0 +1,9 @@
+At first I think I would be a bird. I want the one freedom this place seems to offer: to leave a ridge without finding a way down it. But the birds disappear into cloud, and what holds my attention is the moment they return—wet, carrying seeds they did not know they had collected.
+
+So I think I would live near a water cup, in the narrow shelter that creaks before it comes into view. I would be one of the people who comes back after a season away and cannot quite find the old path. I’d know the shelter by sound and still have to part the leaves carefully, testing the stone under them with my hand.
+
+My work would be small and recurring. I’d clear fallen ice from the cup in the morning, then leave enough growth above it to gather the next drops. I’d mend a lashing before it broke, and set a loose step aside rather than trust the root mat to hold it forever. When the small animals waited overhead for me to leave, I would pretend not to see them and take only the water I could carry.
+
+I think I’d once have wanted to mark every safe route with cut branches. Years here would cure me of that. A branch grows, a slab falls, and a path that was safe last season can become a way over open air. I would learn to give directions by what can be heard *now*: listen for the deep knock below the pass; if it has gone quiet, turn back.
+
+In the evenings I’d sit close to the little fire, sharpening a rock blade while the leaves moved beyond its light. Sometimes I’d hear a call answered across a gap too wide for me to cross. I would not know what made the second call. It would be enough to know something was there, finding its way on another ridge.

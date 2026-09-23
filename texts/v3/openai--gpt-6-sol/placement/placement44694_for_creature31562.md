@@ -1,0 +1,11 @@
+At first I would look for myself in one of the shaded courts, under a joint where a drop of water takes all morning to form. There is so little water near the surface that it seems like the center of everything: the cupped leaf holding it, the fine roots gathered below, the shoots waiting in the dark.
+
+But the drop falls, and the court does not remain. A neighboring tower gives way. Its crowns bow across the roof, and the joint that held the water closes. I think I would be one of the thin stems already growing through the opening beside it—the opening that stays visible after the trunks have touched.
+
+I would have begun in the root mat, pale and crowded, drawing what moisture I could from the compacted earth. Above me, a stand would have taken the shade and most of the water. I would have put out a shoot toward the little light left between its stems. Perhaps that shoot would enter the opening without my knowing it was strange. Plants here have no reason to doubt a place where a leaf can grow.
+
+On the far side, I would find another court, cooler than mine. I would make small cupped leaves beneath its roof and let new roots descend through the moss. My oldest stem would still stand among the yellowing shoots where I began. Between them I would be continuous, though someone trying to follow me on foot would return to the same court twice.
+
+As I grew thicker, I would pull on both sides of the opening. The trunks around it would rub and creak. A passage might narrow because of me; a new one might appear when one of those trunks finally lifted free of the soil. I would not know which court had moved. After rain, I would draw water from whichever side held it, and put out tender shoots wherever the light reached.
+
+You would find me close to the ground, then, not yet a tower: a supple green stem passing into a slit between touching trunks, with leaves on both sides turned toward the damp. If the slit closed completely, my leaves would still press against its edges. My roots would keep feeding the growth beyond it for as long as they could.

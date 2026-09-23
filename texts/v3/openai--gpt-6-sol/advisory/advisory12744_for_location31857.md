@@ -1,0 +1,5 @@
+Prepare for a short visit, not an expedition. The court is small, open to the pavement, and only a step down, but its sound may make it harder to communicate or notice someone approaching. Go with one companion who stays above, agree on hand signals, and keep the step and your way out clear.
+
+Wear shoes with good grip and bring earplugs or other hearing protection. The overhead light is bright even though it gives no warmth, so use eye and sun protection rather than judging exposure by how warm you feel. As in any unfamiliar world, check that the air is safe before stepping in.
+
+Move carefully and leave the court as you found it. The tiles appear sound, but their old painted surfaces and the flat rosettes are worth protecting: don’t scrape a wall, pry at a seam, or put anything in the spiral. Spend a moment listening and looking, then step back out if the note becomes uncomfortable or you feel disoriented. There is no need to stay long to take in a place this small.

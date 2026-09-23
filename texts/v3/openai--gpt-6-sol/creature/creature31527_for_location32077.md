@@ -1,0 +1,13 @@
+The people of the saddle are easiest to see when they are still. A figure kneels beside a pool, one hand resting on a stone wedge, the other holding a chipped bowl beneath a drip. From a distance the pale back might be another slab. Then the bowl is moved a finger’s width, and the figure waits.
+
+They are slight, with shoulders bent by work rather than age. Clay stays packed beneath their nails. Their clothes are pieced from heavy, close-woven cloth that dries stiff and white at the edges. Many bind strips around their wrists and ankles; in the spray, an uncovered hand can look as though it ends in the middle of a finger and resumes a little farther on.
+
+They tend the cracks. When a drip begins to stray, someone sits beside it through a change of wind, sometimes through several, watching where each drop appears and where it lands. They test the rock with small hammers, but never strike twice in quick succession. An unspent echo can answer a second blow from the wrong side of a face. Once they know which crack is speaking, they set a wedge, or ease an old one back. Some bowls are kept for drinking. Others are left to collect grit, which the workers spread on a slab to learn where it has come from.
+
+Their shelters are close enough for a call, though calls are little use out on the terraces. To fetch someone, a worker usually goes to the shelter where that person was last seen and waits by the door. At dusk there are often two or three figures standing together while their voices seem to come from across the saddle.
+
+A traveler may first meet one on a flight of steps that ends against bare stone. The worker will go on up, put a hand to the face, and vanish around an edge too narrow to have noticed. They do not ask a stranger to follow. Instead they point to a shelter, then remain where they are until the stranger has found it. Here, pointing at a person’s destination is more helpful than pointing the way.
+
+The oldest workers know the terraces by their failures. One can show where a wedge slipped years ago and the useful water moved beyond the reach of its bowl. Another remembers a dry shelter that began admitting water through its floor. They keep the abandoned bowls in place. A drip may return, and an empty bowl is easier to find than a mark cut into this bright stone.
+
+After sunset, when the pools hold the last light from the cliffs, the workers gather indoors. From outside, their low roofs appear to float among reflections of ridges. Within, they set out what the day has given them: clean water, sand, a few iron-red grains. They listen until the falls seem far away again. Then someone chooses the wedge that will need moving in the morning, and lays it beside the door.

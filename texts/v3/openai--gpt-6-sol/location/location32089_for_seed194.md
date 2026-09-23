@@ -1,0 +1,11 @@
+Beneath a level plain of old, packed roots is a hollow no taller than a hand. The plain has worn down so completely that there is no hill or dip above it to suggest what lies below. Only a narrow seam leads in, through dry fibers that bend aside and close again.
+
+Inside, it is dark without qualification. The hollow is a town, though its streets can be known only by touch: shallow grooves between raised beds of wood, a little square where the floor is polished smooth, rows of doorways cut into thick root walls. The oldest cuts have lost their edges. New growth has closed some doors and narrowed others to slits. There are no loose stones. The paving, walls, roofs, and the plain overhead are all parts of the same plant.
+
+Most of the town is empty air. A few root pillars stand far apart under the broad ceiling; narrow ribs cross overhead where roofs once divided the hollow into rooms. This is how the vegetation fills the place: not as a thicket, but as its ground and every surface that encloses it. Small, hard buds occur along the seams. They open so slowly that a doorway can remain unchanged for years before one leaf folds across it.
+
+There is no wet earth here. The roots reach through dry mineral powder below the town, drawing what they need from salts and a thin, cold breath of gas that passes through the seam. Where a root presses against a buried crystal, it grows thick and tough. The rest becomes hollow and papery with age.
+
+The noise is out of proportion to the place. Air driven through the long root tubes makes a low, continuous roar. At intervals a pillar gives a sharp report as it settles, followed by smaller knocks traveling through the roofs from one end of town to the other. Nothing answers them. No animal lives here, and there are no steps in the streets.
+
+Long ago, someone used a sharp stone to cut the square and the first doorways. The tool marks remain in a sheltered corner, beneath newer wood. The plant has not repaired the town so much as continued growing through it. Each slow shift makes a street less straight. Each dry season brings the ceiling a little lower. Beneath the worn plain, the hollow keeps its rooms for a while longer, loud and cool and wholly unseen.

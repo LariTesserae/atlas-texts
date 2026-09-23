@@ -1,0 +1,9 @@
+At first I would look up at the crowns and want wings. The pale animals have the best view of the plain: miles of silver falling away beneath them, the wind strong enough to hold them in place. But I think I would last about one gust. I would belong lower down, where the noise comes through the ground before it reaches the air.
+
+You would find me at the foot of an old trunk, where its cone of crushed dust meets the living rind. I would be a small, blunt animal with a back the color of spent fiber and broad forefeet for shifting powder. My eyes would be nearly useless in the glare. I would lie with my belly against the floor and feel a seam tightening long before it opened.
+
+I might seem to be waiting for the new leaves. Often I would be waiting for the grazers. They know which dark line will split, and I cannot travel as fast as they do. When their toes begin to patter past my hollow, I would follow underground, surfacing after they have cropped the best growth. There would still be soft tips in the fold, and seeds shaken loose from a crown might have lodged there. I would carry what I could back to the cone and break it open in the shelter of its dry slope.
+
+The trunk's drums would govern my movements. While they thumped, I could dig without being heard. When they stopped, I would go still, even with a seed between my teeth. In the rare lull I might feel a burrower passing below me, so close that dust slid from the roof of my hollow.
+
+From a distance, there would be no sign of me at all. Up close, my home would be one more small opening beside the trunk—its rim slowly growing inward, and my forefeet patiently clearing it again.

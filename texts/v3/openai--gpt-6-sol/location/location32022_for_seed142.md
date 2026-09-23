@@ -1,0 +1,9 @@
+The city stands on a plateau so old that its edges have lost the shape of cliffs. Beyond the last buildings, the ground slopes away in broad, shallow folds of worn stone. There is no visible horizon. The sky gives off almost no light, and the land announces itself by small differences in black: the dull black of dust, the faint sheen of polished mineral, the deeper absence where the plateau drops away.
+
+The streets are wide and mostly empty. Their paving has been ground level with the thresholds of warehouses and furnace halls, so that doors open onto a continuous floor of stone. At intervals, heavy pipes cross overhead from one block to another. They are warm to the touch. Inside some of them, something still moves with a pressure too steady to make more than a low vibration. No smoke rises; no windows shine. The city’s machinery seems to have reached a setting it can hold indefinitely.
+
+Walking here, you learn its distances by sound and heat. A wall returns your footsteps after a long pause. An open square returns nothing. Near the foundries, the air is warm against your face, though the furnaces themselves are dark. Their mouths have been softened by ages of abrasive dust until they resemble natural hollows. Farther out, the streets and the plateau are hard to tell apart. Both have been worn smooth, then lightly scored by wind that almost never strengthens enough to hear.
+
+There is no water and no trace of anything that once grew. In the sheltered gaps beneath the pipes, small creatures are sometimes found: jointed things with mineral-colored shells, motionless for so long that dust gathers on them. A touch of warmth from a passing hand may make one fold itself farther into a crack.
+
+Most of the city remains untouched. Its towers are low, its great works nearly silent, and its open spaces have grown larger as corners and walls have slowly worn away. The warmth persists. So does the dark.

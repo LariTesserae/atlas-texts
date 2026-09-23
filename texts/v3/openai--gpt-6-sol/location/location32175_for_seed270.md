@@ -1,0 +1,9 @@
+At first it looks like a shallow dent in a plain of gray stone: a few handspans across, barely deep enough to shelter a boot. The floor has been worn almost level. Its edges are rounded, not chipped, and fine pale dust has settled into every remaining groove. Nothing grows there. In the cool daylight, the little hollow looks as though it has been finished for a very long time.
+
+Then the dust moves.
+
+Small dark animals crowd the grooves shoulder to shoulder. Some have hard, overlapping shells; others are pale and nearly transparent, with legs too fine to see until they run. They pour around grains of grit, climb over one another, vanish beneath flakes of stone and come out elsewhere. A larger hunter makes a slow circuit along the rim. Each time its shadow crosses the floor, a patch of the hollow goes still, then starts up again behind it.
+
+The dent lies beneath an old length of industrial track. Only two bolts and a strip of toothed metal remain visible; the rest has sunk into the worn ground or been carried away. Wind crossing the teeth makes a steady low note. Below it is a much busier sound: shells ticking against mineral, jaws rasping, grit falling into tiny pits. Up close, it is loud enough to obscure footsteps.
+
+There is no water to find here, even under the stone. Dry particles blown through the track supply what the animals can eat: mineral dust, old residue from the machinery, and the remains of their own immense numbers. The hollow catches these things better than the flat plain around it. Its oldest surfaces are nearly smooth, but the life on them is restless. By afternoon the hunter has changed its route, the dust has filled a pit that was open in the morning, and thousands of feet are wearing it clear again.

@@ -1,0 +1,7 @@
+Prepare as you would for a cool, exposed mountain town, but don’t mistake its calm for easy terrain. The streets are spacious; the dangerous parts are the edges, stairs, and short bridges over cracks. Bring grippy shoes, warm layers, a light rain shell, and a pack that leaves your hands free. If heights trouble you, arrange for someone to meet you rather than trying to find your way along the shelves alone.
+
+Carry drinking water and a way to treat more. Moisture is plentiful, but the basins are filled a cup at a time and may be part of a household’s daily supply. Ask before taking any. Bring enough food and essential medication for delays: the market is large, but it may not have much to sell on a given day.
+
+Arrive in daylight. Weather can differ across the valley, and a route that looks close from the opposite rim may involve a long descent, a bridge, and another climb. Ask locally which crossings are in use, keep back from fresh cliff edges, and watch for wet stone and moss under the trees. At an unfamiliar altitude, take the first day slowly.
+
+As a guest, treat the town as settled, not as a construction site or an abandoned place waiting to be explored. Its people maintain stairs, gardens, bridges, and water basins deliberately. Give workers room, keep noise modest—voices carry here—and do not disturb the animals or the plants growing in rock fractures. The sharp stone and unweathered walls may invite questions, but they do not mean the town is unfinished. Ask a resident about its history rather than assuming you can read it from the cliff.

@@ -1,0 +1,7 @@
+The ceiling belongs to the bats. They hang in crowded folds of darkness, pressed so close that one shifting body sets several others moving. Their cries overlap with the scrape of claws on limestone and the soft, papery stir of wings. By day the chamber seems to hum from above; toward the openings, some wake and turn toward the air.
+
+Most of the other residents keep to the fallen stone. Crickets call from spaces too narrow to see into. Small climbing animals travel the walls, giving themselves away by a brief rasp and then silence. Spiders wait where a passage narrows or a root enters through the roof. None needs much of the floor in the open.
+
+Below the roost, life concentrates around what falls. Droppings collect in the dust, and small insects work through them, vanishing under chips when disturbed. At the line of pools, paler insects drift or cling to bits of floating matter. A wet seam only a hand’s breadth wide supports a different little crowd from the dry basin beside it. Near the daylight slits, leaves and root ends bring in food from above; moss and a few ferns hold to the places where light and sediment happen to meet.
+
+There is no single creature waiting at the heart of the cave. Its inhabitants occupy a patchwork of tiny, dependable places: a ceiling that offers shelter, a crack that admits roots, a pool beneath a drip, a block with room beneath it. From the entrance the chambers look vacant. Stand still, and the occupation becomes audible all around you.

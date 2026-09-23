@@ -1,0 +1,11 @@
+The pale animal in the scree is difficult to keep in sight. At first it seems no more than a tuft of old wool caught between stones. Then it puts down a narrow foot and the stones shift without making a sound.
+
+It is built low to the ground, with a long back and ears that fold flat against its head. Dust has worked into its coat so thoroughly that only the damp fur around its nose shows its color. It eats the wiry growth beside the pools, taking a little from one plant and a little from another. Sometimes it presses its mouth to a black bead beneath an overhang. The bead remains there when it moves away.
+
+There are others, though seldom two in view at once. Their paths can be found by touch: shallow, polished passages under the loose upper stones, too low for a person to crawl through. A hand laid inside one feels warmth even after the animal has gone. Near the stone rings, these passages turn outward and vanish into the scree.
+
+The animals know where they are by the ground underfoot. One can be seen leaving a pool, disappearing behind a rock, and appearing near the same pool again with a mouthful of grass. It pauses there, plainly displeased, then noses along the edge of the stone until it finds a place its feet remember. The great note from the ridges does not trouble it. A pebble clicking against another will send it under cover.
+
+People have sometimes followed those small passages when the white notch would not come nearer. This works only for a while. The animals go where there is food and shelter, not where anyone wishes to arrive. By one pool, a traveler may find a hollow in the dust where a pale body slept. By the next, an old hollow may lie beneath a fresh one, and it is impossible to tell which was made first.
+
+They have lived in the valley long enough to have worn places into its stone. They have not made the rings, stopped the beads from falling, or learned what holds the note steady. When the light grows no dimmer and a person cannot guess how long they have walked, one of them may cross the open floor ahead: small, intent, and entirely occupied with reaching the next rock.

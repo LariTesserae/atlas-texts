@@ -1,0 +1,5 @@
+Prepare as you would for a night visit to a dry, exposed patch of rocky ground—not as if the hollow were a shelter. Wear sturdy shoes with good grip, carry a reliable light, and move slowly: the rim is hard to see, and flat stones may shift over loose dust. Bring water, a warm layer for later in the night, and a way to navigate back. Tell someone where you’re going.
+
+Before entering, confirm that the air and other basic conditions are safe for you, and make sure you can find your return route. The stones are warm now, but they will lose heat; the shrubs offer little cover, and there is no visible water. If rain is possible nearby, stay out of the hollow—runoff can reach low ground even when it is dry where you stand.
+
+Once there, let your eyes adjust and use your light when walking. Step around the sparse shrubs and leave the undisturbed dust and stones as you found them.

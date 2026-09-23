@@ -1,0 +1,15 @@
+At first it is difficult to tell which movements belong to the trees. A crown trembles when the air seems still. Something pale folds itself around a branch and is gone before the leaves finish shaking.
+
+The ledge-dwellers are easiest to see at dusk, when they come down to the wet rock. They are slight creatures, a little shorter than a person, with broad hands and narrow feet that turn almost sideways against a cliff face. Their skin holds the color of whatever light reaches it: warm gray in the afternoon, green beneath leaves, faintly blue in the evening mist. In sunlight they keep to the undersides of branches. The heat does not trouble them, but the open air does. They prefer a root within reach.
+
+They drink from the rock without putting their mouths to it. A ledge-dweller spreads one hand over a weeping fracture and waits while water gathers in the fine grooves of its palm. Then it brings the hand to its face. Young ones are less patient. They chase drops along the reed stems, startling insects and sometimes losing their footing. An adult will catch one by the loose skin between its shoulders without looking away from the cliff.
+
+Their paths are not the stair or any of the obvious shelves. They travel through the mountain’s small continuities: a root crossing a gap, a seam wide enough for fingers, a place where two crowns touch for only part of the day. From the valley, their crossings look like leaves blown the wrong way. They know which branches will bear weight after rain and which stones are held in place chiefly by a tree that has begun to die.
+
+In the oldest groves, they tend the damp ground. They lift fallen leaves from certain patches and lay them elsewhere, and press loose soil back over exposed edges of the yielding sheets. Their work is careful, though they do not appear to understand the sheets as something made. A torn place draws them for days. They touch it, withdraw, return with wet clay or soft root fiber, and leave both in a shallow hollow beside it. Often the edge closes on its own before they have settled what to do.
+
+The clear studs interest them for a different reason. After mist, a young ledge-dweller may crouch for an hour before a row of them, touching each point of blue as it appears. The older ones rarely stop. They have learned, perhaps, that the lights do not answer in any useful time. Even so, there are rock faces kept free of lichen where their hands have passed for generations.
+
+They sleep in groups among the outward-leaning trees, woven so closely into the crowns that a watcher below might mistake their limbs for pale branches. At night they make a low, uneven clicking sound. It passes from one shelf to another through the dark, sometimes answered from much farther away than the eye can follow in daylight.
+
+When evening mist hides the opposite wall, they are still moving through it. One appears beside the shining cliff, sets a hand against the new water, and remains there. Above it, another shape crosses between two trees. Higher still, where the next band of cloud opens briefly on another sunlit wall, something moves among the leaves there too.

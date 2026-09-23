@@ -1,0 +1,9 @@
+I would begin at the tram depot, with a notebook and a job I was not quite qualified to do. At the end of each shift I would walk the lines and write down where the rails seemed to go. Not their official lengths—the crews had those—but the places where a tram took longer to arrive than its lights suggested, or where a whistle sounded through a wall that had no door.
+
+For a while I would think I was learning the city. I’d learn which cistern stayed warm after the foundry shut down, and leave water there for the little creatures with spreading feet. I’d recognize the stop near my rooms by the tremor in the platform before I could see its lamps. I would become useful to the crews, though they would cross out most of my figures.
+
+Then I’d notice that I always arrived a little early at new places. I could stand beside a survey stake and hear loose rock settling beyond the last paving stone. On the walk back, the city would take longer than it had on the way out. My boots would be wet from a gutter I didn’t remember crossing.
+
+I think I would be one of the city’s allowances: the room left beneath a foundation, the spare length of rail carried in case the route needed it. I would look enough like a worker to borrow a coat and take the tram. My work would be to go ahead of the builders and find where the next bit of room was needed.
+
+At dusk I would count the outdoor crew with everyone else. I would not count myself until we reached the paving stones. If the whistle sounded behind us, I would turn with the birds, hoping this time to see what had called—and still walk back when the others did.

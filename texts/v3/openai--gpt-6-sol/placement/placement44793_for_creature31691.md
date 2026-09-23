@@ -1,0 +1,7 @@
+At first I would look for myself above ground, where the new crust has lifted into plates. I would stand at an edge and watch dark grains appear between them. But the heat would drive me toward the narrow slit they came from, and I think I would follow it down.
+
+I would find myself just beneath a thorn tree, in a gallery pressed close to one of its old roots. Not in the tallest tower: in a low one, repeatedly patched where the root has made its wall difficult to keep whole. I would be a worker termite. Most of my day would pass without a view of the basin.
+
+There would be no map of the districts in my head. I would know the turn where the gallery cools, the entrance the soldiers guard, the place where a curled leaf has caught against a stem above us. At dusk I would go out for a piece of it. The leaf would be brittle and awkward to carry; another worker might take the part I could not pull free. On the way back, I would pass grains of dark soil moving in the other direction.
+
+Perhaps that is where I would feel most at home: at the entrance, in the brief traffic between taking something down and building something up. Behind me, the passages would remain cool. Ahead, the pale floor would seem empty for a moment, though every bit of shade might hold a lizard. I would carry my small piece of leaf inside, and by morning the opening might be sealed again.

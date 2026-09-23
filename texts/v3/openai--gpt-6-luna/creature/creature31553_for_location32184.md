@@ -1,0 +1,13 @@
+At first, the district seems uninhabited. Then a pump changes pitch, and somewhere beneath the paving water answers it. A fern leans over a drain. A gate lifts by a hand’s breadth. The place is full of responses, though there is no one to hear them.
+
+What lives there is not one thing but a shared arrangement: root, rust, water, and machine. The plants take the stillness between flows. Their roots press into mortar and wait; their leaves gather drops, then let them fall one by one onto roofs and pipes. They do not spread everywhere. They grow where the damp holds, and stop where the stone stays warm or the water moves too quickly. In this way they seem less like a wilderness than a population with old, unspoken boundaries.
+
+The pumps are the district’s other inhabitants. They are not alive, but they have the persistence of something that expects to be here tomorrow. They labor without triumph, turning the basin’s water from one dark place to another. Their cycles give the district its hours. A bell sounds; a valve opens; the pipes shudder awake. During the pause afterward, the plants drip and the walls sweat, as if the whole place is listening for the next instruction.
+
+The machinery does not keep the district alive so much as keep it from changing too quickly. The water wears the brick; the roots widen the cracks; the pumps return the water to circulation. Each depends on the others’ continued failure to finish the work. No one wins. The basin remains a basin, and the streets remain streets only by courtesy.
+
+There may be people somewhere behind the lit workshop windows, tending boilers or checking gauges. If so, they have learned to live by the district’s moods. They know which stair treads are slick, which pipes are about to knock, which bell means a gate has stuck. They would move quietly, not because the place is frightening, but because its noises are already speaking to one another. Their voices would be just another brief sound carried off by the wet air.
+
+Mostly, though, the district belongs to what has stayed: the broad leaves, the turning pumps, the iron gates, the water slipping through channels too old to be called hidden. Its inhabitants do not flee, feed, or gather. They hold their positions and make small changes. A root enters a seam. A bearing warms. A pool spreads into the next shallow hollow.
+
+The district lives by continuing to pass water through itself. And whatever lives there—green, mechanical, or quietly human—takes on the same condition: never quite dry, never quite still, altered by every passage and still, somehow, at home.

@@ -1,0 +1,9 @@
+The plateau begins above the cloud line, though there are no clouds to look down on. Its surface is new dark stone: broad, unscored shelves that meet at sharp lips, with pale seams still showing where the ground cooled and joined. Nothing has yet worn a channel through it. In the warm, clear light, you can see those edges for miles.
+
+Most of that distance is bare. Then, across one shelf, there is a stand of growth so thick it looks almost poured into place. Tall, flexible blades overlap in green and copper layers; beneath them, shorter fronds crowd every crack. Their surfaces are glossy, but not wet. No rain falls here, and the plants contain no water. They draw gas through fine pores and pull charge from the stone through roots that spread as thin conductive films. A small growth would starve on this ground. These great, closely packed stands can pass current among themselves, storing it in their heavy stems through the long, bright day.
+
+There are only a few stands across the plateau. Between them lie immense, empty floors of rock. From a distance each green expanse resembles a forest; up close, its leaves part to reveal straight passages of exposed mineral, places where a seam beneath the surface carries no charge. The vegetation ends at those boundaries as abruptly as a machine switched off.
+
+Deep in the plateau, heat and pressure keep the mineral seams active. At times a whole stand tightens almost imperceptibly, millions of blades turning together toward the light. The motion has an industrial patience: intake, storage, release, repeated across an area larger than a town. Yet there are no engines, no buildings, no cut marks in the stone. No creature feeds among the leaves. There is scarcely any sound beyond an occasional dry click as a charged stem relaxes.
+
+The air is warm and still. It is easy to stand in the shade of that abundance and forget how far away the next living thing is.

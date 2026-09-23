@@ -1,0 +1,7 @@
+At first I think I would be a stone in one of the ridges: low, worn almost smooth, still holding its place because the stones beside it do. But a stone seems too certain a thing to be here. Silt has entered its joints. Moss has entered after the silt. Whatever holds the wall together now is not quite what held it together when it was built.
+
+So I would be farther down, in a joint at the edge of a basin. Perhaps I began as one of the woven stakes, driven in by a hand to keep clay from drifting across a new bed. The stake has softened and darkened. A root has grown through its weave, then around it, then onward beneath the next block. I could no longer say which part of that narrow crossing is mine.
+
+Cold water passes through there. Not much: enough to keep one buried channel from closing altogether. Fine grains catch in the roots on either side, and the passage slowly takes its shape from what stays and what is carried away. Above it, a kelp stem reaches toward the little light. I would not know that height directly. I would know it by the faint pull when a leaf shifts, and by the long, quiet intervals when it does not.
+
+I think I would be that crossing: a piece of the old work taken into the growth, helping it hold a space open. From above, no one could pick me out. They might see only that one line between the beds remains dark, as though the builders had finished it yesterday.

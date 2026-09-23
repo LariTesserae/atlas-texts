@@ -1,0 +1,11 @@
+At first the hollow appears to be inhabited by water. It gathers in the dark, chooses paths across the walls, and falls from the ribs one drop at a time. Then the crease above the doorway shifts, and the line of darkness there resolves into bodies.
+
+The flyers hang so close together that their edges are hard to distinguish. Each has a small blunt face turned toward the ceiling and folded wings that shine where condensation touches them. When a drop lets go, several heads move at once. One flyer catches it; the others settle back against the ceramic. The deeper note from the vanes passes through them as a single shiver. For a moment the whole crease clicks.
+
+Below them, the scavengers are less inclined to wait. Their legs span the narrow channels while their bodies stay clear of the water. They travel in loose processions through the gray silt, stopping wherever a fragment has washed down from above. A falling scrap can bring a crowd to one bend in the wall. They feel it over, pull it apart, and move on, leaving tracks that the next run of water erases.
+
+The animal under the sill has made a place where both processions end. It lies almost flush with the wet ceramic, its broad back the color of the stained seams. Only the small movements at its rim betray it. When a scavenger comes too near, the back lifts and settles; the channel runs clear again. It seldom ventures farther into the hollow. The sill gives it water, concealment, and a way to slip out toward the drop.
+
+Even the pale vine occupies its corner without much room to spare. Its roots hold in shed ceramic and whatever the water has carried there. New leaves grow against old ones, thin enough for the darkness behind them to show through. Scavengers pass beneath it. The flyers do not visit it. Still, its roots keep a little silt from washing away, and the water that collects among them feeds a channel otherwise dry between drops.
+
+None of these creatures attends to the vanes they live beside. The great mechanism holds its note; the smaller lives arrange themselves around its warmth and wet surfaces. Each deeper tremor shakes loose water, wakes the flyers, and sends the scavengers feeling along the walls. By the time the hollow is quiet again—or as quiet as it can be—something has drunk, something has eaten, and mist is rising beyond the sill.

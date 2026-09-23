@@ -1,0 +1,7 @@
+At the summit, where the mountain has narrowed to a blade of dark stone, there is an iron housing scarcely larger than a cupboard. Its access door hangs from one hinge. Beyond it lies a pocket of green so crowded that the back wall cannot be seen.
+
+The growth is not moss, though it has moss’s habit of claiming every surface. Thick, translucent blades rise from seams in the machinery and press flat against the ceiling. Smaller fronds fill the spaces beneath them, each fitted between bolts, teeth and old porcelain insulators. Their green is deepest near a dim violet glow inside the ironwork. Nothing here is wet. The stone is powder-dry; the blades feel cool and faintly waxy, and a broken edge exposes a fine, pale grain rather than sap.
+
+Far below the housing, the slopes fall away into darkness. Up here the air is thin and cold, with a mineral taste that lingers on the tongue. Wind has rounded the outside corners of the iron and worn the lettering off a maker’s plate, but inside, dust sits undisturbed in its narrow ledges. A small handwheel, left half-turned, has disappeared beneath overlapping leaves.
+
+Something under the floor produces a tremendous, even hum. It comes through the soles of the feet and the teeth more clearly than through the ears. The blades do not tremble. They have grown pressed tightly against one another, leaving no space in which to move. There are no wings, tracks or calls—only that single sustained note in the little chamber, and the dense green holding its place around it.

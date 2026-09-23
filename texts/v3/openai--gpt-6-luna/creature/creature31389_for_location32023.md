@@ -1,0 +1,13 @@
+What lives there is difficult to separate from where it lives.
+
+At first, there seem to be only plants: the thick-leaved mats, the tall fans, the small pale flowers that appear and fold away. But each patch is joined, though not always visibly, to something under the stone. Fine roots follow the mineral seams. They enter cracks, cross beneath bare shelves, and gather again beside the pools. The green islands are not spreading over the hollow so much as holding particular places in it, each one joined to the others by a life too slow and slight to show itself.
+
+The bare stone is part of that life, too. It takes the day’s warmth and gives it back after dusk. It lets water pass beneath its polished surface, carrying minerals from one shallow basin to another. Where the seams run rust-red or yellow-white, the hidden growth has left its color in the rock—or the rock has lent its color to the growth. After so long, the difference may no longer matter.
+
+The pools are its quietest organs. They gather water close to the surface, keep it warm, and release it by degrees into the plants and soil. Sometimes a bubble rises from deep below. It is not a breath, exactly; nothing so quick. More like a small adjustment, made in the dark. The water settles again, holding its pale reflection of the sky.
+
+The plants respond to changes no visitor would notice. A patch leans toward a pool where the stone has warmed. A folded bud opens after a long spell of damp. Condensation gathers along a fan of leaves and slips down to the roots. These motions are so slow that they seem accidental, until one returns years later and finds the same tender arrangements still being made.
+
+Perhaps the hollow has no thoughts. Perhaps it does not need them. It senses through moisture, temperature, pressure: the faint arrival of rain in the mountain, the chill of evening entering the rim, the weight of water shifting underfoot. It answers by holding, releasing, growing, and waiting. Its memory is in the rounded ledges and the overlapping rings of old pools, in every groove that ends beneath a living mat.
+
+Nothing hunts there. Nothing flees. The life in the basin has no face to turn toward you, and no desire to make itself known. It has been keeping its small weather for longer than any witness could measure. If you stand quietly, the place may seem empty. But the water beneath the stone is already moving, and the green patches are attending to it.

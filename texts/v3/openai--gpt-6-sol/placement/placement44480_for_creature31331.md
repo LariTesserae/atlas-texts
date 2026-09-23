@@ -1,0 +1,5 @@
+At first I would want the patch of sun. I would wait with the little animals for its warmth to reach the floor, then follow it as far as I could. But it visits too briefly to belong to anyone. I think I would find my place where the rain goes after the light has left.
+
+I would be a fine root from a plant above the limestone, so slight that a person at the rim would never know I was there. I would enter through a ceiling seam and travel slowly down it, dividing wherever the rock held a little damp soil. One strand would hang free near the basin. After rain, a drop would gather at its tip, grow heavy, and fall onto the rounded stones below.
+
+A small animal might cling there to drink. Another drop might find its way into the seam behind the stones, where the eggs lie. I would not know either had happened. I would only keep growing toward the moisture, holding what I could for a moment before letting it go.

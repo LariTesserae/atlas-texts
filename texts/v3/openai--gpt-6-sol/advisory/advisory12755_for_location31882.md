@@ -1,0 +1,9 @@
+Prepare as you would for a visit to a busy neighborhood, not an abandoned ruin. People work, store water, cook, and sleep in this court. Find a local entrance and ask before going down; arrange for someone who knows the bays to show you through them. The low arches and repeating doorways will make it easy to lose your bearings.
+
+Wear shoes with good grip on worn brick and shallow steps, and clothes you can comfortably turn sideways in. Keep your bag small and close to your body: a broad pack could strike a jar or snag a shelf. Bring a small light for the bays beyond the daylight grilles, but expect to put it away where people are working. If dust or lime bothers your breathing, bring a face covering.
+
+Choose your time with the weather in mind. At noon, much of the court is bright. After rain, expect dripping ceilings, wet brick, pans set out to catch water, and narrow grooves carrying it to the cistern. Step around that system rather than across it; a misplaced foot could spill water people mean to save. Don’t drink from the pans or cistern without asking.
+
+Move slowly. Give way to people carrying buckets, watch for children and cats underfoot, and don’t rest on a ledge or use a clear patch of floor simply because it looks unoccupied. Nearly every surface has a purpose that may not be obvious to a visitor. Ask before touching pots, scraping at the pale crust, photographing anyone, or entering a passage that looks private.
+
+The place will likely feel warmer, closer, and louder than the street above: cooking smoke and dust in the air, work echoing from bay to bay, daylight broken into shifting bands. Allow time to stop and let the court’s traffic pass. Its age is worth noticing, but its ongoing life matters more.

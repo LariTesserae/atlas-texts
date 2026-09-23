@@ -1,0 +1,17 @@
+The oldest residents are the walls.
+
+They are not alive in any way a passing fish would recognize, but they keep a kind of history in their surfaces: the thin white crust laid down by generations of shellfish, the darker bands where mineral-rich water once ran, the soft hollows made by bodies resting in the same sheltered places. They hold the current in familiar paths. They make shade. They give every creature a choice of passage, pocket, or concealment.
+
+The fish come and go in schools, but a few have made the settlement their whole world. Small blue-black fish live in the cracks above the waterline of an arch, though there is no waterline now, only a narrow seam where the current brings food. They hover facing outward, each one’s tail making the faintest correction. When danger passes, they vanish into the stone so completely that the wall seems to have blinked.
+
+Pale crabs travel the lower streets. They pick their way through the silt with deliberate, sideways care, stopping at thresholds to inspect a fragment of shell or turn over a stone. The smallest can squeeze beneath doors that no longer lead anywhere. The larger ones have claimed courtyards, where they forage among the clustered shellfish and retreat under a ledge when the water changes. Their claws leave little ticking sounds behind them, like the settlement counting softly to itself.
+
+In the arches hang the drifters: translucent, ribbon-bodied animals that pulse when the current slackens and stream out when it strengthens. They do not choose their paths so much as accept the ones the water gives them, yet they gather again in the same high rooms, pale bodies turning slowly in the dark. Their faint lights come and go like thoughts too slight to hold. Fish sometimes dart among them; the drifters close around nothing, open again, and continue to hang.
+
+And in the deeper chambers there are the soft-bodied ones. Octopuses, perhaps, or something close enough that the name would fit. They sleep folded into hollows, their arms drawn in like the roots of a plant. At night—or what passes for night here—they slip through the channels, feeling along walls with the tips of their arms. They learn the settlement by touch: which passages narrow, which ceilings shed grit, which hidden openings lead to a quiet pool where small crabs gather. They leave no marks, except for the occasional shell moved from one side of a room to another.
+
+The largest animal does not live in the settlement, exactly. It moves over it. Its body crosses the basin’s dimness so slowly that the fish have time to scatter and return before its shadow has passed. When it exhales, pressure travels through the arches, and the hanging animals draw tight. The crabs flatten themselves against the floor. Then the water settles back into its old routes, and the inhabitants resume their small errands.
+
+None of them know the place as a town. A doorway is a gap that admits water. A courtyard is a patch of open ground. A broken roof is shade. They occupy the rooms without needing to imagine who built them, and in that unknowing they have become its true residents. The stone gives them shelter; they give the stone movement, color, and the faint continual stir of life.
+
+At the last arch, where the settlement thins into scattered ridges, a single fish hangs in the opening, facing the dark beyond. It does not guard the passage. It is simply there, held in the mild current, at home in a place that has forgotten the difference between a building and a reef.

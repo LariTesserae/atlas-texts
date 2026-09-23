@@ -1,0 +1,7 @@
+What lives here is difficult to count. At first it seems to be the machinery: the plates that turn a few degrees and stop, the seals that thicken when the overhead apertures open, the conduit extending blindly across the gap. But none of these works alone. A change at one wall is answered by a knock beyond the other. The water moves through both, and through places farther away than the courtyard allows one to see.
+
+The city is young enough that its parts are still learning where to meet. A numbered plate rotates until its mark faces a pipe it did not face yesterday. Two ceramic rims draw close, pause while water passes between them, and close so neatly that the seam becomes hard to find. The thin grass beside the drain survives this work by yielding to it. Each sudden current lays the blades flat; each lull lets them stand.
+
+The city has no lungs. Its breath must never leave it. When the apertures overhead let in bubbles, the pipes grip their brackets and the collector pulls the bubbles away. The second needle on the gauge falls back toward zero. Only then does the finer work resume: the soft adjustment of seals, the small clicks in the wall, the steady passage of water into whatever chamber has just been made.
+
+Nothing in the courtyard watches this happen. Still, the whole place responds when even a little water is missing. In that sense the inhabitants are not the pumps or the plates, but the joined, unfinished system they serve: a city fitting itself together underwater, protecting its continuous weight while it grows.

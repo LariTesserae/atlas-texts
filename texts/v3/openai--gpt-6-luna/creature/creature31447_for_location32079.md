@@ -1,0 +1,21 @@
+The first inhabitants are easy to mistake for part of the place.
+
+In the cracks above the waterline, the pale fingerlike growths open and close with the patience of flowers, though they turn toward no light. Their translucent tips are threaded with faint silver lines. When a current changes, those lines brighten, one after another, and somewhere beneath the rock a low note answers. They are not plants, exactly. They are the hollow’s feelers: the visible ends of something spread through the stone.
+
+The water carries its smaller bodies. Flecks drift in the deep pools, gather briefly in eddies, then separate again. Each is no bigger than a grain of silt, but there are many, and they move with a purpose too slight to notice at first. They pass through cracks too narrow for water to seem to enter, disappearing into the walls and returning far away. Where they gather, a pool grows clear. Where they thin, the water clouds, and the pale growths tighten their tips.
+
+Nothing here has a face. Nothing watches from a ledge. Yet the hollow is not empty of attention.
+
+Its inhabitants sense the place through pressure, warmth, and vibration. A change in the water reaches them before it is visible. A falling drop sends its small impact outward through the basin; the inhabitants take it up and pass it on, until the whole floor is listening. They answer with tiny adjustments: a shifted trickle, a trembling veil of droplets, a jet briefly raised and lowered. Their speech is not sound so much as a change in what the water is allowed to do.
+
+They live, too, in the old constructions. The dark metal frame is crossed by filaments so fine they might be light caught on invisible wire. When the currents grow uneven, those filaments flex—not like mechanisms, but like nerves—and the frame gives a soft vibration to the rock. The round structure set into the wall is more difficult to understand. Its three grooves fill with light when the hollow needs to alter its balance. The inhabitants gather around it in the stone, attentive as a hand around a pulse. Then the water changes direction, and they disperse.
+
+Whether the constructions were made by these beings, or by others who taught them their use, has become impossible to tell. They have been together too long. Mineral has sealed the oldest joins; the inhabitants have grown through them. The devices are no more separate from the hollow than a shell is separate from the animal that wears it.
+
+There are few individuals in the sense familiar to the surface world. A pale growth may act alone for a while, closing against a flood or opening into a slow, clear current. The drifting flecks may cluster until they form a dark shimmer, then scatter so thoroughly that none can say where the cluster went. But in moments of strain the distinctions vanish. A vibration passes through the floor. Every pool turns, every thread of light bends, and the hollow acts as one body.
+
+It does not protect itself by resisting the water. It guides the water into its permitted violences. It lets one basin churn so another can rest; it loosens a current here, holds it there. Its inhabitants seem to have no hunger for anything beyond this work. They do not build more than they need. They do not crowd the bare shelves or fill the basin with themselves. They tend the conditions under which they can continue—warmth, flow, pressure, the ancient pattern of exchange.
+
+Sometimes, when the whole place has settled into its long, restless equilibrium, a shape can be glimpsed below the water: not a fish, nor a body with limbs, but a gathering of pale filaments stretched between the dark shelves, finer than hair and almost invisible. It shifts as the current shifts. A moment later it is gone, though the water has not moved enough to explain its disappearance.
+
+The inhabitants have no need to emerge. The hollow is their body, their shelter, and their weather. They live in the fine boundary between stillness and motion, holding the place open by feeling every change—and answering it before it can become a disaster.

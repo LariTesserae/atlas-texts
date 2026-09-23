@@ -1,0 +1,9 @@
+At night, the old city looks less like a settlement than a slope with unusually straight edges. Its streets descend in broad steps across a high, warm valley. Every rise is a roof or retaining wall; every hollow is a courtyard, a stairwell, or a cistern. Even where fig roots have lifted the paving, the ground beneath is more paving. There is no bare hillside to retreat to.
+
+The stone has had a long time to settle. Corners are rounded, stair treads dip in the middle, and whole rows of houses lean together without falling. Rain comes briefly and hard, then leaves. For days afterward, water hangs in the seams of the walls and beads under the leaves. Most cisterns are dry enough to hold dust and fallen fruit; a few remain dark and full. Warm air rises from them after sunset.
+
+Trees grow out of rooms. Ferns crowd the shaded stairs, and vines pass from one roof to the next until a street can be crossed overhead without touching it. Their foliage makes the night darker than the open sky suggests. Farther down the valley, other terraces appear in gaps between the leaves: a pale wall, a square of black courtyard, another band of trees. The city continues well beyond what can be seen.
+
+Its animals are easier to hear than its shape is to make out. Insects grind and pulse from the vines. Frogs call from the wet cisterns, each pocket of water seeming to answer the next. Bats flick through the courtyards; geckos knock softly on the walls. From some buried room comes the shifting, quarrelsome noise of a roost too large to count. The calls overlap until the valley has a steady roar, though nothing in it is moving very fast.
+
+Now and then a fruit falls onto a roof, rolls across the tiles, and drops through a hole. The sound briefly marks the depth of the place. Then the insects fill it in again.

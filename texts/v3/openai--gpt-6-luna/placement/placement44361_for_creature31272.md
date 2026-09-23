@@ -1,0 +1,9 @@
+I would live where the old quarry drains meet the city’s lower channels, in a little stone room that is never quite dry. Not on the rim, where the wind has the whole sky to itself, and not among the high roofs, where the birds claim every ledge by right. I would be below the covered walks, close enough to hear the engines through the floor and the rain finding its way down.
+
+At first, I think I would be a person: a channel-listener, taught to know the water by its voice. A clear rush from the eastern culvert means the catchment is running freely. A hollow knock beneath the floor means something has lodged in the drain. A thin, irregular tapping might be a loose pipe—or a small creature working its way through the dark. I would carry a lamp, a hooked pole, and a notebook swollen soft at the edges from damp.
+
+But after enough years, I’m not sure the work would leave me entirely human. I would know the hidden routes better than the streets above them. I’d recognize a storm arriving by the pressure in the walls, and know which rooftops the birds had taken simply by how the runoff changed. When the pumps stopped, I’d feel the silence travel through the stone before anyone called for help.
+
+Perhaps I would become a little like the channels themselves: part keeper, part listener, part passage. I’d make room for the pale things that moved through the drains, clear a blockage when water threatened the homes, and leave alone whatever was only living its life. People would come to me with a sound they couldn’t place. I would put my ear to the wall.
+
+Above, the birds would argue over their ledges. Rain would darken the roofs and make the lamps stretch gold across the streets. And beneath all of it, in the patient dark, I would be listening for where the water wanted to go.

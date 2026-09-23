@@ -1,0 +1,21 @@
+The lowland is inhabited by a multitude that has almost ceased to look like many.
+
+Its oldest bodies lie under the newer ones: trunks flattened into soil, roots thickened into ridges, whole generations compressed into dark, springy layers. The young grow through them without breaking them. A shoot finds a seam of water and lengthens into it; a root meets a stone and divides around it, leaving the rock sharp and black between two green walls. Nothing is cleared away. The dead remain useful.
+
+Above, the roof-makers spread their broad leaves beneath the thin, failing light. They do not reach upward so much as receive what comes. Their surfaces gather mist, turn it inward, and pass the water down through smaller leaves, hanging stems, and pale cords of root. By the time it reaches the lowest chambers, it has been strained through so many living layers that the water there is no longer quite rain. It is the lowland’s own fluid, warm with the substances it has gathered on the way.
+
+The columns do another kind of work. They stand in rows because each grows where the pressure is right, and pressure is made by the columns before it. Their thick walls tighten and soften at intervals too long for an ordinary eye to follow. Inside, water rises. Minerals are caught, sorted, returned, or stored in nodules that swell over centuries. When a chamber fills, a pore opens somewhere far away. The released moisture travels through the mats and becomes mist again.
+
+There is no single center. One hollow may be dry while a valley beyond it drinks. A root can carry news of mineral-rich stone across distances no traveler could cross in a lifetime. A change in pressure moves through the buried tissues, dividing and recombining at countless forks. The inhabitants do not need to see one another. They meet in the flow: water entering, warmth leaving, the slow give of one root against another.
+
+If they have senses, they are not senses that make a world of objects. They know weight, salinity, warmth, acidity, pressure. They know when a channel is blocked because the tissue behind it grows dense. They know when a seam of stone can be opened because a hundred roots begin, separately, to thicken in its direction. The lowland feels in gradients. It answers in growth.
+
+Perhaps the green is one organism, repeated until it has become geography. Perhaps it is innumerable plants whose needs have become so interwoven that no individual can be understood alone. There may be no difference that matters. A leaf dies at the roof and feeds the mat beneath it. The mat feeds the root. The root enters a pressure chamber; the chamber returns warmth to the leaf’s descendants. The lowland passes its life from layer to layer without ever lifting it into view.
+
+Its reproduction is nearly invisible. Somewhere in the dark, a seed-case closes. Somewhere else, a tiny pale growth takes hold on a wet rock. These events may be centuries apart, and nothing marks them as beginnings. The new thing is swallowed into the old system almost at once, given a place among the channels and chambers, its separate life obscured before it has learned to unfold.
+
+There are no faces turned toward the darkness. Still, the place is not unaware of intrusion. A footfall presses the moss, and the pressure goes down. A breath warms a pocket of air; the warmth lingers in a hollow stem. The nearest leaves do not twitch. Nothing gathers or flees. But, far below, a root may thicken against its stone, a pore may close, a chamber may adjust its flow. The response would arrive so slowly that the visitor would be gone before the lowland had finished considering them.
+
+Most of the time it considers nothing that can be named. It maintains itself. It drinks the rain, carries the minerals, seals its leaks, fills its hollows, and waits beneath its own enormous roof. Its quiet is not sleep. It is the sound of a body whose smallest acts take longer than a human life to become apparent.
+
+Underfoot, the faint thrum passes on through root and rock. The lowland has no heart, unless every chamber that raises water is a heart; no mind, unless the whole dark exchange of pressure and growth is one. It does not need to move to be alive. It has already made movement into a thing too gradual to distinguish from stillness.

@@ -1,0 +1,11 @@
+Prepare as if you are visiting a living, waterlogged machine—not an abandoned yard with a few plants in it. The greatest practical mistake would be to assume that a visible doorway, stair, or patch of brick offers a usable route.
+
+**Make this a short daylight visit, with a companion staying outside the wall.** Agree on a return time and a signal for turning back. The foliage closes behind anyone who parts it, so mark your route without tying anything to stems or pipes. If you cannot identify a reliable way back from where you stand, stop there. Do not plan to cross the acre simply because it looks small.
+
+Wear waterproof boots with good grip, long sleeves, gloves, and eye protection against stalks springing back into your face. Carry drinking water, a light, a compact first-aid kit, and a means of communication that does not depend on seeing your companion. Keep both hands available for balance; the older runners may feel like a firm floor while concealing water, ruts, or debris. Test each step, and treat submerged ground and the leaf-filled iron stair as unsound.
+
+Give the pump house a wide berth. The flywheel moves slowly, but it *does* move, and the valve releases pressure with little warning beyond the recurring bark. Do not put fingers into the wheel, lean on pipes, or use roots and stems threaded through the machinery as handholds. Nothing there is safely identifiable as either inactive equipment or harmless vegetation. A cut stem, shifted pipe, or pulled root could disturb both.
+
+Expect constant dripping and tapping, interrupted by a startling metallic report. Pause outside the wall long enough to hear a few valve cycles; inside, the noise may make conversation and orientation harder than the yard’s size suggests. Avoid brushing your face against flowers or pollen-bearing foliage, and do not drink the standing water.
+
+Finally, use strict biological caution. Clean boots and equipment before arrival and before leaving, and take away any seeds or plant fragments caught in your clothing without carrying them into another environment. Leave the machinery and growth as you found them. This is a place to observe from a carefully maintained route, not to clear a path through.

@@ -1,0 +1,11 @@
+The small white shells are the easiest inhabitants to find, but they are not the only ones. Most cling so deep in the wetted seams that only a pale edge shows. A shell held in the hand is unexpectedly thin. Beneath it, the animal is almost transparent, with a broad foot that grips stone and a fringe of short feelers it draws across the crack ahead. It has no visible eyes. When disturbed, it does not hurry; it folds its feelers in and lets go, dropping into water too narrow for a finger to reach.
+
+Larger ones live farther down. They grow long rather than wide, their bodies divided by overlapping plates that let them turn where a rigid shell would catch. A full-grown one can pass through an opening no broader than a wrist. It may take most of a night to do so. Sometimes a pale joint appears at the mouth of a chamber, remains there while several drops fall, and withdraws before the rest of the animal comes into view.
+
+They feed where fresh water meets the dark bands in the stone. There is almost nothing to see on those surfaces, even after they have passed over them. A shell leaves a faint clean track through the grit; by the next rain, the track is gone. The animals spend much of their lives in the cold below, and they come upward most often when water rises through the seams.
+
+Sound reaches them before anything else does. At a chamber mouth, a large one will brace its plates against opposite sides of the opening and hold still for hours. Its feelers rest against the wet stone. It draws them back when a nearby drop strikes a pool, but barely moves when the same knock comes from far across the basin. If another shell scrapes through its passage, it makes room.
+
+The low walls are useful to them, though they did not make the blocks. Water gathers beneath the level stones without filling the passages outright. Empty shells collect there, along with living young no larger than grit. Nothing clears the fallen fragments because nothing here needs an open path. The inhabitants have paths of their own, inside the seams and under the floors.
+
+One can cross the basin without seeing more than a single white shell. Later, at a narrow opening, a plate may shift just enough to show that its edge was not part of the fin. By then the animal has felt the footsteps through the stone for some time.

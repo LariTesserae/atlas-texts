@@ -1,0 +1,5 @@
+I would first look for a place beside the basin. It seems like the center of the room: every drop falls near it, and the ferns lean that way. But there is little room left there. I might find myself farther back, behind the service post, where the stone holds a trace of warmth.
+
+I would be one of the fine roots from the knotted crown—not the crown itself, and not quite separate from it. My tip would rest against the mineral crust on the post’s lid. For a long time I would grow along that edge, finding no way through. Water would reach me through the mud when the basin filled; warmth would reach me from the rock. Most seasons I would scarcely change.
+
+Eventually I would turn aside from the lid and enter a seam in the stone. I would not know that the post had once been meant to open, or that the strip above me had been put there to make water fall. I would know the places that stay damp after a drop, and the places that dry first. If the seam narrowed, I would grow more slowly. If it held moisture, I would remain.

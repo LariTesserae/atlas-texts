@@ -1,0 +1,11 @@
+At first, the only thing that seems to live in the notch is the weed. Then the pale wall flexes.
+
+A narrow strip lifts from a joint in the rock and lays itself flat again. It has no colour of its own. White grit has caught along one edge; the other is glazed with the same clear mineral skin that covers the wall. When it moves a second time, several smaller strips move with it. They are joined somewhere deep in the crack.
+
+The creature spends most of its life with its body out of reach of the current. It puts only these thin parts into the water. They bend around a passing grain and carry it inward, or press against the rock where a new layer is forming. Each strip ends in a hard point, useful for holding fast when the mountain knocks. If one is torn away, the rest withdraw so quickly that the wall appears unbroken.
+
+It is easy to mistake its work for what the water does by itself. Grit disappears from the shedding seam. A line of clear deposits grows thicker around its opening. Beneath that line is a chamber worn into the joint, just large enough for a soft, folded body. The creature cannot stop the ledges from breaking. It has learned to take food and shelter from both sides of the break.
+
+The three wedged stones are close to its opening. When a burst of fragments brings a new flat piece within reach, the strips test its edges. Sometimes they draw it into the cleft, and the current sets it tight against the others. The plant fibre was tied there long before the creature occupied this crack. It has left the knot alone. In the lee of the upper stone, the weed holds; among its strands, small things survive long enough to be caught.
+
+When a fish shoots through, the creature shuts itself into the wall. Hours may pass before it reaches out again. It knows the passage beside the cleft by the pull on its strips, and the weather above by changes in pressure and the rhythm of blows through the stone. A clear day gives it no view of the lower peaks. It gives it light enough to spread every strip across the pale floor, where their fine shadows tremble among the shadows of clouds.

@@ -1,0 +1,9 @@
+What lives here is easiest to mistake for the planting.
+
+A kelp stem rises from one of the old beds, dark and thick at its base. It has no more leaves than its neighbors. Lower down, however, its holdfast does not cling to a single stone. It passes through a joint, divides beneath the silt, and emerges along the next ridge among the moss. Other stems do the same. Their roots have taken up the line of the woven barriers, growing through the stakes and around the blocks that once kept each bed in place.
+
+There may once have been separate plants. It is hard to find where one ends now. In the broad basins the red weed lies close to the floor, gathering the fine silt that falls through the canopy. Along the ridges, moss grips the joints and keeps the packed clay from washing out. Where a wall has fallen, new growth holds its stones in a low heap. The old builders set out the beds; the growth has gone on tending them, with no clear distinction between what was planted and what has spread there since.
+
+It moves, but not in a way a visitor could watch. A leaf reaching the upper light lengthens while another below gives way. A strand finds an opening under a stone. A loosened grain settles into a root mat and stays. Over years, one channel fills and another remains just open enough for cold water to pass. The changes are small, and they follow the arrangement of the floor so closely that the immense pattern is still visible from above.
+
+Nothing comes to graze it. Nothing disturbs the soft places. In that absence the growth has become dense without becoming wild: a living cover fitted to a made place, patient with its worn edges. The faint scrape of one frond against another is nearly the only sound it makes.

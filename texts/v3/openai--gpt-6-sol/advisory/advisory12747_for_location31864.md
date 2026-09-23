@@ -1,0 +1,9 @@
+Treat this as a **hot, cramped, living confined space**, not an empty ruin. The animals are not visibly aggressive, but that tells you little about whether the air, stone, or old machinery is safe.
+
+- **Go with a partner and a way out.** Visit during the cooler part of the day. Tell someone where you are and when to expect you back; keep one person outside the chamber if possible. Check that the entrance and your route through the ribs can be used in reverse without squeezing or climbing.
+- **Check the air before entering.** The chamber is shallow, but it may still have poor ventilation or an unsafe atmosphere. Use an appropriate gas monitor if you have one. A dust respirator can help with particles; it cannot make oxygen-poor air safe.
+- **Bring your own light.** Use a headlamp and a backup light rather than relying on the conduit’s amber glow. The far wall and ceiling will be difficult to judge, and glossy black edges may be closer than they appear.
+- **Dress for cuts, dust, and heat.** Wear a helmet, eye protection, tough gloves, long sleeves, and sturdy boots. Carry water. Move slowly enough to see where you put your hands as well as your feet.
+- **Leave the chamber undisturbed.** Do not touch the sockets, severed conduit, or turning machine; none is demonstrably inert. Avoid prying at the stone, stepping into seams, handling animals, or brushing the delicate stalks. The fresh-looking chips are reason to watch for unstable edges, not proof that anything is falling now.
+
+Once inside, stop briefly and listen. The steady grinding and rasping may help you notice a change, but they can also mask your partner’s voice and smaller movements nearby. Agree on a simple signal before entering, keep the visit short, and turn back if the air feels wrong, the route becomes uncertain, or the stone or machinery begins to change.

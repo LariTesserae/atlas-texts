@@ -1,0 +1,9 @@
+Prepare as though you are visiting a submerged archaeological site with **no known shore, no known surface, and no reliable way to breathe or get warm**. Do not arrive in ordinary clothes—or even in dive gear—unless you already know the depth and have a secured route home. The safest first visit is by a sealed, pressure-rated submersible with its own air, heat, lights, navigation, and return capability. Survey ahead with a remotely operated camera.
+
+Before entering, establish the water’s depth, temperature, pressure, chemistry, and visibility. The absence of fish and shell life is striking, but it does not tell you why the place is empty; do not assume the water is harmless. Arrange a timed return and a rescue plan that does not depend on finding a shore or surfacing nearby.
+
+If a later dive is justified, use trained cold-water divers, redundant breathing and lighting systems, and a guideline back to the vehicle. Kelp can entangle you, and a fin stroke or touch on the floor could lift silt into the dim water. The weak current will not clear it quickly. Navigate by instruments and your line, not by the ridges: their pattern continues beyond sight and may make one basin look much like the next.
+
+Stay off the old walls. Their even, gentle outlines may conceal loose courses, buried channels, and stakes beneath the growth. Photograph and map rather than moving stones or cutting plants. Bring everything you need and take nothing for granted—not food, shelter, breathable air, or a convenient exit.
+
+Most of all, budget time conservatively. This is a place where the light fades before the architecture ends, and where losing sight of your way back could happen very quietly.

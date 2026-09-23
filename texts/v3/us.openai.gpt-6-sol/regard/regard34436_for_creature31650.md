@@ -1,0 +1,11 @@
+The power would arrive during a loud hour, when the stone was humming and the pale creatures had gone flat against it. It would not ask the plain to be still. The noise told the creatures when to descend; the water brought them food; even the brief yielding of distance let them reach one another. To silence those things would be to mistake difficulty for harm.
+
+Instead, it would listen through one entire passage of rain. It would learn where pressure rose too quickly for the smallest creatures to escape, and where a seam closed before those sheltering in it could return. It would learn, too, why some stayed on the old walls while the rest went down.
+
+The first change would be slight. Inside the walls, in joints worn wide by countless repairs, a few stones would settle against their neighbours. Water would still pass through, but more slowly. In the next storm, a creature resting there would find that the rain on its back could remain still without its having to hold so hard. Others would come. The walls would offer no roof and look no different from a distance, yet along their inner faces there would be places where a small body could wait out the worst of the sound.
+
+Then the power would turn to the seams that shut without warning. It would not keep them open. It would give the water a moment’s warning: a low note, felt first in the shallow rings on the creatures’ backs, before the stone drew tight. Most would slip away in time. Some would not; there would still be storms, and the plain would still be a place where things lived at risk. But the warning would travel as faithfully as the rain.
+
+Last, it would go to a wall where the fitted stones bore the polish of vanished bodies. There it would leave a cup no larger than a thumbprint, sheltered just enough that a thread of clear jelly might survive a front. Perhaps nothing would be laid in it. Perhaps, after a loud hour, two pale creatures would find themselves near one another and use it.
+
+The power would not stay to see. It would let the next rain come across the horizon, let the pavement darken, and leave the creatures to make what they could of the gentler places.

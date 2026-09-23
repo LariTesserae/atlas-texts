@@ -1,0 +1,9 @@
+I would first look for a way down. I would circle the shelf, testing each edge with my foot, until I understood that the cloud was not hiding a path I could use. Then I would go back to the open black stone between the moss beds. It would be the one place where I could hear the ticking clearly and still see the birds come and go.
+
+I think I would become a small, clear-sided creature there. Not one of the climbers: they seem to know where to put their feet. Mine would be uncertain. I would spend a long time beside a fissure, watching a seed caught beneath its lip. Whenever the thrum dipped, the seed would turn a little in its lodging. I would reach for it, withdraw, and reach again. Above me a bird would listen for the sound of its landing.
+
+At first I would believe I had been left there to free it. I would learn the crack by touch, though: its cold rim, the bead a beetle had placed beside it, the place where moss began a finger’s width away and never came nearer. The seed would not be stuck in any way my hands could remedy. Sometimes I would find another seed on another part of the shelf and hold the two together. They would be alike, but this one would have a dark bruise at its end where it had pressed against the stone.
+
+That is where I would find myself most often, I think: under the broad leaves when the birds called, then back beside the fissure to see whether the bruise had turned toward the light. I might grow deft at climbing the wet faces. I might come to know which beetle would jostle the line and which bird would scold from cover. None of that would make the seed fall.
+
+When rain gathered under an overhang, I would stand beneath the swelling drop until its cold touched the top of my head. It would hold there, much too heavy, while the engine went on below us. I would stay for a while and feel it tremble.

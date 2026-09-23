@@ -1,0 +1,11 @@
+Prepare for this as a warm, wet mountain crossing **where the ground cannot always be trusted**. The shelf may look level, but it is a layered surface of roots, peat, water, and living wood. A firm-looking patch could give way into a pool or hollow; a gentle rise could put you on top of a root with a difficult descent on the other side.
+
+Before going up, arrange a return route and tell someone when to expect you. Bring a reliable way to mark your entry point and navigate without a view of the sky. Record your route as you go, but do not rely on moss or faint animal paths as landmarks: much of the shelf will look alike. Plan short days and turn back with ample daylight.
+
+Wear grippy boots that tolerate constant wetness, and carry a walking pole to test footing ahead. Pack waterproof layers, dry socks, blister care, insect protection, a headlamp, and a fully protected change of clothes. Keep maps, electronics, matches, and food in sealed bags. The canopy may keep rain off you briefly only to drip on you for hours afterward. Expect dampness even when it is not raining.
+
+Carry drinking water and a means to filter and disinfect more. The clear pools are not necessarily safe, and their leaf-filled bottoms may conceal deep mud. Avoid stepping on thin mats over dark gaps, and give the hanging margins of the shelf a wide berth. Do not assume a large root is securely attached just because it is large. If you travel with others, spread out on uncertain ground and keep one another in sight; a quiet fall could be hard to locate here.
+
+Treat the old stone circles and walls as fragile sites, not convenient campsites or route markers. Roots may be holding their blocks in place. Likewise, avoid cutting vegetation or driving anchors into living wood unless it is necessary for safety. Clean your boots and gear before arriving so you do not bring seeds or organisms into this enclosed habitat.
+
+Camp only on ground you have tested, away from pools, hollows, and the shelf’s edge. A tent may be difficult to stake among roots, so bring a shelter you know how to pitch without damaging trees. Expect little wind but persistent dripping, dim light, muted sound, and disorienting sameness. Move slowly enough to notice where water is flowing and where the moss has already yielded underfoot. Here, patience is more useful than speed.

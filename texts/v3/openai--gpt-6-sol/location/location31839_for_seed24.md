@@ -1,0 +1,5 @@
+The hollow is small enough that its rim can be felt as a boundary, though in the dark it is difficult to see. A low bank of stone rises on every side, its slopes worn smooth and shallow over a long time. Underfoot, fine dust lies between flat pieces of rock. The stones retain the day’s warmth; the air above them is warm too, with none of the coolness that might suggest damp ground nearby.
+
+There is just enough starlight to separate the pale dust from the darker stone. Far apart on the rim stand a few tough, low shrubs. Their narrow leaves are almost invisible, but their dry, sharp smell reaches the floor of the hollow. Nothing grows in its center. No tracks cross the dust, and no call or rustle comes from the shrubs.
+
+The place is quiet without feeling sheltered. Sometimes a grain of grit slips from a rock and makes a sound too small to locate. The rounded edges and settled dust suggest that wind has passed through here for ages, but tonight there is hardly any. There are no paths or worked stones. In the darkness, the hollow gives little sign of changing at all: only the warmth held in the ground, slowly leaving it.

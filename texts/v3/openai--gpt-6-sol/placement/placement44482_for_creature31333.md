@@ -1,0 +1,11 @@
+At first I think I would live beside the spring. I would like to know its cool path through the square, to feel the change in it before anyone had a name for what had changed. But nobody lives beside the spring. The clearing belongs to everyone, and anything left there must be picked up before the leaves find it.
+
+So my house would stand at the far end of a lane, where the ridge slopes away. I would be one of the people called when a wall thinned or a passage narrowed. I would carry a coil of fiber at my waist and spend much of the day with one hand buried in the stems, feeling where they went beneath the silt.
+
+I might have imagined myself good at making things. Living there, I think I would become better at waiting. A stem bent toward a doorway cannot be hurried into being a door. A loose stone step may need its roots left undisturbed more than it needs a new footing. I would learn which leaves could be moved aside and which ones held the bank in place.
+
+Others would know my knock: two close taps, then one after a pause. It would mean I was coming through with my hands full. The children might use it when they wanted me to look at some small discovery in the beds, and I would sometimes follow them even when there was work waiting.
+
+One season, the lane outside my house would need clearing twice. I would be tempted to cut back the new growth and call the work done. Instead, I would ask two neighbors to come with me. We would follow the crowded stems downward, past the depth at which their leaves could be seen clearly. Perhaps we would find silt gathering around a displaced stone. Perhaps we would find nothing we understood. Either way, we would come back able to tell the others what our hands had felt, and decide together how much to move.
+
+By evening I would leave my tools inside and sit in the doorway, listening to work continue across the ridge. Someone would strike a stone; someone else would answer from a house. Close by, a snail would make its slow way over the wall I had repaired. I would be a person with a familiar knock and a place in the work: making room where room was needed, and learning how much could be left alone.

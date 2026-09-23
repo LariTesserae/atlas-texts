@@ -1,0 +1,7 @@
+At first I would think I was standing in the doorway. It is the one place on the plateau that offers a familiar shape: two sides, a space between them, a suggestion that somewhere lies beyond. I would look through it toward the ridge advancing across the dark and wait to see whether the opening changed.
+
+But the ground would keep moving, and I would have to move with it. Perhaps I would find myself not in the doorway but low beside it, where one gray stone has come loose from the wall. It has fallen onto the new basalt without breaking. For a while it rests there, warm on one face and cool on the other, as the shelf beneath it slowly tilts.
+
+I think I would be that stone. I would have been shaped to hold up a wall on ground that stayed where it was. Here I would hold up nothing. When the ridge reached the doorway, I might slide into a narrowing crack and lodge there. The old stones above me could remain upright a little longer, though no one would pass between them.
+
+Eventually the pressure would split me. Some pieces would ride upward with the doorway; smaller ones would grind against the basalt and become dust. The wind might take that dust across the bare heights. For all the rock breaking here, there is so little of it yet. I would be a little of the plateau’s dust, made from stone carried up out of an older place.

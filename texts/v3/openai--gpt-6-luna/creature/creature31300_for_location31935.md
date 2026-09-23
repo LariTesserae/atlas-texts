@@ -1,0 +1,15 @@
+At first, the city appears uninhabited. Then one of the lights goes dark—not failing, but covered. In the window behind it, something pale has drawn itself upright.
+
+The residents are few. They have bodies, though the city gives no easy measure of their size: narrow figures with long joints, wrapped in smooth, close-fitting skins the color of old bone. Their faces are nearly featureless. A pair of dark hollows marks where eyes might be, but they seem to attend less to what they see than to the pressure of what is near. They do not swim. They move by setting one hand or foot against a surface and letting the water hold them there, then releasing themselves a little farther on. A crossing that would take a person seconds may take them an hour.
+
+They spend much of their lives inside the buildings, behind the invisible fields, though not always in rooms. Some dwell in the passages that should be too long for the walls around them. Some occupy the thin, lit connections between towers. From far away, a resident crossing one of those lines might be mistaken for a brief interruption in its glow.
+
+There may be only a handful. The city never gathers them in one place. A figure appears beneath a bridge; another stands, unmoving, in an open court where the mountain shows through. Sometimes, on separate terraces, two residents face one another across the dark. Nothing passes between them that an outsider can see. Yet the pressure changes by an almost immeasurable amount, and the nearest lights answer, one after another.
+
+This is how they speak: not in sounds, but in small revisions to the world. A doorway holds open a moment longer. A corridor shortens. A line of light bends through stone. Their language is too slow to overhear and too exact to mistake. They may exchange a single thought over many days.
+
+They do not seem lonely. They do not seem content, either. They keep the city as one might keep a promise whose terms have been forgotten but whose importance has not. When the mountain gives its rare, deep knock, the residents stop whatever they are doing. For a long while afterward, each one turns toward a different part of the ridge, listening with the whole body.
+
+The pale animal that passes beneath the outer platforms may be one of them, or something they have made, or something they have agreed to leave alone. It slips between the stones without drawing their notice. No resident follows it.
+
+Perhaps the city’s inhabitants are waiting for the mountain to finish becoming a mountain. Perhaps they are maintaining the stillness around it until something below can wake without breaking the ridge. They have no visible instruments, no ceremony, no sign that they are afraid. Only their long attention, and the patient lights, set just bright enough to show where the edge is.

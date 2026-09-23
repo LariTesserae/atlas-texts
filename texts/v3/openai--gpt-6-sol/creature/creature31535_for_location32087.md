@@ -1,0 +1,9 @@
+The largest living thing here is easy to mistake for the room. The upper and lower roots are parts of one organism, and the air between them is a space it is still making. Along the newest crease, the floor keeps folding inward while leaves push out from the wall. A leaf there may spend its first day turned toward what looks like the center of the hollow, then grow at an angle no leaf elsewhere takes. The root has not yet found a stable shape for that edge.
+
+It responds most quickly to shade. Leave a pack against the wall overnight and by morning its outline will be furred with new leaves, each one small enough to fold flat when the pack is lifted. The older leaves at the seams are tougher. They turn slowly toward a passing shadow and remain angled after it has gone. In a place where light passes through living flesh, darkness seems to tell the root where there is room to grow.
+
+The knocking belongs to the hollow, though nothing visible strikes its walls. It runs through the taut fibers in even beats and ends when a seam opens. Then the chamber takes a breath of warm, leaf-scented air from somewhere beyond itself. During those brief openings, the fine green veins stand out more sharply; afterward they fade beneath the pale skin again.
+
+The grub is a rarer resident, and a wary one. Nearly clear, it is easiest to see when a vein shows through its body. It comes to the pods with its stone flake held crosswise in its mouth, braces itself against the lower root, and saws until a pod splits. It feeds before the two halves can be drawn back into the floor. Sometimes it carries the flake away. Sometimes it presses it into a pore and follows it through, leaving only a narrow crease that smooths shut.
+
+It keeps to the older edges. Near the new fold, it stops, lifts the front of its body, and turns back. The leaves there grow into open air, but the air does not always seem to stay the same size.

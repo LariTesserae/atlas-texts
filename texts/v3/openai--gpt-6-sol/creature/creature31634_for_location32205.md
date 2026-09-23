@@ -1,0 +1,9 @@
+The largest inhabitant can lie across three grains of sand. She is a clay-worker, pale except for the dark seams of her joints, with forelegs broad enough to press wet earth flat. She moves sideways along the wall, feeling each mud cell with the tips of her antennae. At an open one she adds a mouthful of clay. At a sealed one she rests her head against the cap for a long while, as though listening.
+
+Inside the cells are her young: soft, folded bodies with no room yet for legs. A few press at their walls, making dents that slowly ease back into shape. One has a mouth fine enough to drink from the moisture beading in a crack. It drinks often. The bead stays round.
+
+Beetles live loose among the cells, armored in brown so dark they look like chips knocked from some other ground. They scrape paths between the worker’s feet and the root tips. Wherever a root enters, smaller, nearly clear creatures gather around its end, taking what they can without shortening it. Their bodies swell; then, in the press of their neighbors, they seem to empty again. The beetles’ rasp and the soft creatures’ breathing fill the little chamber. Where two walls nearly meet, the worker’s call becomes a thin note that can be felt aboveground.
+
+There are eggs here, too, under the clay and between its grains. Through their skins one can see small shapes turning. A beetle pauses beside one and cleans its forelegs. The worker carries another pinch of mud to the wall.
+
+She has a rough place along her back where something has rubbed against her many times. Her jaws are worn at the edges. She tends the open cells, tests the sealed ones, and leaves each cap as she found it. No young one comes out while she is there. Nothing grows large enough to leave, though all of them keep making room for the next breath.

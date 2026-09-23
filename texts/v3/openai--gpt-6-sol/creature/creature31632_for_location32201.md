@@ -1,0 +1,7 @@
+At first the chamber seems inhabited only by leaves. They crowd the upper shelves, turning their broad, dark faces toward the amber grates, while their lower leaves hang limp over the walkway. The iron has rubbed some of them shiny. Others end in brown, dry points, though a clear bead rests on each underside.
+
+It takes longer to see how much of the growth belongs to the roots. Pale cords run from shelf to shelf, bunching at cool seams in the stone, then separating into finer threads over the basin. In the red soil the stems stand apart like separate plants. Below it, they meet. A leaf beside the highest grate and a small, curled shoot near the floor may be fed by the same buried length of root.
+
+The plants grow slowly enough that their movements have to be read from old marks. A root has thickened around a bolt in the walkway rail. Several leaves have bent away from a pipe’s hottest section, leaving their spent tips against it. Where a stem was broken back to clear the path, new growth has come out sideways, into the narrow space between a pipe and the wall. The continuous roar does nothing visible to them. They endure it as they endure the heat.
+
+After rain, the room gives a little more. Drops gather under leaves and travel down their ribs to the stalks. Roots at the basin darken with damp silt. For a day or two the smallest shoots hold themselves open. Then the stone dries, the leaves lower again, and the pale roots remain pressed into the cracks where the water went.

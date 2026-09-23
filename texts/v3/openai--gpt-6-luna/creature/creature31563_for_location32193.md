@@ -1,0 +1,17 @@
+At first they seem like a surface, something the town has acquired: a gray covering over roofs and pipes, thickest where the damp gathers. Then the covering begins to resolve into bodies.
+
+Each creature is small enough to rest in a cupped hand. Its shell is dark and bluntly oval, ridged like a worn piece of machinery, with a narrow pale margin that catches the light. Beneath it, the body is soft and almost colorless. Two fine frills lie folded close to its sides. They open when the air changes—not dramatically, but with the careful unfurling of a measuring instrument. The creatures taste the wetness, feel the tremor of a press through the stone, and settle again.
+
+They feed on the faint skin that forms where warm exhaust meets cold air. Their mouths rasp against iron and masonry, taking what gathers there and leaving behind a cleaner, duller patch. By morning the gray film is back. Perhaps it is made by the factories; perhaps by the creatures themselves. No one could easily separate the two. The town’s least visible substance passes between them in an exchange too slow and slight to witness.
+
+They do not hurry toward food. A damp ledge will thicken with them over several days, while a pipe just above it gradually empties. There is no clear leader, no sudden signal that sends them all one way. Each body makes a small adjustment to the conditions immediately around it, and the whole colony alters by degrees. From a window, the change might look like weather. Up close, it is a thousand private decisions.
+
+Their shells accumulate where generations have rested. Pale bands mark the undersides of pipes; old bodies harden into the mineral crust of the walls. A living animal may feed beside the shell of one that died before the nearest factory was built. The dead are not carried away. They become part of the place’s texture, a roughness under the newer shells, a history no one has to remember.
+
+There is communication, though perhaps not in any sense the town’s people would recognize. A press strikes; the vibration runs through the pipes. Frills lift. Shells answer shell with a dry, nearly inaudible ticking. A fan changes pitch, and the creatures along its grille tighten against the iron. Rain finds a gutter, and those nearest the new water begin to turn, slowly enough that the movement appears to pass from one body to the next like a thought being considered.
+
+They are not tame. Tameness would require a boundary between the creatures and the place, and there is no such boundary now. The walkways have lips because the animals climb. The trays collect water because the animals gather there. Pipes remain exposed because their undersides suit them. The town has not merely tolerated its inhabitants. It has learned, through habit and repair, how to remain habitable to them.
+
+If people still live in the basin, they must be quiet people. There are signs of hands in the patched roofs and clear slots in the drain covers, but no need for a keeper to stand watch. The creatures do not need to be guided. They need only the slow repetition of dampness, residue, warmth, and stone.
+
+Perhaps that is what the basin has become: not a factory district occupied by animals, but a single arrangement in which iron makes vapor, vapor leaves food, and food makes shell. The factories keep their low note. The shells keep their minute, dry syllables. Between them, under the gray sky, the life of the place goes on without ever quite beginning or ending.

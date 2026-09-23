@@ -1,0 +1,15 @@
+At the top of the range, where the air thins enough to make every breath feel borrowed, there is a hollow no larger than a hamlet. Its rim is a crown of new stone: black ribs thrust upward, edges still sharp from the mountain’s recent heaving. Between them, the ground drops into a close, uneven bowl. You can cross it in an hour, but the walls crowd the eye so thoroughly that it seems to have no farther side.
+
+The place stays dim even at midday. Cloud presses against the rim and spills over in torn wisps; the cliffs keep the direct sun out, and the dark rock gives little light back. Moisture gathers on the stone as a fine cold sheen. It beads in small pits, runs a few inches down a crack, and collects in thumb-deep pools before vanishing into the porous ground. Rain comes now and then, brief and slanting. Most of the time the dampness seems to rise from the rock itself.
+
+There is almost no greenery. A few low, colorless mats cling to ledges, and wiry stems root in the grit where the wind has left a little soil. They do not soften the place so much as mark the rare spots where life can hold fast. The rest is fresh fracture: splintered shelves, angular blocks, narrow seams, and slopes of coarse black grains.
+
+But the stone is crowded with animals.
+
+They occupy every crack and hollow: pale, many-jointed things tucked under the ledges; round bodies with translucent backs pressed together in the pools; long-legged shapes that stand motionless on the steep faces. Above them, small dark fliers hang in the still air, turning slowly in the updrafts. Some have wings like folded leaves; others seem to have too many wings, beating out of time with one another. Their colors are muted—ash, old ivory, the blue of bruised ice—yet the sheer number of them gives the shadowed bowl a restless texture.
+
+The sound is much larger than the place. Clicking, rasping, and thin, wavering calls overlap until the air seems to have a grain of its own. When a cloud thickens over the rim, the chorus swells. When it thins, the animals fall quiet by degrees, never all at once. There is no single cry to identify. Instead, the hollow makes a continuous, crowded murmur, punctuated by sudden clatters from the walls. A pebble may take a long time to fall here: it bounces once, twice, and then the noise travels through the creatures in a spreading shiver.
+
+Nothing changes quickly. The fliers drift on the same currents, the pools darken and clear, and the mats of growth widen almost imperceptibly. Even the animals’ movements have the patience of mineral processes. A pale body may spend an hour crossing one ledge. A gathering may part around a drop of water, then close behind it as though the stone had drawn breath.
+
+The hollow feels less like a summit than a small, sealed weather-system perched above the world: cold, wet at the edges, dark at its center, and packed with life that has arrived before the land has finished becoming land. No paths lead into it. No marks remain on the rock. The sharp walls and the living clamor are all there is, held together in a stillness that never quite becomes silence.

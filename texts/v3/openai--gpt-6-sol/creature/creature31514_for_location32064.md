@@ -1,0 +1,5 @@
+Four small fans live along the inner seam. At first they look like pieces of black brush caught under the wall, but each has fastened itself to an electrical contact. The fronds are stiff enough that the guardrail trembles while they appear motionless.
+
+They are not quite alike. The one nearest the door spreads low, keeping clear of its swing. Farther along, a narrower fan holds its copper-edged tips toward the work lamp. The others occupy their separate contact heads, with bare, clean seam between them. None has reached into the floor channels or over the stamped numbers.
+
+They draw on the current leaking through the wall and on traces of metal in the dry air. There is no sign of anything feeding on them, sheltering among them, or carrying them elsewhere. Their slow growth is the only visible change in a recess built to remain clear. The engines go on roaring; the four fans keep their places.

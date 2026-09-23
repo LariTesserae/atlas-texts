@@ -1,0 +1,11 @@
+The ground is a floor of fired clay plates, each large enough to hold a village. Their edges do not quite meet. In the gaps, hot water stands black and still, though steam rises from it in slow sheets. There is no soil beneath the plates. At a broken edge, the clay is thick as a wall; below it hang rows of unfinished bricks, and below those, more floor.
+
+Everything bears the marks of simple work. Finger-width grooves run across the open plain. The sides of distant embankments are patted smooth, then scored as if to help another layer adhere. Here and there, a wedge of dark stone holds apart two slabs that ought to crush it. There are no roads or buildings, only the materials and gestures of building, repeated until they become a continent. No plant has taken root in a seam. No small thing moves across the surfaces.
+
+The heat comes up through the floor. In the dimness, the plates keep a dull red warmth without giving much light. Moisture gathers on their undersides and seeps through hairline cracks, making pale fans on the clay. Beyond the nearest embankment, rain is falling: a long grey wall across an otherwise empty basin. It never seems to reach this spot. Water is plentiful, but seldom in motion for long.
+
+The landscape is new and cannot remain finished. A flat place buckles into a ridge while you watch, lifting whole plates with a dry, immense slowness. Farther off, a ridge settles and reveals a basin of wet, unfired clay. The changes are violent in size but nearly silent. A few knocks travel through the ground; now and then comes the soft slap of one surface meeting another. The air is otherwise quiet enough to hear a drop fall into a gap.
+
+Distance is unreliable here. A row of wedges that looks an hour away may stand beside you after a brief turn of the head. A nearby pool can take all day to reach. The plates themselves offer no sign of having moved. Only their relationships change, as though the joins in the world are being tried and reset.
+
+At the horizon, the rain wall passes in front of some ridges and behind others at once. Under its dark veil, fresh clay shines. For a little while the whole basin looks almost complete. Then a seam opens across it, straight as a line drawn by hand, and warm water begins to well through.

@@ -1,0 +1,9 @@
+At first, the inhabitants seem to be the ones that can leave. Swifts cling beneath the coping in a row of dark, untidy commas. They quarrel in the morning and are gone for most of the day. Near dusk they come back all at once, their wings cutting briefly through the damp air before they slip into the wall.
+
+The frogs stay. Each has a crack it can draw itself into, though none looks wide enough to hold a frog. After rain they emerge and sit on the warmest clay plates, throats swelling. Their calls travel through the channels, so a frog in one corner may seem to be calling from another.
+
+The clicking things live lower down. They are no bigger than fingernails, with dull shells the colour of wet brick. They pick their way along the black lines between plates, feeling ahead with fine legs. When a seam widens, they disappear into it; when silt collects, they return to feed. You can hear them crossing the open floor only when the wind drops.
+
+There are others that seldom show themselves. Something leaves a clear, wavering track on the moss. Something has packed grit beneath a tilting plate and made a dry space there, despite the rain. A loosened brick bears a pale scrape where bodies pass through it night after night.
+
+No one inhabits the middle for long. A swift crosses it, a frog leaps over it, the shelled creatures hurry from one joint to the next. Yet the empty space is part of their dwelling. It lets the swifts turn, gives the frogs room to call, and catches the rain that feeds the seams. When water begins to thread down the walls, the court grows busy without looking much less vacant. Beneath the hooting bricks, small feet click and pause; from somewhere low and hidden, a frog answers a drip.

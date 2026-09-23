@@ -1,0 +1,7 @@
+At first I would put myself on the pavement, looking down. The court is small enough to take in at once, and I would mistake that for having seen it. I might crouch and touch the cool clay, then stand up again when the sound made speaking difficult.
+
+But I think I would belong lower down, on the quiet lip of the spiral. I would be one of the older rosettes, so worn and pale that my back scarcely differs from the tiles. The singing wall would be behind me. Ahead would be the hollow where damp gathers before dawn. I would know the distance between them not by sight, but by how much of the great note came through the clay beneath me.
+
+I would move slowly enough that no one watching could be sure I had moved at all. On some mornings there would be a cleaner stretch of blue seam behind me. On others, I would only have turned my back toward the sun.
+
+When the youngest came down to the spiral, I would stay at its edge. Not guarding it—the hollow holds too little to guard—but leaving my place along the curve open. There would be just enough room for another small, pale body to settle without touching mine. By the time the pavement filled with footsteps, we would all be flat against the clay, and the space between us would be the clearest sign that we were there.

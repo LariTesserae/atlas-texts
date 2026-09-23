@@ -1,0 +1,7 @@
+The ferns are the hollow’s most faithful inhabitants. Their fronds die back and return, but their roots remain deep in the seam, where the last rain collects. Beetles shelter among the fallen fronds. Pale, nearly transparent ones stay below, while brighter beetles climb out after a shower and work the wet leaves until the stone dries.
+
+The lizards know the hollow by its edges. Each keeps a stretch of crack rim and the flies that pass over it. A lizard warming in the sun may look fast asleep, but when a cloud crosses the ridge it darts forward, catches a fly, and is back at its rim before the light has settled. The birds know the trees in much the same way, though none seems willing to admit that another bird has found them first.
+
+There is also something that visits the posts. It is small enough that a bird landing nearby sends it beneath a root, and dull enough in colour to vanish against damp stone. It comes out after a low note has passed through the hollow. Moving along the shallow cut, it touches each new bead of water with the front of its narrow mouth. It drinks little. Once the water reaches the fern seam, it follows it down and disappears among the roots.
+
+Whatever calls from below the ridge has never been seen in the hollow. Its voice arrives regularly enough that the beetles and birds must know it, though they pause each time. Then the small creature emerges again, a lizard takes its place on the warm rim, and the hollow fills with movement.

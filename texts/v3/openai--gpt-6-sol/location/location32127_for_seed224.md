@@ -1,0 +1,11 @@
+The place is no wider than a room, though it sits inside the highest ridge for hundreds of miles. To reach it, you pass through a crack in the summit’s black stone and descend three steps. Beyond the third step there is no ceiling. A dim, colorless distance opens above you, showing neither sky nor rock; the mountain may be thin here, or the room may be larger on the inside.
+
+The floor is a shallow basin of pale mineral. Its edges have been worn smooth, not by water but by minute shifts of the ridge: one grain drawn across another each time the mountain settles. There is no dust in the air. The cold keeps every exposed surface sharp to the touch, even the rounded ones. Faint silver seams cross the floor, then stop without reaching the walls.
+
+Five objects stand in the basin, far apart for so small a place. Four are low frames made of a dark substance that has no visible grain, joints, or fasteners. The fifth is a narrow upright slab, no taller than a person’s knee. Each frame encloses an empty space. Looking through one, you see the opposite wall a little nearer than it is; looking through another, you see its old fracture before the fracture was filled with mineral. The frames do not glow or make a sound. They seem to have been built to keep particular distances and moments from drifting.
+
+Near the upright slab, the basin has worn into a shallow hollow. The silver seams end there. Once in a long while, a seam continues across the hollow for the width of a fingernail, and a new ridge appears on the slab. By the time anyone could return to check it, the seam would have stopped again. The work, if it is work, proceeds at the pace of the mountain.
+
+Silence here has a small imperfection. If you set a stone down, you hear the contact clearly, and later, while standing still, you hear a quieter contact from somewhere behind you. Nothing has moved. The frames hold their places. Even the loose grains in the basin remain where they fell.
+
+The passage back is always three steps away, but it is not always opposite the entrance. People who have marked the floor found their marks still present on returning, although sometimes on the wrong side of a seam. The room offers no explanation. It preserves almost everything, and permits a few things, very slowly, to change.

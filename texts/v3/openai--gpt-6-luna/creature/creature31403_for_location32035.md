@@ -1,0 +1,13 @@
+At first, the hollow seems uninhabited. The animals keep to the wall, where they can vanish into green. Nothing crosses the bare middle, though the leaves at its edge are often trembling, as if something has just passed among them.
+
+Then, in the dampest weather, a thin sheen appears on the peat. It gathers in the center without forming a puddle: a clear, skinlike film that catches the daylight and gives it back without shine. Beneath it lies the basin’s oldest resident, spread flat under the peat—so broad and shallow that it is hard to think of it as an animal. It has no face anyone has seen. Its senses are distributed through fine, pale threads that run among the roots, feeling the passage of feet, the touch of rain, the minute scratches and calls of the creatures in the wall.
+
+The hollow is where it listens.
+
+It does not hunt. Insects sometimes fall into the open center, and by morning they are gone, drawn down through the soft floor. It takes little from the animals that live above it. Their calls and scurryings are enough; they are the weather it measures. When a bird cries from the rim, the sheen shivers. When rain gathers on the leaves and drops onto the peat, faint rings pass across it, though there is no standing water to carry them.
+
+The iron wheel reaches it through the ground. Its steady turning travels along the buried threads, and the resident answers with a pressure too slight to feel beneath a boot: a tightening, a release. The wheel does not command it. The creature has simply grown accustomed to that rhythm, as roots grow around a stone. At intervals the film in the center trembles in time with the machine, and for a few moments the sounds in the basin seem to settle around the same beat.
+
+Perhaps the basin’s smoothness is partly its work. Over ages it has drawn the peat close, pressed down the small rises, and held the center clear of stems. Or perhaps it only occupies a hollow that was already made for it. There is no way to tell where its body ends and the living floor begins. The roots pass through it; the peat rests on it; moisture moves over it. A small animal can cross the hollow without knowing it has walked above anything at all.
+
+It never rises. It has no need to. The crowded wall brings the world to it, and the open center gives those sounds room to arrive. Beneath the leaves, the birds, the rasping insects, and the patient iron pulse, it listens without waking—keeping the basin as it is, or merely sharing its long, level quiet.

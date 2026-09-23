@@ -1,0 +1,11 @@
+High on a newly opened mountain, where the air is too thin to carry much sound, there is a cleft no wider than a person’s outstretched arms. Its walls are black, sharp, and warm enough to hurt. Water beads on them constantly. Some comes from a hot seam underfoot; some condenses when cloud passes over the summit and touches the stone. It gathers in shallow hollows, steams in the sun, and runs down again through cracks too narrow to see.
+
+Nothing grows here. There is no moss to soften the broken edges, no root in the damp grit. Yet the cleft is crowded. Pale, many-legged animals pack the ledges, fitting one beneath another as closely as stacked fingers. Others hang from the wet walls by rings of tiny hooks. They feed at the hot seam, drawing mineral-rich water through folds of skin; a smaller kind steals what drips from them. Flat-bodied hunters wait in the cracks. When one strikes, the others make room without a cry.
+
+Their movements give the place a busy, almost tidal appearance, but it remains nearly silent. A claw ticks against stone. A drop falls. In this thin air, even a struggle seems to happen at a distance.
+
+The animals have found a use for the loose chips of fresh rock. Several of the larger ones hold a chip against a weeping wall, letting water collect along its edge before drinking. They leave it when they go. Nothing in the cleft has been built, and the next cloudfall may scatter every chip.
+
+The stranger changes are harder to watch. A drop sometimes lands in a pool before it leaves the wall. An animal rounding a corner may show its far side first. Along one narrow band of stone, the crowded creatures cast shadows in different directions under the same noon sun. They do not hesitate there. A hunter places its feet where its prey will be; the prey slips into a crack a moment before it opens.
+
+Cloud passes, and the walls begin to weep more heavily. Heat rises from below while cold mist pours over the rim. For a little while the two meet exactly in this small, high place, and every surface—stone, shell, bare moving skin—shines with water.

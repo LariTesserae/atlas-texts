@@ -1,0 +1,7 @@
+I would be under a loose plate, where the rock holds the day’s heat after the air has cooled. For a long while, there would be no reason to move. The underside is damp against my back. A pale root passes through the crack beside me, and beyond it lies another shelter, and another. I know the way between them by touch.
+
+The vent’s thrum reaches me through the stone before I can hear it. Later comes a slower tremor: the herd crossing a step somewhere above. I wait while the plates click beneath their feet. Sometimes a foot presses close enough to darken the narrow opening overhead. When it lifts, the opening is wider. There may be a new hollow to drink from by morning.
+
+I am small enough that a wing’s shadow can cover me whole. My back is black and uneven, like a chip the wind has not quite worn smooth. At night I climb onto the pale leaves to scrape at their edges, keeping one foot against the crack. At a crossing I stop, even when I am thirsty. Something larger waits there often enough that I have learned the shape of its stillness.
+
+On a mist night, water gathers out on bare stone. I can smell it from the shelter of the leaves. I go farther than I usually dare, then hurry back with the last of the herd’s lights passing below me. By dawn I am beneath the plate again. Above it, the plateau looks empty; underneath, a drop is growing slowly along the root.

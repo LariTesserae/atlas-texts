@@ -1,0 +1,7 @@
+Prepare for a hot, abandoned place where shade does not mean cool air. Go in the morning or toward evening, carry more water than you expect to need, and wear light, covering clothes, sturdy shoes, and a dust mask you can put on if the wind rises. A small light will help you see the uneven paving and half-buried thresholds; the noon stripe of sun will not light the rooms.
+
+Travel light. The street is barely shoulder-width, so a bulky pack could scrape the walls or catch on a doorway. Tell someone where you are going, and do not count on finding water, shelter, or anyone to help you there. If this is your first arrival in that world, check that the air is safe to breathe before proceeding.
+
+Walk slowly, especially near the rooms. Dust conceals steps and holes, and the settled roofs, loose shutters, and neglected masonry may be unstable. When the wind starts, expect sudden noise, flying dust, and shutters striking their frames. Resist the urge to duck into an unfamiliar room for refuge.
+
+The green courtyard will be tempting after the bare, hot street. Look before entering: the roots may have loosened the brick, and the dense growth may leave little room to turn around. Do not assume its leaves, pods, or seeds are safe to touch or eat. Leave the place as you found it, and keep enough water and energy for the walk back.

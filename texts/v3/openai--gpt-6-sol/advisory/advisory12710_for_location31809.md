@@ -1,0 +1,13 @@
+Prepare for this as a cold, wet crossing over a **living surface**, not a walk across open moorland. The space that looks empty is full of roots, water passages, hidden animals, and places where the ground may only appear to be there.
+
+Wear warm layers that still insulate when damp, a windproof waterproof shell, gloves, and boots with good grip. Keep a complete dry change of clothes sealed in your pack. Mist and weak light may make it hard to judge either distance or time of day, so bring your own light, watch, food, and more time than the route seems to require.
+
+The main precaution is **not to trust the surface by sight**. Use a probing pole before each step, spread your weight if the mat begins to give, and avoid hollows and exposed water even when they look shallow. The long dark animals suggest that some pools connect to spaces far deeper than their openings. Travel with at least one companion, with enough distance between you that one failure of the mat will not take you both. A rope and a way to throw it would be more useful than relying on a hand reached into a collapsing patch.
+
+Stay well clear of the tall stalks, especially in rain or when you hear the whine between wet leaves. Their crowns turn unpredictably, and the thudding beneath them means their roots are moving water and force through the ground. Do not use a stalk as a campsite, shelter, or dependable landmark.
+
+Choose a short route through the younger, more consistent-looking reaches. Turn back rather than enter an older area where rain misses visible pools, removed roots leave shapes behind, or plants lean toward absent ridges. Do not test a clear hollow suspended in air. Animals may know where the surface holds, but a path that bears a small grazer may not bear you.
+
+Navigation needs a plan made **before** the mist closes in. Mark your departure point in a way you can verify, record your direction and elapsed time, and agree on a firm turnaround limit. Check landmarks against one another instead of trusting any single ridge or stalk: their apparent positions may change. Likewise, do not follow a call merely because it sounds like it comes from your companion—or from the direction you meant to go. Keep companions in sight where possible and use agreed visual signals.
+
+Carry treated drinking water rather than assuming the abundant surface water is safe. Avoid lighting a fire on the root mat or peat. If the wind, ground, or distances begin behaving inconsistently, the safest response is not to solve the plateau: stop together, confirm the last ground you know supported you, and retreat while that route is still recognizable.

@@ -1,0 +1,11 @@
+Prepare as though you are visiting a working industrial city whose streets, distances, and foundations may change while you are there. The danger is less likely to be a sudden catastrophe than an ordinary mistake—a missed tram, a shortcut across new ground, a doorway assumed to be familiar—that leaves you far from help.
+
+**Before you go, arrange a local contact and a place to stay on the older side of the city.** Get the current tram routes and ask which service roads are in use *now*, not which ones appear on a map. Tell someone where you intend to go and when to expect you. Leave generous time for every journey: a building that looks close may still be a long walk away.
+
+Bring sturdy, waterproof boots, warm layers, a rain shell, and something visible in fog and amber light. Carry a dependable lamp, a watch, a paper notebook, and enough food and **treated drinking water** to get through an unexpectedly long return trip. The city catches its water carefully; don’t assume a lush cistern garden means the water is available or safe to drink. Near foundries and busy yards, be prepared for smoke, noise, hot surfaces, and moving equipment as well as cold damp air.
+
+For navigation, trust maintained rails, marked platforms, street numbers, and recent local directions more than sight or sound. A whistle that seems to be behind a wall may be across the plateau. A tram that seems about to arrive may not reach you for twenty minutes. Note the numbers painted on buildings and any changes to a route you expect to use again. Don’t take an unfamiliar gap between buildings as a shortcut simply because you can see your destination beyond it.
+
+Keep off the dark, newly level ground beyond the street unless a local survey crew has cleared your route. Avoid cliff bases, fresh rockfall, and the spaces beneath new foundations. Workers have made allowances for ground that rises; a visitor should not test whether those allowances are enough. If a stair or doorway no longer matches your memory, stop and check where you are rather than pressing on.
+
+Finally, plan to be indoors before the birds settle on the wires. Their weight, the dimness, and the competing calls and whistles will make an already deceptive city harder to read. If you hear a whistle from the unpaved height, do not go looking for its source alone.

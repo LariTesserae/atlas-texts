@@ -1,0 +1,7 @@
+I would find myself near the far end, where the mineral seep clouds the water and the newest tubes are still soft at their rims.
+
+At first I might mistake the pale coating on the stone for a place to settle. Then the water would clear, and I would come out to graze it: a small amphipod, nearly transparent, with legs quick enough to carry me under a tube-worm shelf when a brittle star’s arm reached through the gap.
+
+I would know the crack in distances no longer than my body. From the seep to the shelf. From the shelf to a hollow where the tide leaves a few edible grains. I would not know which passage led toward the sea until the current began to pull that way. Some days the hollow would be full of sand. Some days a shell would close above me and turn the familiar route into a dead end.
+
+I would stay because the tube grew over my hiding place. Its maker would be raising a wall around itself; for me, that wall would become a roof. I would keep it open a little by passing through, brushing loose grains aside as I went. Neither of us would be building a city. But by the time the rim hardened, there would be a narrow way beneath it that had not been there before, and something smaller than I am might find it.

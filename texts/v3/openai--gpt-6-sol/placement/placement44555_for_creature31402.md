@@ -1,0 +1,7 @@
+I think I would first be found under the press-house floor, listening to the motor. Not because I know it best, but because I am still learning which sounds belong to it and which come from the roots pressing against its housing. I would have a wrench beside me and a bit of chalk for marking places to check again.
+
+At first I might think my work was to keep the machinery clear of the buildings. There would be a root nudging a shaft out of line, a twig worrying at a window frame, leaves collecting where the belt needs to run. Some of those I would cut. Then I would come back a month later and find the roof bearing its weight on a branch I had almost taken away.
+
+So I would become the person sent to look twice. I’d loosen a shoot from a hot pipe and tie it where it could grow; I’d also cut one that was pulling a gutter toward the drying racks, even if it had taken years to reach that far. I would get some judgments wrong. The others would know where I’d worked because the knots were too tight at first, then a little too loose.
+
+In dry weather I’d be easiest to find at the end of the day, when the belt had stopped. I would stay beneath the roof for a few minutes, watching for a drop from the gutter and listening for the bird. By morning, if there was water on the gravel, I’d go up the ladder and see what had moved.

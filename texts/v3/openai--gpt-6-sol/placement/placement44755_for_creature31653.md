@@ -1,0 +1,9 @@
+At first I put myself beside the windbreak, with the scoop in my hand. It is the obvious place for a person: someone has already chosen it, and the water is close. But I would keep looking toward the drop, trying to make the far peak stay one distance away. I would be a visitor, even if I came back often.
+
+So I leave the scoop where it is. I move down to the lowest stone of the windbreak, where a little grit has collected behind it and a flake of lichen lifts from the rock. There, I think, I would be a beetle.
+
+Most of the hollow would be beyond any journey I needed to make. I would know the underside of that stone, the dry passage along its edge, and the place where the passage ends in moss. Cloud would reach me as a change in the ground: the lichen softening, a bead of water filling a pit that had been empty. When sun returned, small flies would rise from the wet seam. I might venture out then, keeping close enough to the stone to get beneath it quickly.
+
+The goat would announce itself through its hooves. A person at the scoop would make the whole shelter shift with the scrape of a stone or a misplaced foot. Neither would know I was there. A small bird might. Its light landing would be the one I had to recognize at once.
+
+I would not see the valley or follow the swifts. The cliff edge, only a few paces away to someone drinking water, might as well be another country. My place would be smaller and more exact: a strip of grit that stays dry, a wet boundary that moves with the cloud, and the narrow space beneath a stone that somebody set down long ago for reasons other than mine.

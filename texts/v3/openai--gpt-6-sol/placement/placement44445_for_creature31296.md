@@ -1,0 +1,9 @@
+At first, I would be hard to find. Look in a trough where the grit is still damp but the water has gone. There is a dark ridge on either side, close enough that anything with wings must pass overhead. Along one wall, a shell has the same worn curve as the stone. Wait, and it will move.
+
+I would be one of the flat-shelled crawlers, small enough to wedge myself into a seam and large enough to leave a clean track behind me. One edge of my shell would be chipped. I would know the basin less by its distances than by which cracks feed me, which troughs hold water longest, and where a long-legged hunter can reach down without putting a foot in the grit.
+
+Most of my life would be slow work. I would press my mouth to the sharp-smelling stone and scrape away the nearly invisible film. Another crawler might come from the opposite end of the seam. Neither of us would turn; we would climb over each other, shells knocking, and carry on.
+
+Then the blow would travel up through the floor. I would feel it before the droplets began to fall. For a moment I would stop scraping, with my legs braced against both sides of the trough. When the water came, I would climb—not away from it, but high enough to keep my hold. Fresh wet stone would open around me. Things swept in from below would stir the hunters, and the air above would fill with turning wings. I would work along a ridge that had been dry for hours, taking what the water left there.
+
+When the flow sank away, I would settle again into a narrow place. I might leave a trail across stone I had never crossed before. By the time it dried, other trails would run over mine, and there would be no reason for anyone to pick it out. I would still know where it led: to a crack with a sharp smell, and a little dampness left in the grit.

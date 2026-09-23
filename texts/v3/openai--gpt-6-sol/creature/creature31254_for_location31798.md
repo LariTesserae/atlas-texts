@@ -1,0 +1,7 @@
+The court’s most numerous residents are difficult to see one at a time. Lift the cistern lid and the pale flecks underneath begin to move: springtails, each scarcely larger than a grain of mortar. They gather where the wood keeps a little dampness in the stone. At a touch, some spring away and vanish; others remain among the fine threads of fungus they feed on.
+
+The spiders live a few inches higher, where fern stems give their webs an anchor. A moth can spend the whole day on the wall without seeming to occupy it, its wings held so flat against the limewash that only its shadow gives it away. Beetles use the old repairs as doorways. The wedges of slate leave spaces too small for a fingertip but wide enough for a hard, narrow body to turn inside.
+
+There are snails, too, though they travel only on the dampest nights. By morning they have withdrawn beneath the jar or into the mortar line below the sill. Their paths end abruptly at the dry stones, as if they know exactly how far the court’s scant water will carry them.
+
+No one of them rules the place. They live in separate measures of it: the underside of a lid, the span between two leaves, the depth of a stair joint. The person who clears the drain may never notice most of them. Still, each visit changes their world a little. A cut ivy stem lets light reach a web; a reset stone closes one passage and leaves another. By the next cold morning, something small has found the new opening.

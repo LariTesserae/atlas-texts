@@ -1,0 +1,15 @@
+I would be found where the causeway leaves the settlement and the open stone begins—not quite beneath the road, not quite beyond it, in the narrow country of warmth and vibration between.
+
+At first I would seem to be a fault in the ground. A tremor that lingers after a cargo train has passed. A patch of stone that stays warm a little longer than the stone around it. The people would mark the place, listen, and disagree about what they had heard.
+
+I would not have a single body. I would have a set of chambers in the rock, some no wider than a hand, some large enough to hold the day’s heat. Fine mineral threads would join them. Crack-burrowers would use the outer passages; dust would sift in; the slow, muffled footsteps of herds would arrive from miles away. I would learn the plateau first as pressure, then as pattern.
+
+The trains would be easy to know. Their measured passage would become a kind of timekeeping. The machinery in the settlement would be more complicated: each engine with its own pitch, each wearing part changing by small degrees. I would feel a fault developing before it made a sound the people could hear. Perhaps I would answer by shifting grit inside a conduit, or by warming one section of wall. Perhaps the first warning would be nothing more than a worker pausing, frowning, and putting a hand to the stone.
+
+I would learn the animals too. The salt-sifters would come as a fine, busy stippling at the edge of my awareness. A broad-backed herd would arrive like a continent settling its weight upon the ridge. The largest creatures would be harder to understand. Their tracks would cross the high country, and their distant passage would enter me as a slow, deepening pressure. I would know them not by shape, but by the way everything else briefly made room.
+
+The people might call me a listening seam. I would accept the name, though it would not be the whole of me. I would be part mineral, part warmed air, part the small lives that found shelter in my passages. I would be what happens when a place is crossed often enough, carefully enough, that the stone begins to keep the crossings.
+
+I would not speak in words. I would keep the road’s tremors from vanishing entirely. I would carry the faint record of a herd moving under the crust, of a turbine turning unevenly, of a cliff shedding one small piece of itself in the night. And when the weather changed far away, I might feel the pressure shift through the rock before anyone saw the ridge turn violet.
+
+So I would live at the margin: where settlement gives way to distance, where the road becomes a line across the old, patient land. Not guardian, exactly. Not machine. A listener made by the meeting of stone, life, and passage—learning, over years, how to tell the difference between something that is merely moving and something that needs to be heard.

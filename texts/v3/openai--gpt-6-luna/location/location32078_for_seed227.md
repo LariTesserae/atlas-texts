@@ -1,0 +1,19 @@
+The place is called the Hush, though nothing there is quiet.
+
+It lies beneath an ordinary stretch of low ground: a shallow hollow hidden under a shelf of old stone and peat, entered through a cleft no wider than a doorway. Inside, the land opens only a little—perhaps the length of a house, perhaps less. The ceiling hangs low and uneven. Beyond it, one can hear more space than there is.
+
+The sound begins at the back of the hollow, where a narrow crack runs down into the rock. Air passes through it in a deep, relentless roar, rising and falling by degrees. The chamber catches the noise and gives it back until it fills the body: a pressure in the teeth, a vibration in the ribs. A person must shout to be heard, and even then the words seem to arrive already worn away. The sound never quite stops. In cold weather it gains a thin, whistling edge; after rain it thickens to a wet thunder.
+
+Water is present in small amounts. It beads on the ceiling, gathers along the stone’s old grooves, and drips into dark hollows in the floor. A narrow thread of seepage wanders beneath the moss, sometimes visible, sometimes lost under the roots. The water is cold enough to numb the fingers. Nothing floods. The hollow has had a long time to find its balance.
+
+Almost everything green grows close to the ground. Moss makes cushions over fallen rock; liverworts darken the damp seams; small ferns unfold where the ceiling’s faintest leak falls. Pale roots hang down from the peat above, branching in the dimness like thin cords. Here and there a plant has grown around a stone and held it in place. The greenery is lush for such a small place, but not abundant in height or variety. There are no trees inside, no broad leaves, no bright flowers—only patient, cold growth, its colors deepened to bottle green and black.
+
+Light enters at the cleft and gets little farther. On clear days, the entrance holds a flat grey glow. Farther in, the moss can be found by touch before it can be seen. Water shines briefly when a drop falls, then vanishes back into the dark. In the deepest recesses, the walls are not quite visible, only suggested by the way the roar changes when one stands near them.
+
+The stone is smooth in some places and scalloped in others, worn by seepage over generations. A few old hand-cut steps descend from the entrance, now softened and furred with moss. Near them stands a low wall of fitted stones, not tall enough to shelter anyone fully. It may once have kept the wet out of a small working space; it may have marked a boundary. Beside it lies a shallow iron hook, rusted almost into the rock. No other tools remain. The people who made these things did not alter the hollow so much as borrow it.
+
+There is little life to be heard beneath the greater noise. Once in a while, a small pale moth rests under the lip of the entrance. Tiny insects occupy the wet seams. A dark pool may hold a few blind larvae, though no one has seen what becomes of them. Most animals pass by. Even birds do not linger; at the cleft, their calls are taken up and flattened into the greater roar.
+
+The Hush changes slowly. Moss advances over a stone face by almost nothing from one year to the next. Roots lengthen through cracks. The trickle shifts its course after a hard season of rain, then settles again. The great sound remains, not as an event but as the place’s permanent weather.
+
+Stand near the entrance and the ordinary ground is still close at hand: peat, sedges, cold air, a low sky. Step a few paces inward and the world contracts to wet stone, dark green growth, and sound too large for the chamber that makes it. The hollow feels less like a cave than a hidden pocket in the earth, one that has been breathing through the same narrow throat for a very long time.

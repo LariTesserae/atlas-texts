@@ -1,0 +1,7 @@
+From the rim, I would probably look for myself among the grazers. They are the only shapes large enough to pick out. But I think you would find me much closer to the ground, in the dark mark one leaves when it lifts its mouth from a seep.
+
+I would be a small, flat animal that can fold into a crack. In dry weather I would stay there, pressed against the stone, scarcely using the water I have kept. A grazer’s jaw plates would wake me before its shadow reached me: a long vibration through the rock, then the softer scrape of lichen coming loose. I would wait until the great pads had moved on. What its mouth left behind—damp grit, loosened black threads, a little brine—would be enough for a meal.
+
+I would know some of the animals by the intervals between their steps. The young ones would be harder to miss: too much stopping and starting, their pale pads set down inside the older prints. I might travel a short way behind one such pair, from crack to crack, while the stone stayed wet. No farther. A basin is immense at my size, and a season can pass beneath one ledge.
+
+When the moisture went, I would close myself into the rock again. You could stand over me and see only a narrow black line. I would be there when a drop finally found its way down the channel, though I might not move until the next heavy jaw touched stone.

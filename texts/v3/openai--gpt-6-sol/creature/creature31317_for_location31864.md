@@ -1,0 +1,9 @@
+At first it is difficult to tell where an animal ends. The small, shining backs appear in one seam and vanish into another; the bodies hanging under the iron frames have legs threaded through their neighbors’ legs. When one moves, several move with it. A pale stalk bows, its comb is stripped, and a half-dozen flat heads turn toward the sound.
+
+The hooked head beside your boot belongs to one of the larger ones. It comes out farther when you keep still. Its body is broad and thin, with joints that let it fold almost edge-on to the stone. Black grit clings to the grooves of its back. Beneath its head are two short arms, too small to carry it, which work patiently over anything they find: a fallen thread, a chip of stone, the shell of a smaller animal. It tests each thing, then either draws it into its mouth or pushes it aside.
+
+The hanging animals are the loudest, but they are not the largest. Deep in the old machine, beyond the turning wheel, something heavier shifts its weight. The grind falters for less than a breath. Every rasp under the frames stops; even the ticking in the seams thins out. Then the wheel catches again, and the calls return one by one, each to its old place.
+
+You wait for whatever moved to come into the amber light. It does not. Later, as your eyes adjust, you make out a limb laid across the machine’s base. What you took for a length of conduit has six close-set joints and a row of worn hooks. It lies motionless through several turns of the wheel. A small creature walks across it without being caught.
+
+Here, even the largest animal can wait. Food arrives a thread at a time, or crosses a seam by mistake. The day’s heat passes down through the ceiling and retreats. In the dark part of the machine, the hidden body eases the wheel around again, and the others answer with their rasping. You cannot tell whether they are calling to it or simply keeping time with the sound that has always filled their room.

@@ -1,0 +1,11 @@
+Prepare as though you are visiting an active industrial site whose walkways may not lead where they appear to lead.
+
+**Arrange access and a guide before descending.** Speak to the people who maintain the route, tell them where you intend to go, and agree on a return time and meeting point. Follow their current instructions rather than painted arrows: the arrows have been revised for a reason. Do not enter a crossing simply because you can see your destination on the other side. If you emerge somewhere unexpected, stop at a safe place and ask for help instead of trying to undo your route by intuition.
+
+Wear a helmet, sturdy non-slip boots, and clothing you can layer. The air is cool, but the light is strong and reflected off white surfaces; bring eye protection and sunscreen for exposed skin. Gloves will help on wet steel, though handrails may be slick. Carry drinking water rather than relying on the clear basins, and keep food sealed away from the animals and industrial residues. A small light is useful for inspecting a step or grate, but do not expect shadows or illumination to tell you reliably where an edge is.
+
+Move slowly near gaps, gantries, rails, and grilles. Freight cradles are easy to mistake for stationary equipment; never step onto a track or through its clearance space. Assume belts, indicator wheels, and other apparently still machinery may be moving. Condensation can make a stair slippery even when it has not rained, and the late-afternoon cooling brings more water onto the metal. Plan to be back on the upper road before then, especially on a first visit.
+
+Keep your distance from the birds, lizards, drainage basins, and creatures under the grates. They belong to a functioning little ecosystem, but its water and food sources are not necessarily safe for you. If you feel a pressure change in your ears, treat it as a possible site signal: pause, look to your guide or the workers, and do not assume that silence means nothing happened.
+
+Most importantly, leave time to get out. In this valley, a short-looking walk need not be a short route. Carry a way to contact your guide, note where you actually emerge from each crossing, and turn back while you still have ample daylight—not when the ridgeline merely looks close.

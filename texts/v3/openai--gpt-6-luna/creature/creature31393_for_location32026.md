@@ -1,0 +1,21 @@
+Nothing here trusts a boundary for long.
+
+The moss takes hold first, darkening the sharp stone until it can be gripped. Then come the low, tough plants, their roots finding cracks and stitching the gravel together. Willow follows the water’s latest guess at where a channel ought to run. Its roots dangle into the current and catch leaves, feathers, and small drifting lives. The basin is always being built and unbuilt, and its oldest inhabitants are not those that endure unchanged, but those that can begin again quickly.
+
+Under the mats of vegetation, small animals work through the wet dark: pale burrowers in the soft banks, many-legged things among the stones, narrow fish nosing into fresh channels before those channels have learned their own names. When the water rises, the burrowers climb. When it falls, the fish vanish into root-wells and hollows so slight a person might mistake them for puddles. The ground is full of such evasions.
+
+The larger animals move according to a geography no map keeps. Marsh birds stand among the reeds with their heads turned into the rain, then burst up all at once when something passes beneath the water. Along the firmer ridges, the broad-hoofed grazers travel in loose, quiet strings. Their feet spread their weight across the yielding ground; their trails fill with water almost as soon as they have passed. Young ones stay close to the adults and learn which patches of green conceal firm earth, and which conceal a sudden drop. At night, heavier bodies move through the pools. Sometimes there is a splash. Sometimes only the reeds bow, and rise again.
+
+There are hunters too, though the basin rarely gives them a clear view. Long, low shapes wait where channels narrow, hidden beneath overhanging leaves or in the black water between stones. They know to remain still when wind shakes the reeds, and to move when thunder covers the sound. Even the smallest creatures seem to listen—not for silence, which never comes, but for changes in the roar: a stream striking a new bank, rain beginning on a different slope, the brief hush before a gust.
+
+The people who live here have learned the same kind of listening.
+
+They do not speak of the ground as stable or unstable. They speak of what it is doing. A path is “holding” or “loosening.” A shelter is safe until the water begins to taste of clay. A familiar pool may be called by the name of a tree that no longer stands beside it. Children learn to read the reeds before they are trusted to cross a channel alone. They watch for the subtle lean that means a current is pulling at the roots, and for the circles on the water that show where a new spring has opened below.
+
+The shelters are small, raised on dark stone, and set where the wind is broken by rock or young trees. Their walls shed rain rather than resist it. Lines in the material glow faintly when the buried anchors adjust, drawing the structures a fraction deeper or easing them back from a shifting bank. The inhabitants mend little by hand. They maintain the devices instead: clearing silt from sensing slits, checking the pale pulses along the towers, listening for a change in the low vibration that means an anchor is taking strain.
+
+Their machines do not command the basin. They keep a conversation with it. A tower measures the rising water and changes its stance. A crossing opens wider when the current presses hard, then narrows again when the load passes. The people’s paths are therefore never quite roads. They are agreements—dark strips of porous stone laid where the ground has, for now, consented to hold.
+
+At dusk, lights appear in the wet country. Some are the thin, deliberate glimmers of instruments; others are lamps behind shelter walls. Between them, smaller lights travel over the pools: insects lifting from the reeds, or beads of moisture catching the last grayness of day. From a distance the basin looks inhabited by a few scattered sparks. Up close, it is crowded with lives: feeding, burrowing, climbing, nesting, repairing, waiting out the next surge.
+
+No one here expects to own the same ground tomorrow. They expect instead to find it again—altered, perhaps, but still legible if they pay attention.

@@ -1,0 +1,11 @@
+The town occupies a shallow basin no wider than a few streets. Its outer wall is low and unfinished, ending abruptly in sharp lips of pale clay. Beyond it lies a level expanse of dark mineral powder, empty as far as the dim light allows. There is no road leading in. The streets begin at the wall and turn inward, as though the town has only recently decided where its edge should be.
+
+Its buildings have doorways but few roofs. Their walls stand close together, with narrow passages and little courts between them; some are no taller than a person, while others rise to the height of a nave. Up close, the masonry is not laid in courses. It is grown in thin, curling sheets, one edge sealing to another. A new sheet has a keen rim and a faint sheen. Older ones are matte and hard. Nothing here has had time to be rounded by weather.
+
+The builders are mostly out of sight. Beneath the basin, colonies of pale, rootlike organisms draw salts and carbon-bearing gas through the clay. At the surface they lay down mineral around their growing tips. A wall is the record of one colony’s advance; an arch forms where two advances meet. They have no plan that lasts beyond the next obstruction, yet the results look uncannily municipal: repeated thresholds, blind alleys, a little square where several walls have stopped short of one another.
+
+The air is cool and thin. No cloud crosses the weak, steady glow overhead, and there is no water to gather in the square or soften its corners. Sparse black tufts grow along the newest seams. They are stiff rather than leafy, and lean toward openings in the ground. Once in a while a small, jointed animal comes out to scrape at a tuft. It stays still for a long time afterward, difficult to distinguish from the clay.
+
+The town is active, though it gives almost no sign of it to the ear. A seam slowly brightens as fresh mineral reaches it. Powder creeps across a doorstep, drawn toward a vent, then reverses when the vent exhales. In a courtyard, a slender wall has begun to bow across a passage. By the next dimming of the sky it may touch the wall opposite and make a roof. Elsewhere, a doorway will close.
+
+There is no hammering, no footfall, not even the hiss one expects from the vents. You can stand in the little square and watch the town alter itself in silence, its empty rooms becoming more numerous around you.

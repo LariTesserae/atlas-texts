@@ -1,0 +1,35 @@
+The high country begins where the ordinary world seems to have been rubbed away.
+
+It is a plateau above the weather, though “above” is not quite right. The land rises in immense pale shelves, each one level for miles, then ends abruptly in a cliff so tall that its bottom is lost behind bands of suspended stone. From the rim you can see other plateaus at other heights, aligned across the horizon like the steps of a stairway built for something too large to climb. Between them is no valley and no visible sky-depth, only a cool, colorless distance in which the layers of the world seem to have been placed one behind another.
+
+The rock is ancient beyond the age of mountains. It has been ground smooth by a force that left no sand, no dust, no riverbeds. Its surface is hard and finely grained, the color of old bone, ash, and unpolished tin. Here and there it has split into plates, but the cracks are shallow and rounded, as if they have been waiting so long that even fracture has grown tired. The highest ridges are not sharp. They have the blunt, worn shape of things that have endured after every violent process ended. Some are so broad and flat that a person can walk for a day without seeing their edges.
+
+There is no water. No dampness gathers in the hollows, no frost softens the stone, no mist rises from the depths. In some places the rock bears pale rings and branching stains that resemble dried lakes, but they are marks of pressure, not of water. A cup set on the ground remains exactly as it was placed. Nothing evaporates from it; nothing condenses inside. Even the air seems to have forgotten what moisture is.
+
+The light is ordinary, and for that reason unsettling. It falls evenly across the shelves and cliffs, without glare or shadow strong enough to suggest a sun. The sky is a flat, thin blue-gray. At times a soft brightness moves across it, but the light on the ground does not change. There are shadows beneath the animals and beneath the scattered structures, yet the shadows do not point in any direction. They are simply the dark undersides of things.
+
+Vegetation is scarce, but not entirely absent. Low, stiff growths appear in cracks: black-green fans of leaves, or clusters of red filaments pressed close to the stone. They have no visible roots. A few are shaped like grasses, though none bend in the wind. They are spaced so far apart that they do not form patches or meadows. Each seems to occupy its own small permission to exist.
+
+The animals are everywhere.
+
+At first they look like stones: squat, pale bodies with many folded limbs, crowded along the edges of shelves and packed into every shallow depression. Then one shifts a fraction, and the whole plateau becomes legible as life. They are stacked in layers—under one another, over one another, threaded through cracks, crowded on the backs of others. Narrow-headed creatures cling upright to the cliff face, their bodies flattened against it like old marks. Great, slow-backed forms sit at the rims, extending far beyond them, while smaller animals pass through the spaces beneath their ribs. Some have too many legs; some appear to have none until they move, and then their whole bodies ripple forward without changing shape.
+
+They make almost no sound. When they do, it is a dry tick, a faint scrape, the softest click of hard parts meeting. The sounds seem to arrive from the wrong distance. A creature beside you may scrape its shell, and the noise comes from somewhere across the plateau. Far below, a mass of animals may shift, but the silence remains whole.
+
+Their abundance does not produce movement. They do not hunt, feed, or flee in any recognizable fashion. A thousand jaws remain open without consuming. Long feelers rest against the backs of neighboring creatures. Occasionally one animal is absent from a place it occupied; there is no sign that it left. The animal next to it has simply expanded to fill the space, without moving.
+
+The same stillness governs the land. Nothing is falling from the cliffs. No stones roll. No wind stirs the sparse plants. The animals do not age in any visible way, and the worn surface does not wear further. The plateau has reached its last condition and stayed there. Even the dust lies too evenly to have been laid down by weather.
+
+Scattered across the shelves are small constructions made from the local stone. They are primitive in their proportions: low walls, rings, narrow doorways, platforms, and occasional towers no higher than a person. No two are alike, though many seem to have been made with the same few hand tools. Some have roof slabs balanced precariously on their walls. Others are only a single doorway standing by itself, opening onto bare ground. The stone of these structures is not newer than the surrounding plateau. It is just as old, just as smooth, but arranged into forms that suggest a brief, forgotten effort.
+
+There are no paths between them. Nevertheless, each doorway frames something: a distant shelf, a cluster of animals, an empty stretch of rock. Looking through a doorway can make that thing seem much closer. Sometimes it seems to occupy the space beyond the threshold, though the view from beside the doorway shows it unchanged and far away. A person who steps through arrives where they expected to arrive, unless they were looking at the door while doing so. Then they may find themselves standing beside the same doorway, facing it from the other side.
+
+The greatest distortions are quiet ones. A ridge may be visible on the horizon from every point on a shelf, always at the same apparent distance. Walk toward it for an hour and it does not grow larger; turn back and the place you left is no nearer. Yet a traveler can reach it by walking without watching it. The cliffs sometimes show strata that repeat in exact sequence: a pale band, a dark band, a pale band, the same tiny notch, the same fossil-like impression—again and again, at scales both larger and smaller than the eye can resolve.
+
+The animals are part of these repetitions. One may pass a line of them and recognize, with certainty, the same individual at intervals along the line. Not its likeness: the same creature, with a small chip in one side of its shell and a dark mark like a closed eye. It is simultaneously in each place. None of the animals appear concerned by this.
+
+Beyond the plateau’s last visible shelf, the world does not end. It becomes difficult to decide what “beyond” means. There are further heights, further pale expanses, further packed populations. The whole region seems open and immense, but its distances have the closed, composed quality of a room that has been arranged once and never disturbed.
+
+The air is cool against the skin. It carries no scent of soil or decay. If you stand still long enough, the crowding becomes almost unbearable—not because anything approaches, but because there is nowhere in the landscape that is not already occupied: by animal, by stone, by an old structure, or by the idea of another shelf waiting beyond sight.
+
+And still, there is room to walk. The paths are simply not made of empty ground.

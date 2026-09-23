@@ -1,0 +1,11 @@
+At first, I would look for a place in the open water. There is room there to turn, and enough current to bring food without searching for it. I might be one of the clear swimmers behind a broken course, holding my place with fins so fine they scarcely show. I would learn the shape of the eddy: how far I could dart before the fast water took me, how quickly the pale back of a great animal could lift from a ridge and leave a feast in the space beneath it.
+
+But I think I would end up under a plate.
+
+Not deep beneath it. I would live at its upstream edge, where a narrow opening lets the current comb through. A soft body could hold there without spending itself against the flow. Food would arrive in small, irregular amounts: living dust, something dislodged by a many-legged animal, a scrap carried down from the terraces above. When the stone knocked, I would draw back into the joint. I would know the knock through my whole body before the swimmers outside had scattered.
+
+I would be one of the small builders, though most of my life would not feel like building. I would be feeding, sheltering, pressing myself into the best part of a seam. Where I held fast, I would leave a little pale material behind. On some days silt would settle against it; on others the current would take away the softer edge. Another body nearby might lay down a darker lip. Neither of us would mean to make a wall. We would only make the opening a little narrower and more useful to ourselves.
+
+For a long time the plate above us would still move. Each strong current would shift it a fraction, and its underside would show clean for a moment before it came down again. Then one day it would settle against what we had laid there and stay. I might not notice that day. I would notice that the water through our joint had slowed, and that smaller creatures had begun to gather just outside it.
+
+So I would be hard to find. Look for me where a loose plate has almost stopped ticking: not on its broad surface, but at the new, uneven line where it meets an old block. I would be the soft thing withdrawn behind that line, catching what passes. Part of the pale lip would be mine. The shelter it makes would already belong to others.

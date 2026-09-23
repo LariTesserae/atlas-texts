@@ -1,0 +1,7 @@
+Prepare for this as a **deep-sea expedition, not a dive**. An ordinary human cannot survive exposed on that seabed: the water is cold and dark, and the pressure may be far beyond the range of recreational diving. Establish the depth and conditions first, then visit in a crewed submersible rated for them. If a suitable vehicle and surface support team are not available, explore by remotely operated vehicle instead.
+
+Plan the visit around the moving silt. Bring powerful lights, but expect them to illuminate suspended grit rather than distant landmarks. Use sonar and navigation instruments; a ridge that is visible one moment may vanish in a sediment cloud the next. Keep the vehicle clear of the bottom where possible. Its thrusters could erase visibility, and apparently firm gravel may overlie clay into which a landing foot could sink.
+
+Arrange continuous contact with the surface, a tracked route, reserve power and life support, and a recovery plan that does not depend on seeing the vehicle from above. Allow for currents that change direction around even the low rises. Outside the hull, there will be no daylight and little to orient yourself by—only short views of settled stones, drifting sediment, and, perhaps, a crab holding its place against the water.
+
+Go slowly, and leave the bottom as you found it. The sparse life here has few sheltered places, and a careless landing or sample collection could disturb more than it first appears.

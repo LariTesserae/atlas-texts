@@ -1,0 +1,7 @@
+The place is no larger than a cupboard, though it has no door. It lies a step below the surrounding pavement: a shallow, open-topped court with its floor, walls, and lip fitted from thousands of small clay pieces. Their edges meet so closely that dust has nowhere to settle except in the shallowest worn hollows. There is no exposed earth, and no gap wide enough to put a finger into.
+
+The clay was once painted. Abrasion has taken the colour from the high points and left blue and chalk-white deep in the joins. Even the worn places look old: each corner has been rounded to the same patient curve. Nothing is broken or waiting to break. A few pale, dry rosettes cling to the seams, so flat against the wall that they might be part of its pattern.
+
+Sunlight enters directly from above. It fills the little court with a hard brightness that gives off no warmth. The clay stays cool under a palm. At its centre, the floor sinks by scarcely an inch into a tight spiral of tiles, a basin made without any provision for water.
+
+The sound is much larger than the space. Air passes through narrow passages behind the walls and makes one continuous, coarse note. It does not rise or fall. In here, a person must lean close to hear another speak, yet the rosettes do not stir and no grit crosses the floor. The court has held its shape for so long that its noise seems less like something happening than another material from which it was made.

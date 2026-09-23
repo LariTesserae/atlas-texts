@@ -1,0 +1,15 @@
+The Hush is inhabited, though not in any way that can be pointed out.
+
+At first, its resident seems to be only the roar: a pressure in the stone, an endless exhalation through the crack. Then, standing long enough in the dark, a person begins to notice that the sound is not quite the same everywhere. Near the low wall it deepens. By the iron hook it thins, almost to a note. At the back of the hollow, where the rock closes around the fissure, it gathers and turns—not stopping, never stopping, but seeming to attend.
+
+The thing that attends has no face. It may have no single body. It lives in the seams where water darkens the stone, in the pale roots that hang from the peat, in the moss that holds fallen rock as if remembering where it belongs. Fine threads—root, fungus, something else—run between them. They are too small to see unless the light catches a bead of water on them. They have been there longer than the steps, longer than the wall. Perhaps they were there before the hollow had a name.
+
+It does not move as an animal moves. Nothing darts or stirs when a visitor enters. Instead, the place alters by degrees. A drip comes from a different point. A patch of moss lies flatter. The roar changes its weight against the ribs. If someone speaks, the Hush takes the words apart: first their edges, then their meaning. The resident may be doing this, or it may simply be what the resident is—a slow, distributed listening, spread through stone and root and damp.
+
+It has no need to see. It knows the world by what touches it: the trembling of a boot on the old steps, the warmth of a hand against rock, the small shock of a moth settling beneath the entrance. Rain tells it of the weather above. Frost puts a bright, thin strain through its passages. A voice reaches it as vibration, briefly distinct, then softened and folded into the greater sound.
+
+The little lives in the wet seams belong to it, perhaps. Or perhaps they belong only to the dark. Blind larvae turn in the pools; insects thread the moss; the pale moth rests where the entrance light fades. The resident does not hunt them. It does not shelter them exactly. They are simply among the things that have found a way to stay.
+
+People who visit sometimes leave with the impression that the Hush has heard them. Not understood them. Not answered. Heard them in the patient, impersonal way stone hears water: taking the mark of each passing thing without needing to keep its name.
+
+And when the visitor climbs back into the ordinary air, the hidden life remains—rooting through the damp, holding its small pocket of earth together, listening through the crack. The roar goes on around it, as constant as weather. Perhaps the roar is its breathing. Perhaps it has been breathing there so long that the distinction no longer matters.

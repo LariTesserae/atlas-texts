@@ -1,0 +1,9 @@
+I would be hard to find from the rim. Most days I would be folded into a joint of armor on the eastern shelf, where salt gathers in a white lip and the plate above me lifts a little with every breath. From there I could feel the great animal feeding: pressure in the stone, a pause, then the slow shove of its jaw along a seam.
+
+I think at first I would believe the plate was my country. I would know which edges warmed first, which held grit after the wind, which vents sent up powder fine enough to sift through my limbs. I would climb out to pick at what lodged in the joints, and at a tremor I would tuck myself beneath the next band before the body moved. A season’s travel might bring us to a different shelf without my ever seeing the slope between.
+
+But I would sometimes leave it. The great animal changes the stone behind it, and the smaller ones know the fresh places: a crust that has become thin enough to prise apart, a sealed crack with something caught along its lip. I would work there until the heat drove me under an overhang. Before entering any dark gap, I would knock against the rock. Then I would wait for an answer, because the gap might already belong to someone else.
+
+At noon I would trust the answer less than the stone against my feet. A knock might seem to come from across a gully while its maker was beneath the plate beside me. I would stay still, touch the edge of the gap, and knock once more. Perhaps that is how we live with the misplaced distances: not by solving them, but by asking again before we move.
+
+After dark, when the great animal’s tremor had passed along the shelf, I would be one of the faint knocks that followed it. Somewhere ahead, or behind, another small body would answer. I would not need to see how crowded the plateau was. I would wait until there was room, then go in.

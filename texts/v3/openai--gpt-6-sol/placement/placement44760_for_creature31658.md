@@ -1,0 +1,7 @@
+At first I would look for myself in the drops beneath the walkway. They gather while the valve is quiet, then fall all at once when it chatters. For a few seconds they sound like footsteps. But a drop leaves the district too quickly. I think I would stay.
+
+I would be one of the fine green threads inside a pale rectangle of repair mortar, just above the square’s old tide mark. Not the whole dark skin on the wall: only a strand growing out of it, held in a crack too small to see from the walkway. When the pumps lift the water, it reaches me. When it slips back, the surface dries, but the mortar keeps enough dampness underneath.
+
+I would know the pumps first as pressure in the wall. Their uneven stroke would send warm water over me, then leave me with what had soaked into the brick. Silt would settle against the growth beside me. Some afternoons the runoff would pull a little of us loose; most of it would go down the canal, but a fragment might catch in another joint.
+
+Years later, someone looking across the square would see the same old mark. Up close, they could find where I had reached the edge of the repair and entered the darker brick. I would have gone no farther than the water allowed.

@@ -1,0 +1,9 @@
+The largest thing living here is difficult to recognize as a creature. Each column looks like a separate tree until you follow its roots across the drowned stone, or look up and see one frond meeting another without a seam. The sea is held inside a single plant. Its leaves roof the water; its roots make the cup beneath it; the blue-lit paths along the floor belong to the same body as the hollow stems that roar overhead.
+
+The smaller inhabitants live at distances suited to that body. Fish hold themselves beside the columns, scarcely moving except for the fine work of their fins. Seen from far away, each is a dark mark in a great volume of pale water. Close to, their bodies are narrow and strong, made to face a current that never lets up.
+
+Beneath the leaves, grazers keep to their separate patches. Their mouths leave no visible gaps in the living skin. A leaf can seem unoccupied until an eye adjusts to its underside and finds them spaced across it: little held shapes, each with a place in the gray light.
+
+The transparent animals are harder to find. Their broad mouths face the outflow from a trunk, while the rest of them nearly vanishes against the water. What gives one away may be a faint edge around its gut, or the distortion of a ridge seen through its body. Some are larger than the fish that hang nearby. They look fragile only because so much of them can be looked through.
+
+From the valleys, the blue charge along the roots might seem to belong to some vast mechanism. Inside the sea, it lights the places where living things rest. The roar is the sound of water passing through grown chambers. Everything here has room enough to be alone and, through the plant, a place in something immense.

@@ -1,0 +1,9 @@
+The hollow is scarcely wider than a room. A winter flood lifted the turf here and set it down crooked, leaving a fresh seam in the earth. Its edges are still sharp: black peat above pale, unweathered clay, with small stones pressed into the cut as neatly as teeth. Water stands a finger’s depth over most of the floor. Where it looks like solid ground, it yields.
+
+There is little in the hollow, and each thing has space around it. Three sedge tussocks rise from the water. Moss covers their roots in thick, bright sleeves; elsewhere the exposed clay is almost bare. A willow seedling leans over one edge, its new leaves dark with condensation. Drops gather at their tips, fall, and send rings across the still patches between the sedges.
+
+The air is cold enough to sting wet hands. It smells of clay, soaked bark, and the faint mineral scent brought up when the peat split. Midges hang in a loose column over the deepest pool. A water shrew slips beneath the overhanging turf, and somewhere under the sedge a bird gives a brief, irritated call. Their movements are small, but the place never stays still: bubbles rise from the drowned roots, water seeps steadily through the raw bank, and the willow shakes whenever a heavy drop strikes it.
+
+The loudest sound does not belong to the hollow. Beyond the low ground, out of sight, an industrial plant runs through the day. Its engines make a continuous bass note; at intervals metal strikes metal, a hard sound that arrives a moment after the vibration in the peat. No pipe or fence reaches this spot. The machinery is known here by sound and by the slight trembling of the water, which shivers even when the sedges stand still.
+
+Toward evening the light goes early. The exposed clay turns grey, the moss holds its colour a little longer, and the water reflects a narrow strip of sky. Then the engines grow easier to hear, while the seep through the bank continues at its own quiet rate.

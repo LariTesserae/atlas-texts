@@ -1,0 +1,11 @@
+What lives in the courtyard is not quite a thicket. Beneath the brick, the pale blades join a single, slow-growing body. It runs through the seams in flat cords, widening wherever mortar has fallen away. A blade may rise at the bench while another opens beside the sealed door, and both will fold at dusk within the same few breaths.
+
+The part above ground gathers light. The part inside the walls listens.
+
+Its cords press against the backs of bricks and the thin partitions between the builders’ chambers. By noon, when air begins to sound through the mouths, those partitions tremble. The organism grows more thickly around some of them than others. A mason removing a cracked brick sometimes finds a smooth, pale pad behind it, fitted so closely to the hollow that it bears every mark of the clay. Left exposed, the pad dries and draws back. Given a new brick, it slowly takes that shape too.
+
+The ash-colored insects shelter in the rolled blades before morning. They eat the fine dust caught there, not the leaves, and vanish into the seams when the court grows hot. Where they pass over a fresh break, they carry away flecks of resin on their legs. Small new blades often appear along those routes years later. This may be how the courtyard’s inhabitant crosses a gap it cannot bridge underground.
+
+It has no need to make the enormous noise itself. The walls do that. Its hard leaves turn and tap in the moving air, and its hidden pads lie against chambers that hold a note all afternoon. When a channel is blocked, the blades nearest it open late. When a repair changes the note, their replacements grow at a slightly different angle.
+
+For most of its life it does very little that can be watched. It opens, folds, seals its wounds, and extends through brick too slowly for anyone to notice. In the bright afternoon, its shadows run wildly over the floor. The thing casting them remains where it has been for longer than the bench or the handcart: underfoot, in the walls, taking the shape of every passage the city has left it.

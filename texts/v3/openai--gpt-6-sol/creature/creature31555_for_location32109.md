@@ -1,0 +1,7 @@
+At first, the chamber seems occupied only by plants. The ferns crowd the basin because that is where the water comes; the pale leaves keep close to the ceiling because that is where the light is. Nothing among them lifts its head when the opening is disturbed.
+
+Given time, it becomes harder to tell where one plant ends. Roots from the basin pass under the mud and rise around the service post. Others follow the dark strip across the ceiling, thickening at its joints, where a drop may gather. A fern frond dies and folds into the shallow water; new roots work through it before it has quite disappeared. The growth has settled into every useful part of the room.
+
+The oldest part may be the low, knotted crown behind the post. Its leaves are small and almost colorless. They appear for a while in the faint light, then lie down against the stone. Fine roots from the crown reach both the damp basin and the warm rock at the back. It has nowhere else to grow without losing one of those things. When the basin fills, it takes what it can; when the stone dries, it waits.
+
+So what lives here is not quite a garden, though someone once arranged the conditions for one. It is a handful of rooted lives held together by a room that gives them water a drop at a time. Their movement is in the slow replacement of leaves, in roots finding their way around a fitting they cannot pass through, in the gradual narrowing of the little space still open beneath the ceiling.

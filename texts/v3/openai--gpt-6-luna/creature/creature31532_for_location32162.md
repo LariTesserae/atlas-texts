@@ -1,0 +1,23 @@
+The people who live in the Sump Orchard do not call themselves its keepers. That would imply the Orchard was something separate, something that could be watched over from the outside. They call themselves the people below, or simply the people who are here.
+
+There are not many of them. Their homes gather around the old sheds and the pump housings, where a little dry ground can be coaxed from the damp. They sleep close together, and close to the machines. Blankets are patched from canvas; cupboards are raised on bricks against the seepage. Each household keeps a jar beneath a dripping leaf, though nobody can say which leaves are safe to drink from without looking. The children learn by being shown.
+
+They learn the paths before they learn the names of the paths. A hand on a wall means the passage is narrowing. Three knocks on a pipe mean wait. A certain tremble beneath the soles means the pumps are about to start, and no one should be standing on the iron walkway. They learn not to reach into the root-fans, not because the roots bite, but because the roots sometimes hold things that do.
+
+The youngest are noisy until the Orchard teaches them otherwise. They chase the little frogs, lose shoes in the mud, and crowd beneath the lamps to watch the insects spiral. Then, one day, they stop shouting when the leaves turn. They stop stepping over the pale, blind fish in the shallows. They know which bats will tolerate a person passing below and which will lift all at once, filling a room with the sound of torn cloth.
+
+There is no single pump-keeper. The work passes from one person to another, and the schedule passes with it. Someone winds the belt. Someone listens at the casing. Someone holds a lamp to the gauge, though the marks have worn away. They do not know what the pumps were built to do. They know the order in which the valves must be opened, and what sound means to stop. They have been told that the instructions came from the old people, who were told by their old people. In the Orchard, that counts as a reason.
+
+The machines have temperaments, or seem to. The left pump starts reluctantly in damp weather. The turbine complains if leaves clog its intake. One engine takes a long time to warm, and for years no one has slept beside it. When it began to run again, the first to return were beetles, nosing along its heated seams. Then the green runners came, and the bats. Only after that did the people put their sleeping mats back in the nearby room.
+
+They say the Orchard is generous, though they do not mean kind. It lends a broad leaf for catching rain. It gives warmth to anyone willing to sleep beside a motor. It grows edible shoots in the brick sheds, but not always in the same place. A person who takes too much finds the patch gone quiet the following season. Whether the plants are choosing, or the soil is simply spent, no one argues for long.
+
+The animals are not pets. Still, people speak to them. They call softly to the frogs when clearing a pool, and swear at the beetles when they get into a grain tin. A woman who mends the pump belts leaves a little meat beneath the upper stair for the bats. She says they keep the biting insects down. Her grandson says they know her footsteps. Both statements may be true.
+
+There are stories of something larger in the outer tunnels. Nobody agrees on its shape. Some say it has a broad back that parts the growth without breaking it. Some say it is only a sound made by shifting water and old masonry. Once, a boy came back from the far rail pale and shaking, with root fibers caught in his hair. He would only say that something had passed close enough to warm his face. After that, for a time, everyone listened harder.
+
+At meals, the people sit close to one another and talk into the small spaces between pump-thrum and dripping water. They have ordinary quarrels: about tools, about portions, about who left a lamp burning. But their silences are less ordinary. When the whole Orchard quiets at once, they stop speaking too. They wait until the clicking begins again in the walls, until the frogs call from the pools, until the leaves settle back into their slow turning.
+
+They are not sure the Orchard hears them. They are sure that it notices when they leave.
+
+And in the deepest rooms, where the roots have grown around the old machinery until iron and wood are difficult to tell apart, there are places no one uses for sleeping. The people pass them carefully. They leave the lamps lit outside. If anything lives within those rooms, it has never asked to be fed. Yet, when the pumps shudder into motion, the roots there draw taut, and from beyond the walls comes an answering knock.

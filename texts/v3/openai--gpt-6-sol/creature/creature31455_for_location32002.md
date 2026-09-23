@@ -1,0 +1,11 @@
+The builders come up the ladder carrying clay in their mouths. At first you mistake them for clumps knocked loose from the rungs: dark, thumb-sized, shining with moisture. Then one pauses beneath the ceiling, braces four narrow limbs against the stone, and passes its load to another waiting in the room.
+
+There are more of them than the space seems able to hold. They keep to the walls and the undersides of the reed mats, crossing over your bent back rather than asking you to move. Their bodies have the grain of soaked wood. Each has a pale seam along its belly and a blunt, busy face. When they speak, they press their heads to the clay; what you hear is the faint knock of block against block.
+
+One carries the knotted cord. It stretches it across an unfinished wall while two others hold the ends, then places a new block with great care. By the time the builder returns with the pressing stone, the wall has lengthened. Nobody tears it down. They measure again, add a short return at one end, and turn the extra length into a channel for water. The work here is less like following a plan than keeping up with one.
+
+The moss belongs here too. It fills the round wounds left by falling drops and holds loose joints until they firm. The builders let it cover their feet as they work; sometimes one stays still so long that only its head remains visible. Fern roots lift the tiles, but they also bind them together. A builder will spend an hour easing a frond through a gap rather than breaking it.
+
+The pale moth on the basket is older than it looks. Its wings are worn almost clear at the edges. The builders pass close without disturbing it. When it opens them, several stop and flatten themselves to the stone. A moment later the long scrape rises through the floor, the ladder shifts, and water leaps from the ceiling. Once everything settles, the moth folds its wings and the builders go on.
+
+They live at the summit because there is always more summit to make. They sleep in the warm spaces behind the little retaining walls, with water passing on one side and sky on the other. In the morning they come out to find out which of yesterday’s walls are still where they left them.

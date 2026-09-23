@@ -1,0 +1,5 @@
+A pale crab lives beneath the valve wheel. It is small enough to fit in the recess behind the pipe, where the water hesitates before changing direction. Its shell has the dull color of the mortar. When the pumps strike, it folds its legs close and grips the brick; when the chamber quiets, it comes out sideways into the clear stretch of floor.
+
+There is nothing here for it to graze. It waits for the current to bring what the drowned streets have lost: a shred of soft matter, a dead thing small enough to catch against a seam. Its claws pick through the grit before the next surge carries it away. The lamps seem to mean nothing to it. The first tremor in the pipe is warning enough to send it back under the wheel.
+
+Sometimes its discarded shell remains there after it has grown out of it, a second, thinner crab tucked into the recess. The current finds that one eventually. The living crab stays put, pressed against the worn brick while the chamber roars around it.

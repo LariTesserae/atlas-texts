@@ -1,0 +1,9 @@
+Between two rows of houses is a court no wider than a cart. From the street it looks like a seam in the masonry; inside, it is crowded enough to feel like a garden, a passage, and the back wall of a house all at once. Steps worn shallow by generations of feet descend to a floor of fitted stones. The walls have settled against one another so closely that their old repairs—wedges of slate, thumbprints in pale mortar—are hard to distinguish from the original work.
+
+It is cold here even at midday. The houses keep the wind out, and their limewashed upper walls throw the daylight down into the court until every leaf is sharply visible. Ivy fills the joints. Ferns grow from the stair risers, and thick cushions of moss have taken the places where a foot can no longer safely go. Nothing grows very tall; there is no room. Plants occupy ledges, cracks, the rims of clay drainpipes, the narrow space beneath a door that has not opened in years.
+
+Most of the stone is dry. Moisture gathers instead in particular places: under an overhanging sill, inside a broken jar, along a cool line of mortar where water rises from below. A small covered cistern stands at the bottom of the steps. Its wooden lid is dark with age, but the stone around it is only faintly damp. The court has learned to hold the little water it receives.
+
+Many creatures live among its leaves. Tiny spiders keep webs between the stems; pale springtails collect beneath the cistern lid; moths rest flat against the limewash. Occasionally a beetle crosses a sunlit step and disappears into a joint barely wide enough to see. Nothing calls. Even footsteps from the street arrive softened by the packed greenery and the close walls.
+
+Someone still trims the ivy away from the drain and replaces a loose stair stone when it rocks. Otherwise the court asks for very little. In the bright cold, its innumerable small inhabitants seem to have found precisely the space they need.

@@ -1,0 +1,17 @@
+The place is no larger than a closed fist, though it has the crowdedness of a city seen from above.
+
+It lies inside a shell of pale fired mineral: a shallow world of courts, walls, buttresses, stairlike ridges, and narrow lanes, all pressed so close together that almost nothing stands alone. There is no earth beneath it. The ground is made ground—tiles fitted edge to edge, their seams packed with fine white grit. Low roofs meet the slopes of low walls; walls become ledges; ledges descend into hollows barely deep enough to hold a grain of dust. There is nowhere to walk without touching the architecture.
+
+Everything has been made, but nothing here looks recently made. The material might once have been soft clay, chalk, or some mineral paste, shaped by patient hands and hardened long ago. Its corners have rounded. The sharpest ridges have been worn down to a satin smoothness, as if the whole place has spent ages being gently handled. Yet nothing crumbles. The worn shapes are settled, finished: a durable landscape whose erosion has arrived at an agreement with its construction.
+
+It is cool, dry, and intensely bright. The brightness seems to come from the substance of the place rather than from a visible lamp or opening. White surfaces return light from every direction, so even the narrowest seams are clearly shown. There are no deep shadows—only thin gray lines where one piece meets another. No sun travels across the roofs. No shadow lengthens. The light is simply present, as constant as the pale material.
+
+The lanes are too tight to enter, but they are easy to follow with the eye. They wind between little towers packed shoulder to shoulder, descend into shallow basins, then vanish beneath overlapping eaves. At the lowest point there is no pool, no damp stain, no suggestion of a hidden spring. The hollows are dry and clean. A few sparse threads of gray-green lichen cling in the deepest joints, like tiny marks of handwriting. They do not spread. Nothing else grows.
+
+There are no animals. No wingbeats, scurrying, or breath. Still, the place is loud.
+
+Its sound is a single, dense ringing: not quite a bell, not quite a hum, but the collective voice of thousands of close-set surfaces. A faint pressure against the ear, bright and hard, filled with little high notes that never separate into melody. The smallest ridges seem to contribute to it. The walls do not vibrate visibly; nothing shakes or moves. The sound belongs to the arrangement itself, as if every piece were holding the same note in perfect balance. It does not swell, fade, or answer when listened to. Listening only reveals how many surfaces are sounding at once.
+
+There are no machines, wires, tools, or moving parts. The construction is simple in its means and total in its result: shaped material, fitted tightly, finished by time. The world has no loose elements to rearrange. Dust does not drift. The lichen does not stir. Even the ringing does not change the air around it.
+
+The place offers no horizon, because there is no distance in which one could appear. It is a whole landscape compressed into a single intimate enclosure: a bright, dry, low country of joined forms, complete down to its smallest crack. It feels less like a ruin than like something that was built to remain exactly as it is—and has done so.

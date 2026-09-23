@@ -1,0 +1,7 @@
+The most established inhabitants are the plants, though none has been here long enough to look settled. Ginger crowds the valve housings with leaves that gather rain at their tips. Ferns have found the cooler dark beneath the inspection hatch. The vines keep climbing after the trellises end, sending out tendrils that curl around empty air before closing on a pipe. Their roots still occupy neat, squared banks, but above the ceramic plates the garden is already less orderly than its builders intended.
+
+Smaller lives are taking hold where water lingers. A green film has begun in the seam that stays wet longest, thin enough to vanish when the plate dries. The growing medium has its unseen workers; the leaves carry whatever arrived with them, or on the rain, or in the warm air from below. They have made no visible colony yet. They are present mostly as changes in colour and texture: a dulling at the edge of a grate, a soft place on a fallen leaf.
+
+The brown moth may be the roof’s only regular visitor with wings. By day it holds still against the lamp housing, so close in colour to the dust there that it becomes apparent only when it departs. It leaves nothing as legible as the vines do. By evening, the housing is bare again.
+
+For now, life here is chiefly a matter of finding a hold. Water shows it where to begin: under a leaf, along a seam, at the turn in a channel where the first stain is forming. The roof has not yet had time to acquire many inhabitants, but it has begun to make places for them.

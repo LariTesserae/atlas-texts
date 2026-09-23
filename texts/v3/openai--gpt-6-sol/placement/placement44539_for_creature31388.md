@@ -1,0 +1,7 @@
+You would have to come down from the service bridge to find me. Even then, you might mistake me for a bit of dark mortar in the joint where a glazed brick basin meets a steel rim.
+
+I am one of the small shelled animals. My shell fits the seam closely enough that a pale foot can spread over it without crushing me. I know the tall animals by pressure before I see them: the slow weight of one standing over me, the brief double step of a young one making its way toward feed. When the weight lifts, I put out my feelers. Soft crumbs sometimes drift this far from the slot, and the newer water leaves a taste along the brick.
+
+For a while I would think of the seam as my whole place. Then I would learn its length. One end stays warm beneath a pipe bracket; at the other, a grate draws the water down so gently that crumbs catch against its lip. I would travel between them when the feet above me were still, keeping one edge of my shell against the wall.
+
+At night, I would be there when a valve knocked somewhere beyond the basins. The tall animals would turn their ears. I would draw into my shell and feel the changed trickle reach me through the joint. After it passed, we would all take up our places again.

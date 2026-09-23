@@ -1,0 +1,17 @@
+The place is no larger than a hamlet’s square, though it hangs so high above the valleys that the clouds sometimes pass below it.
+
+It is a cleft in a sheer wall of dark rock: a narrow shelf, a shallow bowl, and above them a roof of stone that leans out over the void. The cliff has been weathering here for ages. Its edges are rounded, its cracks furred with mineral deposits, and the shelf is worn into little channels by water that comes and goes. Nothing looks freshly broken. Even the loose stones have settled into their places, fitted among one another like old teeth.
+
+The hollow is dark at midday. A thin grayness reaches the outer lip, but farther in the rock closes around it, and the eye has to learn the shapes slowly: a wet shine on the wall, the pale crust of salts, the narrow black slots leading deeper into the mountain. Warm air rises from those slots. It smells of stone, feathers, and the faint sourness of many living bodies.
+
+The warmth is not the warmth of sunlight. It wells up from below, steady and patient, carrying little currents of air through the cleft. Condensation beads on the ceiling. Now and then a drop gathers enough weight to fall, ticking into a pocket in the rock or onto the shelf. After rain, water threads down the cliff face for a few hours; then the channels dry again, leaving only damp seams and dark stains.
+
+There is little green. A few tough mats of moss cling where the drips return most often. A small, silver-leaved plant grows from a crack at the outer edge, its roots disappearing deep into stone. The rest of the visible life is animal.
+
+The ceiling and every ledge are crowded with roosting bats. In the deeper slots, small pale creatures cling in close ranks, and swift, dark birds nest in the narrowest seams. The rock is patterned with them: a living texture, shifting even when the cleft seems still. Insects cloud the warm air above the damp channels. They crawl over the old mineral crusts and gather where the bats sleep. Nothing here has much room to be alone.
+
+Sound fills the hollow until it seems part of the stone. There is the constant rustle of wings, the thin chatter of birds, the scratch and click of feet on rock. Calls bounce between the walls and return layered upon themselves, so that direction becomes difficult to judge. Beneath it all is a low breath from the fissures below. When the animals take flight together, the cleft briefly becomes a storm—wings beating against the dark, bodies passing close enough to stir the hair on the skin—then settles back into its dense, restless murmur.
+
+The life here keeps to a few old rules. The outer edge is for passing through; the shadowed shelves are for roosting; the warm cracks are for hiding and nesting. Most creatures leave the hollow to feed and return by routes that follow the updraft. Water matters, but only in small amounts, and only in certain places. The moss lives where the drips remember it. The animals know the ledges by touch and echo. The mountain provides just enough warmth, damp, and shelter for an astonishing number of lives to be packed into this little chamber.
+
+Nothing has been built. There are no paths except those pressed into the dust and guano, no walls but the cliff’s own folds, no made object among the stones. The place is difficult to reach, and the animals do not need it changed. It has endured by remaining much as it is: a small, warm darkness at the edge of an immense drop, full of sound and wings.

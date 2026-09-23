@@ -1,0 +1,7 @@
+I might first look for myself at the inspection window, drawn to that wavering strip of sky. I’d stay there until the engine engaged. The knock would pass through the glass and through me, and I’d understand why almost everything in the chamber keeps close to a surface.
+
+So I think you would find me in the pipe’s shadow, among the smaller ones. I would still be pale enough for the iron to show through my belly, with only a few filings caught along my back. I’d know the warm water before I knew much else. When it arrived, I would spread my gills and brace my six feet wherever the groove offered a hold.
+
+Between strokes, I’d venture to the edge of the bare bowl. Particles settle there that the others haven’t reached, though I’d have to leave the shelter of the roots to get them. Perhaps I’d cross it once and be swept back; perhaps on the next quiet minute I’d try again. The shrimp would come through my disturbed silt, and I’d return under the weeds with another dark fleck adhering to me.
+
+In time I might be hard to distinguish from the groove. For now, I would be one of the little clear ones, learning the distance between the pipe and the roots, and how long I had before the next knock.

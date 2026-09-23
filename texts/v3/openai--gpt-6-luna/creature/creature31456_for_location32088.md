@@ -1,0 +1,19 @@
+The inhabitants are easiest to miss when looking for something that moves.
+
+A line of brick lifts from the pavement. It pauses, and the rain runs around it. Only after a long while does the line draw itself up into a narrow figure, as tall as a doorway and no thicker than a wall. Its body is made of dark clay courses, fitted so tightly that the pale seams show only when it turns. A lintel rests where a head might be. There is no face. Instead, a small basin of water sits within its chest, trembling whenever the surrounding plain shifts.
+
+It steps by making a place for its foot. The surface rises beneath it, one slab at a time; behind it, the slabs settle flat again. It carries no tools, though wedges sometimes appear along its arms, and a length of mineral cord trails from its waist, vanishing into the ground. When it reaches a wall that leans by less than the width of a finger, it stands beside it. The wall straightens. The figure becomes part of the wall, or the wall becomes part of the figure. Afterward, neither seems to remember the difference.
+
+There are many of them, though seldom more than one can be seen clearly at once. Across a basin, a dark upright may be mistaken for a pillar until it bends at the middle. On an empty terrace, three figures appear as a row of unfinished posts. They do not hurry. They gather where the land has made a question of itself: at an uncertain slope, a seam that will not drain, a doorway whose opening leads only into more wall.
+
+They have no homes apart from the spaces they leave unfinished. Beneath platforms are long chambers with low ceilings, warm and dry even when the rain runs upward outside. In these chambers, the figures stand very close together, their courses touching, their hollow chests filled with still water. They may remain there for hours, or for the length of a season. No one can tell when they sleep. The seams of their bodies grow pale in the dark, then dim again.
+
+They communicate by altering what is nearby. A figure may set one foot down and make a canal bend. Another answers by lifting a low ridge several inches above the plain. Their conversations travel across immense distances through brickwork: a succession of minute shifts, each too small to hear, until an entire quarter has changed its position. Sometimes they gather around a pool and let the reflected stars fall across their water-filled chests. Then, for a while, nothing moves.
+
+New ones come into being when a structure has reached a point of indecision. A corner rises from a flat surface. The corner lengthens; a lintel settles upon it; narrow courses gather underneath, as if the ground were remembering how to stand. At first the figure cannot leave the spot where it formed. It has no cord, no wedges, no basin of water. It learns by watching the rain choose its direction. Afterward it walks.
+
+They do not seem to build toward any final design. They test the plain. They make an opening and discover that it is full of wall. They lay a foundation, wait, and sometimes fill it with warm water instead. Their work may be deliberate, though what they intend is difficult to separate from what the land intends through them.
+
+When one is no longer needed, it does not fall apart. It grows still at the edge of a platform and becomes a support, a lintel, a step. Rain gathers in the hollow of its chest. The mineral seams close over. Somewhere else, a new figure begins to rise.
+
+At night—which is only the name for the dimmest part of the cloudlight—the residents move across the broad plain in slow, almost invisible adjustments. From far away they look like fresh construction. Up close, they look like construction that has noticed you looking back.

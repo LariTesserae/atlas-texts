@@ -1,0 +1,21 @@
+At first, the movement looks like wind.
+
+A patch of dark groundcover lifts, though the sedges around it are still. Then it moves against the gust, slowly and low, and the weave of green parts around a blunt, wet back.
+
+The shelf-menders are the largest animals on the uplands, though “large” means only as long as a person’s arm. They have squat bodies and four jointed legs set wide apart, with broad, fringed feet that spread their weight across the soft plant mats. Their coats are dense and dark, stippled with pale grit. Bits of moss and fine sedge cling to them so persistently that, when they rest, the living cover begins to blur their outline. They do not carry gardens on their backs, exactly; they simply move through a landscape that catches at everything.
+
+Most of the time they are hidden in the vegetation or under its lifted edges. They feed by rasping the thin green films from wet stone, then cropping the tender shoots along the margins of pools. A group of them leaves the plateau looking almost untouched: a few stems clipped, a film of water disturbed, small shallow channels where their feet have pressed through the mat. Over seasons, these paths become easier routes for runoff. The animals make their living in the work the plants are already doing, and, without seeming to intend it, help the water find its way.
+
+They are not herd animals, though several may gather where a stream crosses a shelf and the food is rich. Adults keep a little distance from one another. Young ones stay close to the warmest pools, their feet still too small to cross the open stone safely. They hide beneath overhanging mats and emerge only when the wind slackens. On calm mornings, a person might see them drinking: noses lowered to the water, eyes half-covered by clear inner lids against the glare.
+
+They hear little over the roar. Instead, their feet are sensitive to vibration. A sluice gate shifting, a pump changing pitch, a person’s steps on the service track: each travels through the stone and the saturated mat before it reaches them. The shelf-menders pause at such signals, flattening themselves until they resemble a tangle of wet roots. If the sound continues, they slip away beneath the plants. They do not flee far. The open ground offers few places to go, and they have learned that most disturbances pass.
+
+Their voices are quieter than the water. They communicate with soft knocks made by the forefeet, a pattern felt more than heard: a single tap to say *here*, two close together to answer. In the wettest hollows, the signals pass through the mat from one hidden animal to another. A person beside them hears only the stream. The animals know when the whole shelf is occupied.
+
+Small life fills the spaces the shelf-menders leave. Insects hover above the warmer pools, and tiny pale larvae thread through the green films. Birds come and go low over the sedges, appearing briefly as dark marks against the stone. Their calls vanish into the great continuous rush. Beneath the water, fine organisms cloud the pools with bubbles; after rain, the surface seems to breathe.
+
+The machines have become part of the animals’ map. Shelf-menders avoid the bright, bare ground around the station, but they sometimes gather beneath its raised concrete feet, where leaks keep the mat warm. They drink from condensation on the pipes and graze the growth that collects around the outflow. The machinery gives them no command and no shelter they could not eventually find elsewhere. It is simply another local condition, like a ledge or a seep: loud, steady, and worth approaching cautiously.
+
+There are not many of them. A sighting may be no more than a hollow opening and closing in the green, a tremor traveling through a patch of sedge, a line of small prints filling with water. Their scarcity suits the scale of the place. They do not fill the uplands with activity. They pass through them, leaving the faintest adjustments behind: a clipped edge, a widened runnel, a little more room for water to gather.
+
+When the wind rises, they disappear. The mats lie flat, the pools brighten, and the whole shelf seems empty again. Only the service equipment continues its even thunder. Beneath it, under the wet green skin of the stone, the shelf-menders wait for the next quiet interval.

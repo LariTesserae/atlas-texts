@@ -1,0 +1,7 @@
+At first I would look for myself in the wavering layer above the ledges. It holds the shape of a blade after the blade has bent away, and for a moment I might mistake that borrowed shape for a body. But the warm water carries it off. I think I would live lower down, where the likenesses come from.
+
+There is a black splinter on one of the gentler shelves, its top furred with a thin green film. Beneath its sharp lip, I am a grazer no wider than a fingernail. My shell is dark enough to disappear against the stone; its rim fits the uneven surface closely when I draw myself in. I can wait there through the bright hours while the blades lean over me and the fish passes somewhere among them.
+
+I come out to feed when their shadows lengthen. The film yields to my scraping mouth without lifting from the rock. I follow its edge around a point, across a narrow plane, then back again, leaving a clean track so slight that new growth will cover it. A loose fragment lies a little farther on. It has begun to turn green, but I have not crossed to it yet.
+
+The nearest warm seam is only a short crawl away. Its water makes the fronds beyond it split and meet again. I cannot see the whole ridge from under my lip, though on clear days the shelf opens ahead of me into a long reach of blades and lit black stone. I know my small part by touch: the notch that catches my shell, the roughening film, the safe way back beneath the splinter. Above, the false floor trembles. Below, there is still rock enough to learn.

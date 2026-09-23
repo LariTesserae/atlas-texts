@@ -1,0 +1,11 @@
+At this height the town fits inside a shallow bowl of stone. You can see its far wall from any of its streets: a pale, nearly vertical lip above the roofs. The ground looks newly exposed, all blunt uplift and clean fractures, with little of the rounding that rain will give it in time. Along one crack, a strip of earth is thin enough that the pale rock shows through the roots.
+
+The streets are paved, but broad gaps have been left between the houses. There is a market square with six empty stalls, a stairway serving three roofless terraces, and a row of clay cisterns set on stone feet. Most of the building was done with fitted rock, timber pegs, and patient hands. No cart could manage the steep path into the bowl; even the long beams must have been carried up.
+
+Greenery has taken every space the builders did not close. Ferns stand waist-high in the gaps between steps. Moss thickens the cistern rims, and a dark-leaved vine crosses a doorway without quite obscuring it. The plants drink from water close under the stone. After rain, the walls bead and the cisterns fill; on clear days a few seams continue to weep. The air stays cool enough that wet wood takes a long time to dry.
+
+It is louder than an empty place should be. Wind comes over the lip and runs through rows of clay vents, making a low, uneven note. Loose wooden shutters knock in answer. Somewhere behind a wall, a steady drop strikes the bottom of a jar with a sound you can hear across the square. When the wind pauses, the dripping seems louder still.
+
+Only one bird is usually visible, a small dark one that visits the market roof and leaves before anyone gets near. There are signs of people instead: fresh cord on a gate, a swept threshold, bundles of cut stems drying beneath an eave. Whoever tends the town has been here recently, though the streets may remain vacant all morning.
+
+From the upper stair, the bowl appears almost complete. Up close, its edges tell another story. New steps end against uncut stone; a wall has foundation blocks but no courses above them. In one vacant plot, seedlings grow around the stakes marking a house not yet begun.

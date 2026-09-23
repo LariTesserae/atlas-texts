@@ -1,0 +1,11 @@
+At first the square looks uninhabited. Then a dark speck crosses it, stops at a worn place in the leaf, and disappears through a seam too narrow to see from standing height. Another follows. The visible town is mostly the space between its inhabitants’ journeys.
+
+Inside the walls live soft-bodied grazers, pale from feeding in the folded dark. The smallest thread their way through the sweet layers without leaving a mark. Larger ones make the stems swell as they turn. They come out dusted with pollen and enter another hall wearing a different scent; in that way, their meals help the town grow. The old corners are not quite the same from season to season, though every new fold finds the familiar line.
+
+The roaring belongs partly to this traffic and partly to the town itself. Moisture moves through the stems. Hollow chambers tremble. Insects rasp in the stalks above the crossings, while burrowers strike the leaf below. A creature standing in a lane hears all of them together, far louder than their small bodies should allow. The burrowers seem to know who is approaching from those vibrations. They begin to drum before a foot falls, and pause when it passes overhead.
+
+The water grooves have their own watchers: little hunters with their mouths pointed uphill. Condensation brings insects down to them, though it also brings them close to the folds that can shut. Some learn to snatch and retreat. Others are caught. For a while afterward, that part of the wall is still.
+
+Birds use the square differently. They arrive in quarrelling bursts, drink if a cup has held the rain, call toward sounds they cannot locate, and lift away again. They leave no paths. The creatures within the masonry have made those, crossing so often that the living leaf has grown thin and smooth beneath them.
+
+Of all the inhabitants, the town is the one most often overlooked. It feeds the grazers, catches the hunters, holds water briefly for the birds, and keeps opening its familiar lanes. Now and then it seems to shift a call ahead of the creature that made it. Whatever the animals hear, they continue toward it, finding the old crossing underfoot.

@@ -1,0 +1,11 @@
+At first, the garden appears to be inhabited only by plants. That impression lasts until someone stays still long enough to notice that a root crossing the passage has lifted away from the steel. It does not reach for the light. It turns toward the swimmer’s hand.
+
+The numbered cartridges each hold a separate stem, but their roots have grown together behind the frames. Where they meet, they form pale, soft knots that contract slowly, passing a change in pressure from one wall to the next. A leaf flattened against the roof folds along one edge. Hours later, fronds near the floor make room for a body that has been in the passage all along.
+
+It is scarcely distinct from the growth around it. Four long limbs anchor it to the frames; fine roots trail from their joints and enter the same gaps as the plants’ roots. Thin leaves run down its back, opening to the lamps when daylight fades. Its face is smooth except for two dark patches beneath the skin, which turn toward movement without seeming to focus on any one part of it.
+
+It tends the garden by remaining in contact with it. A clogged intake draws one of its limbs close. Leaves shading a smaller stem ease apart over the course of an afternoon. When a rack advances, it waits beside the settling foliage, holding a frond clear of a keen steel corner until the last movement stops. The welds remain clean because it has never tried to break them. It has learned every allowance in the machinery, every space left for water to pass.
+
+There may be several of these bodies. One sometimes rests upside down beneath the glass, its leaves indistinguishable from those pressed there. Another can be made out below the gridded floor. They respond to one another through the roots, so slowly that it is difficult to tell where one creature’s attention ends.
+
+At the far wall, none of them goes near the immaculate seam. Roots spread across the glass and stop short of it. A body may rest there for days, held among the stems, facing the clouds below. When the light changes, the leaves turn first. Much later, it turns with them.

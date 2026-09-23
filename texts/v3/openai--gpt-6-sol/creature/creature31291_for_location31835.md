@@ -1,0 +1,9 @@
+At first the city seems to belong to the birds. They stand in the gutters on legs too fine for their bodies, their long beaks pointed at the pavement, waiting through the hours when nothing falls. Just before the sound changes, they lift their heads together. The first drops shake from the leaves; then the curb opens. The birds drink quickly from the narrow places the devices cannot reach.
+
+Other lives keep less visible schedules. Lizards sleep in the warmth held by the black road and run for cover when the deeper note begins. Insects shelter under the broadest leaves, though a pulse often dislodges them. Pale roots occupy the towers floor by floor. Some descend through empty windows; others enter cracks so narrow that only their tips could have found them. The vines prosper most where condensation runs from a ledge or a sill. Across the dry stretches between towers, few of them venture.
+
+There may once have been people here. Balconies remain, and windows, and a road wide enough to carry thousands of them. Nothing now crosses it in their fashion. Its markings are kept bright, its gutters emptied, its edges extended into the grass. The small curb devices take their share of water even when birds are standing beside them. Whatever tends these things does not appear to look up.
+
+Below the streets lives the source of the note—or part of it. It takes a long time to change its pitch. When it does, every loose frame answers, and the flocks hidden high in the towers go quiet. The sharper sound travels outward after that, finding one tower and then the next. Water falls. Leaves turn. For a moment the city is full of movement, though almost nothing has changed its place.
+
+By evening, the new road ends in the field as neatly as the old one began. Grass grows against its warm edge. A bird might land there tomorrow and wait for a gutter that has not yet been made.

@@ -1,0 +1,8 @@
+Prepare for a city where **water, rather than traffic, sets the pace**. A street that is easy to cross in clear weather may become a channel during a shower, and stone can remain slick long after the sky brightens.
+
+- **Wear shoes with reliable grip** for wet steps, mossy paving, and rounded thresholds. Bring a light waterproof outer layer, warm layers for the windy heights, and a way to keep documents and electronics dry. A small umbrella may be less useful in the wind or narrow streets.
+- **Allow extra time to get anywhere.** The city is broad, its terraces may look alike, and rain or mist can hide distant landmarks. Carry a map you can use offline, and note bridges, courtyards, and higher routes on your way in.
+- **Treat open basins and channels as working infrastructure.** Watch where the water is going before crossing; after heavy rain, take a higher route rather than wading through a flooded square. Don’t leave bags or other obstructions near drain mouths.
+- **Choose lodging above the lowest courts**, if you can, and ask a local which approaches stay passable in storms. Keep drinking water of your own until you know which springs or cisterns are safe to use.
+
+Expect damp clothes to dry slowly. Plan for pauses under roofed passages when a shower reaches your district, even if sunlight is visible across the city. Most of all, move attentively: residents know the familiar bends of the water, but a visitor may not yet recognize which quiet-looking stair will be wet underfoot.

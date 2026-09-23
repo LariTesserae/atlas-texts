@@ -1,0 +1,9 @@
+The place is a landing no wider than two outstretched arms, tucked between the last row of buildings and the mountain they are fastened to. Its floor is black stone, cut while the rock was still sound enough to hold a sharp edge. Fresh pale chips remain in the joints. There is no soil in them, and nothing growing. Above the low parapet, only a strip of sky is visible, bright with cloud.
+
+Water is everywhere on the landing, though there is little of it at once. It beads on the underside of a handrail, runs down a seam in the cliff, and gathers in a shallow channel across the floor. The channel has no visible outlet. Whenever it fills, its surface draws flat and sinks through the stone, leaving behind a brief white rim of ice. A minute later, water begins collecting again.
+
+The buildings keep this corner just warm enough for that cycle. Their pale wall panels shed heat into the masonry in narrow, controlled bands; between them, the stone is cold enough to catch frost. Meltwater, ice, and condensation each occupy their allotted few centimeters. A maintenance mark on the wall shows where the rock shifted after the landing was made. The gap below it is still clean and angular, but a flexible joint has already taken up the movement.
+
+The city is close without being loud. A door opens somewhere below, admitting a murmur of voices that ends when it seals. Farther away, a vehicle passes with a faint pressure in the handrail rather than a sound in the air. Most of what can be heard here is water: an occasional drop striking the channel, then the small tick of ice loosening.
+
+There are no planters, no windblown seeds caught against the parapet. Once, a small bird lands on the rail, looks into the narrow space, and leaves. The landing goes on changing without it: a seam darkens, the channel fills, the frost retreats along the warm edge of the wall.

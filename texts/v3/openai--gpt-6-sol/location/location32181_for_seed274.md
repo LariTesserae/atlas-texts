@@ -1,0 +1,9 @@
+The place is a shallow hollow in the limestone, no wider than a few houses laid end to end. Its roof is low enough in places to make a person stoop. Daylight enters through a narrow break overhead, but little of it reaches the floor; the water below holds a dull grey reflection rather than a view of the sky.
+
+Almost every surface is occupied. Rounded limestone bosses press against one another, with dark seams of water between them. Salt has thickened along the edges of the seams and filled the smallest pits in the stone. There is no open stretch of ground. To cross the hollow, you step from one worn high point to the next, or put a foot into warm water of uncertain depth.
+
+The water rises through the rock and leaves by a low notch at the far end. It moves steadily enough to keep the stone wet, but too slowly to show a current except where it narrows into that outlet. The air is warm and close. A drop falls from the roof now and then; otherwise there is only the faint, continuous sound of water passing over stone.
+
+Nothing green grows here. The light is poor, and the seep leaves a crust of salt wherever it dries. Near the entrance, someone has set three flat stones into a rough crossing. A small clay cup rests in a niche above the waterline, its rim chipped and its inside furred with mineral deposit. Neither the crossing nor the cup looks recent, though both remain usable.
+
+The hollow has the settled shape of a place worn for a very long time. Water has rounded the steps and cut its narrow way out; new salt gathers on old salt. Occasionally a small creature passes through the strip of light at the entrance. Most of the time, there is no movement here beyond the seep and the drops from the roof.

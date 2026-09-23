@@ -1,0 +1,7 @@
+The power would wait through several turns of the wheel before touching anything. What looked like a yard in need of clearing was also a way of living, and it would not mistake a crowded path for a wound.
+
+It would notice, though, where the water rose after rain and had nowhere to go. At the foot of the wall, between two bricks that roots had not yet claimed, it would make a narrow, low opening. Water could pass through slowly into the marsh. It would not be wide enough to drain the pools or draw the soil away from the leaning wall.
+
+For a while the yard might seem unchanged. The valve would bark. Leaves would tap against leaves. But after heavy rain, a little water would leave, carrying loosened silt and the remains of leaves that had lain too long beneath the living mat. At the opening, light and moving water would keep a small space clear. Perhaps the snail would find it. Perhaps other small creatures would come in from the marsh. Perhaps the roots would close it, and the power would have learned that the yard preferred its old course.
+
+It would leave the flywheel alone. It would leave the roots in the casings and the stems in the stair. And when the power went away, the place would still be recognizably itself: crowded, loud with drops, advancing one tooth at a time. It would simply have one small way to let something go.

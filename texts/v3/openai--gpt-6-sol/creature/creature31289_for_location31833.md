@@ -1,0 +1,9 @@
+At first the place seems to belong to the plants. Each clump keeps to a fracture, leaving the bare rock between them untouched. The broad leaves shade their own roots; the finely folded ones hold rain in hundreds of small creases. When the afternoon pool rises far enough to reach a clump, its outer leaves lift a little. By evening they have lowered again.
+
+Much smaller things live in the silt. They are hard to see until the water has gone: clear threads that draw themselves into knots, specks that creep toward the shelter’s shade. Most vanish into the seams before the stone dries. The translucent flies spend nearly their whole lives here. They hatch, rest on the ceramic ribs until their wings stiffen, and sometimes leave no trace but an empty skin beside a ring of mud.
+
+The three posts are less easy to account for. The openings in their surfaces change even when the air is still. They close where water touches them and open a little higher up; later, as the pool drains, the pattern travels down again. Silt catches in some of the spaces and is released from others. A person can watch for an hour without seeing anything that resembles a mouth or a limb, yet come away with the sense of having watched something tend itself.
+
+The shelter is used rarely. Its floor is dry enough in a storm, though an old pool ring may darken around the sitter’s feet. No one has left food there, or bedding, or a name cut into a rib. The bird that visits does not stay. It takes the flies quickly, with the unease of a creature exposed on a bare height.
+
+So the plateau has no single occupant. It holds a few rooted plants, brief generations in the silt, and three posts whose moving spaces may be their own life or room for a life too small to distinguish. Through the hottest part of the day, water rises around them. At dusk it gives the stone back to the heat, and what lives there waits in the cracks for tomorrow.

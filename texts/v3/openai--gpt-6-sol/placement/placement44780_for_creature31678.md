@@ -1,0 +1,9 @@
+At first I think I would stay near the shelter. It is the only place that admits a person might need to stop. I would put a hand against one of its scratched walls and wait for the tower’s note to change, trying to tell a fresh mark from one worn smooth by years of grit.
+
+But I don’t think I would remain there. The shelter faces the bowl, and the useful thing to know is what happens before the wind reaches it. I would spend my days along the path, learning the small advance signs: which crown begins to close first, whether the grazers tighten into a band or simply climb, how a turning shaft feels in the stone before its sound changes. I would get things wrong. I would reach the shelter with grit in my sleeves and another abandoned line to add to the wall.
+
+Eventually I would be the person who waits halfway across.
+
+There is a low marker there, almost lost in the polished rock. I would stand beside it when the air allows and watch people set out from either end. When a tower begins to turn, shouting would be useless. I could point to the tree that folds lowest, or put both arms out to tell someone to stay where they are. Most of the time I would have no message. I would only be watching, as they were, for the leaves to move.
+
+I would not call the bowl home in the way the trees can. I would still need to leave it for water. But I would know the worn place at that marker under my feet, and the few seconds in which a person can cross from it to shelter. When I came back and found a new scratch on the wall, I would wonder who had waited there, and whether they had watched the same tree.

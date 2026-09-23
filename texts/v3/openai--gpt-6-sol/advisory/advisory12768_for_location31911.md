@@ -1,0 +1,11 @@
+Prepare for this hollow as if you were entering a cold, wet organism, not an ordinary cave. It is small, but its footing, walls, and routes may change while you are inside.
+
+**Before entering**, confirm that you can breathe the air; the smell of bark and stone tells you nothing about oxygen or harmful gases. Wear a waterproof outer layer, insulation that still works when damp, gloves, eye protection, and boots with good grip. If atmospheric safety is uncertain, use independent breathing equipment. Keep food, exposed skin, and open wounds away from the water and living surfaces. Clean your gear before entry and plan to clean it again on exit: this young ecosystem may be as vulnerable to organisms you carry as you are to its own.
+
+**Travel light, slowly, and with an exit plan.** There is almost no bare ground, and a mat of roots may conceal another mat still forming. Test each foothold gently rather than trusting its appearance. Do not cut a path through the hanging tissue or use roots as handholds; they may be delicate, reactive, or essential to the hollow. Carry your own light, but start dim. The moving blue points may be part of how the place senses or regulates itself, and a sudden bright beam might disturb its inhabitants.
+
+Mark your way with a map or a line secured *outside* the living growth, not by tying anything to it. The hollow’s edges are hard to find, and familiar leaves or water seams may move. Set a short turnaround time and leave well before you become cold or tired. Make camp outside.
+
+Give the animals space, especially the unseen larger one. The steady rasp, ticking, and pulse may make a new sound—or a sudden silence—easy to miss, so stop periodically and listen. Treat roots withdrawing, fronds folding, or grazers departing as useful warnings, even if you cannot tell what they warn of.
+
+Above all, go as an observer. Do not drink the clear droplets, collect specimens, or assume that a surface is inert because it looks like moss, ice, or stone. If the hollow begins to shift around your route, retreat gently while the way out is still familiar.

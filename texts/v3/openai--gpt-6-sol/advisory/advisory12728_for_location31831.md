@@ -1,0 +1,13 @@
+**Prepare to visit this summit as a deep-sea expedition, not a swim.** The depth is unknown, the water is violent, the rock is actively breaking, and the basin does not seem to obey ordinary distances. For an ordinary human, the sensible first visit is by remotely operated vehicle. Enter in person only if reconnaissance establishes a depth, pressure, current speed, and reliable way out that your equipment can handle.
+
+Before approaching, I would arrange:
+
+- **A pressure-rated vehicle or habitat**, with independent life support, communications, lighting, and enough reserve to survive a delayed recovery. Warm water offers no protection from crushing pressure. Ordinary scuba gear is not a substitute; at great depth, breathing gas and decompression become major hazards too.
+- **An experienced support crew stationed well away from the rim.** They should monitor the visitor continuously and have a recovery plan that does not require another person to swim into the basin.
+- **Remote surveys on multiple visits.** Map the currents and pressure, watch where released markers travel, and test whether a vehicle can cross the rim and return by the same route. Do not use the apparent width of the courtyard to estimate travel time or oxygen needs.
+- **Navigation and escape systems that do not depend on sound or sight alone.** The roar may mask impacts and communications; the dark hides the slope; and the walls remaining “just behind you” may make visual bearings worthless. A tether could help locate an exit, but only if testing shows that the currents and sharp, moving stone will not trap or sever it.
+- **A generous stand-off distance from the floor, walls, and rim.** Fresh chips are suspended in the flow, blocks are being lifted, and seams open without reliable warning. Nothing that looks solid should be trusted as an anchor.
+
+If a human entry is eventually justified, I would keep it brief and give the crew a strict turn-back time independent of how far the traveler *feels* they have gone. I would not enter the narrow stone enclosures, collect loose rock by hand, or chase the small shapes in the fractures. The upright-moving shadow and the cracks that seem to sound before they appear are reasons to document what happens, not to assume one can predict it.
+
+Most importantly, decide in advance what counts as failure: loss of a dependable route out, unexpected drift, changing instrument readings, damage to the vehicle, or a recovery delay. At the first such sign, leave. This is a place where the edge can look close while remaining unreachable.

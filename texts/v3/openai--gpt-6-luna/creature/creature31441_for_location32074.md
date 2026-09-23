@@ -1,0 +1,15 @@
+At first they seem like marks the stone has made on itself: a pale fleck crossing a ridge, a quiver beneath the skin of a pool, a small shadow opening and closing on the ceiling. Only by watching for a long time does the chamber resolve into its inhabitants.
+
+The beetles keep to the dry ground. They are no bigger than seeds, cream-colored where the light reaches them and almost transparent at the joints. Their feelers travel ahead of them, testing grit and the faint green scum at the edges of damp hollows. They eat what washes down from above and what the roots leave behind: softened fragments, dead spores, the remains of smaller lives. When they meet, they touch feelers and turn aside. There is enough room for everyone to go their own way.
+
+The crickets live in the cracks, though they seldom sing. Their legs are long and fine, made for feeling the stone’s slightest tremor. A drop striking a hollow may send them folding back into their crevices; the slow ticking of warming rock does not. They know the difference. On rare, wet nights, when new water threads down through the roof seam, they emerge to drink from the channels, their bodies held low over the stone.
+
+In the deepest hollows, the swimmers make small, clear turns. Their bodies are almost nothing but a line of movement and a pair of dark points. They graze on the film that gathers underwater, or sift among the grains at the bottom. A falling drop changes the surface above them. Before it lands, they rise and circle beneath its place—not toward food, exactly, but toward the faint pulse that reaches them through the water. Then the drop breaks the ceiling’s reflection, and they scatter.
+
+The moths are the chamber’s stillest inhabitants. They rest high above the floor with their wings spread flat, indistinguishable from the chalky stone until the light shifts and their outlines sharpen. They open and close their wings with the passage of clouds over the seam. Perhaps the warmth is enough to tell them when the day has changed. They seem to have no need to decide. They wait, and the brightness comes and goes around them.
+
+Nothing in the chamber belongs entirely to itself. The roots bring down moisture and scraps from the world above. The wet walls foster a green skin, and the skin feeds minute things, which feed the swimmers and beetles. The crickets carry their small lives through the cracks. What falls, what dies, what dries in a hollow may be taken up again. The moths, too, leave their dust against the ceiling.
+
+So the chamber has no ruler, no single creature at its center. Its life is a scattering: feet on grit, mouths at the water’s edge, bodies suspended in a pool, wings closed against pale rock. Together they make a kind of attention. They feel rain before they see it; they register a drop before it falls. They wait through long intervals in which nothing seems to happen, while the stone gathers water and the roots lengthen by a thread.
+
+And when the daylight widens, the whole small world answers—not with a stir, but with the almost imperceptible adjustment of living things to the conditions that have always been there.

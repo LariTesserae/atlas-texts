@@ -1,0 +1,9 @@
+Prepare for this as a **deep, cold-water expedition**, not a swim. At a few hundred metres down, an ordinary person cannot visit safely with recreational scuba gear. The best way to see the plateau is in a pressure-rated submersible with a trained crew, surface support, redundant life support, and a recovery plan. Human diving at that depth would require specialist equipment and extensive decompression support.
+
+Before descending, map the plateau and agree on a route back. The bright water could make distances and depth changes deceptive: a ledge that looks nearby may be a long way off, and bare rock falls into the abyss beyond it. Bring reliable depth and navigation instruments, lights, and reserves for a delayed return. Do not count on voice communication alone; the towers’ continuous noise may interfere with hearing and acoustic equipment.
+
+**Give every pumping tower a wide berth.** Its grille is an intake, and the discharge below the ledge may create strong, hard-to-judge currents. Do not approach to inspect the trembling plate, put a hand on a grille, or run a tether or vehicle near a shaft. Treat cracks and freshly edged shelves as unstable until surveyed. The lack of silt does not make the ground safe.
+
+Expect persistent cold and vibration, even where the light feels like an afternoon. Plan short observation periods, monitor the crew for fatigue and disorientation, and leave ample time and power to get clear if a current or equipment problem develops. Watch the fish from a distance; the larger hunters and the unknown film on the rock are reasons not to touch or collect anything casually.
+
+Most of all, arrange rescue **before** going down. This plateau has long empty stretches, steep drop-offs, few landmarks, and machinery whose purpose and failure modes you do not know. Visit with the ability to turn around well before curiosity becomes necessity.

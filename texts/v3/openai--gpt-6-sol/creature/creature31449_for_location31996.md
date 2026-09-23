@@ -1,0 +1,9 @@
+At first the chamber seems to belong to the weeds. They occupy the only warm corner, and everything else visits them: snails for the film on their stems, fish for shelter, shrimp for the particles caught between their roots.
+
+The thing beneath the roots is easy to miss. It lies in the current-worn groove along the iron floor, with its back pressed into the curve. From above it looks like a length of dark, waterlogged stem. Then the engine engages, the chamber knocks, and a row of fine gills opens along its sides. Warm water streams over them. Its narrow head lifts just enough to let the surge pass beneath its jaw.
+
+When the flow eases, it comes out to feed. It is no longer than a finger, soft-bodied and nearly clear underneath. Dark filings cling to its back, caught in a thin coat of mucus, so that it carries a little of the chamber wherever it goes. It noses through the silt at the weed roots and draws in what the current has brought: grit, scraps of green, things too small to distinguish in the daylight from the window. The shrimp pick over the trail it leaves. Small fish have learned that its movement often exposes something worth eating.
+
+It rarely crosses the bare iron. The pressure change before each pump stroke sends it home to the groove, where it braces itself with six short feet. There it waits through the knock while fronds flatten overhead and snails close against the plates. Once the water settles, its gills fold, its feet loosen, and it begins the same short circuit beneath the weeds.
+
+There are smaller ones in the pipe’s shadow. They have not yet gathered enough filings to disappear against the floor.

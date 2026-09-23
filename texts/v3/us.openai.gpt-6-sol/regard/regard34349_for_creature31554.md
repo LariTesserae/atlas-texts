@@ -1,0 +1,5 @@
+The power would listen first. It would hear that the knocking is not distress, and that the hollow’s openness is made by roots growing, water passing, and small creatures coming and going. It would not quiet the reeds or turn the groove into a lasting pool.
+
+Its attention would move outward, to the things that could end this place without ever finding it: a ditch cut through the floodplain, poisoned runoff, a bank raised high enough to keep the seasonal water away. There it would act. A ditch might silt up before it was deepened. Someone deciding where to put a road might notice the softer ground and choose another route. The water would still rise and fall; floods would still sometimes rearrange the roots. The power would protect the conditions, not insist that the hollow remain unchanged.
+
+Then it would leave the pocket to its inhabitants. A drop would gather overhead and fall where drops usually fell. The snail’s track would fade. A beetle would strike a stem, and the whole low ceiling would answer.

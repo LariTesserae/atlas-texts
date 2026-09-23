@@ -1,0 +1,9 @@
+What lives there is not a creature with a body, but a tenure.
+
+It is spread thinly over stone and metal: dark fronds folded into the cracks, silver-green mats pressed against the pale shelves, stiff fans gripping the ledges where a foot might otherwise find purchase. Each patch seems separate, but together they make one patient presence, grown across every surface the cavity offers. Its roots take hold of mineral grains and the corroded skins of old machinery. From the dry air it draws what little nourishment it can; from the charged rock, a steady current. It needs neither water nor warmth, and asks nothing of the narrow light above.
+
+There is no face to turn toward an intruder, no flower to announce a season, no fruit or prey. The growth does not reach or recoil. It simply occupies. Its leaves hold their angles beneath the cold glow, waxy ribs dim with dust. In the deeper shadow, the mats are almost black. On the upper shelves, pale mineral flecks give them a subdued, ash-buried gleam.
+
+The engine is part of this life, though perhaps not by intention. Its hammering passes through the rock and the rooted growth alike, a pulse too blunt to be called a heartbeat. The leaves have gathered around the casing but left its grille uncovered, as if the machine’s breath—if breath it is—belongs to the conditions of the place. The ladder and warning housing are only older surfaces for roots to grip.
+
+Nothing here visibly grows. Nothing withers. The resident has reached its full extent and keeps it: a green-black skin over a hidden mountain, held in balance by dry air, electric stone, and the engine’s unchanging thrum. It does not seem to know it is alive. It has no need to know. It remains, and the cavity remains with it.

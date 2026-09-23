@@ -1,0 +1,9 @@
+The power would arrive at a drain gate just before the tide turned, when a worker in rubber boots was trying to free it with a length of pipe. It would see the crab beside her boot, waiting for the mud to reappear, and the fish beneath the quay, holding in the current. It would understand that helping one resident badly could harm the others.
+
+So it would not make the water disappear.
+
+First, it would loosen the gate. The worker would feel it give and have time to step clear before the tide pressed through. Later, when she reported how close it had come to failing, the right people would listen. They would find that other gates were wearing thin. The power would lend patience to their arguments, and a little luck to the difficult work of paying for repairs.
+
+It would guide that work away from the old habit of pouring more concrete over every wet place. The roads people needed would be raised. The sheds would have ways to keep their wash water from running straight among the pilings. Beyond the last loading shed, where the shore was already bare mud and broken shell, a little room would be left for the tide to spread. Salt grasses would take hold there slowly. The crabs would find the new ground before anyone thought to call it a marsh.
+
+None of this would make the town dry. Rain would still lie between the warehouses; gulls would still crowd the roofs, and rats would still know the drains. But the worker would no longer have to stand in the path of a failing gate to keep water out of the road. On some afternoons she could finish her round before the tide reached the dark line on the pilings, and pause to watch the crabs come out.

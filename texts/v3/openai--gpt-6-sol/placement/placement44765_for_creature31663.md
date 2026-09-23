@@ -1,0 +1,7 @@
+I think you would find me at the back of the pumping hall, where a warm pipe enters the wall. There is a narrow collar of brick around it, too dry for the animals that wait in the gutters and too exposed for the young in the drains. From the street it would look empty.
+
+I would be one of the plated animals, but perhaps a small one that never grew quite flat enough to fit under an eave. One plate on my back would stand away from the others. Rain would get beneath it, and I would have to go to the warm pipe afterward and stay there until the seam dried.
+
+That would be how I came to know the collar of brick. It would give me something to grip while I scraped the pale scale from the pipe. The scale would collect under my feet. Each time the pump struck, a fine tremor would pass through the wall and shake some of it into the gap around the pipe. I would keep scraping. Over years, the gap would grow smaller.
+
+I wouldn’t know that water had once escaped there. I would know the brick by the reach of my mouth, the pipe by its warmth, and the pump by the moment its beat traveled through my legs. When rain came, I would lift my plates with the rest of them. When it stopped, I would settle back into my place, not quite flush with the wall, but close.

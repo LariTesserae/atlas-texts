@@ -1,0 +1,5 @@
+I would be where a root leaves the wet earth and crosses the side of a stone swell. Not on the root, where the ants travel, and not in the hollow below it, where the frogs call. In the narrow shade between root and stone, a little water would remain after the rest had slipped away.
+
+At first I might look like another bead of it. Then, slowly, I would move: a small snail with a dark, low shell, feeding on the soft growth the damp has made on the stone. I would come farther out when water dripped steadily from the leaves. When the larger birds shook the canopy, I would draw back beneath the root and wait while the drops struck around me.
+
+I would know the basin by short journeys. One night’s travel might take me from stone to leaf litter; another would bring me back along the same root. My shining track would mark where I had been until the next rain made it disappear. That would not trouble me. The root would still be there, and the shaded stone, and enough moisture between them to begin again.

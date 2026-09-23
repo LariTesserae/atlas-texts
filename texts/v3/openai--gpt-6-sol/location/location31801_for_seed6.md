@@ -1,0 +1,9 @@
+The garden occupies the top of a tower, though from inside there is no sense of standing on anything. Water fills it from the gridded floor to the glass roof. Between those surfaces, close-set steel frames carry pipes, lamps, cable trays, and ranks of plants. A narrow passage has been left through the middle, just wide enough to swim without brushing both shoulders against leaves.
+
+The water is warm. Daylight comes through the roof and reaches surprisingly far, helped by pale panels set among the machinery. Fernlike fronds grow from ceramic slots in the walls; broad, translucent leaves press flat against the underside of the glass. Their roots are held in numbered cartridges, but have escaped the cartridges everywhere, threading valves and ladders and the small gaps between plates. There is more green than metal to see at first. Only when a leaf shifts does a stamped edge or a row of identical bolts appear behind it.
+
+Everything hard here still has its first shape. Corners are keen, welds are clean, and the numbers on the frames have not worn away. Even the floor was assembled rather than laid: through its perforations are more water, more frames, more leaves. The garden is no bigger than a courtyard, yet it offers almost no empty volume.
+
+It is very quiet. Pumps move water through the walls with a tremor felt in the hand before it can be heard. Once in a while a relay gives a small click, and a rack of plants advances a fraction toward the light. Their leaves take hours to settle afterward. No fish pass between the stems; no insect works over them. Nothing here moves quickly enough to startle.
+
+At the far wall, the glass is clear. Beyond it, clouds travel below the level of the floor, concealing whatever holds the tower up. The water ends at that wall with a straight, immaculate seam. On one side, roots spread through a warm, crowded depth; on the other, open air falls away.

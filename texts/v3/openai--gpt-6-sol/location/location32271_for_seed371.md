@@ -1,0 +1,7 @@
+At this height, the hollow is hardly wider than a room. A fresh split in the mountainside forms one wall: pale stone with edges still sharp enough to catch a sleeve. Opposite it, a bank of old turf hangs over the break. The turf is crowded with dwarf willow, sedge, moss, and tight cushions of alpine flowers, all growing into one another so thickly that the ground beneath them cannot be seen.
+
+It is night. The sky shows as a narrow, slightly lighter opening overhead; everything below it is nearly black. Moisture gathers on leaves and on the cold rock, though the soil under the turf is dry and crumbly. A little water collects in a cleft, vanishes among stones, then appears farther down as a wet sheen. There is no stream.
+
+Wind comes over the rim in hard, irregular bursts. It flattens the sedge, lets it rise, then drives it sideways again. Pebbles tick down the new face. Now and then a slab shifts under the roots with a deep, close crack, and the plants tremble together. There are no calls or movements among them.
+
+Beneath the wind and falling stone is a continuous mechanical roar. A hydroelectric station lies far down the valley, out of sight; its turbines carry through the rock more clearly than they do through the air. Nothing built reaches this hollow. In the dark, the sound makes the small place seem to have an engine below it, while its living cover holds fast to a slope that has not finished breaking.

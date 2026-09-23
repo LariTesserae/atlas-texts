@@ -1,0 +1,7 @@
+Below the bathhouse is a cistern no wider than a small room. Its floor and walls are laid in new pale tile, the edges still square enough to catch a fingertip. Lime mortar shows between them in thick, uneven lines. Nothing here is bedrock: even the shallow recess along the far wall was shaped by hand, brick by brick, to hold the foot of a wooden sluice.
+
+The cistern is full. Warm water stands a little over a person’s head, with a bright, wavering ceiling where the open shaft meets daylight. Sunlight reaches the floor in moving squares. It makes each stray grain of sand distinct, then loses it when a current lifts the grain away. A few green shoots have taken hold in one mortar joint; there is space all around them. No fish pass through the light.
+
+Water enters through a clay pipe near the top of the wall. It comes in pulses as someone turns the wheel above, pushing a cool sheet down through the warmer stillness. The wheel’s wooden knocks travel clearly through the water, louder here than the voices that occasionally accompany them. Each turn stirs the shoots, washes fine white mortar dust toward the floor channel, and sets the bright squares wandering across the tiles.
+
+When the wheel stops, the chamber takes a long time to become quiet. Small bubbles leave the pipe. Sand settles. The sharp new corners reappear beneath the clear water, waiting for the next turn.

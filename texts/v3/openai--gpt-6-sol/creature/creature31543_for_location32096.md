@@ -1,0 +1,7 @@
+Most of the inhabitants live within a hand’s breadth of the ground. Ants keep their routes along raised roots, crossing wet patches on stems and fallen leaves. Beetles work beneath the leaf litter, where the bottom layer is already soft with fungus. Snails cling to the shaded sides of the stone swells, leaving narrow, shining tracks that disappear when the stone grows wet.
+
+The frogs are harder to place by sight than by sound. Some call from the leaves above the hollows; others sit at the water’s edge with their bodies pressed flat against the earth. Their young develop in pools so shallow that a fallen leaf can alter the shape of the water. Larvae feed there among drowned insects and fine debris, while long-legged hunters move over the surface. A lizard waiting on a warm patch of stone needs only to turn its head.
+
+The birds know the firmer footing. Small ones pick through the root floor, stopping often to look under a curled leaf or into a crack in the stone. Higher up, heavier birds travel between the pale trunks, briefly shaking water from the foliage as they pass. Their calls carry farther than their bodies can be seen.
+
+Much else stays hidden in the crowded middle space: insects inside rolled leaves, spiders between vine and shrub, creatures that stir the litter without breaking its surface. There is little dry ground here, but there are countless edges—of root, stone, leaf, and standing water. Life gathers at each one.

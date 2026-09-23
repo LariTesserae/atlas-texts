@@ -1,0 +1,7 @@
+At first, the ridge seems to belong to the long green blades. They stand shoulder to shoulder on the shelves, their holdfasts clenched in cracks too narrow to see. The current draws them all the same way, but they do not bend alike: some stream out flat, while others turn and show a paler underside before settling back among their neighbours.
+
+Closer to the stone, the life becomes harder to separate into individuals. Brown fronds spring from the steep faces. Soft red and green growth covers the spaces between them, spreading over edges without hiding the rock’s sharpness. A clean black point may carry a tuft at its tip and a thin living film down one side. Even the loose fragments have begun to acquire colour.
+
+Whatever feeds on this abundance keeps mostly out of sight. Small grazers could pass beneath the mats without troubling their surface; the fish that slips through the blades finds cover almost wherever it turns. Out beyond the crest there is open water and room for larger bodies, but little reason for them to stay. Here, remaining still is a good way to live.
+
+The warm seeps give the rooted growth a second kind of shelter. Around each seam the view wavers, so that a frond appears to divide, rejoin, and sway against the current. Above the ledges, the trembling layer carries the shapes of the plants away from them, laying an unsteady likeness of the ridge across the water overhead. Below it, the real blades keep growing into every available crack.

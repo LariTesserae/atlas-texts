@@ -1,0 +1,11 @@
+The cleft is inhabited by things that cannot leave.
+
+First there is the green: ferns with pale, unrolling fronds, moss dark as soaked wool, and wiry shrubs rooted in pockets too small to call soil. They crowd toward the narrow strip of sky, though most of them will never reach it. In the deepest shade they grow long and thin, their leaves nearly colorless, each beaded with water. They do not spread so much as persist—holding to a crack, a damp ledge, the gritty lip of a basin, wherever the basalt briefly allows them.
+
+They have no quiet life. Wind presses them flat, then releases them. Water arrives without warning and leaves just as abruptly. When the ridge shudders, grit sifts through their leaves and fresh chips of stone bury their roots. Some are torn away; others take their place in the same seams. The growth makes no clear boundary between thriving and merely not yet dead.
+
+Near the entrance, the pump has joined them. It is not alive, but it has become part of the cleft’s small population: squat, bolted down, and always trying to draw the water out before the stone can gather it again. Its belt jerks; its pipes knock; its engine coughs, falters, catches. Moss creeps over the bolts. The pump’s rhythm passes into the shelf beneath it, and from there into the plants, which tremble faintly even when the wind is still.
+
+Farther in, where the light gives out, the inhabitants are harder to distinguish from their surroundings. A frond folds into the dark. A wet ledge disappears behind another. Water shines briefly in a basin and then slips under the rock. Nothing watches or calls. There are no hidden animals, no life waiting to reveal itself—only growth, stone, moisture, and the machine’s stubborn effort to send some of the moisture away.
+
+Together they make a small, unsettled company. The plants cling. The pump labors. The ridge shifts beneath them, still breaking into its final shape, and all of them endure by adjusting to whatever the next gust, spill, or fall of stone brings.

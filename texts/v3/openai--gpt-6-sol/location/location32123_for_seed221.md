@@ -1,0 +1,9 @@
+High on the mountain, behind a service door scarcely wider than a shoulder, there is a landscape the size of a closet. Its cliffs are cast iron ribs; its ledges are the lips of stacked drainage trays. Nothing in it is native stone. The pale scree underfoot is ceramic grit left from the casting of the walls, and the little black precipice at the back is a row of plates set so close together that their gaps look deep.
+
+Water stands in those gaps. It beads on every bolt head and gathers beneath the trays in a cold, shallow pool. The air is wet enough to taste, though each breath feels thin with altitude. A single protected bulb gives the place a weak amber light, caught here and there by a drop or the polished back of a creature. There is almost no green: only a few threads of moss in a seam the builders could not quite seal.
+
+The walls look newly made. Their edges are sharp, their seams still show the ridges of the molds, and no channel has yet been worn by the water that covers them. They have looked this way for as long as anyone has kept the door. The pool stays at the same height. Drops hang from the same screws. A pump somewhere beyond the plates holds a steady pressure, neither filling the chamber nor letting it drain.
+
+What fills it instead is life. Small, dark, many-legged animals occupy nearly every dry surface, packed beneath the trays and between the ribs, their bodies overlapping like scales. Others cling just below the waterline. They make a sound far larger than the room: a hard, continuous rasp with a lower booming note inside it, loud enough to blur the pump and make the door tremble against your hand. At first they seem to be pouring through the chamber. Then your eyes adjust. Most are holding fast, sounding against one another in place.
+
+If you close the door, the mountain outside is quiet again. The little chamber goes on making its one immense noise.

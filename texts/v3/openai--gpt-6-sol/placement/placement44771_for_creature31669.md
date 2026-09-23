@@ -1,0 +1,9 @@
+You would pass over me on the walkway. I would be below the last concrete pad, where its square shadow breaks the faint current. A school of fish might be holding there, their noses pointed toward water that looks still. You would see them first. If you knelt, you might see a line of pale grit collected against the limestone. I would be holding some of it in place.
+
+I did not arrive as one thing. Water came in from the river with silt and scraps of leaves; water came down the pillars carrying what had fallen from the bats. In the lee of the pad, where neither flow could quite clear the stone, I took hold. I am the slippery film on its sheltered side: many small lives joined by what they make around themselves. Grains catch in it. More settle behind them. The bank begins there, though no one could say which part is mine.
+
+I would know the pump by the change it sends through the stone. When it starts, a little of the grit loosens and slides across me. When it runs steadily, water brings food close enough to take. A larva rasps a path through my brownest patch. Its trail fills slowly; elsewhere I thicken. Sometimes a crayfish reaches under the pad and pulls away a piece of the soft edge I have helped build. It leaves a fresh face for the water to work on.
+
+I would not need the lamp, though for a moment its light might find me when a fish turns the surface. I would not know the chamber’s miles. I would know this brief shelter, the drag of water along the stone, and the sharp machine cut beneath the silt. If a flood strips me from it, some of me will go between the pillars and catch again where the current slackens.
+
+For now I stay on the edge of a bank too new to have a name, holding a few grains against water that is always carrying them on.

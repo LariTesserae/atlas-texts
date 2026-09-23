@@ -1,0 +1,7 @@
+What lives there is easiest to miss when the floor is wet. At first it looks like another stain: a faint orange cloud at the seam where the water comes up. The bolts shed rust, but this does not begin at a bolt. It begins below the concrete and spreads only as far as the thin water will carry it.
+
+Close to the floor, the cloud has texture. Fine threads lie against the grain of the slab, collecting rust-colored particles until they make a soft rim. Water passes through it. Some of the threads stay, and the rim thickens by an amount too small to see in a day. It is a colony, feeding on iron brought up in the seep, living where that water meets the air.
+
+It has no shelter from the heat, though the heat may suit it. The pipe’s drops sometimes strike nearby and blur its edge; afterward the edge forms again a little farther out. At the open side, reed roots occupy the same narrow margin between concrete and ground. Neither seems to disturb the other. The rushing machinery drowns out every small movement in the recess, while the colony goes on making one: turning what the water carries into something that remains.
+
+The painted line is far above it. The colony does not reach toward the line. For now it lives at floor level, following the seam and the shallow sheet, giving the new concrete its first uneven edge.

@@ -1,0 +1,11 @@
+Beneath the seafloor is a crack scarcely wider than a hand. It has only recently opened. Its walls are dark, raw stone, their edges still sharp where they parted; pale mineral grains gather in the corners but have not yet hardened into a floor. Cold seawater fills every space. Beyond the narrow mouth lies the deeper dark.
+
+Already the crack has a city in it.
+
+Shell-bearing animals have fixed themselves along both walls, close enough that their rims nearly meet. Between them, small tube-builders have raised crowded terraces of sand grains and secreted lime. The terraces make ledges, blind alleys, and passages just wide enough for a shrimp to pass sideways. Nothing here was cut or carried by hand. Each new wall is the accumulated work of an animal making room for its own body, and each room has changed the routes available to every other inhabitant.
+
+A little light enters from above, diluted to a blue that barely distinguishes one wall from the other. Thin films of algae cling near the opening; deeper in, they give way to pale feelers, shell lips, and the faint, intermittent glow of tiny drifting bodies. In that light the city appears to build and unbuild itself. A shrimp clears grains from a passage; the next current settles more there. A tube extends by a fraction. Two neighbors close at the touch of a hunting arm, leaving what had seemed a broad way suddenly too narrow.
+
+The water is never still, though the place is almost silent. It presses inward with the tide and draws back through the crowded passages. Plankton comes in with it. Mouths open. A small fish noses into the crack and holds its position until a quick movement among the shells sends it retreating. If there is a sound, it is the faint grit of grains shifting against stone, too slight to separate from the motion of the water.
+
+At the far end, the rock opens by a hair’s breadth into another cold seam. Minerals seep through and cloud the water, then settle on the newest tubes. By the time those tubes become firm, something may have occupied the space beneath them. The crack is too small to see from outside and too crowded to remain as it was for long.

@@ -1,0 +1,23 @@
+The high country begins above the weather.
+
+Below, the mountains are ordinary enough: dark slopes, long folds of stone, snow gathered in gullies. But higher up the land breaks into a broad shelf of black rock, and the shelf breaks again into towers, shelves, and narrow bridges of stone spanning immense drops. The distances are difficult to judge. A ridge that looks close may take half a day to reach; a pale notch in the far wall may be a pass, or a rent in the world several valleys away.
+
+There is little sunlight. The sky is usually a low, unlit ceiling of cloud, and when it clears, the sun passes weakly over the rim of the peaks without warming them. Darkness settles early and stays. In it, certain seams in the rock show a dim blue-green shine—not bright enough to illuminate anything, only enough to reveal that the stone is not entirely asleep.
+
+Water is scarce in the open, but never absent. It beads on cliff faces as condensation, gathers in shallow hollows, or appears for an hour as fine rain swept sideways through a ravine. Then it vanishes into cracks. The rock is dark with old wetness, though no stream can be heard. In some places, narrow sheets of water climb the stone rather than descend it, drawn upward along mineral veins and lost into the cloud.
+
+The vegetation is unexpectedly abundant, but it keeps to the protected places. Mosses and low, fleshy plants carpet the ledges. In deep clefts, pale growths rise waist-high, their jointed stems crowded together like a stand of frozen reeds. Here and there, great mats of dark fronds hang from the undersides of overhangs, roots dangling in the air to catch mist. They bend very slowly, even when no wind is felt. Their surfaces carry a soft metallic sheen, like oil on water.
+
+Between these green pockets, the landscape is almost empty. Long expanses of bare stone separate one living hollow from the next. The emptiness makes each patch of growth seem deliberate: a green stain at the foot of a tower, a whole steep basin gone silver with lichen, a fringe of black leaves tracing the edge of a precipice.
+
+Animals are numerous, though rarely seen all at once. Small, pale things thread the vegetation and disappear into cracks. Long-legged grazers stand motionless on narrow shelves, their hooves spread wide against the rock. Above them, broad-winged hunters coast through the ravines without flapping. Sometimes a shadow passes over the land and every visible creature becomes still. There is no cry, no rush of wings. Only, later, the small tracks returning to the wet hollows.
+
+The country has a quiet, worked quality to it. Not the quiet of untouched emptiness, exactly, but the hush of an enormous mechanism running at a distance. Stone plates shift against one another with such patience that no single movement can be heard. Pressure builds in the deep seams; once in a while a cliff face exhales a plume of vapor, and the blue-green veins brighten in sequence beneath the surface. The plants respond by opening their fronds. Far below, something turns—or something simply gives the impression of turning—and a tremor travels through the plateau, too faint to be felt so much as noticed by the animals.
+
+Nothing here looks made. There are no roads, towers, or abandoned machines. Yet the mineral seams have the precision of wiring, and the tall stone formations stand in repeating ranks, as if some vast process had sorted them. The growths along the ravines conduct a faint charge from ridge to ridge. At night, tiny sparks pass between their leaves. They do not crackle; they merely appear and are gone, like thoughts shared too quietly to overhear.
+
+Weather moves through the high country in cycles. Mist gathers in hollows, the plants drink, the animals descend to feed, and then the cold dries the exposed stone again. Wind arrives in sudden, measured sweeps, passing over the plateau without stirring the sheltered vegetation. In its wake, the dark seams glow more strongly for a little while. The whole landscape seems to have inhaled.
+
+At the edge of the shelf, the land falls away into cloud. The depths are hidden, but at intervals a faint green light rises from below, illuminating the undersides of the clouds as if the mountain were lit from within. No one could say whether it comes from living things, from minerals, or from the slow industry of the earth itself.
+
+Then the light fades. The plants close. The animals retreat into their narrow shelters. The immense heights return to silence, and the high country continues its work in the dark.

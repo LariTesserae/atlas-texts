@@ -1,0 +1,9 @@
+At first the patch beneath the shaft looks like a place the current has missed. It is the colour of old iron, unevenly furred with silt, and it stays there when the dust lifts from the trenches. Then a crab comes too close. The patch draws in at its edges, and an arm reaches across the plate seam.
+
+The octopus lives beneath a loose grille beside the eastern housing. She is small enough to disappear into the trench, though when she comes out she seems to occupy much more of the room. One arm has grown back shorter than the others, with a blunt, pale tip. She uses it to feel ahead in narrow gaps. The rest of her moves over the plates without stirring the grit, changing from rust-brown to the faint speckled grey of ceramic as she crosses from one surface to another.
+
+She knows the shaft’s hesitation. At the first deep knock she grips the grille from below; at the bright rattle she lets go, and water sweeps through the space around her. Sometimes it brings a shrimp. More often it brings silt, which she gathers in her arms and pushes out into the open chamber. The fish scatter from it as readily as they scatter from the noise.
+
+She does not go far now. Fixed to the underside of the grille are several rows of eggs, each no bigger than a grain of rice. In the strips of roof-light they show faint dark points within. She keeps an arm among them almost constantly, passing water over the rows and easing away any grit that lodges between them. When a crab probes the trench, her colour goes suddenly white, then dark, and the crab backs away over the plates.
+
+After each stroke of the tide, the shaft rests. The fish gather again in the middle of the chamber. Beneath the grille, her arms loosen one by one, except for the one that continues its slow passage over the eggs.

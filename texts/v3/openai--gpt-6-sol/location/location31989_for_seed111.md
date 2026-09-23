@@ -1,0 +1,11 @@
+The gap is only thirty paces across, but there is no comfortable way to see its other side. It cuts through the summit like a crack in a newly fired pot: two walls of dark stone, sharp-edged and nearly vertical, with a strip of sky caught far overhead. The mountain has split recently enough that the faces still match. A pale seam on one wall continues at precisely the same height on the other, though empty air lies between.
+
+Down in the gap it is cool and almost dark. Clouds pass across the narrow opening; even when they thin, little light reaches the floor. Rain comes only occasionally, but moisture is everywhere. It beads on the rock, gathers at the points of fresh fractures, and drops without forming a stream. There is too little soil for much to grow. A few silver crusts occupy sheltered corners, and fine dark threads hang where a trickle has persisted.
+
+At first the walls seem shaggy with stone. Then one of the shaggy places turns its head.
+
+Small animals occupy almost every ledge: dense ranks of soot-coloured, feathered creatures with hooked feet and broad, soft mouths. They cling breast to back in the narrowest seams. Pale, many-legged things move among them, picking at the damp feathers and vanishing beneath folded wings. Higher up, other shapes hang head-down from the rock, opening their mouths whenever the wind rises. The air that crosses this summit carries clouds of tiny life from lower slopes. Here it is strained through thousands of mouths. What falls from the colony feeds the things below it. The bare stone is crowded with an ecology that has hardly begun to root.
+
+The noise is considerable, though very little appears to happen. There is a steady rasp of breathing, a patter of claws shifting on sharp stone, and a low call that travels from ledge to ledge. The crack returns each call several times. Often the animals have gone still before their voices finish passing through it.
+
+Near the bottom, their warmth makes the walls wet. Drops swell along the rows where bodies touch rock, then fall onto newly broken points and burst. Over years, those drops may blunt the edges and make a place for deeper growth. For now the fracture remains raw. The animals rest against its faces as if holding them apart.

@@ -1,0 +1,21 @@
+### The Hollow Under the Stone
+
+The place is hidden inside a crack no wider than a hand.
+
+From outside, it is only a dark seam in a low shelf of newly hardened rock, slick with cold water. Looking in, the seam continues farther than the stone ought to allow. It opens into a small submerged hollow—not a cavern so much as a pocket in the world, folded inward and kept there. There is no horizon. Every direction ends in stone, water, or the crowded green of things growing between them.
+
+The floor is a shallow basin of black silt, fine as ground leaf-mold. Fresh seams in the rock cross it like pale scars, their edges still sharp. Here and there, small plates of stone have lifted and tilted, as if the hollow were only recently made and had not yet settled into being. Water fills almost all of it. A few dimples in the ceiling trap air, but even those look uncertain: their surfaces quiver without breaking, and sometimes a bubble slips down into the water instead of rising.
+
+The water is cold, clear in one place and ink-dark in the next. It carries no current anyone can feel, yet the plants all lean in the same direction, slowly, over years. Threads of green hang from the ceiling in dense curtains. Moss pads swell over ledges; soft, leaf-shaped growths press together along the rock, overlapping until there is scarcely any bare surface left. Their color is deepest where the light fails. They have no flowers, only tiny pale cups that collect sediment and hold it without spilling, even when turned sideways.
+
+A few fronds bear drops of water at their tips. The drops never fall. They tremble there, each reflecting a different part of the hollow: one shows the ceiling; one shows the floor; one shows a narrow passage that is not present when you look directly at it. If watched for long enough, the reflected passage seems to draw nearer. The drop does not grow larger. The hollow simply becomes smaller around it.
+
+There are signs of something made here, though nothing so complete as a structure. Three flat stones lean against the wall in the shape of a doorframe. Their surfaces are worn smooth, unlike the sharp rock nearby, but they are not old in the ordinary sense: a thin skin of green has begun to cover them, and the green is already thick. Beyond the frame is only solid stone. In the water before it lies a little mound of pale sand, carefully gathered into a ridge, as though someone once marked a threshold and then left the marking to the water.
+
+The hollow is almost silent. There is a faint, persistent sound like a finger drawn across wet glass. It comes from no single point. Now and then, something clicks far away—or very close—and the sound arrives as if it has crossed no distance at all. Rarely, a small pale creature passes among the plants. It may be a shrimp, or a root tip, or a scrap of something dead carried upright in the water. It moves once, vanishes behind a leaf, and is not seen again. The growths do not stir for it.
+
+Time here is slow but not still. New mineral lips form along the sharp seams. Green creeps over the stones by increments too small to notice, though every return finds it farther along. The basin gathers a little more silt each season. Yet the water never seems to rise or drain. What enters the hollow remains, though its source is nowhere visible.
+
+The place has a few quiet rules. Light does not travel straight: a pale glimmer can appear beneath a ledge with no opening above it, and a hand held in front of that glimmer may cast its shadow behind the observer. Distance is unreliable only in the smallest ways. A stone at the far wall can be reached in two strokes or twenty; the effort is much the same, and the stone is always cold when touched. If you turn back toward the entrance, the crack is there—but not always where you remember it.
+
+Nothing in the hollow seems to want a visitor. Nothing seems able to notice one for long. The water closes gently over each disturbance, and the crowded plants resume their patient growth, holding the darkness together one soft surface at a time.

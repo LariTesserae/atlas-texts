@@ -1,0 +1,9 @@
+The walls are the longest-lived inhabitants. Each begins in a crack narrow enough to hold a seed, then sends pale roots down toward the warm breath in the rock. Aboveground it grows ribs and leaves, reaching across empty space until it meets another of its kind. Where they touch, they stiffen together. A wall is many separate lives accustomed to one another.
+
+The six-footed grazers know the settlement by taste. They follow the same turns each day, their soft mouths taking the tender growth that would close a lane. The oldest routes fit their bodies closely; younger grazers must go single file. They leave the tough green faces of the leaves alone and scrape the silver beneath, so a wall they have passed looks briefly brushed with light. In this way they keep passages open without ever making one on purpose.
+
+The round creatures in the tower wake when the trunks are warmest. They press themselves into its joints and feed on the wax that gathers around old injuries. There is rarely enough to share, yet they seldom fight. One will wait, motionless, for another to finish cleaning a seam. By evening the crust there is smooth, and the sleeper has settled back into it.
+
+The winged ones live among the leaves overhead. Their feet can hold a narrow rib without bending it. They visit the small, easily missed flowers that appear where a roof has found a little more sun, and carry dust from one courtyard to the next. When a hard seed falls, they lift at the click, circle once, and settle again.
+
+None of them sees the whole city. The grazer knows which doorway has tightened since its last visit. The tower sleeper knows a new split by its warmth. The flock finds gaps where light has entered. Between them and the rooted walls, the settlement makes room, takes room back, and lives on its narrow height.

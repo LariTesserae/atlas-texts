@@ -1,0 +1,27 @@
+The plateau begins where the mountain ought to end.
+
+It is high enough that the sky feels close and thin, but there is no summit above it—only a broad, pale expanse of stone, broken into ridges and shallow basins. Beyond these, the land falls away in long shelves, each one fading into a dimness that might be cloud, distance, or the underside of the world. The horizon never quite holds still in the eye. It seems to bow inward, then flatten, as if the landscape were being viewed through a surface that has cooled unevenly.
+
+The rock is old and mostly settled into its shapes. Wind has worn the edges smooth without carrying much away. Dark bands run through the paler stone, marking ancient layers, but the bands sometimes climb uphill, cross a basin, and continue along the wall of a distant escarpment at exactly the same height. Nothing about this appears newly broken. The impossible lines are as weathered as everything else.
+
+Water is scarce, but never entirely absent. It beads on the undersides of ledges and gathers in shallow hollows, black and still. Here and there a seam of wetness darkens the stone, though no stream feeds it and no slope carries it downward. A person could follow one of these damp trails for miles and find it ending at the very point where it began. Rain comes intermittently, more like a brief condensation of the air than a storm. It leaves the plateau slick and shining, then vanishes without a drain or a flow.
+
+There is little vegetation. A few low, grey-green mats cling in cracks, too small to cast shadows. They grow in shapes that suggest the memory of leaves rather than leaves themselves: branching, jointed, almost legible. In some places they appear beneath the surface of the rock, pale forms seen through translucent stone. No trees interrupt the openness. No grasses bend in the wind.
+
+The air is cold, though the cold has no direction. It does not rise from the ground or descend from the sky. It simply belongs to the place. Breath shows faintly, then hangs at face-height for a long time, losing its shape without drifting away. The light is weak and colourless. There are no clear shadows, only areas where the stone seems less visible than its surroundings.
+
+The emptiness is enormous, but not silent.
+
+A low roar runs through the plateau continuously, loud enough to feel in the teeth. It has the depth of a waterfall, though there is no fall, and the blunt insistence of surf, though no sea is near. Within it are other sounds: a grinding from beneath the shelves; single, hard cracks from distant ridges; a thin ringing that seems to come from the wet hollows. Sometimes the roar falls away for an instant, and in that brief absence the land feels even louder—as if every stone were holding its breath.
+
+The sounds do not correspond to movement. A ridge may crack again and again without shedding a fragment. A hollow may ring when nothing touches it. If a pebble is dropped, it strikes the ground with a tremendous report, but the echo returns from directions where there are no walls. It may return several times, each echo slightly altered, as though the plateau is trying out different versions of the sound.
+
+Scattered across the open ground are small constructions of fitted stone. Their walls are low, roofless, and worn nearly level with the plateau. They have no recognizable purpose. One encloses a dry patch of earth. Another contains a shallow pool whose surface reflects a sky with more stars than the one overhead. A third stands alone on a flat shelf, its doorway facing directly into a sheer drop. The structures are not ruins in the usual sense. There is no debris, no collapse, no sign that they were ever more complete. They look finished, and then left.
+
+The distance behaves strangely around them. A building seen across a basin may remain the same size for hours of walking. A nearer ridge may recede without growing smaller. Sometimes a person crosses a field of stone and comes upon their own footprints ahead, pressed into the surface from the opposite direction. These impressions are not fresh. Their edges are softened like all the other marks in the plateau, as if they had been waiting a long time for their maker to arrive.
+
+There are few animals. Small, pale things occasionally appear between stones, but they are difficult to distinguish from scraps of lichen or flakes of quartz. They do not flee. At certain times a line of dark birds can be seen high above the shelves, flying without moving across the sky. Their cries, when they make them, are swallowed by the roar—or emerge from the ground beneath the listener’s feet.
+
+Nothing here seems to be in the process of becoming something else. The hollows hold their water. The stone keeps its old contours. The scattered walls remain at the same degree of ruin. Even the oddities feel established, as though reality itself has been settling into this arrangement for ages and has found no reason to change it.
+
+The plateau is not barren so much as complete. It has room for weather, for sound, for a few living things, for the long patience of stone. It has no apparent room for arrival or departure. At its edges, the shelves descend into dimness, but the dimness offers no destination. The land simply continues there, holding its height, its cold, and its deep unanswering roar.

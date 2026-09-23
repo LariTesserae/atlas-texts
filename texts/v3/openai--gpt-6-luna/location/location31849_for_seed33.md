@@ -1,0 +1,27 @@
+The first thing the High Quiet does is make distance look harmless.
+
+From the rim, its ranges seem close together: black shelves of stone, pale ridges, the blunt crowns of mountains stacked beneath a dim, colorless sky. Then you begin descending, and the nearest ridge withdraws. The next one takes its place. Beyond them, the land continues in a succession of immense steps, each cut with cliffs so tall that their lower faces disappear into mineral haze. There is no sea, no river, no glimmer of water. The basins are filled with powder-dry salt and fine gray dust, and the few white patches that resemble snow are brittle deposits of crystal, not ice.
+
+The cold is clean and spare. It lives in the stone and in the thin air, which gives every breath a faint metallic taste. Light arrives weakly, as if strained through many layers of ash. The sun is present—sometimes—but its position cannot be trusted. At times the whole landscape brightens without a source. At others, the sky holds the faded light of late afternoon for days.
+
+Across the highest shelf stands the city.
+
+It occupies a broad, broken plateau and spills down its edges in terraces. From far off it resembles a comb laid on the mountain: towers, stairways, courts, narrow bridges, long walls, all in the same pale stone as the heights beneath them. Up close, the resemblance changes. The city is too large to take in, but too empty to feel crowded. Whole districts stand in clear view across enormous gaps. Between one row of buildings and the next may lie a mile of bare rock, crossed by an avenue wide enough for a procession that never comes.
+
+Nothing here runs. There are no lamps, cables, wheels, engines, or visible tools. The oldest buildings are carved from the plateau itself, their walls peeled back in great planes. Later structures are blocks fitted together without mortar, their seams so fine that dust cannot settle in them. Stairs climb into blank walls. Doorways open onto sheer drops. Balconies hang above empty air, facing other balconies that may be near or far depending on when you look. The architecture has the grave deliberateness of a place made for many lives, yet its makers have left no statues, inscriptions, or useful signs.
+
+The city is quiet even when the wind is moving. A gust passes through the streets, lifting curtains of gray powder, but makes scarcely more sound than a hand brushing cloth. Now and then a tower gives a single soft click, like a stone settling in sleep. The noise may come from behind you, or from a point high overhead. Echoes are unreliable: a footstep can arrive a moment before it is made, or continue after the walker has stopped.
+
+There are rules here, though none can be written down without changing them.
+
+Shadows sometimes fall uphill. A stairway climbed in full view may deliver the climber to a lower terrace than the one it appeared to reach. The long avenues are especially uncertain: walk toward a distant gate and it may draw near; turn away, and it may already be behind you. Yet the city is not simply shifting. Its neighborhoods keep their own arrangements. A traveler who learns the white quarter, or the district of low arches, can return to it—provided they do not try to take the same route twice.
+
+The stone itself is old and weathered, but not still. Cliffs shed thin sheets that land intact, lie flat for a while, then slowly break into grit. Ridges migrate by amounts too small to see and large enough, over generations, to alter a horizon. Dust gathers in streets, drains along invisible slopes, and forms rippling dunes against the uphill faces of buildings. Sometimes an entire avenue is dust-free by morning, though there has been no wind. Sometimes the dust has arranged itself in the pattern of a neighborhood that has not yet been found.
+
+Life is scarce, but not absent. Small pale creatures cling to the undersides of bridges, folded tight against the stone like scraps of mineral membrane. They unfold only in the dimmest hours and travel in brief, silent glides, touching down far from where they began. In the deeper cracks, something clicks softly at irregular intervals. No tracks persist for long. On the upper walls, delicate branching stains appear and vanish—not plants, not quite growth, but mineral lace that seems to respond to pressure, warmth, and perhaps the passage of a living body.
+
+The city remains active in ways too slow to witness directly. A wall is found a little farther from its neighbor than it was last season. A window looks onto a different court. A bridge that had crossed open space now meets the face of a tower, though neither structure shows any sign of having moved. The changes are subtle enough to be mistaken for mistakes in memory, except that the city’s emptiness makes memory feel like the least reliable thing in it.
+
+From the highest roof, the ranges stretch away beneath the dim sky, immense and nearly colorless. Far below, the salt basins give back no light. Above, the air is so thin that distance seems transparent. The city stands between them: a vast arrangement of thresholds, stairways, walls, and unoccupied rooms, continually weathered and continually becoming something else.
+
+At night, if it is night, the stones retain a faint gray glow. Nothing calls. Nothing answers. Still, somewhere within the long quiet, a door closes with care.

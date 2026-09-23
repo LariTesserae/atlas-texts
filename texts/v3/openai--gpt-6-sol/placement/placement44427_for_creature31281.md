@@ -1,0 +1,7 @@
+At first I would think I lived in the tower. Its noise would be so constant that I would mistake the intervals between the loose plate’s tremors for silence. I would know the bright ring around a bolt, the underside of its head, and the moment the fish turned silver above me.
+
+But I would not live in the metal. I would be one of the small white crustaceans in the chalk-coloured threads beneath it, holding on while water pulled at my legs. I would feed where scraps of film caught against the rock. When the current tore some free, I would follow them out with the others, a pale cloud briefly visible to every hungry fish at the grille.
+
+Most days I would get back into the crack. One day I might not. The flow would carry me past the tower and over a clean edge, and I would catch myself where the stone fell away. There would be no film there yet, only a narrow seam and the sound of the pumps travelling through it. A few torn threads would still be caught among my legs. I would work my way inside with them.
+
+I would not know that I had reached a new part of the plateau. I would know only that there was room to shelter, and that a little mineral-rich water moved slowly through the seam. If the threads held, I could feed there. Others might come when scraps began to lift from it. For a long while, no fish would know where to wait.

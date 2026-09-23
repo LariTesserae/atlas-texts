@@ -1,0 +1,7 @@
+Most of what lives here is tucked into seams. The pale film on a wet wall is thickest where a hot trickle crosses a cooler joint. From a distance it looks like a mineral stain; close up, its edges are soft, and a scrape through it slowly closes. It survives in narrow bands. A hand’s breadth toward a hot pipe or a dry stretch of masonry, and the stone is bare.
+
+The hard-shelled animals feed along those bands. They are small enough to shelter beneath a flake of rust, with flat, close-fitting plates that keep their soft parts damp. After dark they come out singly, feeling over the wall with short limbs, leaving fine clean tracks through the film. A change in the flow sends them back into the joints. Sometimes one is caught halfway across a square when the pumps start: it holds fast to the paving while the vibration passes through its shell, then makes for the nearest gutter.
+
+There may be many of them in a district. The city gives little sign of it. Their eggs are hidden in the mouths of drains; their feeding marks vanish when the film grows back. Even the animals that die are soon carried into the cisterns by the next rain.
+
+They live by the city’s timing. The shutters keep a downpour out of the reservoirs but send it across their walls; the pumps draw hot water past places that would otherwise dry. When the valves knock, creatures pressed deep in the stone begin to stir. Long after the traffic stopped, they have learned the intervals between its other sounds.

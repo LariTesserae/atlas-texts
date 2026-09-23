@@ -1,0 +1,9 @@
+Prepare for a **cool, wet hillside town**, not a walk through an ordinary forest. Bring a light waterproof layer, clothes that remain comfortable when damp, and shoes with good grip on wet stone and roots. Pack your belongings in a waterproof bag. An extra pair of dry socks may be more useful than an umbrella in the narrow lanes.
+
+Arrive in daylight if you can. The safest footing will usually be on the laid stones, but even those may be slick; a step away can put you on spongy ground or beside a running drain. Move slowly on the steep lane, especially during a shower, and give people carrying baskets room to pass. Don’t assume a moss-covered edge is solid or that a quiet-looking channel will stay quiet when rain crosses the ridge.
+
+Treat the plants and waterworks as part of the town’s infrastructure. Don’t pull at roots, pick ferns from walls, shift stones, or set a bag across a gutter. Ask before taking water: the spring feeds separate drinking and washing troughs, and keeping them separate matters. If you cannot confirm that the drinking water is safe for you, use your own treated supply.
+
+Expect to share the space with birds, hens, insects, and whatever is moving in the hedges. Keep food secured, leave wildlife alone, and check your clothes and gear for hitchhiking seeds or creatures before you depart—especially important for a traveler crossing worlds. Be equally careful not to introduce anything from your own.
+
+Finally, bring patience. Work here seems to pause for rain and resume as soon as it passes. Find shelter without blocking a doorway, watch how residents use the paths and troughs, and ask where a visitor may stay before settling in.

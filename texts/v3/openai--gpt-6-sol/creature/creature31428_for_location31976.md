@@ -1,0 +1,11 @@
+At first the pale animals in the troughs look like pebbles caught in the dust. Then a shadow crosses them, and the whole pale surface tightens. Each animal draws its soft sides beneath a ridged back; its neighbors do the same. For a moment there is room for the hunter to pass, though there had seemed to be no room at all.
+
+The little animals spend much of the day in contact with one another. Dust settles between their backs, and fine growth takes hold there after a damp morning. They graze it from one another with small, comb-like mouths. The youngest are nearly white and can disappear under the older ones when the stone grows hot. By evening they work their way upward, toward the ledges where the drops are forming.
+
+The long-legged grazers can reach those seams without climbing. They set their narrow feet carefully among the crowded troughs and draw their rough lips along the grass and dark pads. Smaller creatures follow the passage of a grazer, feeding where its nose has scraped away dry growth. Beneath the ledges, flat-bodied animals remain pressed to the cool rock. Their feet spread so widely that a full drop can gather beside one without dislodging it. When they drink, the drop diminishes from within its own reflection.
+
+The almost transparent animals are easiest to see after rain, when tea-colored water leaves them moving at the edges of a hollow. They carry a visible line of dust through their bodies. They take in grains for the living film on them, and leave the bare grains behind. In dry weather they lie so thinly against the stone that a passing foot would miss them.
+
+The earth chimneys are busiest before sunrise. Their builders come out for damp dust, grain by grain, and carry it inside to line the passages where their young wait. An abandoned chimney offers deeper shade than a shelf: a grazer may stand beside it at noon while pale bodies fill its broken rim. At dusk, hunters wait there too.
+
+As the light leaves the plateau, there is still little sound. Feet shift. A grazer lifts its head. Under the shelves, drops grow heavy, and the animals nearest them drink first. Those behind press gently forward. In every trough and hollow, the crowded backs loosen and close again, making way for the living and leaving almost none behind.

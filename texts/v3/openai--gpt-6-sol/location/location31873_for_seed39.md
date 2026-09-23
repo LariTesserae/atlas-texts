@@ -1,0 +1,7 @@
+At this height, the ground looks newly exposed. Dark stone stands in broad, blunt plates, with pale seams where it has split. Its edges have not yet been worn into scree. Between the plates lie shallow pools of rain and thaw, their surfaces trembling whenever wind crosses the ridge. Water is everywhere but seldom deep: a film on the rock, a thread under the ice, a cold drip from a ledge that appears dry until you wait beside it.
+
+The mountain opens around you in long, nearly empty reaches. Beyond the near ridge, more ridges rise through low cloud; their distances are hard to judge in the dim light. Only a few patches of moss and tight, ground-hugging plants have found shelter in the cracks. There is no path across the stone.
+
+Much of the movement is overhead. Flocks of small birds pass close to the rock, vanish into mist, and return in a sudden rush of wings. Others pick along the wet margins of the pools. Their calls carry farther than expected through the thin air, then stop all at once. From somewhere beneath the ridge comes a slower sound: a deep report, followed by the faint ticking of loose stone. Snow and ice are shifting in a shaded cleft, feeding the runnels below. The work is steady and immense, almost like machinery heard from far away, though nothing here has been made or set in motion by hand.
+
+Cloud closes over the farther slopes. Droplets gather on stone already wet, while an icy skin begins to form at the edges of the pools. The birds keep feeding until the light fails, moving through a landscape that has barely begun to hold soil.

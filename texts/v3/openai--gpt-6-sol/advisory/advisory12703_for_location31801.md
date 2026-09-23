@@ -1,0 +1,9 @@
+Prepare for this as a **confined underwater visit**, not a walk through a garden. The light and greenery may make it feel gentle, but there is no air to breathe and very little room to maneuver.
+
+Before entering, confirm how visitors get in and out, whether the chamber can be isolated from its pumps and moving racks, and what happens if power or a door fails. Go with someone who knows the installation. If you are not trained and equipped for an overhead-environment dive, view it from outside rather than swimming in. Do not assume you can surface for air: the glass roof is above you.
+
+Use a dependable breathing supply with a reserve, a mask that stays secure, and equipment arranged close to your body. Practice finding the exit with poor visibility; a disturbed mass of leaves and roots could obscure the narrow passage. Agree on simple hand or light signals with your companion, since even a quiet pump may make speech impractical. Check the water temperature and planned visit length—warm water is pleasant, but it does not remove the need to monitor exertion and breathing.
+
+Once inside, move slowly and keep your hands close. The steel edges are sharp, the plants and their escaped roots can snag straps, and the racks occasionally advance. Avoid gripping pipes, valves, cartridges, or leaves for balance. Do not squeeze through growth that has narrowed the passage; turn back while turning is still easy. Bring nothing loose, and leave nothing behind that could foul the machinery or contaminate the water.
+
+Finally, expect the far wall to be disorienting. The seam between warm water and open sky may look like an inviting way out, but it is glass, with a long fall beyond it. Learn the actual exit before you enter, and keep it in mind even when the garden makes the tower disappear.

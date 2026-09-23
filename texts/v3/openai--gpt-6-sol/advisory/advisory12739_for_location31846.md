@@ -1,0 +1,13 @@
+Prepare as though you are visiting a dry, windy city built inside a living electrical system—not a ruin on an empty plateau.
+
+**Before crossing over**, verify that the air is breathable and the temperature safe for you. A violet sky tells you little about radiation or daylight intensity, so bring eye and skin protection until you can measure them. Carry all your drinking water; a place that has never known rain is not somewhere to count on finding a stream. Bring food, a way to navigate without relying solely on the towers as landmarks, and a reliable means of contacting your host or return point.
+
+Wear layers for cool, dry air, with a face covering for wind and grit, protective glasses, and shoes that grip but do not tear at the ground cover. Moisturizer and saline for your nose may be more useful than they sound. Bring no exposed flame: the vegetation is dry, and it is also the town’s fabric.
+
+**Arrange an arrival with a resident if possible.** The apparent open plain is a living surface, not vacant ground. Streets are places where it has been trained to lie low. Follow those routes; do not cut across growth, dig, hammer in tent pegs, collect pieces, or assume a narrowing doorway is abandoned. Ask before touching walls or bridges. Their moving points of light suggest active electrical pathways, so keep metal tools and makeshift electrical connections away from the structure.
+
+Plan your day around the wind. The knocking vents give roughly an hour’s warning. Treat that as time to reach an approved indoor shelter, not as a cue to watch from a bridge or high chamber. Once the plateau starts humming, expect forceful air through the town, raised leaves underfoot, and hard seeds shaken from above. Keep your eye protection on and stay clear of vents and openings until the gusts pass.
+
+Afterward, give the streets to the seed-catching animals for a while and watch for the larger hunters following them. They may have no interest in humans, but failing light is a poor time to discover otherwise. Carry a light for your own footing without shining it into animals’ shelters or the town’s openings.
+
+Most importantly, resist the impression that nothing is happening because little stands tall. Under your feet, through the walls, and out across the flats, this place is working. A good visitor moves gently, learns which spaces are meant for people, and leaves the living city able to close around its own routines when the wind dies.

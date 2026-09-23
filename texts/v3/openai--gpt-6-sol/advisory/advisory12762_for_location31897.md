@@ -1,0 +1,7 @@
+Prepare to visit the **mountain rim**, not the chamber beneath the water. For an ordinary traveler, entering that notch would be an exceptionally dangerous dive. There is no shore to stand on, no quiet place to catch a breath, and no dependable route back to the surface. The current can take a person through an exit too narrow to follow, while ledges and walls can break apart without warning. The three wedged stones show that someone reached a sheltered cleft; they do not show how that person got out.
+
+Approach in clear, settled weather with a companion and a plan to turn back. Bring mountain clothing, warmth, water, navigation, and a way to call for help. Expect cold spray, slippery rock, and a roar loud enough to make shouted instructions useless. Stay well back from the overflowing lip: the pale, sharp-jointed stone is actively shedding grit, so even an apparently solid edge may not be a safe place to stand or anchor a rope.
+
+If seeing the underwater chamber matters, use a remotely operated camera from a position that has been assessed as safe. Do not treat a rope, a wetsuit, or ordinary scuba equipment as a solution to the current. A person contemplating entry would need a specialist team to survey the flows, geology, access, and rescue options first—and their soundest conclusion may still be that nobody should enter.
+
+The best human visit may be a short one at the crest: lower peaks in the distance, water pouring away on all sides, and beneath the trembling surface a bright room that is changing faster than you can learn it.

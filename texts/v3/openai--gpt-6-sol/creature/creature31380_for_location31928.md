@@ -1,0 +1,7 @@
+What lives in the housing has no single stem. It begins in the seams: a pale grain taking hold where a bolt meets iron, then pushing outward in a blade thin enough to admit the violet light. Each blade stops where it meets another. The smaller ones fill the remaining gaps, until the whole chamber is packed with green.
+
+It is difficult to tell where one growth ends. A broad leaf may rise beside a porcelain insulator and vanish behind the handwheel, while a row of little fronds follows the wheel’s teeth so closely they look almost machined. At a broken edge there is no wound to close, only that dry, fine interior. The exposed grain is paler than the surface; given time, it may darken and put out another blade.
+
+The hum passes through all of it. Nothing shakes, yet the green seems to have grown *to fit* the note, as though each narrow opening in the ironwork offered it a different place to thicken. Closest to the violet glow, the blades are crowded and dark. Near the hanging door they are shorter, with bare dust still visible between them.
+
+There may be no creature hidden at the back. This is the inhabitant: a slow, dry thicket occupying an abandoned mechanism so completely that its leaves now mark every part of it. The wind can scour the housing outside and pull at the broken door. Inside, the growth holds fast around the half-turned wheel, and the note goes on beneath it.

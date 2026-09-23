@@ -1,0 +1,7 @@
+At first I think I would be the dark water in the bearing, because everything comes to it: flies, drops, the little pale bodies that touch its surface and turn away. But the water disappears by morning. I would have to be something that could leave with it.
+
+I would be one of the springtails in the rust-colored sand, close to the wall. Not at the center of the crowd. A little farther along, where the green film thins out and a washer casts a narrow shade. I would know the place by changes too small to see from above: the first coolness spreading ahead of a drop, the wall warming when the fan begins, the particular tremor of the concrete chip where the spider waits.
+
+When the pipe drips, I would follow the dampness toward the bearing and stop short of its rim. There would be enough softened green on the way. An ant carrying corrosion would pass over me without pausing. I would feed until the fan shook dust from the seam.
+
+Then the chip would move. I would spring before I knew where I meant to land—perhaps among the iron filings, perhaps back in the sand I had just crossed. For a while I would stay still there, under a curve of black grains. When the wall grew quiet and damp again, I would come out and find the narrow band that had moved without me.

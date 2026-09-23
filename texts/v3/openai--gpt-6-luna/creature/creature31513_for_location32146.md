@@ -1,0 +1,19 @@
+The people who live here have learned not to ask a path to stay where it is.
+
+They move at the pace of things that can afford to wait. A basket hangs from one shoulder; a folded seed-device rests in the palm, warming or cooling as it listens. Their clothes are layered and close-fitting, made from fibers that shed water only reluctantly. Rain darkens them, then they dry without anyone noticing when. Many wear small living things: a pale vine looped at the wrist, a beetle-shell clasp, a sprig tucked behind the ear that opens when the air is safe to breathe.
+
+They are not silent, but they speak softly, as if the city has many rooms and they do not wish to disturb the others. A greeting may be a touch to the trunk beside a doorway, a pause to let water pass, a few words spoken toward a patch of leaves. They know one another by the sounds of their steps on the rootways, and by the way a lane brightens when someone familiar approaches. Children learn the city by getting lost in it. An adult will let them wander until the leaves turn silver along the route home.
+
+There are few houses in the way an outsider might mean it. People sleep in hollows grown into the trunks, in dry pockets beneath the lanes, or in chambers that open only when the rain is heavy enough to quiet the smaller sounds. A room may be shared for a season and then surrendered when a root thickens through its floor. Belongings are sparse: a bowl, a woven wrap, a tool that unfolds from a seed-shaped case. What matters is not what they keep, but what they can find again. A cup left in a market platform will turn up years later in a different courtyard, washed clean and full of rain.
+
+They gather in small numbers at the water courts. Some tend the channels, guiding a stream away from a sleeping niche or toward a thirsty patch of moss. Others read the transit filaments by laying a hand near them and feeling their low note in the bones. When a capsule approaches, people shift without calling out. The platform grows a little wider; a branch bends aside. The passenger boards. The platform contracts behind them.
+
+No one appears to command the city. Still, there are people who spend long hours beneath the oldest roots, listening to the slow clatter below. They come back with their sleeves wet and their faces difficult to read. Sometimes they carry a device grown around a black stone. Sometimes they bring nothing, but afterward a stair is dry, or a door that has been sealed for generations opens onto a room full of reflected sky.
+
+The inhabitants do not speak of the city as alive. They speak of its moods, its habits, its remembering. They know which courtyards are likely to flood and which pools sometimes show what lies below. They leave offerings there—not food, exactly, but things that have been used: a broken clasp, a child’s first carved token, a length of fiber knotted with a name. The basin receives them, and in time the objects disappear into the dark water.
+
+The animals are neighbors, though not all are welcome everywhere. Glassy insects gather around lantern-leaves, and the long-legged birds are permitted to steal from open baskets so long as they do not nest above the sleeping chambers. In the flooded margins, people pause when the flowers begin to move against the current. They do not throw stones. They wait for the disturbance to pass, or for it to decide to follow them.
+
+At night, the city’s people sleep lightly. The branches mutter overhead; water threads through the walls. Now and then, the underground mechanism turns with a deeper clank, and everyone wakes for a moment—not frightened, exactly, but attentive. Somewhere, a route changes. A root closes a passage. A hidden door remembers how to open.
+
+By morning, nobody asks what the sound meant. They find the new way through, and go where they were going.

@@ -1,0 +1,9 @@
+I would first look under the fronds. A flat body seems well suited to this place: low enough to shelter among the seams, broad enough to rest against a vein and take what passes through it. I can imagine knowing the plain by the fit of one leaf-edge after another, and crossing the bare stretches only to find the next point of contact.
+
+But I think I would stop at the crack with sky inside it. A feeder could cross that ground without looking down. I would stay at its rim, where a loose grain holds its place above the brightness. I might mistake the grain for myself at first. It seems to be waiting for a fall that never comes.
+
+Then light passes through the thicket, and a dark strand beside the crack glimmers. I would be that strand, or something small along it. One end holds to a leaf I can touch. The other reaches toward the separated half of a broken leaf across the bare ground. I could spend all my attention on the gap and still fail to tell whether I cross it. Both halves brighten in sequence; my surface changes with them. Perhaps I carry the charge. Perhaps I have settled where a connection already exists.
+
+That would be enough of a life here: to lie close to an edge and register what reaches it. The sun would remain warm. Dust could gather without burying me. A feeder might press against the vein beside my hold and leave it bright for a moment, though nothing would sway.
+
+I would have no reason to find the far end of the stand. Its nearest leaves would be enough to touch, and its farthest ones would keep their impossible distance. At the crack, I could watch the grain remain poised while the veins on either side of the gap went on answering one another.

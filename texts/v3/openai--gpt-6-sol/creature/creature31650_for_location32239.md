@@ -1,0 +1,11 @@
+The pale things in the seams are easiest to see just after the humming stops. At first they look like scraps of skin caught on the stone. Then one draws itself over a rim and shows its underside: dozens of small gripping folds, working in sequence. It pauses at each cup to gather what has settled there—fine grit, drowned insects, the soft matter washed from places too far away to see.
+
+They are almost colourless above, but not transparent. Rain dulls them to the shade of the stone. Their backs bear shallow rings, and water trembles in those rings before it trembles in the cups around them. When a note begins deep under the pavement, the creatures flatten. If the note climbs, they slip down into the seams. A few remain at the surface, turning slowly as though listening with their entire bodies.
+
+The smallest can cross a wet cup without spilling it. Larger ones rarely leave the seams; they spread into the channels on either side, taking the shape of a crack. No one looking across the plain would see them. Yet after a long rain, their pale edges appear everywhere at once, and the water above them clears. For an hour the cups show their bottoms. Then another front comes through, and the stone is brown again.
+
+They have ways of finding one another that a walker cannot follow. Two may surface on opposite sides of a wall, separated by many days’ travel, and fold into the same posture at the same instant. During the loudest hours, when the reeds seem to draw near and retreat, their thin bodies sometimes bridge two cups that did not appear to touch. By morning the cups are apart, and a thread of clear jelly stretches between their rims. Tiny pale shapes gather along it before the next rain tears it loose.
+
+Some of the creatures return to the old walls. They cling to the worn inner faces, especially where the stones have been fitted and refitted by hands. They eat what the water carries through, but they also rest there through storms that drive the others deep. Their backs fill with rain. Against the wall, sheltered by almost nothing, they hold it without a ripple while the plain roars around them.
+
+When the sound falls away, they empty themselves into the seams and go down. Water keeps moving beneath the stone. A cup drains, another fills, and somewhere beyond sight a pale edge rises to meet what has arrived.

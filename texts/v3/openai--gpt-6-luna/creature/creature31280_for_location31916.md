@@ -1,0 +1,15 @@
+At first, the place seems to be inhabited by plants alone.
+
+They occupy every crack that can catch a grain of sediment. Long glassy blades pour from the fissures, bending together in the slow current. In sheltered basins, soft green mats cushion the stone; on the ridges, red and amber threads follow the contours as if tracing the highland’s oldest lines. Taller fronds rise in groves, branching beneath the surface light. Seen from below, their crowns overlap like a forest seen through a bright ceiling. Seen from within, they make corridors: green upon green, each leaf leaning the same way.
+
+The plants do not look rooted so much as settled into the rock’s unfinished shape. Their hold is delicate in appearance, but it binds loose rubble into ledges and hangs fine roots over steep drops. Pumice gathers in their shade. Mineral dust settles on their leaves. The sharp black stone is still young, yet already there are places where life has begun to soften its edges.
+
+Around the vents, the growth changes. Foliage thickens where warm water shimmers out of the cracks, and pale fronds collect in the still pools. There, the water wavers without any current to explain it. Dust rises, turns slowly in the heat, and comes to rest over the plants like a fine, new soil. Nothing crowds these places. They are simply fuller, as though the highland has drawn a little more life toward its warmth.
+
+Other inhabitants are harder to find. A small, pale creature may cross a sunlit opening—slender, almost transparent against the water—and disappear into a thicket before its shape can be understood. Something else may stir the underside of a frond, leaving the leaves trembling long after the cause has vanished. There are no answering calls, no sudden rushes of a school. Animal life appears only in brief pieces, like a thought passing through the mind of the landscape.
+
+The quiet belongs mostly to the plants. Their leaves brush and part. Their long stems bow in the current, wait, then return. The motion is so gradual that it can seem at first like stillness, until one notices a whole grove inclining together. Beyond it, deep channels murmur. Fine particles drift through the water and vanish into blue.
+
+Nothing here appears to be in a hurry to become anything else. The plants spread by inches and decades, stitching together the slopes. Small animals come and go without leaving a mark that lasts. The vents breathe faint warmth into the hollows; sediment gathers on the sheltered sides of ridges. And over all of it, the pale disk of the sun trembles above the stone, reaching even the farthest visible crest.
+
+The highland’s inhabitants are not separate from its making. The living growth is taking hold of the young rock even as the rock shapes where it can grow. Together they are turning sharp fractures into gardens, basins into groves, and the long drowned ridges into a quiet country that seems, from a distance, almost to be dreaming beneath the sea.

@@ -1,0 +1,9 @@
+At first the hollow seems to belong to whatever has just left it. A bird lifts through the crack, a moth folds itself out of sight, and the chamber is stone again. The lizards are easy to mistake for part of that stone. Their backs have the color of limestone under dust; only a blink, or the quick press of a throat against the wall, gives them away.
+
+They live along the margins of the light. In the morning they lie against the seam while warmth gathers in the floor. Later they come down to the basins, even when these are dry. Rain leaves insects there, some with shells too hard to bite through. A lizard will take up a flint flake in its jaws and strike the shell against the stone, sometimes several times, shifting its grip between blows. When it has eaten, the flake stays behind. Another lizard may use it next week, or pass over it without stopping.
+
+They are not always still. The young make short, reckless crossings of the bright floor, stopping abruptly at a bird’s shadow. Older lizards wait under the basin’s lip and emerge after the shadow has gone. One has a damaged foot and moves with a slight sideways pull; it has worn a faint, clean path through the grit between two stones. After a dry spell, even that path disappears.
+
+The beetles live lower down, under stones that seem too firmly settled to shelter anything. The moths remain near the roof by day and descend after dusk. When rain comes, all of them shift: beetles climb away from the filling grooves, lizards cling above the waterline, and birds arrive while the basins still hold enough to drink. For an hour the hollow is crowded with small, urgent movements. Then the stream drains away.
+
+By the next afternoon the lizards are back in the pale beam. They leave no nest in the open chamber, no pile of useful flint. What they have learned is carried in their bodies: where the water first appears, which stone keeps its warmth, how to wait until a hard shell breaks.

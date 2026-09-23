@@ -1,0 +1,20 @@
+Treat Vey as a living, changing landscape—not as a ruin you can safely wander through. The city is spacious, but distance and instability make small mistakes consequential.
+
+**Before you go**
+
+- **Check the basics in a protected arrival area.** Don’t assume the air is breathable, the pressure and gravity are familiar, or local microbes and plant particles are harmless. Confirm environmental conditions before removing a mask or opening equipment. Ask local hosts about health precautions and any recent ground changes.
+- **Arrange a local contact and a route.** Towers may be kilometers apart, streets may end in reeds, and yesterday’s firm ground may have shifted overnight. Get current route guidance, a reliable way to check in, and a clear plan for what to do if communications fail. Bring a map that works offline, but treat it as provisional.
+- **Travel light, but carry essentials.** Wear sturdy boots with tough, cut-resistant soles; the new stone is sharp. Add grippy tread, ankle support, and gaiters for silt, mud, and vegetation. Pack breathable rain protection, quick-drying layers, gloves, eye protection, a first-aid kit, water from a verified source, and a backup light. A filtered respirator is sensible if you’re sensitive to spores, dust, or unfamiliar allergens.
+- **Prepare for sound.** Vey’s noises carry across great distances, and a storm can become overwhelming. Bring ear protection, but don’t wear it continuously: you may need to hear warnings from people, wildlife, or the ground itself. Noise-cancelling headphones are a poor choice when moving outdoors.
+
+**While you’re there**
+
+- **Stick to confirmed routes and stable, occupied buildings.** Don’t assume a road, bridge, foundation, or transit platform is sound just because it looks intact. Avoid fresh ridges, exposed cables, fissures, marsh edges, and ground that has recently risen or shifted. Never camp in a hollow, channel, or low clearing that could collect water.
+- **Keep clear of bridges and machinery unless they’re meant for visitors.** Some infrastructure has no obvious supports, and the city’s systems may respond to movement or changing conditions in ways you can’t read. Don’t climb, attach gear to, or tamper with structures. Don’t board a silent carriage or stand beneath an unfamiliar transit line without local guidance.
+- **Respect the wildlife and vegetation.** Animals may pass through avenues and beneath towers without treating them as human spaces. Give them room; don’t feed or approach them, and don’t block their routes. Don’t drink from pools or channels, or eat plants, fish, or fruit unless a local authority has cleared them.
+- **Assume rain can change the route quickly.** Warm showers may slick the stone, flood hollows, and turn paths into channels. Keep your kit waterproof, and shelter in a designated building rather than under a bridge, in an abandoned room, or beside a fissure. Condensation and intermittent water can make apparently dry places wet underfoot.
+- **Use light and sound considerately.** The dimness may tempt you to use a powerful beam, but avoid sweeping bright lights across people, animals, or distant windows. Keep your own noise low where practical. If the city dims its lights, or the surroundings fall abruptly quiet, stop somewhere stable, stay with your group, and wait for local guidance rather than pressing on.
+
+Don’t try to interpret Vey’s instruments, colors, or ground behavior by familiar standards. If you see a fresh crack, feel the terrain shift, or hear deep cracking beneath you, move calmly toward the nearest confirmed stable refuge—away from slopes, channels, and exposed structures—and notify your local contact.
+
+The right mindset is attentive rather than fearful. Vey is not empty, and it is not still: it is a city whose inhabitants, wildlife, water, and ground are all making room for one another. Leave that room, and be prepared to pause when the plain begins to speak.

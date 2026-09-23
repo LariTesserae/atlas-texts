@@ -1,0 +1,9 @@
+Prepare for this as a high-altitude field visit to **active ground**, not as a quiet place to sit. The yearly rise of the floor sounds slow; a seam opening beneath your feet may not be.
+
+Go with a partner, tell someone your route and return time, and establish your way back well outside the hollow. Before descending, observe it from firm ground for at least one full cycle of hum and clicks. Mark the real positions of both rims from outside; once you are inside, sight alone may give you a false measure of the distance out. If your means of returning between worlds depends on a fixed location, confirm that it works from the safe side of the ridge.
+
+Wear boots with heat-resistant soles and good ankle support, long sleeves, gloves, eye protection, and sun protection. Bring water, altitude and weather layers, first aid, and a way to check the stone’s temperature before putting weight or a hand on it. Keep food and exposed skin away from the powder, fresh mineral faces, and plants. Their apparent health is no evidence that they—or what comes out of the seams—are safe to touch or breathe.
+
+If you enter at all, make it a brief visit. Stay off seams, avoid the sharp parted edges, and do not stand between an active seam and your exit. Do not follow a leaf’s shadow as a guide across the floor: the shadow and the apparent rim behave differently here. At the first renewed hum, clicks, movement, or change in distance, leave rather than waiting to see what happens next. A photograph taken from the rim is worth more than a close observation you cannot walk back from.
+
+Above all, resist the hollow’s stillness. It may feel empty, but the stone, the plants, and even the space between the rims are doing something. Give them room to do it without you in the middle.

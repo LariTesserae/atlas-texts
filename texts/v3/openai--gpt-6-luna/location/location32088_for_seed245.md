@@ -1,0 +1,27 @@
+The plain is so broad that its far edge makes its own weather. Heat gathers there in a low, bruised glow, and the sky above it hangs dim and wet, like a ceiling seen through smoke. Rain falls often, though not always downward. It beads on the undersides of bridges, runs in thin streams up sloping walls, and gathers in shallow basins whose rims have not yet decided whether they are level.
+
+Nothing here is unmade.
+
+The ground is a laid surface: slabs of dark clay, fired to a dull red and fitted together with seams of pale mineral paste. Some slabs are huge as districts; others are hand-sized, still bearing thumb hollows and the drag marks of a tool. There is no soil between them, no buried root-work, no loose stone from an earlier world. Under every surface is another surface. Where the plain opens into cracks, one sees courses of brick descending into a darkness that reflects the sky.
+
+The construction is primitive in its means and unthinkable in its extent. Walls have been raised by hand, or by something no more elaborate than hand: wedges, levers, cords, wet molds, long patient labor. They continue across the horizon in low, unfinished ridges. Here a row of pillars stands with no roof between them; there, an enormous foundation has been laid for a structure whose first wall has not yet appeared. The marks of tools are everywhere, but their makers are nowhere. There are no roads so much as repeated decisions about where a foot might safely go.
+
+The land is low and almost level. It does not so much rise as thicken. A ridge will lift from the plain over many miles, made from layer upon layer of pressed tile, then flatten again into a broad platform. Beyond it lies a shallow basin, full of warm water. The water is clear near its edges, clouded at the center, where it trembles over an unseen drain. In places it hangs in sheets along vertical faces, wavering like glass that has forgotten which side is down.
+
+The rain makes little sound. It touches the immense built plain and vanishes into narrow slots, or settles in the seams and steams there. The air smells of hot wet clay, mineral salt, and something faintly metallic, like a tool left too long in a closed room. There is no green. No moss darkens the joints; no fungus softens the corners. No animal calls from the open structures. Even the smallest pool is without a living ripple.
+
+Yet the place is never still.
+
+Far away, a whole quarter of the plain shifts several inches to the left. It does so without a noise, and all its walls remain upright. A canal straightens itself while one watches, the water inside it bending around the new angle. A line of brick rises from the pavement by the width of a hand, pauses, and sinks again. These changes are not ruin. Nothing crumbles. The landscape is too new for erosion, too newly made to have settled into its own weight. It is still being assembled—or reconsidered.
+
+At times the horizon appears to fold inward, revealing the same plain at a smaller scale, with tiny walls and tiny rain moving across it. The vision lasts only a moment. Then the horizon opens again, farther away than before. Distances here are unreliable, but not in the way of fog or mirage. A tower may be a day’s walk away and remain a day’s walk away no matter how long one travels toward it. A staircase descends through three steps into a broad, level expanse; turn around, and those same steps climb into the dim air.
+
+Light is scarce, though there is no single source to blame. The clouds are dense with heat and shine faintly from within. Some surfaces hold a dull orange radiance, not bright enough to illuminate them, only to make the surrounding darkness seem more deliberate. At the edges of pools, pale reflections sometimes show a sky that is clear, cold, and full of stars. Looking up reveals only the low, heavy cloud.
+
+The structures are sparse. Whole regions lie open beneath the weather, interrupted by a wall, a shaft, an arch, a field of low square foundations. Their emptiness gives them the scale of abandoned monuments, though nothing suggests that anyone ever occupied them. A doorway may stand alone in the middle of a wet terrace. Its lintel is smooth and warm; the space beyond it is filled with more wall.
+
+Sometimes the rain stops. Then the enormous plain breathes steam from thousands of seams, and faint ticking sounds travel through the brickwork as the heat moves from one layer to another. The sound is so quiet it seems to happen inside the listener’s teeth. Far across the basin, a new structure begins to emerge: first a dark line in the water, then a set of corners, then the suggestion of a roof. It is not built quickly. It takes hours, or perhaps several days, while the surrounding ground rearranges itself by almost imperceptible degrees.
+
+Nothing grows here, but the place produces forms.
+
+A wall rises where there was a level floor. A canal finds a slope. A dry chamber fills with warm rain, then holds it without a leak. The world is not alive in any familiar sense, and still it seems to be learning how to become a world. Each unfinished platform is an answer to a question that has not yet been asked. Each empty basin waits for water, or for a different idea of water. Across the low, dim enormity, the new-made land shifts, pauses, and begins again.

@@ -1,0 +1,9 @@
+Prepare for a quiet, wet, mostly walkable town—not a wilderness expedition, but not a place to arrive empty-handed.
+
+Wear grippy shoes. Rain makes the dark stone and footbridges slippery, and the shelf’s sharp edges and shallow gullies deserve more caution than their modest size suggests. Bring a light rain layer, a warm layer for changes in weather, and a small pack you can carry over steps and bridges. A wheeled case would be awkward here.
+
+Carry drinking water and a way to treat more. The spring ditch and cisterns are useful features of the town, but flowing water is not automatically safe for a newcomer. Bring enough food and essential medicine for your first day or two while you learn what is available and what your body can tolerate. As with any unfamiliar world, confirm that the air and local conditions are safe before committing to a long stay, and keep a reliable means of returning.
+
+On arrival, ask where visitors may stay, where drinking water is drawn, and which paths remain safe after heavy rain. Keep out of the drainage channels and away from the shelf edge, especially during a storm. The spacious streets and open courts should make finding your way pleasant; make a note of landmarks anyway, since the low buildings may look similar at first.
+
+Finally, respect the unusual stillness. The absence of birdsong or insects is worth noticing, not explaining away: it tells you little by itself about what lives beyond the walls. Don’t bring plants, seeds, or animals into the town, and don’t take any away, until you understand the local ecology. Give yourself time to sit, listen to the water, and let a resident tell you what is ordinary here.

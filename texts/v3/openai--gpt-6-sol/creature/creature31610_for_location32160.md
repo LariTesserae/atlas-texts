@@ -1,0 +1,11 @@
+The builders live there, though they would probably say they are only working there. Their sleeping places are the roofed rooms furthest from the sled routes, where a blanket can be kept dry if it is folded onto a stack of bricks before the rain. They wake to the sound of another crew already striking stone. At any hour, some are carrying lamps, some are mixing mortar, and some are lying awake beneath a new ceiling, listening for a change in the weight above them.
+
+They know the basin by tasks rather than distances: the yard where wedges split, the passage that takes a loaded sled only if its left runner is lifted, the vault that drips onto anyone measuring its far wall. A call can travel farther than a worker can easily go. Crews recognize one another by the rhythm of their mallets and send a question across the dark before deciding whether to make the journey.
+
+Their hands are everywhere, but seldom where they can be seen. Each new tile takes an impression in its mold. Later, someone kneels on it to lay the next course, and later still someone breaks through it and finds the print intact below. The workers who uncover an older floor pause over it sometimes. The fingers are familiar in shape, though no one can put a name to them. Then the bricks are cleared away and work resumes.
+
+The pale animal lives among these pauses. It drinks from water the builders have not yet collected, eats what falls unnoticed from their meals, and fits into gaps too small for mortar. Children sometimes watch for it beside a loose tile. The adults watch the walls instead. A brace beginning to bow can be heard before it is seen, and everyone nearby knows which way to step when someone calls.
+
+There are people who mark rooms in chalk and people who will never enter a room until its walls are high enough to carry a roof. A mason may spend a whole shift closing a span over strangers below, hearing their voices rise through the narrowing opening. At the end they pass a lamp up, then the last block. Those underneath have another ceiling; those above have another floor.
+
+By morning, the chalk near the middle of the basin will be partly hidden by masonry. Someone will climb down with a line and a lamp to check the work. Someone else, coming off a night shift, will find a dry place to sleep. Under the loose tile, the animal will wait for the footsteps to pass.

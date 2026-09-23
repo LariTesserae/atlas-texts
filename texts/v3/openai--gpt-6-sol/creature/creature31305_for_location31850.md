@@ -1,0 +1,7 @@
+At first the crack seems full of loose black stones. Then one stone lifts itself over another. There are dozens of them: small, hard-backed scavengers, their shells dulled with pale dust. They keep their softer undersides away from the hot rock, climbing onto one another where a ledge leaves too little room for all of them.
+
+They live by timing. When the stone grows too hot, they withdraw beneath its lips or fold their legs into holes that seem impossibly small. When it cools, they come out again and feel along the ledges for what the wind has delivered. A dead insect is caught before it can fall far. Several animals gather around it, pulling at it from different footholds, until only fragments remain to sift deeper into the crack.
+
+The knocking behind the wall stills them. Their shells do not shake, but antennae stop searching; feet hold fast to the rough stone. When the blows slow, they resume. Grit settles on their backs and stays there for days, making the oldest look almost the color of the seams.
+
+They have no permanent path through this place. A narrow opening may admit them while the ridge is cool and grip them too tightly when it warms. Another appears after a long spell of heat. The animals follow these small changes, crowding into each new allowance of space, living on what falls into a mountain that has not finished taking shape.

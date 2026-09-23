@@ -1,0 +1,11 @@
+Beneath a field that has no visible entrance, there is a chamber just large enough for a person to lie down in. Its ceiling is close and uneven, and its floor is still becoming stone. Pale grains gather along the cracks, bind for an hour or a day, then loosen again. Nothing has had time to be worn smooth. The little ridges are sharp as freshly broken bread.
+
+It is bright here. The light comes from a patch of bare wall no bigger than a hand, and spreads evenly through the chamber without warming it. A thin root hangs across the patch. You can see every hair on it, yet it casts no shadow. Shadows appear only when water beads on the root; then one falls across the floor, though not always beneath the thing that made it.
+
+Most of the chamber is empty. At one end stand three low cups of clay, each built up in narrow rings by creatures small enough to pass through the seams. One cup holds grit, one holds a curled white grub, and the third is wet inside after rain, though the others remain dry. There are no tracks around them. Elsewhere, a few colorless shoots lift from a dark pinch of soil. They turn toward the bright wall, but stop growing whenever it shines directly on them.
+
+The animals are easier to hear than to see, and barely easy to hear. Mites move through the loose stone with a sound like a fingertip on paper. Thread-legged hunters wait in the ceiling cracks. Tiny flies rest on the root, taking off one at a time when a drop forms. Beneath the floor, something with a slow, soft mouth eats the grains before they can set. Now and then the clay cups tremble as their builders work inside them.
+
+When rain passes through the field overhead, moisture enters as a cool smell first. Then droplets gather on the ceiling and hang there, each showing a different view of the chamber. In one, the clay cups stand where they are. In another, the grub has already left its cup and is crossing the floor. If you watch that drop, the grub usually appears a little later. Sometimes it does not.
+
+The room has no long history to explain this. Its walls are raw, its small lives busy, and even the floor has not decided what shape it will keep. After the rain, the drops vanish, the flies settle, and the stone begins again to gather along its cracks.

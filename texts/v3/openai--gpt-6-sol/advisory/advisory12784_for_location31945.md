@@ -1,0 +1,9 @@
+Prepare for this as a working service district, not an abandoned tunnel. People may be scarce when you arrive, but pumps, carts, workshops, and drainage are still active.
+
+Wear sturdy, slip-resistant boots, clothes you can tolerate getting damp, and a hard hat if you can obtain one. The pavement will be wet, the curbs are sharp, and the overhead pipes are low. Bring a reliable light even if the workshop lamps are on; they leave much of the street and ceiling in shadow. The buried machinery makes the air hot, so carry drinking water and expect to sweat.
+
+Before going in, learn the way back and find out whether the district ever floods or restricts access while the pump runs. Keep clear of the gutter and the sump, and don’t step onto the unfinished rock or concrete at the street’s end. A pump starting hard enough to shake the railings is a good reason to pause and watch your footing. Give steam valves, exposed machinery, and any electrical fittings on wet surfaces plenty of space.
+
+Let the animals have their routes. Wear closed shoes, keep food sealed, and don’t handle bats, rats, or the fish in the gutter. The bats’ calls and the pump’s periodic thump may make it difficult to hear someone approaching, so look before stepping into the lane.
+
+If you need to speak to anyone, try a workshop or the pumping station rather than assuming the quiet square is public space. Stay out of workers’ way and ask before entering a shuttered building. This district is still being finished: the most useful preparation is to move slowly, notice where the water goes, and leave yourself a clear route out.

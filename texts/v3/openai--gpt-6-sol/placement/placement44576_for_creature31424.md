@@ -1,0 +1,7 @@
+At first I would want to be one of the roots: a thin one, still joined to a tree above, feeling the fan pass through all its neighbours at once. But I think I would find myself on the floor instead, with a lamp and a job that keeps bringing me back.
+
+I would be the person who checks the ventilation plant after the day’s digging. I’d know which change in pitch means a wagon is coming and which means a fan needs attention. The sound would follow me into the hut after my shift, so that I’d lie awake listening for a change that wasn’t there.
+
+I might see the animal only once: a clay-coloured movement at the pipe, then nothing when my lamp turned. After that I’d stop directing the light at the condensation. I’d still make my rounds. I’d tighten what needed tightening, mark the new cut on the plan, and leave the pipe dripping.
+
+Each week I would walk a little farther to reach the end of the workings. The fresh root tips would be white where the machine had passed; on my way back, I’d recognize the older walls by how dark they had become. I wouldn’t know how many animals lived among them. I’d just know there was a stretch of floor near the pipe where I should let my boots announce me well in advance.

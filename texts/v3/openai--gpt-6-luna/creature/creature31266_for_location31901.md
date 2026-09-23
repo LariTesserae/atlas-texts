@@ -1,0 +1,17 @@
+At first, the plateau seems inhabited by plants.
+
+They occupy every pause in the stone: moss in the seams, roots around the feet of towers, leaves pressed against warm pipes. They grow in no hurry. Their thick stems lean together so closely that the wind cannot get between them. After rain, water beads along their pale undersides, gathers at the tips, and drops into the soil. The plants do not merely cover the installations. They make use of them. A valve house offers a sheltered pocket for ferns; a conduit carries warmth into a stand of wax-leaved stalks; a broken gantry catches mist and lets it fall, drop by drop, onto a bright cushion of moss.
+
+Then, in the narrow spaces below the leaves, something moves.
+
+It is small and dark, usually seen only as a quick interruption in the green: a body slipping under a root, a shape crossing a strip of pale rock. Whatever it is, it leaves few signs. No nests are apparent, no trails worn into the ground. Sometimes a clean line appears in the damp soil beside a pipe, as if something passed there with great care. Sometimes a cluster of leaves has been turned so their pale faces catch the light. By the next visit, they have turned back.
+
+There are no calls. The plateau’s inhabitants seem to have learned that sound is unnecessary here. A tremor travels farther than a cry: through a stalk, into a root, along a wet seam in the rock. When the pressure gate opens underground and the pools dimple all at once, the plants shiver, the small dark shapes vanish, and—somewhere beneath the ridge—a conveyor advances its few inches.
+
+It is tempting to think of the machinery as something separate, left behind by people who have gone elsewhere. But the pumps draw water when the land can spare it. The gates respond to conditions no visible worker measures. Indicator lamps hold their steady light while creepers thread through the cabinet’s seams. The structures may have been made by absent hands, yet they are no longer quite unattended. Moss thickens over one vibration and recedes from another. Roots gather at certain joints, as if bracing them. The machinery adjusts, and the life around it adjusts in turn.
+
+Perhaps the small creatures do the work. Perhaps they travel through the pipes and hollow towers, carrying instructions in their bodies, though no one has seen them enter. Or perhaps they only follow the warm places, and the machines have learned, over years of damp and growth, to mistake their passing for a signal. It is difficult to separate a message from a response when both are so quiet.
+
+The plateau’s oldest inhabitant may be the plateau itself: not a single mind, but a slow arrangement of living and made things. Water remembers the cracks it has found. Roots hold to the metal. The metal warms the ground. A change in pressure crosses the pools, and every leaf seems, for an instant, to be listening. Nothing rises to greet a visitor. Nothing watches openly. But the place is not unaware of being touched.
+
+It continues its nearly silent labor, while the green closes around the pipes and the bright, raw stone softens by degrees. Somewhere among the stems, a dark shape pauses, feeling the ground with its feet. Below it, a pump waits for rain. Above it, clouds pass under the ridge, still deciding what to become.

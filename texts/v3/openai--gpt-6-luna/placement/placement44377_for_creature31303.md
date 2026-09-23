@@ -1,0 +1,11 @@
+I think I would live where the shell arch nearly touches the black wall—not in the open, and not quite inside anything. A narrow, crooked gap, just wide enough for my body to pass if I fold my legs close.
+
+I would be one of the many-legged things that thread the dark. Pale, perhaps, though the dark would make color feel like an idea belonging to somewhere else. I would know the city by touch: the rough lip of a tube, the slick film on a stone, the sudden softness of silt underfoot. I would travel along the undersides of bridges no wider than a grain of sand, pausing whenever the water drew inward, feeling the chamber breathe through my limbs.
+
+I would not know that I lived in a city. I would know that this wall had food on it; that this crack narrowed after the last pulse; that the shell above me sometimes shifted, and that the place beneath it stayed cool. When a passage closed, I would find another. When a pale crown withdrew from its tube, I would wait nearby for what the current left behind.
+
+Still, I might become something like a keeper of ways—not by tending them, but by passing through them. My body would press silt into the edges of my routes. My small feet would clear a film from one ledge and leave it on another. The paths I used would alter the paths available to the next small thing. Without knowing it, I would help make a little corridor through the city’s unfinished knots.
+
+Sometimes I would emerge beneath the shell arch and stop. The translucent creature resting there would stir the water with its many tiny limbs. I would feel that faint movement before I saw anything at all. For a moment, we would hold to the same shelter: it almost invisible, me almost still. Then the current would turn, and one of us would go.
+
+I would live at the scale of the next foothold. The city would never appear whole to me. It would be a series of edges, shelters, smells carried in water, and openings that might remain open—or might not. If the seam ever closed, I would not understand the ending as an ending. I would feel the water grow quieter. I would curl into the narrow space beneath the arch, holding fast while the walls gathered around my world.

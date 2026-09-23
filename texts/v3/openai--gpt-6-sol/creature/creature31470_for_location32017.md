@@ -1,0 +1,7 @@
+The people in the rooms learn the yard first by sound. Before anyone opens a door, the pump is beating and water is knocking along the culvert. A worker steps out in sandals, feels the heat on their face, and looks down to see where the water has gathered overnight. They cross on the higher stones when they can. By the time they reach the lane, their feet are wet anyway.
+
+Under the raised pipe, frogs spend the day nearly still. Their backs are the colour of grit darkened by rain, and a passerby may notice one only when it drops from the concrete lip into the ditch. Flies lift and settle over the warm, slow water. The swallows take a wider view of the place: they come through the gap between the roofs in quick turns, calling as they go, then vanish beyond the pump house and return.
+
+The rat at the drain mouth waits for quieter moments. It knows how long a footstep takes to cross the yard. It can retreat before the person above it has thought to look down.
+
+None of them needs the yard to be finished. The frogs have the pipe, the rat has the drain, and the swallows have open air where no tree has yet grown. The people have rooms kept dry by the pump’s steady labour. Each morning they find another thin film of water on the concrete, and each morning they step around it, sharing the small dry places with whatever got there first.

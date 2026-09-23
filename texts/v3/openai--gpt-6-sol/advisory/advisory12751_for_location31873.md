@@ -1,0 +1,9 @@
+Prepare for this as an exposed alpine crossing, not a walk beside scenic pools. The stone may look solid and open, but a film of water can make it slick, and the first clear ice may be almost invisible. There is no path to settle into, little shelter, and mist can erase the ridges you meant to use as landmarks.
+
+Before you go, confirm that the air and water are compatible with human life; don’t assume that because the place looks familiar, every condition is. Check the weather, allow time to acclimatize if the altitude warrants it, tell someone your route and return time, and plan to be off the ridge well before the light fails. Carry an offline map and compass rather than relying on sightlines or a single electronic device.
+
+Wear waterproof, windproof layers over warm insulation, with gloves and a hat ready to put on before you get cold. Bring boots with reliable grip on wet rock, and traction suitable for thin ice. Poles may help with balance, but test each footing: broad plates can end abruptly at cracks, shallow-looking pools can conceal uneven rock, and a safe step can become slippery as temperatures fall. Carry food, a headlamp, first aid, and an emergency means of communication. Treat or filter any water you collect; abundance does not make it safe to drink.
+
+Give shaded clefts and the slopes below them a wide berth. The deep reports and ticking stones mean snow, ice, and rock are moving; do not stop beneath them to watch. Keep back from pool margins if they have iced over, and avoid committing to a descent you cannot reverse in cloud.
+
+Travel quietly around the feeding birds, especially if they repeatedly return to one patch of ground. The most important preparation is a willingness to turn back early. Up here, the change from wet rock to iced rock, and from a visible ridge to an empty wall of cloud, may take less time than you expect.

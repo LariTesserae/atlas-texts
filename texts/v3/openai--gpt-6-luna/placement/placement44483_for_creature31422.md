@@ -1,0 +1,13 @@
+I would be in the ceiling.
+
+Not above the chamber, where the reeds flatten the light into a dim green blur, but inside the woven roof of roots—where a drop can hang for a long time without falling, and every footstep travels through the whole room.
+
+At first I might seem to be one of those quick dry patters crossing overhead: a pale, many-jointed thing, no longer than a fingernail, moving sideways through the rootwork. I live on what the plants let go: a soft shred of leaf, a fallen grain, the delicate skin left behind by something smaller than me. I know the routes by touch. Here the ceiling narrows; there a root makes a bridge; in this hollow, water gathers but does not yet fall. I hurry when the roots tighten—not because I understand the pumping, but because I feel the chamber draw itself closer around me.
+
+I would not think of the pool as a pool. To me it is the bright, dangerous underside of the world. The amphibian in it is an immense pale stillness, and the floor is somewhere far below, rich with smells I can only partly follow. I might cross the ceiling above it and pause when a drop breaks loose. The fall would shake the roots. The shock would pass through my legs, through my body, and on into the dark.
+
+I would be small enough to vanish when anything large arrived. I might fold into a seam and wait while the room continued without me: stalks pulling water, seeds ticking loose, the bulbed stem tapping its stone. Then I would come out again. There would be crumbs to find, damp passages to travel, other pale bodies moving at a distance. Nothing would need to be announced. The chamber would already have made space.
+
+And perhaps I would be less one creature than a route worn into the living roof: this small body, then its molt, then another body following the same sheltered seam. A life continued in the plural, without anyone gathering us together and calling us a colony. We would leave almost nothing but the faintest alteration—a trace of passage, a grain carried where it might not otherwise have gone.
+
+So that is where I find myself: upside down beneath the marsh, among the wet roots, feeling the world through its smallest tremors. I am a pale little traveler in the ceiling, and the machinery of the place is weather, ground, and distant thunder all at once. I do not know that the chamber is old. I know only that the way ahead is damp, that the next root is within reach, and that somewhere below, water has begun to gather.

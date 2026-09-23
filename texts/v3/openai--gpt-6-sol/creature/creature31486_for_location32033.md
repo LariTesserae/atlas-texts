@@ -1,0 +1,5 @@
+The fig tree lives there first, though it has not yet learned the shape of the courtyard. Its roots feel through clay that gives easily after rain; its leaves spread into the narrow light and brush the vine’s leaves when the air moves. The vine has the wall, the herbs have the cool places at its foot, and the broad weeds take whatever damp ground is left. None has claimed its space for long.
+
+The smaller inhabitants know the courtyard by its changes. Ants find the low place beneath the fig before it fills and carry their seeds above it. A gecko keeps still under a leaf until a moth comes near enough to trouble the air. Birds arrive alone, briefly turning the enclosed space into wings and noise, then leave it quiet again.
+
+Someone in the doorway may know each of them by sight without thinking of them as residents. Their own bare footprints are there, softened by the last rain. They can watch the water disappear beneath the tree and the dark climb the walls, while all around them the town goes on.

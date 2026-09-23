@@ -1,0 +1,5 @@
+At first I think I would be the shelf: something left by a larger life, still standing after its purpose has gone. But the shelf has a history it keeps to itself. I don’t think I would be so solid.
+
+Perhaps I would be the silt beside the nearer pit. It settles in a thin layer whenever the hollow is damp, smooth enough to show the passage of a mouse or the small spread of a salamander’s foot. For a while, each track is plain. Then a drop falls from the ceiling, and the edge of it softens. Another drop comes, and there is only silt again.
+
+I would be close to the salamander’s path, but not its shelter. It might cross me on its way to the water after rain, leave four brief marks, and go back behind the stones. I would hold those marks until I couldn’t. The river would go on sounding beside the hollow, never quite reaching us.

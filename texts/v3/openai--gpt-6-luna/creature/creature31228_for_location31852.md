@@ -1,0 +1,21 @@
+At first they seem too small to be the answer. Each is no more than a pale jointed body, a glinting back, a transparent length of thread with legs. They climb across one another without hesitation, slipping into cracks and out again, passing along the same narrow routes until the room appears to be covered in motion rather than creatures.
+
+Look longer and the routes begin to resemble a body’s circulation. The dark-backed ones travel the mineral ribs, their shells catching the orange light; the soft ones pass through the finer seams, faintly lit from within. Some remain fixed to the ceiling, listening with their trembling antennae. Others gather at the black fans, scraping their copper tips and taking something from them. None seems to lead. None seems lost. Each leaves just enough space for the next.
+
+They are not a swarm, exactly. A swarm would scatter, thicken, turn. These inhabitants keep a particular arrangement, as if the chamber were a pattern they had learned by living inside it. When one creature pauses, another takes its place. When a body falls from a ledge, the traffic divides around it and closes behind. The routes are repeated so faithfully that the colony seems less to travel than to renew itself, each passage laying the path down again.
+
+The mound at the center is where their separate movements almost become one. They crowd its sides in delicate layers, bodies fitted to bodies, and climb toward the jagged fin on its crown. There they turn—not all at once, but with a precision that makes the difference hard to see. The fin answers with its low hum. The creatures answer the hum. Or perhaps the hum is what they are answering in one another.
+
+The mound may be a nest, though nothing young is visible. It may be a heart, though the colony has no single pulse. Its mineral is darker than the surrounding stone and warm to the touch. Fine cracks run through it, filled with the same waxy substance that gleams in the walls. The animals press their undersides to those seams and remain there, motionless, while the chamber’s noise passes through them.
+
+Their hearing—or whatever sense occupies its place—is finer than sight. A footstep above the ceiling makes antennae lift in sequence. A change in the machinery’s clatter draws a ripple of stillness through the ledges. They do not flee. They wait until the noise returns to its proper shape, then begin again.
+
+The machines may be part of that shape. The little press, the turning fan, the belt and piston have the patience of organs that no longer need to accomplish anything. The creatures move among them as though among ribs: under a housing, over a pipe, through a gap in the press where the metal knocks shut and opens again. They do not appear to repair the machines. They do not appear to feed them. Yet when the fan pauses, bodies gather along its casing; when it starts, they disperse into their usual paths. The distinction between resident and mechanism becomes difficult to keep.
+
+Individually, the creatures may be simple. Together, they possess a kind of exactness that resembles thought without requiring a thinker. They maintain the chamber by repeating it. Their traffic keeps dust in its shallow drifts; their bodies occupy the warm seams; the machines make the vibration by which the colony knows where it is. The black growths draw from the mineral and are grazed back to their small, persistent fans. Nothing is made. Nothing is wasted enough to disappear.
+
+If the pattern is disturbed, they do not attack. They accommodate it. A dropped stone would be circled, crossed, and eventually incorporated into the familiar routes. A hand placed near the mound might feel the warmth deepen against the skin. For a few moments every creature would face it, and the whole chamber would seem to draw a breath. Then the hand would be left alone, and the traffic would resume.
+
+They live there not as owners of the chamber, nor as captives in it, but as the habit by which it continues. The stone gives them heat. The machines give them rhythm. They give both their unbroken attention.
+
+And when the fin hums, they turn toward it, layer by layer, until for an instant there is no multitude at all—only one small, many-legged life listening to itself.

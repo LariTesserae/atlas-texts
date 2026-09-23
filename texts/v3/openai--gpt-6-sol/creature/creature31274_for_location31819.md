@@ -1,0 +1,7 @@
+At first the plain seems to have no inhabitants beyond the passing crab. Then a cloud of silt lifts from a hollow, and something beneath it closes.
+
+It is a small, soft animal, no longer than a finger, fitted into the gap between two stones. Its back is dark and rough with grains it has fastened there; its underside is pale and folded close to the clay. Short gripping limbs hold the stones on either side. When the water clears, it opens a fringe of nearly transparent threads into the current. Flecks too small to see strike the threads and are drawn down, one by one, to a mouth hidden underneath.
+
+There are others in the nearby gaps. They do not all open at once. Each waits for the brief, steady flow that follows a swirl of grit, and each folds shut before the next cloud arrives. A stone that looks firmly seated may have several living edges beneath it: a fringe extended, a limb braced, a body easing deeper as the current changes. They cannot stop the silt from filling their shelters. They endure it, and work their way upward when the spaces open again.
+
+The crab finds one by touch. Its claw reaches into a crevice, but the animal has already let go of its threads and pulled its soft parts beyond reach. The crab moves on. After a while, the fringe opens again, so fine that the water seems to pass through an empty gap.

@@ -1,0 +1,11 @@
+The birds live here first by refusing to stay. They arrive on the mud when the water falls, run the exposed seams for insects and seeds, and rise all at once when a gate changes the sound of the plain. Foxes come by the road, where the ground is firm enough to follow a scent. They cross at night and seldom use the same route twice.
+
+Beneath them, the channels have their own traffic. Eels work through the flooded roots of the alders. Small fish enter with the tide and are left, for a few hours, in pools that did not exist the day before. The willow shoots survive by a similar kind of opportunism: a branch catches in a fresh bank, puts out roots, and makes that bank slightly harder to take away.
+
+The people who tend the pumps live mostly beyond the last rise of road. At night they appear as figures behind amber glass, or as a light moving from one house to the next. They learn the plain by its sounds. A gate’s pulse can tell them more than a view from the window; the small noise of a bank collapsing tells them almost nothing, except later, when a familiar line of willows stands beside open water.
+
+There is another inhabitant, harder to count. It keeps to the gravel scattered over peat, in burrows that open just above the usual reach of the tide. In daylight it could be mistaken for a dark, narrow-bodied water vole, though its feet are broader and its whiskers so long they trail against both sides of a channel. It feeds where the current slackens, feeling among stones for larvae and drowned seeds. When the gates open, it presses itself into the bank and waits.
+
+It does not know the barrier as a structure. It knows the brief wrong stillness before a release, when the water stops tugging at its whiskers and the low pressure in the ground seems to deepen. Then it climbs. Sometimes the bank it lived in is gone by the time it comes down again. It finds another, under willow roots if it can, and begins a tunnel too shallow to last the season.
+
+By morning its tracks may be gone. The birds will return to a different strip of mud; the fox will investigate a pool where there was dry sedge yesterday. Nothing here can rely on an edge remaining an edge. The willows come closest. They live by making roots wherever the plain permits them, and by holding on when it does not.

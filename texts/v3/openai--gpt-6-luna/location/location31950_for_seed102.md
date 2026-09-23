@@ -1,0 +1,21 @@
+The hollow is smaller than it sounds.
+
+It lies beneath a shelf of newly hardened stone, a pocket in the crust no wider than a village square, though its ceiling disappears into dimness and makes the space feel larger. The rock is young: black, sharply broken, still bearing the crisp edges of its first fracture. Here and there, pale mineral seams show through like exposed bone. Warmth seeps from the walls—not in gusts or waves, but as a steady condition of the place. The air is thick with a dry, faintly sweet smell, like heated resin and bruised leaves.
+
+There is no standing water. Nothing drips. The stones are dry enough to rasp against one another, and the floor is powdery with fine salts. Yet the hollow is overgrown.
+
+The plants grow in separated masses, lush enough to conceal the ground beneath them. Their leaves are thick, folded, and lacquer-dark, with pale undersides that catch what little light there is. Some spread in mats across the salt; others rise in clustered fans from cracks in the rock. They do not reach toward the faint glow overhead. They turn instead toward the warm seams in the walls, where invisible mineral vapors pass into their roots. Their stems are jointed and almost woody. If one is broken, it releases a smell of pepper and hot stone, but no sap.
+
+Between these groves lie broad open patches: bare salt, black rock, a few scattered chips of worked stone. The emptiness is as much a part of the place as the growth. A person crossing the hollow would have room to walk without touching a leaf, then suddenly find themselves hemmed in by a thicket of dark fronds taller than their head.
+
+The animals are numerous, though rarely seen all at once. Most are small and live within the plants or the mineral cracks: blind, many-legged things with shell-thin backs; pale creatures that cling upside down to the ceiling; broad-mouthed grazers that sit among the leaves, their fringed faces perfectly still. A few larger animals occupy the open spaces. They resemble bundles of folded hide or dried vegetation until they unfold a limb, or open an eye that reflects no light.
+
+The hollow is loud. Its sound is not a chorus that swells and falls, but a sustained, layered roar: dry trilling, rasping clicks, a low hum from somewhere within the walls. The small animals make most of it. Their calls fill the cavity and return from the stone so thickly that the quiet places seem to have been left out on purpose. Near the entrance, the noise becomes a pressure in the chest. Among the plants, it is possible to hear individual voices—each one held at exactly the same pitch, as if every creature has been repeating a single note since the hollow formed.
+
+Nothing here changes in any way that can be measured. A leaf may quiver at its tip, an animal may work its jaw, a loose grain of salt may shift underfoot; but the arrangement of the place remains fixed. The plants do not visibly grow. The animals do not age, nest, or migrate. No call begins or ends. The warmth does not fluctuate. Even the sharp-edged rock, though newly made, keeps the precise fractures of its first breaking.
+
+There are signs that someone once came here. At one edge of the hollow stands a low wall of fitted stone, no higher than a knee and incomplete on one side. A shallow cup has been chipped into a nearby slab. Beside it lie three stone flakes, arranged in a neat fan. No dust has settled on them. No lichen has taken them. Their maker is absent, and the objects bear no wear, as if they were left yesterday—or before the hollow had a floor.
+
+The dim light has no visible source. It gathers faintly on the pale undersides of leaves and the salt crust, leaving the ceiling and deeper cracks black. Looking upward, one sometimes sees what seems to be a scatter of stars, but the points are too close together, and one of them is shaped like a small animal’s open eye.
+
+The place is not asleep. Its inhabitants are alert; its calls are full-throated; its vegetation is dense with life. But life here has no before or after. Everything holds its position in a warm, dry, echoing present.

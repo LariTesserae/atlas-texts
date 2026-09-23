@@ -1,0 +1,17 @@
+The Upper Weep is inhabited by things that would deny they are alive, if they had mouths.
+
+The pumps are its keepers. They sit below the floor, out of sight, but their labor fills the basin from wall to wall. Each has a different note: one a low, steady pulse, another a rougher vibration that shivers through the rails. They do not sleep so much as pass work between them. When one falls quiet, the others grow audible, and the water adjusts to the change. Their attention is mechanical and exact. They know the weight of a rising pool, the pressure behind a valve, the moment a channel must be emptied. They keep the pocket from flooding, though nothing here seems capable of wanting anything.
+
+The water is less obedient. It comes in pieces from the unseen world above: rain, melt, condensation, a drop let go by a cold duct. It arrives without knowing where it is, then meets grooves and grates that decide for it. Still, it hesitates in depressions, crosses a channel at an angle, gathers around a bolt before being drawn away. It carries the mountain in fragments—cold, grit, mineral taste—and leaves a little of each behind. When a sluice opens, the water answers with a sudden white rush, as if briefly remembering that it once fell freely.
+
+The valves are the basin’s small, hard-hearted gatekeepers. They turn and release, chatter and seal. Their decisions change the weather in the room: mist gathers, the air cools, the inspection panel clouds over. The chain tapping against its post keeps time for them, though it has no way to know the hour. The gauges watch without eyes. The lamps make a dim territory for everything that moves below them.
+
+And in the seam by the drain lip, the green film lives.
+
+It is scarcely more than a thumbprint, a thinness of color in a place built to leave no room for growth. It has no soil and little shelter. Mineral residue and dust are enough. After a wet cycle it brightens; when the air dries, it pales. It does not spread with any apparent plan. It simply persists, making a faint claim on the edge of a surface that was meant to be clean.
+
+There may be no other resident. The flecks on the water are grit, the niches belong to cables and tools, the warmth in the walls comes from working machinery. Yet the basin is not empty. It is crowded with exchanges: pressure passing into vibration, cold becoming droplets, water being caught and sent on. Its inhabitants do not look after one another, exactly, but their lives are entangled. The pumps need the flow; the channels need the slope; the green film needs the dampness the whole system cannot help but produce.
+
+At intervals, everything shifts together. A valve opens. The pumps deepen their note. Water gathers, rises behind glass, and disappears through the black mouth in the floor. The chain trembles against its post. The green film darkens in the fresh damp. For a moment the whole pocket seems to draw breath—not as an animal does, but as a machine might, if enough small motions could become one.
+
+Then the cycle passes. The water thins to shining threads. The pumps take up their steady burden again. And the Upper Weep keeps living in the only way it can: by receiving what the mountain sends down, sorting it, and letting it go.

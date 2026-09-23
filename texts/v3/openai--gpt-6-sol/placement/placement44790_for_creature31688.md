@@ -1,0 +1,9 @@
+At first I would look for myself in the pool. It is the one place where the water can be seen arriving, and it seems reasonable that anything living by water would go there. But the pool is too open. Every pipe empties into it, and nothing leads away without passing through the pumps.
+
+I would be under the street instead, where a covered channel has pulled a little from its bed. Warm water threads through the gap. Silt gathers there; a root finds it; the root makes the gap wider. I could live in that small exchange, moving with the water when the pressure changes and holding still when it does not. I might have a body no one has seen whole: a pale length drawn through a pipe joint, a little grit caught against it, something that contracts at the flywheel’s knock.
+
+The people would know more about me than they think. A fitter clearing a drain would find that the roots came away easily on one side and held fast on the other. A child on the iron stairs would hear a drag below the channel cover, then hear it again only after the north valve opened. I would learn their habits in much the same way: by the weight of a boot on a stair, by the brief quiet when someone puts an ear to the wall.
+
+I would not be trying to keep the hollow wet. The pumps and the old ground do that without me. I would be trying to remain where water still passes slowly enough to carry warmth and where the roots leave a little room. When a path is cleared, I would withdraw from it. When a leak is repaired, I would have to find the next one. Perhaps that is why no one has found a place to point to me.
+
+In the evening, as the water covers the pool’s bottom step, I would be close by in the soaked brick beneath it, feeling the rise through the mortar. I would never cross the last seam into the pool. In the morning, when someone comes down to check the step, I would already be farther back, where the first knock of the working day shakes a few grains of silt loose around me.

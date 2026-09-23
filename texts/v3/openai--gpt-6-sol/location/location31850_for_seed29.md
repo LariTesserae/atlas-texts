@@ -1,0 +1,7 @@
+High on a young volcanic ridge, there is a crack scarcely wider than a hand. The sun reaches its lip for an hour and never reaches the bottom. Inside, the rock is black, rough, and hot enough that a palm cannot rest on it. Nothing has had time to wear the fresh edges smooth. There is no soil, no plant, no trace of running water—only a little pale mineral dust sifted into the tightest seams.
+
+The crack is crowded. Small, hard-shelled animals fill its ledges shoulder to shoulder, retreating from the hottest stone and advancing again when it cools. Others hang beneath overhangs or wedge themselves into holes no larger than their bodies. They feed on what the high wind drops in: dead insects, husks, stray scraps of life carried up from far below. A falling body seldom touches the floor.
+
+Deeper in, the ridge makes a factory noise. Gas passes through narrow pores with a sustained hiss; somewhere behind the wall, a pocket of heated air knocks at regular intervals. The sound grows louder without anything visibly moving. Even the animals pause between its blows. Then the pocket loses pressure, the knocking slows, and a faint grit begins to fall from the ceiling.
+
+It is a slow place despite the noise. For days, the same grains gather on the same backs. Over longer spans, heat opens a hairline joint and gives the animals another passage; cooling closes an older one. The mountain is still making this tiny interior, pressing its inhabitants into every space it leaves.

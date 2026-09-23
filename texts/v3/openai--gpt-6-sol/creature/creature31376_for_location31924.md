@@ -1,0 +1,11 @@
+At first the movement in the shrubs looks like a leaf turning over. Then a second leaf turns against the breeze, and a small animal comes sideways onto a pipe.
+
+Its back is the color of the pale stone, broken by dark lines that match the fractures in it. From above, even in the open, it is difficult to keep in sight. It has six narrow feet, each ending in a soft pad that holds to metal or glossy leaf without a sound. The front pair are almost hands. It uses them to draw down a fern tip and drink the drop gathered there.
+
+There are more beneath the collector frame. One sits under the mesh, where water beads along the lower wire. Another hangs upside down from a root at the lip of the concrete housing. They are no bigger than a thumb, but their movements are unhurried. A drop can take a long time to swell; they wait for it with their mouths almost touching the wire.
+
+They seem to spend most of the day in the green aisles below the frames. Their young are tucked into the deep cups of certain leaves, where they lie still among the retained water. The adults come and go with flecks of moss on their feet and seeds caught in the fine hair along their sides. Wherever they shelter regularly, the cracks are thick with growth. A narrow line of seedlings follows the pipe into the shade.
+
+At noon, when the stone paths have dried white, the little animals retreat to the housings. A gap no wider than a fingernail leads behind one cabinet; a pale tail disappears through it. Inside, the concrete stays cool, and condensation gathers where the pipe passes through the wall. The green lamp above the gap burns steadily. Nothing behind it stirs that anyone can hear.
+
+Toward evening they come out again. Across the basin, other frames catch the lowering light, each with its aisle of leaning trees. On this ridge, a small pale back crosses the broken inspection stair, pauses on the last sound step, and goes down the face of the rock instead. Its feet find holds too slight to see from above. Under the ledge, out of the sun, there will still be drops.

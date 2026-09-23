@@ -1,0 +1,7 @@
+At first the hollow seems to have no inhabitants beyond the ferns. Then one of the dark patches on the floor changes shape. Not much: a rounded edge draws inward, and a pale seam that appeared to run through stone bends away from it.
+
+The animal is broad and almost flat, with a back the color of wet rock. It rests so close to the floor that the thin water passes over it. Along its underside, many fine folds hold to the stone; opening and closing in sequence, they carry it forward more slowly than a falling drop. It has no need to cross the bare spaces often. The seams bring it what it eats: the soft green film that grows beneath the water, and the minute things caught in it.
+
+There are others, though they are difficult to count. A small one waits in a cup below a ledge, its back still pale enough for the stone to show through. Another lies at the crowded base of a fern, where fallen fragments collect. When the sheet of water thins, they draw themselves into cracks and remain there, moist against the rock. After rain they spread out again. One may climb a wall over the course of a day, leaving a wet margin that outlasts its passage.
+
+They do not make the hollow silent. They belong to its silence: feeding without a scrape, moving without disturbing a leaf. Most of their lives pass in contact with this stone. A newly hatched one could fit inside a bead of water; the oldest have grown broad enough to cover a handprint, their backs marked with pale lines that resemble the seams below them.

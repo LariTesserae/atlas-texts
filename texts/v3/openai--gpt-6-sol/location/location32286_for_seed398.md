@@ -1,0 +1,9 @@
+High on the new black ridge, where the air is thin and the stone has not yet had time to round its edges, there is a slit scarcely wide enough for a shoulder. Heat comes out of it. A little way inside, the slit opens into a chamber no larger than a public square.
+
+It has been laid out as a city. Narrow streets divide terraces of dark ceramic; bridges cross gaps too small to deserve bridges; an elevated line runs from one wall to the other without touching either. Most of the plots are vacant. There are no doors, no signs of habitation, and no plants in the seams. The arrangement feels deliberate nonetheless. Every street has a fall to it, every intersection a basin or a raised lip. This is a city built to give heat somewhere to go.
+
+The ridge rose recently. Outside, its fractures are still clean and sharp, and inside, pale seams of new mineral interrupt the black walls. Far below the chamber, something keeps the rock hot. The city draws that heat up through its foundations and passes it from terrace to terrace. It does so slowly enough to be almost silent. Now and then a bridge gives a small, dry click as its span lengthens.
+
+There is moisture here, though it is hard to account for. At intervals, a cooler thread of air descends the entrance and beads form along the underside of the elevated line. They gather for hours. A drop falls, strikes a heated street, and vanishes with a sound like a finger touched to a lip. The basins catch what reaches them; their surfaces darken briefly, then dry from the edges inward. In the dimness, the wet patches are the clearest way to see the city's plan.
+
+From outside, the whole place is a flaw in an otherwise empty summit. Inside, with the close walls hiding the sky and the little bridges crossing overhead, it is easy to mistake its careful distances for much greater ones. Nothing moves through the streets. The heat does, and occasionally the water, each taking a different route through the same small city.

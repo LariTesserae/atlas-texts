@@ -1,0 +1,9 @@
+I would first look for myself on the dry ridge. It is the only place that offers a direction: walk its gentle back, keep the dark water on either side, reach the trees before the rain does. For a little while I might be the person doing that walking.
+
+But I think I would stop at a stone that weeps above the waterline. I would put my hand against it to learn where the water comes from. The hollow below its seam is full of silt, and a silver-leaved shrub has rooted at its edge. While I watched, one loosened grain would settle against another. There would be no moment I could point to and call a movement, yet the hollow would have changed.
+
+That is where I would be: among the threads beneath the hollow, in the narrow wet passage between the stone and the shrub’s youngest root. I would not know how much of the passage was mine. Another inhabitant might run alongside me for years, close enough that a falling bank could join us. At the top of the ridge I would thin out; beneath the pool I would have room to grow again.
+
+My work would be to keep that small hollow from emptying all at once. Rain would still carry silt away, and the root might fail despite me. When a drop struck the pool, I could send a little of its weight through the clay before its ripple reached the reeds. In the evening, I would feel the far rain taken up along other threads. The stone above me would grow wet, and I would hold what came through its seam.
+
+If the walker returned, they might find the hollow altered and never think to look for me. I would probably not remember them as a person, either—only the brief pressure of a hand on the stone, and how long it took to leave.

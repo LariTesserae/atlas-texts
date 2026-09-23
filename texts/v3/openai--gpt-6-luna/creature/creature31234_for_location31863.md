@@ -1,0 +1,15 @@
+Nothing in the hollow rules it. Its inhabitants keep to their own small territories, and the place belongs to all of them by turns.
+
+At the damp basins, the crabs pick their way sideways over the stone, feeling ahead with fine, restless claws. When the water sinks, they retreat into cracks no wider than a hand; when it returns, they emerge again to sift the fresh litter. Above them, blind beetles travel in pale, orderly streams beneath leaves and roots. They touch one another as they pass, antennae flicking, carrying the cave’s scraps away into the dark. Nothing is wasted for long.
+
+The lizards are easiest to mistake for pieces of the cave. They lie along the warm ledges, narrow bodies pressed flat to the stone, their skin the brown-grey of old roots. Only the throat moves, or one bright eye turns to follow a passing insect. They hunt without hurry. A lizard may wait through the fall of several droplets before striking, then settle again as if it had never moved.
+
+Near the entrance, the swallows make brief lives of motion. They sweep in and out beneath the hanging roots, returning to nests wedged in the limestone. Their wings disturb the air but scarcely trouble the hush. Farther in, they do not go. The half-light ends, and beyond it the cave offers no sky to follow.
+
+The plants lean toward what little light reaches them, but not all toward the entrance. Some turn their leaves to the faint damp gleam on the walls; others root into the warmth itself, sending pale shoots through moss and between stones. Their growth is slow enough to seem still, though a frond will gradually uncurl, a root thicken across a step, a patch of fungus creep over the base of the old pillar. The living things do not distinguish between ruin and ground. They take what the hollow gives.
+
+When the weather changes, the residents change with it. After rain, insects and washed-in leaves gather near the pools, and the crabs come out. In dry spells, the basin edges whiten; beetles work deeper under the litter, while the lizards claim the last warm, wet ledges. Then the roof begins to sweat. A drop gathers at a root tip, swells, and falls. Somewhere in the dark, something shifts toward the sound.
+
+The old steps and low wall have no keepers now. Moss has softened their edges, and roots pass through the gaps between their stones. Still, the animals use them: crabs shelter under the wall, swallows skim above the steps, and lizards lie where the worn stone holds its warmth. What people once arranged to guide water or find a place to sit has become part of the hollow’s ordinary life.
+
+Most of its inhabitants are never seen. They scratch beneath leaves, pass through cracks, feed on what has fallen and leave the stone almost as they found it. The hollow is busy in the way a sleeping body is busy: with quiet exchanges, small movements, and a warmth that never quite stops.

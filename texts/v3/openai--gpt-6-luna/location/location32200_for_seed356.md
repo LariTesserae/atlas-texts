@@ -1,0 +1,27 @@
+The lowland begins without a shore.
+
+A traveler descending into it would first see a dark, level horizon, then realize the horizon is not land but vegetation: a continuous, many-layered surface of leaves, fronds, stems, and folded membranes, all packed so closely that the ground has vanished beneath them. The plants are not merely growing on the landscape. They are the landscape’s substance. Beneath the canopy, trunks braid into ridges; roots make the hills; mats of moss and soft black tissue span hollows that might otherwise be lakes. Here and there, water lies open in long, still seams, reflecting almost nothing.
+
+The air is warm and wet enough to feel held. Mist hangs between the upper layers, not drifting so much as occupying its appointed place. Drops gather on every surface and fall inward through the vegetation, taking hours to reach the hidden soil. Sometimes the rocks weep. They are new rocks, dark and sharp-edged, pushed up from a young crust that has not yet learned to soften. Their exposed faces are already veiled in green.
+
+There is little daylight. The canopy grows in stacked roofs, and the uppermost leaves are so dark and broad that they absorb what little reaches them. Below, the dimness deepens by degrees until distance becomes a matter of texture: a near wall of leaves, a farther wall of leaves, then the suggestion of an even larger darkness beyond. The plants do not glow. At most, a wet surface may hold a weak grey sheen, like the memory of light rather than its presence.
+
+The place is vast in a way that makes ordinary measures fail. It continues across a continent-sized plain, but its real scale is vertical: layer after layer of living material, with narrow passages, collapsed chambers, and high canopies whose crowns make their own weather. Warm rain forms above one region and seeps down elsewhere. Water moves through the whole mass by capillary force, root pressure, and slow seepage. There are no bright rivers. The drainage is mostly underground, distributed through soft channels that open and close as the plant matter absorbs and releases water.
+
+Almost nothing moves.
+
+The vegetation does not sway. It does not visibly grow. No animals cross the ground, and no birds call above it. Yet this is not a dead place. Its life is simply operating on a scale too slow, or too large, to be recognized as motion. A leaf may take years to unfold. A root may extend the length of a valley before reaching a new seam of mineral. The entire plain seems to hold one enormous breath, inhaled so gradually that no exhalation can be distinguished.
+
+The silence is not complete, but its sounds are buried. Deep underfoot, immense pressures pass through the roots. In hollow stems, warm gases condense and travel. Somewhere far below, a pulse of water turns a wheel of tissue against stone. The sounds arrive as faint, steady tremors: a soft thrum beneath the soles, a shivering note inside the walls of a hollow, the occasional click of a seed-case closing in the dark. Nothing announces itself. There are no storms of leaves, no splashing, no insect rasp. The quiet seems engineered, though there is no engine to be seen.
+
+The industrial quality belongs to the plants themselves. Thick, ribbed stalks descend into sealed chambers in the earth, where they pump, filter, ferment, and sort the minerals carried by the wet soil. Vast nodules of woody tissue compress water and release it through narrow pores. In some regions, rows of columnar growths stand with a regularity that suggests machinery: not planted, not arranged, but produced by a repeated biological rule. Their chambers are full of pressure. Their surfaces carry dark, layered deposits, as if the lowland has been manufacturing some invisible substance for an age.
+
+Nothing here has been built. There are no paths except the gaps left by growth, no walls except the living barriers between one chamber and the next. The straight lines are natural, but they are so long and so consistent that they can feel like the work of a machine. The machinery, in turn, is alive. The distinction has little use in this place.
+
+Its order is stable without being old. The land has emerged recently enough that the ridges remain sharp and the stone still breaks in clean faces. The vegetation has already filled every low place, but it has not yet worn the terrain down. Between the first rock and the thickest living mat there is a sense of rapid arrival followed by complete stillness—as though the world was made, flooded with plants, and then instructed to wait.
+
+The rules are difficult to infer. Water falls inward. Light does not penetrate. Plant matter replaces almost every other substance, yet the stone persists in angular seams. Pressure travels where sound cannot. The seasons, if they exist, have no visible signs. Nothing with a recognizable face looks back from the dark, and no animal life interrupts the unbroken green. The plain’s only inhabitants are its own systems: roots feeding roots, channels feeding chambers, chambers returning warmth and water to the canopy.
+
+At night—or what passes for night beneath this roof—the darkness grows no deeper. The whole lowland is already beyond the reach of ordinary light. One can stand in a hollow where the leaves meet overhead and feel the immense surface above, pressing down with its moisture and weight. Far away, a slow vibration crosses the ground. It fades before it becomes sound.
+
+Then everything is still again, though the hidden work continues.

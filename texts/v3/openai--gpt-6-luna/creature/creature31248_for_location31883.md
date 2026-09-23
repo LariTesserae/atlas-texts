@@ -1,0 +1,27 @@
+The people of Vey do not speak of the city as if it were finished.
+
+They have no word for *settled* that means both a place and a condition. A home is a room, a view, and the stretch of ground between the door and the nearest dependable water. Addresses are useful only until the land moves. People give directions by landmarks that might vanish: the pale split in the clay, the bridge with no beginning, the courtyard where the red leaves grow in a spiral. When these change, everyone simply learns the new way.
+
+They are slender, mostly, though no one agrees whether this is an adaptation or a fashion that has lasted long enough to become one. Their clothes are layered and close-woven, made to shed the brief rain and gather the ordinary damp. At the cuffs and hems, black clay leaves a soft grey stain. Many wear thin metal tablets at the waist, rubbed smooth by years of revised maps. They mark a route, cross it out, and mark it again—not because they expect the ground to obey, but because someone should remember where it was.
+
+Vey’s residents are quiet, but not withdrawn. They pause at canal crossings to watch the water before they cross, even when the bridges are dry. They leave small spaces between themselves in queues and on covered walks, as though making room for a change in the route. A greeting may be no more than a tilt of the head toward the other person’s shadow. Conversation tends to begin with an observation: *The rain is coming from the wrong side.* *Your stair has gained a step.* *The flowers have come back on the eastern roof.* These are not metaphors. They are how one asks after a neighbor.
+
+Most people live in towers, but few think of their lives as vertical. They travel between buildings by bridge and transit line, then walk for long stretches through open ground. A person may spend a day crossing three districts and still be said to have stayed nearby. Children learn early not to chase anything that moves across the plain—not a drifting blue light, not a ribbon of water that has detached itself from its canal, and not the distant shapes beneath the bridges. They are taught instead to wait and see whether it comes closer.
+
+The children are also taught to leave the vines alone. They train them around doors, lift them from drains, and carry cuttings from places where the ground has begun to break apart. Each child is assigned a small patch of living growth, though the patch may not stay where it began. The plants are named by habit rather than kind: *the one that follows the warm wall*, *the one that comes back through the vents*, *the red mat that remembers the rain*. Some children talk to their plants. Adults pretend not to notice, or do the same.
+
+At school, maps are drawn on flexible sheets of pale metal. The exercise is not to make an accurate map. It is to show what has changed since the last one, and to leave blank the places no one can agree on. Children are praised for careful uncertainty. A line with a question beside it is considered better than a confident line in the wrong place.
+
+The older residents are good at waiting. They sit on low walls beside empty canals and can spend a whole dim afternoon watching a puddle hold the sky. They know the sounds a foundation does not make: the faint alteration in a room when the buried structures turn, the pause before the concentric rings cross the water, the hush that comes over a district when a route has quietly ceased to connect to anything. They do not call these things omens. They do not need to.
+
+There are visitors, too, though the people of Vey rarely call them visitors. Sometimes a figure appears in the second skyline beneath a still pool: standing on a balcony that has no counterpart above, or crossing a street that bends down through the reflected earth. The figure may be dressed like someone from Vey, but with a different cut to the coat, or may have a face that becomes indistinct when looked at directly. People who see one do not shout. They find someone else to look with them.
+
+Most reflections pass on. A few seem to wait.
+
+The long-legged creatures beneath the bridges are treated with the same careful politeness. They are narrow and dark, with joints like folded reeds and heads turned toward the canals. They may stand in the same place for weeks. When people pass, the creatures neither flee nor acknowledge them, but occasionally one will be found on the far side of a canal, facing the exact place where it stood before. Veyans leave the spaces beneath certain bridges unlit. No one knows who made that rule, or whether it was meant for the creatures.
+
+Perhaps the city’s most devoted inhabitants are the ones no one can see. Beneath the clay, under the canals and foundations, the immense buried structures continue their silent adjustments. The people feel them in the rings crossing the puddles, in a door that opens onto a subtly altered street, in the new black ridge appearing at the edge of the plain. Children sometimes press their ears to the ground, hoping to hear the engines. What they hear, if they hear anything, is usually their own blood.
+
+In Vey, to live somewhere is not to possess it, or even to know it. It is to keep learning where the door opens today; to make space for a vine, a stranger, a new stair; to leave a mark that can be corrected. The people do not wait for the plain to finish deciding what shape to be.
+
+They have learned to live while it decides.

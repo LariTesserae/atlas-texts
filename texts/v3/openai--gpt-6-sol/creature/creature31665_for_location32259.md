@@ -1,0 +1,9 @@
+The inhabitants are easiest to mistake for their buildings. A pale wall is a row of stems sharing one thickened skin. The track beneath a cart is a root that has learned to bear weight without growing upward. In the towers, living chimneys keep their mouths over the warmest seams; when the heat shifts, they lengthen toward it, and the streets below must give way.
+
+They do not all grow at the same pace. Thin roots explore a newly opened crack in an hour, feeling for heat and the least trace of moisture. A roof may spend decades lowering itself over a street. The oldest trunks are slowest and most heavily used. Their hollow centers still draw air after the wood around them has hardened beyond growth, and younger stems graft themselves to their sides to take advantage of the draft.
+
+Water passes among them so carefully that a severed root is closed before much can escape. Fruit travels farther. It drops into bins, goes through the wheels, and returns as oil to an axle, fiber to a joint, fuel to a chamber below. Seeds lodge in those same joints. Some are crushed; some take hold, and a wheel that once turned freely begins, over years, to grow its own replacement.
+
+There are no keepers hidden in the terraces. The city’s inhabitants make use of one another, sometimes at a cost a single plant cannot recover. When a vent cools, roots abandon the stems that drew from it. Their leaves dry in place, still part of the roof, while new growth crowds a warmer block. Elsewhere, a wall opens along an old seam and admits a cart whose route had been shut for centuries.
+
+If there is a creature here larger than any tower, it is hard to find its edge. The root pavement joins what stands above it, but one district can wither while another thrives. Under the canopy, among the slow wheels and sealed stems, life persists less by holding its shape than by continually finding a new one.

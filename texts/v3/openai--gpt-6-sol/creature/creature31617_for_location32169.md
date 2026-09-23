@@ -1,0 +1,7 @@
+The basin’s inhabitants are easiest to find by looking for a break in the curve of a wet stone lip. What seems to be a pale chip of mineral draws inward, very slowly, and leaves a narrow darkness behind it.
+
+Each creature wears a hard, shallow shell that nearly matches the pale rims of the pools. Its underside is soft and broad enough to hold fast to slick rock. Most stay beneath overhangs, where drops gather before they fall. A few occupy the edges of warm pools, their shells just clear of the water. They do not cross the open shelves while the sky is bright.
+
+Up close, their stillness has small interruptions. A shell tilts toward a forming drop. A soft edge extends into the film of water and draws back. When the stone shivers around a vent, several withdraw at once, as though the tremor has reached them before any change in the air.
+
+They leave little trace. Now and then one shifts to a new hollow, so slowly that its passage is apparent only afterward: a clean, damp arc on a mineral rim, or an empty place beneath a ledge that held a shell yesterday. Nothing in the basin hurries them. The pools remain, the drops keep falling, and beneath their shelter the creatures hold to the stone while the roar passes through it.

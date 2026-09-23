@@ -1,0 +1,13 @@
+The inhabitants are the plants, though at first they seem too still to be called inhabitants at all.
+
+They grow in small congregations among the raw stone: low fans of leaves, dark green with a mineral sheen, gathered close to the cracks that feed them. Their edges are soft, their tips almost clear. When the furnace warms, they turn—not together, not quite, but one after another, until the whole shelf has inclined by some minute degree toward the heat. They never reach for it. They know, perhaps, that reaching is unnecessary.
+
+Some live as a thin velvet over the ledges. Others rise on fine stems, carrying their dim, seed-shaped lights. The bulbs are not bright enough to illuminate anything. They make themselves visible only when the surrounding dark has grown very deep, and then they resemble small thoughts that have not yet become thoughts. Nothing falls from them. Nothing blooms. Their purpose is not apparent, even to the place they inhabit.
+
+There may be no one plant that matters more than another. A leaf can alter its angle by a fraction, and weeks later a pale grain will gather beneath it. A stem may lean toward the floating pinnacle, although it has no way to reach it. The plants do not touch the pinnacle. They leave around it a small, unoccupied space, as if the gap were part of their nourishment.
+
+Perhaps each plant is separate. Perhaps the shelf is one slow living thing, expressing itself as many leaves, each one set down wherever the minerals allow. There is no sign of a root joining them; the ground itself may be the connection. Its bare stretches do not look empty so much as unfinished. The plants occupy the places where the world has learned how to hold them.
+
+They have no voices, and no need of one. Their exchanges happen at the pace of stone: a change in glow, a turn toward warmth, a new green-black fan appearing in a crack that was bare the last time anyone looked. The machinery’s distant pitch passes through them. They answer with almost nothing—a tremor too slight to call movement, a leaf-tip brightening, the faintest adjustment of their collective posture.
+
+They do not seem afraid of the furnace. Heat is their weather, and the long return of darkness is not an ending but another condition in which to grow. If the seam closes, the plants will be elsewhere within it. Their lights will continue to gather in the cracks, and the raw mineral will keep learning, grain by grain, what it can become.

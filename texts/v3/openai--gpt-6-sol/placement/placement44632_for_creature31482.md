@@ -1,0 +1,11 @@
+At first I would look for myself among the beetles. They seem to know the town in the only way that matters: by the location of the next drop. I would follow one under a door lip, out across a vein-road, and into a workshop where the rollers shine with condensation. But when the beetle put its forelegs to the iron, I think I would go farther in.
+
+You would find me in a groove of the lowest roller, almost too clear to see. A small, soft body with no wings and no use for the square’s roads. I would hold to the cool iron while water gathered around me. When the flywheel made its slow quarter turn, I would travel with it for an instant. Then the roller would move on, and I would stay in the same part of the room.
+
+I might spend a long time trying to understand that. There would be the faint scrape of grit in a bearing, the dark opening beneath the press, a bright strip on the floor when a roof scale lifted. The wheel would carry away the groove I had occupied. Soon another groove would arrive, wet at its edge, and I would begin to drink.
+
+It would be tempting to think I kept the machinery going. From my place I could see a belt tighten under the square and a root ease farther through a bearing. Once, a turning press might leave room for a moth to get out from under it. But I would be too small to cause any of that. My life would depend on the machines moving just enough, and on their resting long enough for water to gather again.
+
+During a dry interval I would edge toward the workshop window. Outside it, the black leaf would stretch between the walls. Inside the frame, there would be sun on a thicket. I would stop short of crossing. A moth could pass through and turn up outside again; I would have no reason to trust my grip on the sill. Still, from there I could watch a roof scale close over an empty cup, and later find a drop on the roller below it.
+
+By morning the beetles would come. One might drink beside me without noticing me at all. I would draw back into the groove and let it take what it could carry. That seems a good place to be in this town: not above the small procession, nor at its head, but at one of the cool places where it begins.

@@ -1,0 +1,5 @@
+At first I would find myself on the stairs, sent down to check the pump. I’d stand there longer than I needed to, listening for a change in its thud. The air would be warm, the handrail wet, and by the time I reached the bottom I’d have learned to turn sideways through the leaves.
+
+But I don’t think I would be the person who keeps walking. I’d be the old work glove caught against a step, where grit and silt have gathered in its cuff. For a while it would still hold the shape of a hand: fingers bent as if they’d just let go of a tool. Then a shoot would rise from it. Fine roots would find the stitching, and the stitching would hold enough moisture for them to keep growing.
+
+Eventually I’d be hard to name. Not a gardener, and not quite a thing the gardener left behind. I’d be that small place where the garden found another purchase—close enough to the pump to feel its steady work through the brick, far enough from a grate that my leaves would be thin and silver underneath. When someone passed, they might brush one without noticing. Afterward, I’d settle back across the stair.

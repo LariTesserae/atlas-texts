@@ -1,0 +1,11 @@
+Prepare for a working harbor, not a seaside walk. The ground may look firm while remaining slick or soft, and a road that is dry on arrival may have water across it after rain or a high tide.
+
+Before you go, check the tide table, weather, and any flood warnings. Find out which roads and bridges remain usable at high water, and arrange a way back that does not depend on crossing a low stretch at a particular hour. If you are arriving from another universe, confirm that the air, water, and local food are safe for you, and establish a reliable return point before exploring.
+
+Wear light clothes for the humid heat, with a hat and sun protection despite the cloud. Bring drinking water: there is little shade, and the water all around you is not water to drink. Sturdy, closed, slip-resistant footwear matters more than sandals. Waterproof boots would be useful if you must cross wet ground, but do not assume mud beside the quay will support your weight.
+
+Keep cuts covered and wash promptly if harbor water or mud gets on them. Avoid wading through drainage channels or touching submerged pilings; runoff, wash water, sharp shell, and rust are all plausible concerns. Give rats and gulls space, and do not handle the crabs or fish unless you know the local rules and conditions. Make sure routine vaccinations, including tetanus, are current.
+
+Move as though you are in an active industrial area even when it appears deserted. Wide empty roads may suddenly have trucks on them; pumps and drain gates may operate without much warning. Stay clear of tank compounds, loading ramps, quay edges, and outfalls. Ask before entering sheds or working waterfront areas.
+
+Finally, carry a charged phone or other locally reliable means of communication, a dry bag for essentials, and a map you can use offline. The quiet intervals could make the town feel abandoned, but its rhythms are set by workers, machinery, rain, and the tide. Plan around those rhythms rather than the stillness you see when you arrive.

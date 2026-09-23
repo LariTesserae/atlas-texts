@@ -1,0 +1,9 @@
+The people who live here learn to keep one hand free. A stair may be damp on the way up and dry on the way down; a pipe that was cool at breakfast may be sweating by noon. They move through the district with fingers along rails and walls, feeling for changes before they can see them.
+
+Some tend the engines, though most days tending means listening. They know the ordinary tremor of a handrail and the pause before a belt takes its next tooth. The foundry workers make parts for machines that scarcely move, then carry the hot molds past someone preparing a meal. At that doorway, everyone knows to wait for the other person to pass. There is no room for either to step aside.
+
+Water has its own keepers, though no one can keep it for long. On wet mornings they empty cloth into cisterns and clear leaves from the little gutters on the window ledges. During a dry spell they check the pipe joints and set cups beneath the ones still sweating. A child sent for water may come back with half a cup from three different places, having learned which drops belong to a household and which are left for the trees.
+
+The trees are young enough that some residents remember planting them. Already their roots have lifted paving, and one has pushed a wall out of true. People duck under their crowns and leave the gaps at their bases open. Ferns brush ankles beneath the stairs; dusty vine leaves turn slowly in the warmth above the foundry. The plants drink what the district catches, then make room for themselves in ways no map has yet recorded.
+
+At night, when work is put down and voices carry farther, the place is not quite quiet. There is the faint advance of a belt, a drop finding a cistern, a root pressing where mortar has begun to give. The inhabitants sleep close to all of it. In the morning they notice what has shifted, move a bucket or a step, and go on living there.

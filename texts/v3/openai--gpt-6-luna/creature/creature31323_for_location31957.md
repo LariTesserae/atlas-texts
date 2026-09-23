@@ -1,0 +1,21 @@
+At first they seem to be part of the rock’s unfinished texture: pale knots in the cracks, a tremor beneath a ledge, a dark fleck drifting against the cloud. Only after standing still for a while does the hollow separate into bodies.
+
+The smallest live where moisture gathers. They are jointed and nearly colorless, with narrow limbs folded close beneath them and little glassy plates along their backs. They ease out of fissures to comb the stone for the faint film that grows there, then draw back at the slightest change in vibration. Some carry grains of grit on their shells. From a distance, these look like chips of the mountain shifting of their own accord.
+
+In the thumb-deep pools, rounder creatures press together beneath the surface. Their backs are clear as thin ice; their insides pulse slowly, blue-grey and almost visible. They feed on what the water has washed down from the walls, and on one another when the pools shrink. A drop falling among them sends a ripple through the gathering. They loosen, drift apart, then close again in a new shape, as though the water has briefly rearranged a single many-bodied animal.
+
+Higher up, the long-legged ones stand on the steep faces. Their feet find holds too small to see. They wait with their narrow bodies angled into the updraft, so still that the wind seems to have set them there. Now and then one steps sideways, covering a span of stone with a slow, exact motion. They do not chase the smaller creatures so much as place themselves where the smaller creatures must eventually pass.
+
+And above all of them hang the fliers.
+
+Some are little more than dark bodies with folded, leaf-shaped wings. Others have so many thin wings that their outlines blur, each pair beating at its own pace. They rise and sink without seeming to travel, held in the currents that turn inside the bowl. When the cloud drops low, they thicken in the air. They catch drifting specks, take insects from the stone, and sometimes settle in a dense, shivering layer beneath an overhang. Their wings make a dry, fine sound like paper rubbed between fingers.
+
+No kind rules the hollow. Each depends on the others, though none seems hurried by that dependence. The crawlers leave minute trails of loosened matter for the pool-dwellers; the fliers carry spores and eggs between ledges; the long-legged hunters thin the gatherings that grow too dense. What falls from one body becomes food for another, and what cannot be eaten disappears into cracks where smaller, paler things work unseen.
+
+They seem to feel the bowl through the stone. A pebble tumbling from the rim may strike only twice before the hollow answers: first with a tremor of hidden bodies, then with a rise in the clicking and rasping, then with a few sharp calls from the walls. The disturbance passes through them in widening rings. By the time it reaches the pools, the creatures there have already drawn close together. By the time it reaches the fliers, they have lifted a little higher into the cloud.
+
+Their lives are measured in dampness and shadow. They gather where the rock sweats, lay their eggs in seams that never quite dry, and wait out the rare hours when the air warms. New bodies emerge pale and soft, scarcely distinguishable from the sheen on the stone. With time they darken, harden, and take their places among the ledges, until the eye can no longer tell where the mountain ends and its inhabitants begin.
+
+The hollow’s murmur is their shared presence, though it has no single voice. It grows when the cloud closes over the rim and thins when light touches the upper walls. It swells around falling stones, and quiets by degrees after they stop. Beneath it, the animals go on with their patient crossings and close, secret gatherings.
+
+They do not make the place welcoming. They make it occupied. Long before the black ribs have softened, before anything green can spread beyond its ledge, the hollow has learned to stir, to feed, to answer a falling pebble with a shiver. The mountain is still becoming land. Its inhabitants have already begun to make a world of it.

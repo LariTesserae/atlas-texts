@@ -1,0 +1,7 @@
+At first I think I would be one of the callers. There is comfort in a crack just large enough to belong to, and in answering the rain without having to know what made it fall.
+
+But I would be quieter than that. I’d live at the last post, in the narrow place where its warmth enters the wet leaves: a small fungus, mostly hidden as threads running through the fallen litter. The post would not need me. Its slow pulse would pass through my patch whether I was there or not. Still, I would know it as a steady pressure beneath all the quicker ones—the tapping legs, the heavy drops, the broad animal crossing nearby.
+
+I would spread only as far as the next shallow bowl of stone. Leaves would settle there, soften, and become part of me. When a foot pressed into the mat, water would rise around it and carry the taste of disturbed earth through my threads. I could not warn anyone away from the rim. I would know the shelf only by what reached this one damp place.
+
+Sometimes the broad-backed animal would stop beside the post, its many feet finding holds I had grown around but never intended for it. Above us, a leaf would draw tight with water. The callers would wait. So would I—not for the sound, but for the small pull through the roots just before the drop let go.

@@ -1,0 +1,21 @@
+At first, the Throat seems to be inhabited by its machinery.
+
+The pump fills the hollow so completely that everything else appears to be waiting on it: doors shivering in their frames, cables twitching on their guides, the little amber lamps trembling behind their glass. Then, in one of the brief lulls, a light moves where no lamp is mounted. A figure passes behind a pressure window, slow and dark, and the Throat’s inhabitants become visible.
+
+There are not many of them. They live in dry chambers bolted to the work-sites, each chamber a squat metal room with bunks, a galley, a locker of masks and seals, and a hatch that opens only when the gauges agree. They are maintenance workers, though the work has outlasted any sensible distinction between duty and home. Some go out into the water in heavy suits to scrape filters, inspect braces, and coax stubborn valves back into motion. Others stay inside, listening to the gauges and waiting for the next fault to announce itself in the walls.
+
+They talk with their hands, with lamps, and by striking the rails. The pump drowns ordinary speech, but it cannot drown a message tapped against the structure: two quick knocks for “here,” a long one for “wait,” a pattern that means a gate has begun to drift. Children learn these signals before they can read. They learn, too, the changing moods of the current—the tug that means a deep crack is drawing water, the soft shiver that precedes a surge, the particular vibration that tells them which turbine has taken up its slack.
+
+The oldest residents can sleep through the pump’s violence. They lie in narrow bunks with a hand resting on the wall, as if taking the Throat’s pulse. Newcomers wake at every change in pitch. The old ones wake only when the rhythm is wrong.
+
+No one agrees on how many generations the settlement has been here. The records disagree with the dates scratched into the oldest doors; the doors have been replaced, and the records have been recopied until their beginnings are more convention than memory. The residents keep both kinds of history. They can tell you which brace was installed after the great settling, which corridor used to be dry, which worker heard the first warning groan before the south gate failed. They do not know who built the first pump. They maintain it because, for as long as they can remember, the water has been moving and the city above has been dry.
+
+They are not comfortable in the water, exactly. They have simply learned not to waste fear on it. Their suits are patched at the elbows and collar seals; their gloves are scored from grasping handrails; their lamps are hooded against the mineral haze. In the open channels they move carefully, keeping one hand on a chain and one eye on the drifting silt. They know how quickly the familiar streets can become unfamiliar when a current reverses.
+
+Sometimes the pale flecks gather around the warm pipes while a worker is outside. In the lamp-beam they quiver like dust, except that dust does not seem to turn toward the light. The workers collect samples, label them, and argue about whether the flecks are animals, crystals, or simply the wall coming loose. None of the explanations lasts. The flecks vanish when the water turns, and the filters grow their orange and white crusts again.
+
+There is a custom, never written into the operating manual, of touching the pump’s outer housing before a shift. A gloved palm, briefly laid against the battered metal. Some do it for luck. Some say they are feeling for changes. A few insist that, now and then, the pump answers: not in words, but in a shudder distinct from its usual labor, a small correction in the rhythm, as if something deep in the stone has heard them.
+
+Perhaps they are only people who have lived too long among machines. Perhaps the Throat is just a hollow, a pump, and a handful of workers keeping both from failing.
+
+But when the lights dim and the current turns, they all go still. They listen with their hands against the walls. And the Throat, which has been speaking through water and stone for centuries, speaks back.

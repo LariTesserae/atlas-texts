@@ -1,0 +1,21 @@
+The city is inside a stone.
+
+From the plain, there is almost nothing to see: a low rise of pale mineral, cracked and wind-polished, with one seam no wider than a doorway. The seam admits a blade of white light. Pass through it, and the rock opens into a chamber large enough to contain streets, terraces, and a little skyline—though not large enough to appear on any map of the world outside.
+
+The chamber is warm and bright. Sunlight enters through holes in the roof and fractures in the walls, striking the pale floor so fiercely that shadows seem cut out rather than cast. The stone has been worn smooth over a very long time. Rounded channels lead down the slopes of the chamber, but they carry no water. They are old routes for wind, and the wind has polished them into shallow, shining grooves.
+
+The city has grown along those routes. Its buildings are made of fitted stone, fired clay, and slabs of mineral that split cleanly along their natural seams. Low houses cling to the walls; taller towers stand in the open center, each pierced with narrow slots and lined with little shelves of baked clay. Stairs go up to bridges, bridges go nowhere for a while, and then continue again from a ledge across the chamber. The construction is careful, human-scaled, and plainly made by hand. There are no machines. The city’s working parts are ramps, counterweights, turning vanes, and doors that swing when the air changes.
+
+There is a surprising amount of green.
+
+It grows in courtyards, on roofs, in cracks between blocks, and in the long troughs built along the streets. But it is not the greenery of wet places. The plants have stiff, translucent leaves like thin blades of horn, and stems that branch into airy fans. Some are silver-green; others are the yellow of old glass. Their roots spread in dense felt beneath the stone, drawing what they need from mineral salts and the chamber’s faint, shifting vapors. Nothing drips from them. Their blossoms open dry and papery, releasing fine grains that ride the wind like dust. In the brightest places, the growth is so thick it looks almost lush—an orchard made of brittle light.
+
+The city is nearly empty. Streets cross broad courts where a crowd could gather, but only a few figures pass through them: small, hooded residents carrying baskets or tools. Their footsteps vanish in the noise. Once in a long while, a pale, many-legged creature appears in the plant roots, pauses in the light, and slips back under the paving. Most of the city’s doors are shut. Some have no handles. Some open onto bare rooms where the walls are marked with old soot and narrow lines of writing.
+
+The sound is enormous.
+
+Air moves through the stone’s vents in repeating gusts, swelling and thinning with a rhythm the inhabitants seem to know. It whistles through the tower slots, booms through the hollow roofs, and scrapes across the dry leaves. The bridges tremble. Loose clay tiles chatter. In the center court, the combined noise becomes a continuous roar, broken by deep, organ-like notes when the wind catches the larger openings. People speak close to one another’s ears, or use signs. At certain hours, when the gusts align, the whole chamber sounds as if something vast is breathing around it.
+
+The wind also keeps the place active. Vanes turn. Leaf-fans fold and open. Dust streams along the floor in bright ribbons, collecting in corners and then lifting again when the air reverses. The residents set little stone markers in the streets to read these currents; they move them from day to day as the seasonal pattern shifts. There are no storms here, only the chamber’s slow, dependable weather.
+
+Nothing in the city seems new, and nothing seems ruined. Walls have sagged gently into the shapes of the rock. Stairs have been worn shallow by feet. The oldest buildings are difficult to distinguish from the stone around them. Yet the place is not dead or abandoned. The plants continue to spread. The wind continues its circuit. In the sunlit courts, the city’s dry green growth shivers and shines, while far above it the bright air passes through the roof as if through the ribs of an enormous, sleeping instrument.

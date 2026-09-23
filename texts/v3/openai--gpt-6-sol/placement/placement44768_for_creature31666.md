@@ -1,0 +1,9 @@
+I think I would begin at the edge of the bare mud, among the figures who stand apart when the water rises. I would tell myself I was watching for something. After enough nights in which nothing crossed, I might understand that I was listening instead: for the moment the water began to move behind me, for the slight change in sound that meant it had found a street.
+
+By day I would be less mysterious. I would carry bowls out from under lintels and tip them into the channels. I would keep a mat rolled beneath my arm because the room where I slept might be farther away by evening. On dry paving I would walk slowly, testing each step, and in the water I would forget to be careful.
+
+I would spend a great deal of time with people whose doorways had receded. Not as a guide—I would be no better at knowing the way than they were. I would simply come when someone called, and make the first longer walk beside them. We could stop where the old distance should have ended. Perhaps they would show me where they used to set down a bowl without leaving their threshold. Then we would go on until we reached the door as it was now.
+
+Once, in a newly arrived square, I might find a room with water dripping steadily from its lintel. I would leave a bowl there and wait several days before coming back for it. If the room was deeper then, I would have farther to go. If someone had emptied the bowl, I would know I was not the only one giving the room time.
+
+So I would be a resident with no particular room to tend: someone willing to walk the extra distance with another person, and sometimes to stand at the basin’s edge until the water called us home.

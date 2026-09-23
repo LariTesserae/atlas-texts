@@ -1,0 +1,9 @@
+Prepare as though you are visiting an **unfinished industrial waterworks**, not a wetland. The reeds and pools may make the basin look settled, but the pumps can turn quiet channels into fast-moving water without warning.
+
+The safest visit is from the upper service walk, with permission from whoever operates the site. **Do not descend into the basin unless its operators have authorized entry and confirmed the pumps and intakes are secured against starting.** A quiet interval is not evidence that they are off. Find out where the intakes are, whether water levels can change from elsewhere in the system, and how you will be warned to leave.
+
+Wear a hard hat, eye protection, sturdy slip-resistant boots, gloves, and warm layers under waterproof outerwear. The concrete is stepped and edged; slag can shift underfoot; handrails and joints may be iced even when the channels are flowing. Keep your hands free for the rails. Carry a reliable lamp and a backup—the basin continues beyond the visible lights—and use whatever hearing protection and communications the site requires. The pump roar may make shouted warnings useless.
+
+Go with someone who knows the facility. Agree on a route, a turnaround point, and a way to account for one another. Stay clear of channel edges, grates, intake towers, unfinished retaining walls, and areas beneath suspended equipment or roof drips. Do not wade, test a pool with your boot, or reach into a drain after the small animals: the water can move abruptly, and its contents are unknown.
+
+As a multiverse traveler, verify the ordinary fundamentals before relying on familiar instincts: breathable air, tolerable gravity and temperature, and a way to communicate with local staff. If you cannot establish who controls the pumps—or whether anyone does—observe from a protected position and leave the basin unexplored.

@@ -1,0 +1,29 @@
+At first, the country seems to be inhabited mostly by water.
+
+It is everywhere: in the bright amphibians flattened beneath the falls, in the birds that drink from leaves without landing, in the long-legged herds picking their way across meadows where the ground may end without warning. Even the pale figures on the ledges belong to it. They stand rooted in the wind, drawing moisture from the air and letting it fall into basins at their feet. From a distance they look like carved pillars. Up close, their mineral skins are faintly warm, and small openings along their flanks close when rain blows too hard.
+
+The first animals to notice a traveler are usually the birds. Black-glass flocks watch from the high branches, trading little clicks across the ravines. They are not warning one another so much as keeping track: a new weight on a path, a fallen tree, a pool gone cloudy. The calls pass from bird to bird until the whole forest seems to know. Then the herds lift their heads, and the bright things beneath the stones slip out of sight.
+
+There are smaller inhabitants, too, whose lives are easy to mistake for motion in the water. At night, fine-bodied creatures drift through the foliage, opening and closing their translucent limbs. They feed on insects and on the faint light gathered in wet moss. Where the blue-white lines show beneath the lake, they gather in slow-turning clouds. No one has found a way to catch one. No one who has tried has wanted to try twice.
+
+The tall pale growths are not trees, though they have something of a tree’s patience. They make no branches. Instead, they thicken around their feet and grow narrow toward the sky, their surfaces polished smooth by countless warm rains. Insects nest in the basins they keep full; birds bring seeds; roots of other plants wind around them. They seem solitary until one stands among several and hears, beneath the falls, a faint answering vibration pass from pillar to pillar.
+
+The people of the plateau are harder to see.
+
+They do not build villages. A traveler may pass a white post, a doorway standing alone in a meadow, or a low house under the roots of a tree and assume the place has been abandoned. But someone has set a bowl of water just inside the entrance, or cleared the ferns from one step, or left a smooth stone where the path divides. The inhabitants are near, though “near” has a different meaning here. They may be watching from a ledge a morning’s walk away, waiting for the weather to change before they come down.
+
+They are slender and long-limbed, with skin the color of the wet rock: dark, veined, and reflective in places. Their hands have broad, soft pads that cling to stone. They move carefully, not because they are timid, but because a careless step can send a stone falling for a very long time. Their faces are difficult to read at a distance. Up close, their eyes are dark and bright, and they seem to hold reflections from places the observer has not yet seen.
+
+They do not speak much. Their voices are low, and often given over to the wind or water before they reach another person. Instead they mark the country with sounds: a tap against a bridge rail, a short whistle answered from the trees, a hand laid on a stone until it begins to hum. They know which falls are safe to cross behind, which red-leaved trees grow above drinkable water, and which calls mean that a shelf has narrowed since the last rain. Their maps are made of remembered routes and shared attention. They can tell how far away a waterfall is by the pitch of its roar, though distance, here, is an unreliable thing.
+
+The structures scattered through the high country are theirs, though not entirely. They maintain the bridges and leave offerings of water in the doorways, but the bridges do not obey them in any ordinary sense. A path will sometimes ease its slope beneath a tired traveler, whether or not that traveler is one of the plateau’s people. A doorway may open toward a different valley than it did the day before. The inhabitants accept this without surprise. They speak of the structures as one speaks of weather: not as possessions, but as old neighbors with their own habits.
+
+Their oldest custom is to listen when the deep note comes.
+
+It begins somewhere below the lake, or in the stone around it. The inhabitants stop where they are. The birds fall quiet. Even the herds stand still, their heads lowered. Then the note rises through the plateau, slow enough to seem less like a sound than a pressure in the bones. The lake shivers into rings. The rooted pillars answer with their faint vibration, and beneath the surface the blue-white lines appear a little brighter.
+
+The people do not know what makes the sound. They have stories, but no story is treated as an explanation. Some say the mountain is remembering a shape it once had. Some say there is a living thing beneath the water, too large to move at any speed a person can understand. One old inhabitant, asked what the note means, only pressed a palm to the rock and said that the country had not finished speaking.
+
+Afterward, life resumes. Water continues down its patient routes. The birds begin again, one call at a time. Somewhere on a high shelf, a pale figure gathers mist into its basin, and somewhere beneath the lake the steady lights hold their course. The people return to their paths, carrying what they know and leaving room for what they do not.
+
+Nothing here seems to belong to a single kind of life. The forest lives with the stone; the animals live with the falls; the structures live with the paths; the people live with all of them. Even the mountain, immense as it is, appears less like a home than like the oldest resident in a country full of residents—one that is still listening, and may yet answer.

@@ -1,0 +1,9 @@
+The chamber is small enough that a voice could cross it, though nothing here has a voice. Its floor is a shallow basin of black stone, still sharp at the edges where it was cut. Water gathers in the cuts. Along the walls stand the close, orderly faces of a city: stacked doorways, narrow balconies, service conduits, little squares of unlit glass. They rise only a few stories before meeting the raw rock overhead. Almost all of the space between them has been left open.
+
+It is warm below the surface. Moisture beads on every handrail and seeps from seams that look too fine to admit it. Ferns have taken the lower balconies; pale moss climbs the steps and softens the lettering beside the doors. A few broad leaves hang over the basin, their tips shedding drops at regular intervals. There are no insects among them, no fish in the water, no movement that might belong to an animal.
+
+The noise comes from inside the walls. Pumps start and stop, and a deep rush follows each start, as though a river has been let through a neighboring room. Beneath it runs a thinner sound: water moving through thousands of small channels. Once in a while the basin answers with a slap against its stone rim.
+
+Dim strips of light appear where a person would need to put a foot or hand. They follow no visible wire. When water reaches one of the low doorways, its threshold lifts without a hinge showing, closes out the flow, then settles back after the basin drains. The city tends to itself in these small ways. At intervals, the falling drops hesitate and draw sideways into a wall, leaving the air briefly clear enough to see the fresh tool marks high on the rock.
+
+Beyond the upper windows are more passages, but from the basin they are dark. Here, the empty center makes every balcony seem occupied until the eye adjusts. Then it is only leaves, wet stone, and the lights waiting quietly beside the doors.

@@ -1,0 +1,15 @@
+The landscape is hidden inside the crown of a mountain-sized machine.
+
+You find it through a maintenance hatch, beyond ducts that carry the mountain’s steady roar. The space on the other side is only a few paces across, but it has the arrangement of a high, open country: a pale plateau, a shallow basin, and a sawtoothed ridge pressed against the far wall. There is no natural ground beneath it. The whole terrain is assembled from cast ceramic, bolted alloy, and slabs of a chalky composite that looks like stone because it has been made to look like stone. The seams are exact. Even the cracks have edges too clean to be old.
+
+The ridge rises steeply, though it could be crossed in a handful of steps. Its faces are sharp and newly exposed, with little ledges where frost-colored dust gathers. The basin floor is scored into narrow channels that lead nowhere. They are dry, and have always been dry: no stream, no seepage, not even the dark stain that water might leave behind. The dust is mineral powder, sifted from the machinery and settled here in a fine, cold skin.
+
+Everything is cold to the touch. The air has the thin, dry quality of a summit, though the summit is simulated by pressure valves and a calibrated chill. A normal white light falls from hidden panels overhead. It gives every surface a clear shadow, but there is no visible sky. The place has the brightness of outdoors and the enclosure of a cabinet.
+
+Sparse growth clings to the terrain. It is not quite moss: little grey-green filaments emerge from pores in the ceramic, each tuft no larger than a thumbprint. They may be living, or may be some industrial imitation that has learned to persist. Nothing grazes them. There are no insects, no birds, no movement among the cracks.
+
+The machinery is everywhere, though most of it is concealed behind the ridge and under the plateau. Its sound fills the pocket completely: a deafening, unwavering grind, with a higher metallic whine laid across it and a pulse like a vast engine turning somewhere just beyond the wall. You feel the noise in your teeth and through the soles of your feet. It does not swell or recede. The pitch never slips. Whatever is being manufactured, compressed, tested, or kept alive has held the same setting for a very long time.
+
+That steadiness is part of the place’s strangeness. The powder lies where it falls. The tiny filaments do not visibly grow. The machinery makes motion without change: shafts turn, fans beat, lights hum, but the landscape remains precisely itself. Nothing erodes the ridge. Nothing approaches the basin. The channels remain empty, and the plateau keeps its fine, manufactured dust.
+
+From the center, the little country seems larger than its walls allow. From the edge, it is unmistakably a chamber: a complete, sealed world built into a larger construction, an artificial highland with no weather and no history except the one its makers gave it.

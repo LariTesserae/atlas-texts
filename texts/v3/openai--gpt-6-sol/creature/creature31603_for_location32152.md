@@ -1,0 +1,5 @@
+A pale springtail lives beneath one of the fallen chips of stone. It is scarcely bigger than a grain of reddish grit, with a soft body that would dry quickly in the warm air. Most of its life is spent in the narrow dampness between rock and floor. When the seepage reaches that hiding place, it comes out to graze on what cannot yet be seen growing: bacteria and other minute life in the water film.
+
+It keeps to the cooler edges. A drop striking nearby sends it away in a sudden spring; after a while it returns, feeling along the new mineral line with its antennae. The broad bright floor offers it little. Its whole range is a few wet seams, a shallow hollow, and the underside of the chip.
+
+More lives here than that one small animal. In the threads of water, microbes take hold of iron and dissolved minerals, leaving some of the rust-coloured grains behind. Their colonies are too thin to make the walls look inhabited. The cavity still appears bare, and perhaps it will for a long time. For now, its residents occupy the brief interval between water arriving and the rock drying again.

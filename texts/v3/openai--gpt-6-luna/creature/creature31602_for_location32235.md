@@ -1,0 +1,23 @@
+At first, the basin seems occupied only by its routines.
+
+A lamp goes dark, then returns. Somewhere behind a wall, a chain advances by one link. A pressure latch turns, though no hand is visible. Fine silt lifts from a sill and streams uphill in a narrow band, as if something has passed just beyond the light.
+
+Then, in the mouth of a service tunnel, a figure pauses.
+
+It is small against the pipework, wrapped in layers of dark, close-fitting material. A hood encloses its head; from the hood trails a ribbed breathing line, which disappears into a metal canister carried between the shoulders. The figure touches the wall with two fingers and waits. It is listening—not for sound, exactly, but for the faint pulse travelling through the stone. When the pulse comes, it moves on.
+
+There are others. They are few enough that a person may cross the same district many times without seeing one, and careful enough to let the city conceal them. They travel along the raised entrances and the backs of buried machines, avoiding the silted streets whenever the currents run strangely. Their routes are marked not with signs but with small adjustments: a brass tab turned toward a safe passage, a thread tied beneath a railing, a fresh smear of grease on a stubborn hinge. The enamel signs on the upper doors are not relics. They are still read.
+
+The inhabitants live in the buildings whose doors remain sound. Behind those pressure latches are narrow rooms, dry by a system of chambers and seals, warmed by the deep rock and lit with lamps no brighter than the ones outside. There is not much space. A room might contain a sleeping shelf, a rack of tools, a tank of cultivated fronds, and a glass pane looking out into black water. Some rooms are shared; some have been closed for so long that no one remembers who had the key. In the passages between them, the inhabitants leave their boots and breathing gear to drip into shallow trays.
+
+Their faces are difficult to see. Behind the clear plates of their masks, eyes blink slowly in the amber light. Their skin has the pallor of people who have spent generations out of the sun, though not the waxy pallor of the dead. Their hands are narrow and sure, the fingers sometimes joined by thin membranes, useful in the water and awkward on dry tools. They move without hurry. A hurried movement wastes air, disturbs silt, and can make a familiar place suddenly unfamiliar.
+
+They do not keep the machines running because they expect the city to be restored. They keep them running because the machines make habitation possible. The flywheel turns to steady the current. The slow piston clears a culvert. A lamp marks a safe threshold. To them, maintenance is not a heroic duty or a ceremony. It is simply what must be done before sleep, like checking the seals on a door.
+
+There are children, though no one calls them that when they are learning. They are taught the district by touch: the slight change in a railing that means a stair begins; the cold patch in a wall that signals a hidden water path; the vibration that says a gate below is moving. They are shown which drifting particles can be ignored and which mean a filter has failed. Their first journeys are short, with a tether running back to an adult’s hand. Later, the tether is removed. Later still, they learn the old paths that no one uses unless something has gone wrong.
+
+The basin’s other life is harder to name. Pale fronds gather around the warm outlets, and small blind creatures thread through the vents, feeding on what the machines release. The inhabitants leave certain grilles unsealed for them. A silver fish sometimes passes through a street, steady as a thought, and vanishes into the dark. No one follows it.
+
+Some believe there are people in the outer districts, beyond the basin’s last lights. Some believe the current carries messages from them: a pulse repeated where no mechanism should be, a door found unlatched, a strand of pale growth laid carefully across a threshold. Others say these are only the city continuing in ways they do not yet understand.
+
+When the lamps dim, the inhabitants return to their rooms. Before they close the doors, they look once along the crowded street, at the pipes overhead and the black water pressed against the glass. Then the latches turn, the seals settle, and the small rooms fill with the quiet breath of those who have learned to live inside a place that never quite rests.

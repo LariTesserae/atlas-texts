@@ -1,0 +1,9 @@
+At first I think I would live beneath one of the wide openings. I would want the hour of sun on the wall, a little grass by the doorstep, a way to know the weather before someone came in carrying news of it.
+
+But I would probably spend most of my days farther back, where the walls stay damp longest after rain. I would carry a shallow basin from seam to seam and remember which ones fill first. When the water stopped, I would still visit them, feeling along the stone for a cold place worth setting a cup beneath. It would not make me the keeper of the town’s water—there is too little for anyone to claim—but people might ask me where to look.
+
+I would learn other things on those walks. Which step sounds loose under a loaded basket. Which brace was fitted yesterday and which has stood through many seasons of rain. I would learn the footsteps of the people working at the newest edge, because I would hear them every morning on my way into the deeper rooms.
+
+Eventually I would stay to help. Not at the face where the blocks come free: I would be the one behind, clearing chips before they are trodden into the clay, bringing a brace when someone calls for it. I would watch the roof while the others strike. After each blow, there would be a moment when everyone listened. I think I would become good at sharing that moment without hurrying it.
+
+My home would be in an older lane, in a room made from stone removed long before I arrived. I would come back with pale dust on one sleeve and a damp cuff on the other. Some evenings a neighbor would ask whether the basin by the east seam had filled. Some evenings I would have to say no. Then I would move my basket off the stair so they could pass, and in the morning I would go and look again.

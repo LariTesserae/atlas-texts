@@ -1,0 +1,13 @@
+The city stands above the clouds, though the streets are wet.
+
+From the outer terraces you can see the mountain fall away for miles: red cliffs, green ledges, then a white plain of cloud with distant summits rising through it. The air is hot enough to leave salt on your skin. Water beads on the walls, gathers beneath every root, and fills the long, shallow gutters that divide the streets. Nothing here suggests a recent rain. The stone has been weeping for as long as its worn channels have existed.
+
+There are districts. Broad avenues lead between close ranks of hollow towers; stairways climb to plazas; galleries run behind colonnades and open onto gardens. Yet nothing bears a tool mark. The towers are made of the same pale, porous rock as the mountain, drawn upward into walls and arches, and their windows have the rounded edges of openings dissolved by water. Roots stitch across the masonry. Ferns occupy the narrowest lanes. Thick-leaved trees stand in courtyards with their trunks pressed flat against the walls, as if tree and wall made room for each other while growing.
+
+The city is loud. Water pours from thousands of heights into cisterns and stone basins. A deeper sound, like an immense voice holding one note, comes through the paving and the soles of your feet. Near the center, the two sounds become almost too much to bear. You can see a thin spill falling from a balcony and hear, in it, the roar of a cataract. You can put your hand in the spill; it is warm, and its weight is ordinary.
+
+Nothing moves among the plants. There are no birds above the terraces, no insects in the wet leaves, no fish visible in the clear cisterns. Even the vines keep their tips in place. Their leaves are full and green, but none are young or dying. Fallen leaves lie in the gutters without being carried away. The water runs beneath them; their positions do not change.
+
+The oldest avenues curve around a central square, and the newer ones seem to do so too, though there is no visible difference in age. Walk toward the square and the facing buildings gradually separate, admitting another street between them. Look back: the street was always there, with deep-rooted trees along both sides. The route behind you remains passable. Only the number of crossings is hard to remember.
+
+At the highest point is an open hall with no roof. Its pillars surround a pool level with the floor. In the pool, the sky shows the mountain as it appears from below, with the city a tiny pale line on its crest. Above the hall, the actual sky is bright and empty. The roar is strongest here, steady enough that after a while you stop waiting for it to end.

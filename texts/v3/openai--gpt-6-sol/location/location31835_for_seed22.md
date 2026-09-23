@@ -1,0 +1,11 @@
+The city begins as a curb in a field of dark grass. Beyond it, a six-lane road runs straight to a row of towers so distant they look like pins. There are no cars, no lamps, no signs of anyone waiting to cross. The road is new enough that its edges remain sharp. Black paving curls a little where it meets the soil, as though it cooled only yesterday.
+
+It is warm here, and dim even at noon. The sky has the dull violet color of a bruise, though no cloud can be picked out against it. Rain comes briefly, sometimes no more than a few large drops. More often, moisture gathers on the undersides of leaves and along the lips of buildings, then falls all at once. The gutters hold puddles after these little showers, but the ground between them is mostly dry.
+
+Green things have taken the places that can keep water. Each tower is thick with foliage from its base to its highest visible floor: vines crossing empty windows, broad leaves laid over balconies, pale roots gripping seams in the walls. At street level, ferns crowd the catch basins so densely that their fronds conceal them. Between these islands of growth lie long reaches of bare paving and open earth. From one grove, the next can be seen a mile away.
+
+The noise makes that distance hard to judge. A continuous, overwhelming note rises from somewhere below the streets. It changes pitch slowly, until window frames tremble and the leaves turn their undersides to the air. At intervals a sharper sound passes through it, moving tower to tower without fading. The road markings brighten for a moment after it passes. Small devices set into the curb open, collect the condensation that has shaken loose, and close again.
+
+Animals have learned the timing. Birds with long, thin beaks crowd the gutters just before a pulse; lizards emerge afterward to take insects knocked from the vines. In the towers, unseen flocks answer one another so loudly that their cries can be felt through the soles of the feet. Then the deeper note swells, and they fall silent.
+
+Far out across the plain, another road is being made. Its dark surface advances a few feet during the afternoon, stopping cleanly at the last completed curb. No machines can be seen. By evening, grass has already sprung up beside the fresh edge.

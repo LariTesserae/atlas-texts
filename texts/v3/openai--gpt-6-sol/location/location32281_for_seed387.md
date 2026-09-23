@@ -1,0 +1,11 @@
+Below the city’s lowest street is a room no wider than a loading bay. It was built as a pressure chamber, though its doors have been open to the sea for so long that the hinges have become part of the wall. Warm water fills it to the ceiling. Nothing grows here. Even the seams between the bricks are bare, their mortar worn smooth by years of passing grit.
+
+The room feels empty despite the machinery around it. Three great pipes cross its far end, leaving a clear stretch of water between them and the doorways. Through one doorway you can see a short run of steps descending farther; through the other, the underside of a street, with its drain mouths and bolted service plates. The rest of the drowned city is close, but never visible all at once.
+
+It is impossible to hear yourself move. Pumps somewhere above drive water through the pipes in uneven surges. Each surge strikes the chamber as a continuous, deafening roar, felt in the jaw and ribs as much as heard. Chains lash against their guides. A loose inspection hatch bangs, pauses, then bangs again. Between strokes of the pumps, a deeper sound arrives from outside the city: the sea pressing through the old harbor gates.
+
+The lamps are still powered. One behind a thick glass cover gives off a weak amber light; another flickers at the foot of the steps. Their beams catch suspended particles but seldom reach a wall. When the flow changes, the particles wheel suddenly, and the whole room seems to turn with them. It takes a hand on the brick to know which way is down.
+
+The machinery has kept the place in this condition for decades. Every reversal of the current carries in a little sand and takes a little metal away. Corners have rounded; painted warnings have lost all but a few letters. In one recess, where the water briefly slows, a single pale crab shelters beneath a valve wheel. It withdraws whenever the pipes begin to shake.
+
+No one comes down to operate the chamber now. The pumps continue their cycle, forcing water through the drowned streets, and the open doors let it return. For a few seconds at a time the current settles, the hatch falls quiet, and the little room shows its age clearly. Then the next stroke passes through, and everything loose is moving again.

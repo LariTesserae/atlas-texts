@@ -1,0 +1,11 @@
+The person who keeps the fittings shop opens it before the lamps come on. No one has seen a key. The door sticks at the bottom, and each morning they ease it over the raised lip of mineral, careful not to break it. Inside, they take one fitting from a shelf, turn it in their hands, and put it back with its opening facing the aisle.
+
+Their coat was once dark blue. Now its shoulders are pale where the roof drips, and its cuffs have stiffened into small, rough weights. They move slowly under the low pipes, but not from uncertainty. They know which stretch of paving stays dry, which drop will fall while a hand is reaching past it, and how long the engine will pause before the flywheel starts again.
+
+Nothing is sold. Once in a while they carry a threaded collar into the street and fit it to an exposed pipe. They tighten it with their fingers and stand beneath it for a while. If the drip shifts to a new place, they set a cup under it. If it stops, they come back the next day and loosen the collar a little.
+
+The crabs know them. They come out of the retaining wall while the shop door is open and pick at the damp line where the threshold meets the street. The keeper steps over them without looking down. At the tram shelter, though, they always stop. They wait a few paces back, hands at their sides, until the water drops from the roof in one broad sheet. The crabs vanish just before it falls; the keeper waits until the last of it has run into the curb channel. Then they cross.
+
+There may have been other people here. On the shop wall, behind the shelves, pencilled heights climb a doorjamb and end where calcite covers the wood. The keeper sometimes holds a fingertip against the highest mark. It is far below their shoulder.
+
+By the time the lamps dim, the fittings have all been turned opening-out. The keeper closes the shop and goes to the pump. For one revolution they stand with a palm against the mesh guard, feeling the engine through it. During the pause, they lift their hand. Then the wheel moves, and they take the dry way home.

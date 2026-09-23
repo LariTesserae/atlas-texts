@@ -1,0 +1,9 @@
+The narrow places between the stems belong to a long, jointed animal that is seldom seen all at once. At first it looks like another binding: a dark band crossing a horn ring where no band was tied. Then the band loosens and travels upward, drawing the rest of the animal after it. Its many feet are small enough to find purchase in seams that look closed.
+
+It feeds at the edges of the apparent passages. Dust settles there in quantities that seem out of proportion to the width of the gaps, and the animals work it free with combs on the undersides of their heads. They also take the thin skins shed by new blades. This makes them useful to the grove, though no one put them there for that purpose.
+
+An adult is longer than a person’s arm and scarcely wider than two fingers. Its back is a succession of dull, overlapping shields; beneath them, the body is soft enough to flatten between touching stems. The shields hold the day’s warmth. In late afternoon, when the smaller animals gather beside the false aisles, a long one may lie among them without moving. It is mistaken for a dark edge of leaf until it raises its head and patiently cleans the dust from a neighbour’s back.
+
+They make their shelters below the plates. The rasp heard through the floor is a long one dragging shed shields across the cords, fitting them into a loose tunnel. Nothing is fastened down. When a cord shifts or a stem lifts a plate, the tunnel can be taken apart and made elsewhere.
+
+The young are almost clear. For a time they can pass through gaps their elders must turn back from. Seen between two stems, one may appear to be crossing the continuation of the aisle, its feet planted on a floor that is not there. Move closer and the floor disappears; the young animal remains, braced between the stems, feeling its way along both of them at once.

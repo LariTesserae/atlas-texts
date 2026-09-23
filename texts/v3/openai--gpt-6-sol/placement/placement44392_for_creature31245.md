@@ -1,0 +1,11 @@
+I would look first for a place to stand, and fail to find one. Every apparent foothold is a rim thin with ice, every hollow full of water, every seam busy with something that can pull me under. I would have to be small enough that standing no longer mattered.
+
+There is a basin near the edge of a deep channel whose outer wall has worn through. Most of its pale animals still cling to the sheltered side, layered as tightly as shells can lie. On the broken side, the water runs both ways: rain spilling out above, warm cloudy water pressing in below. I would be one of the young that settled there by mistake.
+
+My feet would hold to the underside of the broken lip. The place would be poor shelter. When a seam hunter passed, its flank would brush my shell; when the stone turned hard, I would be knocked against my neighbors. But the water would bring food from two directions, and I would learn the difference between them by touch. Cold rain would press steadily over my back. The warmer flow would arrive in little blows through the stone before it reached my feeding limbs.
+
+I might open too soon. The older animals would stay sealed while I combed empty water, and I would lose what warmth I had. Then, after one of the long silences, I would feel a faint movement in the lip and open again. This time the cloudy water would come. I would feed while my neighbors were still waiting for the familiar thud.
+
+I would not know whether I had felt a warning or merely mistaken one shaking for another. I would keep my hold through the next silence anyway. Above me the rain would fill the basin; below me a blind dark head might pause at the fissure, its mouth open toward a sound I could scarcely feel. For a while we would wait on opposite sides of the same stone.
+
+Eventually the lip would wear away. I would lose my place, or be carried with it into the channel. Until then, I would live on that narrow underside: a pale animal with its shell turned toward the rain and its feet against the turning plain, opening when the water had not yet arrived.

@@ -1,0 +1,5 @@
+No one lives in the clay rooms now. The handprints belong to people who are gone, and the shutters knock only because the wind finds them loose. The living part of the town has withdrawn to the courtyard.
+
+There, the thicket is less a patch of greenery than a crowd. Stems rise through the old brickwork and lean against one another, their dark leaves overlapping so densely that the dust cannot settle far beneath them. The leaves do not wilt in the noon heat. They hold still, glossy and close, until wind comes through the rooms; then they turn pale all at once, exposing their undersides before folding back into shade. Its roots have found a depth or a crack that sustains it, though nothing in the open street has done the same.
+
+The courtyard cannot quite contain it. Branches press over the lintels, and pods knock against the wall when the wind is strong. By evening a few seeds lie beyond the leaves, caught between paving stones where the day’s narrow stripe of sunlight fell. The street is still bare. But each gust carries a little of what lives in the courtyard farther into it.

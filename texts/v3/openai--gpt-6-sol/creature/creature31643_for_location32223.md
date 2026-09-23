@@ -1,0 +1,9 @@
+At first the plateau seems to have no inhabitants. Then, near the lip of a shaft, a clear thread tightens against the current. It is too deliberate to be a strand of water. A little farther along, another draws itself back under an overhang.
+
+The animals live inside the limestone. Their bodies are long and nearly transparent, narrow enough to pass through channels that would stop a finger. They anchor themselves in cracks with soft, branching pads and extend the rest of themselves into the flow. In the dark they spread fine fringes to catch what the groundwater carries: specks of silt, minute life washed down through the stone. The bare pockets on the surface offer them nothing. Most of what feeds them arrives unseen.
+
+They have no eyes that would help in the glare, and the roar tells them little about what happens nearby. They feel changes in pressure instead. When a shaft floods, every animal joined to that channel folds itself flat before the faster water reaches it. When the flow slackens, they reach out again. A hand placed on the rock might feel one withdraw: a brief, soft pulling away, mistaken at first for water slipping beneath the palm.
+
+Their young are almost impossible to see. They leave the parent in the current and settle wherever the water holds them against stone. Many go straight down the shafts. Some find a narrow passage and remain there for years, growing to its shape. An old one cannot leave its channel intact; too much of its body has been fitted into turns and hollows that the water made long before it was born.
+
+Nothing about them interrupts the falls. On the rare occasions one shows itself, it does so at the edge of sight—a clear fringe held out into the brightness, then taken back. The plateau remains pale and apparently empty. Beneath its noise, its inhabitants are waiting in the moving water.

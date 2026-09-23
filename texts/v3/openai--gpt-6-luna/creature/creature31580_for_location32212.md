@@ -1,0 +1,17 @@
+The people of Serein learn early not to mistake stillness for absence.
+
+They are a small, practical folk, bundled against a wind that can change direction without crossing the square. They keep their tools close and their voices low. A Sereiner can tell the age of a crack by the color of the dust in it, and whether a roof has been crossed in the night by the faint grit left on its stones. They mark repairs not to claim the rock, but to remember what it did. Their homes are arranged around the places that hold: a sheltered wall, a stubborn root, a fissure that has remained narrow through three winters.
+
+They do not own the paths. They borrow them from fern and stone, and sometimes from the animals. If beetles line a lane, no one sweeps them aside. If the birds leave the chimneys empty at midday, shutters are drawn and the square clears. Children are taught the difference between a silence that means nothing and a silence that has gathered itself.
+
+The animals have their own habits of passage. They arrive in seasons that do not match the weather, and in numbers that seem less like a migration than a decision. The black beetles travel in ranks too tidy to be accidental. The furry shapes under the bridges arrange themselves facing the drop, as if attending to something far below—or waiting for it to answer. The long-legged birds stand on the roofs with their heads turned toward the mountain. None of them seems tame. None seems quite wild, either. They tolerate the people as they tolerate the mist: something that comes and goes, and sometimes leaves water.
+
+At dusk, the pale moths inside the houses wake together. Their wings stir against the shutters, a dry whisper behind the walls. The people do not drive them out. They cover their lamps and go on with their work. There is comfort, perhaps, in hearing the town’s hidden life begin around them: small feet in the stone, a scrape beneath the floor, the lightest run across the roof.
+
+And there is something else.
+
+At first, it is only a sense that the shelf has shifted while no one was looking. A cup sits a finger’s breadth from where it was left. A door sticks for one morning, then swings freely. Beneath a new crack, moss appears in a clean green seam. The townspeople speak of the mountain as if it were weather, or an old neighbor whose moods must be watched. They do not say it is alive. They do not say it isn’t.
+
+The thing crossing the roofs may be an animal. It may be the shadow of one, moving where no body could fit. Sometimes a bowl beneath the eaves is empty by dawn, though its rim remains beaded with mist. Sometimes the fresh stone bears tracks that begin at the edge and end at a wall. They are not large. They are simply too many, overlapping until no one can tell which way they point.
+
+So the people leave water out. They wedge the doors where the rock has changed its mind. In the morning they read the tracks, though they know they will not understand them all. Serein’s inhabitants—people, birds, beetles, roots, whatever listens under the stone—live close together without quite becoming one another. They make room. They wait. And each year, as the eastern edge rises a little higher, they find that the waiting place has grown smaller.

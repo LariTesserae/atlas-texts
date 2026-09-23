@@ -1,0 +1,13 @@
+The district lies just below the harbor floor, where the old loading basin has been roofed over by sediment. Water fills its workshops, stairwells, and narrow streets. There is no open view of the sea: only a square of dim green above one collapsed freight lift, and, below it, buildings set so close together that their walls almost touch.
+
+The water is warm. It arrives through a row of intake pipes at the basin’s edge and leaves by a single chimney of perforated brick. Between those points it passes slowly through everything. A hand held beside a doorway can feel the current turn a corner. It carries a trace of iron and the faint, cooked smell of mud.
+
+Much of the district is still in use, though it is difficult to tell by looking. Each workshop has a broad wheel housed behind a grille. The wheels turn too slowly to catch the eye; their work shows in the tautness of the belts leading into the walls, and in the warmth of the water above the grilles. Some drive the pumps that keep the harbor’s foundations clear. Others draw silt into settling chambers, where it is pressed into blocks. The machinery has been here long enough for its moving parts to be narrower than their housings. Nothing quite fits as it once did, but the district has learned its present tolerances.
+
+Plants occupy every space the machines leave them. Long ribbons grow from mortar seams and trail across doorways. Fine-leaved stems fill the cages around idle winches. On the roofs, a thick mat of weed holds the silt in place; below, its roots have found the old cable conduits and emerge in pale bundles from switch boxes. The clear lanes are kept clear by the current rather than by any gardener. Where the water barely moves, green closes over a passage in a season.
+
+There are few animals. Occasionally a small prawn crosses a gauge face, making each number visible as it goes. Fish seldom enter the basin. The grilles are wide enough for them, but the streets offer little to follow and nowhere to turn quickly.
+
+It is quiet even for a submerged place. The belts do not slap; the wheels do not strike. Their bearings pass a low vibration into the brick, more easily felt through a railing than heard. Now and then a bubble frees itself from a joint and slips upward through a ceiling full of roots. Silt drops in the space it leaves.
+
+At the far end of the district, a clock is fixed to the wall outside the pump house. Its glass is gone, and weed grows through the hole where its hands were mounted. People who tend the pumps use the rising warmth in the return pipe to mark the working day instead. In that street, the water is always a little clearer by the afternoon.

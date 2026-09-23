@@ -1,0 +1,5 @@
+At first I think I would be in the groove, carried a finger’s length by each drop before the felt took the water away. But the groove belongs to whatever arrives next. I think I would keep to its edge, where the roots are damp enough to feed on and dry enough to cross.
+
+I would be a springtail, pale and scarcely longer than a root fiber. Most of my day would be spent among the dark strands, grazing on the thin growth that gathers there. The clicks overhead would reach me through my feet. I would know a beetle by the sudden shudder of a stem, a falling drop by the brief rush it sends across the floor. The snail’s bright track would be a place to go around until it faded.
+
+If the water spread too far into the hollow, I would spring from the felt and land somewhere else beneath the same low ceiling. There would be no reason to leave for long. The reeds would keep drawing water upward; the groove would keep losing it. Between those two motions, a narrow strip would stay just damp enough for me.

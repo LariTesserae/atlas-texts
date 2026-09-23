@@ -1,0 +1,7 @@
+Behind a row of warm clay houses, a passage narrows to a courtyard no wider than a room. The houses stand close enough to keep the sun off it for most of the day. Their walls are still the color of fresh earth, and the ground between them has not yet hardened into a path. Bare feet have pressed shallow shapes into the clay, but rain has blurred their edges before they could become ruts.
+
+A young fig tree grows in the middle. Its leaves nearly meet the leaves of a vine climbing the opposite wall; below them, herbs and broad weeds fill the dampest corners. There is room to walk around the tree, though little reason to hurry. Most of the courtyard is open clay, warm near the doorway and cool where the wall holds its shade. After a shower, water collects briefly in the low place beneath the fig, then sinks away. The walls darken from the bottom upward as they take in the moisture.
+
+The town is close on every side, but it is quiet here. A gecko waits under a leaf. Small birds visit the fig one at a time, dropping into the courtyard so quickly that their wings make its loudest sound. In the soil, ants move seeds to higher ground before rain; afterward, they carry them back. A moth rests on the new wall until the light changes.
+
+Nothing in the courtyard has had long to settle. The clay is still soft, the tree’s roots have only begun to hold it, and the vines reach a little farther along the wall each week. From a doorway, someone can watch the whole place at once: a patch of dim green in the middle of town, growing into the space left for it.

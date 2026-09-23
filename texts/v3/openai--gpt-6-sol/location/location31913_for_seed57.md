@@ -1,0 +1,11 @@
+Beneath the flooded roots of a riverside grove is a space no wider than a person’s cupped hands. It lies under a low shelf of newly broken clay, where the bank has fallen inward but has not yet softened into mud. Its edges are still sharp. Pale grains loosen from them one at a time and remain suspended in the cold water.
+
+Almost everything in the pocket is alive. Fine white roots occupy the clay’s cracks. Dark moss pads the underside of the shelf, although no air reaches it. Thin, translucent leaves rise from the silt and fold against one another until they resemble scales. There is so little open water that a falling grain must pass through a slow tangle of stems to reach the bottom. Now and then a stem flexes, and the others answer it, but the water itself seems still.
+
+Two little walls stand among the growth: courses of flat pebbles, each only three or four stones high. They make no enclosure. Roots pass through them without shifting a pebble, and silt has gathered equally on both sides. Whatever placed the stones has left no other sign of itself.
+
+There is almost no light. The leaves can be found by their paleness, the clay by the faint difference between its edge and the water beyond. A small swimming creature occasionally crosses the pocket, felt first as a pressure among the stems; by the time its shape becomes visible, it has gone. Most movements here are slower than that. A root tip lengthens. A leaf fills, then empties. The clay gives up another grain.
+
+The peculiar thing is the distance between the two pebble walls. Seen from above, it is scarcely the width of a fingernail. Seen from either wall, the other stands far away, behind ranks of leaves too numerous to count. A grain of clay drifting across that gap takes hours. Sometimes it settles midway on a surface that cannot be seen from above. The roots grow down to it and turn, as roots do on meeting stone, though there is no stone there.
+
+At intervals a dull tap passes through the pocket. It may be a pebble shifting somewhere in the bank. Nothing within the little space visibly moves when it comes. The roots continue to crowd their cracks, and the unfinished walls remain apart, holding between them more dark water than the fallen bank ought to contain.

@@ -1,0 +1,11 @@
+Most of the hollow’s inhabitants spend their lives holding on.
+
+The red-bellied animals cling in the wall’s pits with several hooked limbs. From a distance, each looks like a single ember. Close by, the light shows through plates that part slightly when the animal feeds. It works at the stone beneath it for a long time, then folds itself shut and stays still. In a crowded stretch of wall, one may be pried loose only to find another occupying the hollow behind it.
+
+The broad raspers move along exposed shelves, shaving mineral into fine trails. Smaller creatures follow those trails, eating what the raspers leave. They are quick enough to vanish at a vibration. The thin hunters beneath the ledges wait for that flight rather than chasing them. Nearly every encounter is brief: a grip, a scrape, the brittle click of a shell. Then the wall becomes still again.
+
+The walkers are fewer. They have wide, tough soles that spread their weight on powder and bare edges alike, and narrow fingers strong enough to pull food from a crack without bringing down the loose stone around it. In the dark they often travel with one hand on a wall. They know the shelters by touch—the height of a stack, a cut mark near a turn—and can cross a long shelf without ever seeing its far end. Their blades are made for prying and trimming as much as for killing. One small animal taken from a reliable crack is worth more to them than a chase into an open chamber.
+
+They have seen walls give off red light all their lives, but they do not use the lights as landmarks. Too many go out or settle elsewhere. They mark stone instead, return to known feeding places, and leave a shelter ready for the next passage. There is no reason to linger where the ceiling lifts away. Food is harder to find there, and a sound from the far side tells them little about what made it.
+
+Sometimes a walker finds a fresh line across powder that no rasping animal could have left. It may run from one dark lane to another without approaching the wall at all. If the line is new, the walker waits before crossing it. Nothing follows in sight. After a while, the red animals begin to open again.

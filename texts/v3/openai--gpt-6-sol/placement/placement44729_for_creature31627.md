@@ -1,0 +1,9 @@
+At first I think I would stand on the rise, trying to make sense of the fins as a pattern. From there they might look almost deliberate. I would want to know who set the low walls in place, and why the passages stop.
+
+But I would not stay on the rise long. The basin would draw me down to a chamber mouth where a low note passes through the stone. I would crouch to listen, then put a hand against the wet edge. By the time I noticed the pale joint beside my fingers, its owner would already have known I was there.
+
+Perhaps that is where I belong: not as the visitor, but as the old, long one inside the opening. My plates have worn pale where I brace them against its opposite sides. There is a turn below me that takes most of a night to pass; I know when to begin it before the water rises, while there is still room to draw my feelers ahead. When another shell comes through, I loosen my hold. Neither of us needs the passage to ourselves.
+
+I would know the basin by how it reaches me. A drop in the pool at my mouth makes me pull my feelers in. The hollow knock of a farther pool is only sound. Footsteps are different again: weight arriving through the fin, stopping, shifting closer. I might wait with one plate showing until the weight goes away.
+
+Sometimes I would travel under the level blocks. The young gather there, tiny pale edges among the grit and empty shells. I would pass through without disturbing them and find the dark band where fresh water has begun to run. By morning I might have left a clean line too faint for anyone above to notice. Rain would erase it, though I would know the way back while water still moved through the seam.

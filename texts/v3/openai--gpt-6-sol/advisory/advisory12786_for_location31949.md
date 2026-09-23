@@ -1,0 +1,9 @@
+Prepare for a working town, not an abandoned grove. From the road it may look like a few trees, so arrange a contact or ask for the works rather than looking for conventional streets. Confirm that visitors are welcome, where you may stand, and whether there is lodging; the description gives no reason to expect an inn.
+
+Wear sturdy, grippy shoes for gravel, roots, damp moss, and the rail set into the yard. Bring a light rain layer even on a clear day: steam condenses in the canopy and can fall like a brief shower. If you expect to enter the fibre works, carry a dust mask and keep loose clothing, hair, and bags clear of belts, rollers, shafts, and presses. Treat steam valves and covered cisterns as equipment, not curiosities.
+
+Bring your own drinking water until you know what is safe to drink. Stored rainwater may be useful to the town without being potable. Check the forecast, too: the dry streambed and old channels are meant to carry brief storms, and a route that is easy to cross on arrival may change after rain.
+
+Most of all, be careful with the buildings. Walls, frames, gutters, and roofs are living, maintained structures. Don’t pull shoots aside, carve a mark, take a cutting, or assume a gap is a doorway. Keep carts and drying racks clear, ask before photographing or entering the works, and follow local advice about where to walk. After rain, expect the town itself to change over the next few days as new growth reaches into spaces that have not yet been trimmed.
+
+If this is your first trip to this world, do the ordinary traveler’s checks as well: confirm that its air, food, and water are safe for you, and have a reliable way to communicate and get home. Once those are settled, allow time to be still. Much of this place’s activity is slow enough to miss if you rush through it.

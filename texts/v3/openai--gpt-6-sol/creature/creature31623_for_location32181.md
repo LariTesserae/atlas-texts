@@ -1,0 +1,7 @@
+At first, the hollow seems uninhabited. The water is too shallow to hide a fish, and the stone offers nothing that looks like shelter. But the dark seams are not empty. In the narrow places where the seep runs deepest, a pale film clings to the limestone. It takes what little food the water carries through the rock. Where a drop strikes it, the film bends and holds fast.
+
+Small, nearly colourless animals graze there. Most are no longer than a grain of rice. They keep beneath the overhanging edges of the bosses, away from the strip of daylight, feeling along the stone with fine antennae. One may spend an hour working around a pit that salt has begun to fill. If a foot lands nearby, it slips backward into a seam; by the time the water has settled, it is feeding again.
+
+A larger one lives near the outlet, where the water has a little more force. Its shell is thin and chalk-pale, easily mistaken for a chip of limestone. It moves slowly enough that the fresh line it leaves through the film is easier to notice than the animal itself. There are old, empty shells lodged farther up, among the salt. Whatever lives here has lived here for generations, though very little of any life is visible at once.
+
+The clay cup holds only mineral dust and the occasional fallen drop. Nothing nests in it. Now and then a creature from outside crosses the light at the entrance, but the hollow’s inhabitants remain underfoot and out of sight, keeping to the wet seams as the salt gathers around them.

@@ -1,0 +1,9 @@
+The basin lies low and open under an ordinary bright sky. Its floor is warm gray stone, worn into long shallow channels and broad, smooth shelves. Here and there a darker ridge rises a little above the flats, but nothing stands high enough to hide the horizon. There is no soil, no grass in the cracks, no green edge to the water.
+
+Moisture gathers where the stone dips. It beads on the undersides of overhangs and sits in thin, warm pools with pale mineral rims. The pools never seem to spread or dry. Their surfaces tremble faintly, though the air above them is still.
+
+The sound is the first thing a traveler would mistake for evidence of a settlement. A deep, continuous roar comes through the ground, with a higher metallic note over it: the sound of a large plant running somewhere beyond sight. There are no buildings. The noise comes from gas moving through buried chambers and escaping along narrow seams in the rock. Some seams are so straight and evenly spaced that they look cut, but their edges have been rounded by ages of condensation. They are older than any tool mark.
+
+Across the basin, small vents give off warmth. Around each one, the stone is dark and polished, as if countless hands had worked there. The vents have no visible plume. Only a steady shiver in the nearby pools shows what passes through them. The roar does not rise or fall; after a while it becomes difficult to tell whether you are hearing it or feeling it in your feet.
+
+Almost nothing lives here. A few pale, hard-shelled creatures shelter beneath the wet lips of stone, where they are easy to miss until one slowly withdraws from the light. The rest of the basin belongs to mineral surfaces: old, settled shapes, sparse enough that the eye can travel a long way without interruption. Even the dampness seems part of that settled order. A drop forms, holds its weight, and joins the water below while the great sound goes on unchanged.

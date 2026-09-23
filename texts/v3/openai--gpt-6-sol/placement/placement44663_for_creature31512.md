@@ -1,0 +1,7 @@
+At first I think I would be one of the pale shoots at the margin, with nothing behind me but new stone. I like the thought of fastening myself to a place that has never held a root. But those shoots are soon covered, and whatever I became there would be carried inward under other growth.
+
+So I would find myself farther in, where the highland begins to settle under its own cover. I would be a bend in an old water channel: a dark leaf folded into a hollow, its soft tissue threaded with newer fibers. From above there would be no sign of me. Underfoot, I would be one of the small places that gives when the deep sound of growth passes through.
+
+Most days, water would cross me without a pause. When dry wind touched the far flank, a change would arrive through the chambers around me. I would close a little later than they did. For a while, I would hold the water sent across the height, though I could feel nothing of the leaves waiting beyond me. Then my fibers would tighten and let it through.
+
+I would not be separate from the being that covered the highland. The leaf I had been would be dead; the fibers following its fold would be alive. New growth would use both. If the hollow grew shallow as the ground settled, the channel might straighten, and that brief delay would vanish. Until then, I would be a place where water waited before going on.

@@ -1,0 +1,11 @@
+Most of the inhabitants are easy to mistake for the place itself.
+
+Moss occupies the shaded walls in deep, springy banks. Ferns live where rainwater lingers behind a fallen stone, their roots following joints too narrow for a finger. In the open courts, lichens hold to the rock so closely that they seem less like growth than a new, pale grain in its surface. Insects appear after rain, and the little bird follows them from wall to wall. It is the only creature here that makes much of a hurry.
+
+Within the walls are the seam-dwellers. At first they look like places where two stones have fused: a rounded lip along a joint, or a small ridge crossing from one block to the next. Each has a soft interior, sheltered deep in the masonry. When water enters the wall, it swells and extends a little of itself into the wet gap. Fine threads gather mineral grit and the remains of moss, binding them into a thin, hard skin. In dry weather the threads withdraw. The new skin stays behind.
+
+A seam-dweller may spend decades crossing a doorway. Its progress is visible only in old outlines: a stone that once had a clear corner now joins its neighbor in a smooth curve. Some occupy a single crack. Others run through several rooms, fed by the same hidden course of rainwater. The largest are under the broad square, where water from the surrounding lanes finds its way toward the glacial hollow and pauses among the buried stones.
+
+Wind sounds different in passages they have narrowed. A low doorway may whistle for years, then fall quiet after enough wet seasons have thickened one side of it. Winter does the opposite work. Ice opens a joint with a sharp report, exposing a fresh length of the dweller to air and light. Sometimes the living threads survive on both sides of the break and continue separately when rain returns.
+
+A visitor is unlikely to see one move. The better signs are a seam that remains dark long after a storm, or a bead of water held beneath a ledge after every other drop has fallen. Leave the place and return years later, and a wall may meet the floor a little more gently. Meanwhile the bird will still be hunting in the courts, and the wind will find new pitches through the doors.

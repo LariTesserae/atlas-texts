@@ -1,0 +1,7 @@
+The power would first leave the cavity alone long enough to learn its rhythms. It would watch how far the seepage travels before the heat takes it, which hollows stay cool, and whether the new split is widening. It would notice the springtail most often as an absence beneath its chip.
+
+The light already being guided through the crack is more than the little chamber needs. The power would ease it back at the hottest hours. Not to make the place dark, but to keep the damp seam damp for a little longer. If the broken ceiling began to loosen, it would steady the stone from far away rather than enter and mend the break. No new surface would appear here. The chips would remain where they fell.
+
+It would not make a garden of the bare floor or fill the hollows with water. Too much water could drown the springtail’s refuge; too little would leave nothing to graze. The thin colonies would have time to follow the seepage and fail where the heat overtook them, as they do now.
+
+Perhaps, on some days, the film beneath the chip would last an hour longer. The springtail would come out, touch the bright mineral edge with its antennae, and find enough to eat before the floor dried. The power would count that as help, though no one standing in the cavity would know anything had been done.

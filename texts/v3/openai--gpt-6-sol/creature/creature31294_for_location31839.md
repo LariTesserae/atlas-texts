@@ -1,0 +1,5 @@
+Beneath one of the flat stones lives a scorpion the color of old straw. The gap is barely high enough for its body. By day it stays there with its legs folded close and its tail curved along the stone, not quite touching the warm underside.
+
+After dark it comes to the edge of the gap. For a long time it goes no farther. Its comb-like organs brush the ground, and the small hairs on its legs register movements too faint to hear: grit settling, perhaps, or an insect making its way along the bank. When nothing moves, the scorpion is still again. In the starlight, its back is hardly distinguishable from the dust.
+
+It has no reason to cross the open center tonight. Its shelter, the few insects that pass, and the stones that hold the day’s heat are all close to the rim. By morning it will be under the rock again, leaving the hollow as bare as it appeared.

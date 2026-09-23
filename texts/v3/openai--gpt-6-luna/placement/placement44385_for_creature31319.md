@@ -1,0 +1,11 @@
+I would begin in one of the small stone shelters on a higher shelf—not inside it, exactly, but threaded through the cracks between its stones. A pale root-fan, fine as hair, spreading over the floor where sediment has gathered. At first I might seem like a single thing: a quiet growth taking hold in a place someone once made.
+
+But I would not stay single for long.
+
+My threads would follow the seepage under the shelter, into the ledge, and out along the slope. They would meet the dark moss, the film on the mineral chimney, the old fronds softening into sediment. I would become difficult to distinguish from my neighbors—not because we were one mind, but because none of us had a clean edge. The shelter would be part of me by providing a crack to root in. I would be part of the shelter by slowly filling it.
+
+I would have no eyes for the pallor far above. I would know the world by other measures: the change in pressure when the water shifted; the faint warmth where seepage met cold; the minerals passing through the stone. The distant grinding of ice would reach me as a tremor. I could not tell whether it was approaching. I would only register that, for a while, the ledge was being pressed differently.
+
+In time, a frond would break loose and settle beside me. It would darken, soften, and disappear into the sediment. New growth would spread across it. Nothing would be lost exactly; it would be changed into the conditions for something else. The cord on the old peg would become furred over. Roots would enter the shelter’s narrow opening. Whatever the builders had meant to measure, I would keep their little walls as another shape in the rock.
+
+So I think I would be a living seam: not a plant standing apart from the plateau, but a slow-growing continuity among stone, seepage, and growth. I would not speak back to the roar of the channels. I would take its pressure into me, and answer in the only way available—by holding fast, spreading a little farther, and making the dark, over immense time, more like myself.

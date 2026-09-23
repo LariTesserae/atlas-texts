@@ -1,0 +1,9 @@
+I would find myself in an older part of the plateau, at the edge of a hollow that has not quite appeared yet. I might mistake myself for a root. I would have its branching shape, and water would follow my length. But the root would be gone: a grazer would have pulled it free from the mat, leaving its clear outline standing for a few hours in the air.
+
+At first I would wait for the root to come back. Rain would run through me and strike the leaves below. Seed-case mites would crawl along my empty forks. A bird, dropping toward a tremor, would pass so close that one wet wing would scatter the water holding my shape. I would remain after it had gone.
+
+Below me, a family of grazers would be feeding. I could feel where they were by the small interruptions in the water’s flow. One would stop when a distant crown began to turn; the others would stop a moment later. Then they would move together toward roots newly drawn within reach. They would not need to look up to know when the mat would hold them.
+
+Perhaps an old grazer would come alone. It would pause beside the closed trace of a passage it had known when it was young, nosing at leaves too tightly grown for it to enter. I would be near enough to see it, but could offer no way through. My own opening would be upright, no wider than the root that had occupied it.
+
+When the wind changed, the stalks would lose their almost-rhythm. Water would slip from one branch of me to another. The mites would find their way down, and my uppermost forks would grow difficult to see. I think that is what I would be: not a path, but a shape briefly left where something living had been. Before the next rain, the air would close around me.

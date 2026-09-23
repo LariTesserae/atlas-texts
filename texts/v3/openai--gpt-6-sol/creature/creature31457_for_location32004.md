@@ -1,0 +1,7 @@
+Most of the pale grains beside the bearing are not grains. Wait for the pipe to release a drop and several of them turn toward it. They are springtails, small enough to stand between the teeth of a bolt thread. In the dry hours they keep to the shaded rust, where a fingertip could pass over them without knowing they were there. When water arrives, they come out to graze the green film it softens.
+
+They have no interest in the whole crack. Their country is the narrow band between wet and dry. The fan moves that border; so does each drop, spreading through the sand and withdrawing again. They follow it in a loose, restless crowd. A springtail that reaches the water in the bearing stays on its surface for a moment, light as dust, before finding the rim.
+
+The spiders know where to wait. One keeps watch beside a concrete chip, and the springtails pass it singly, with long pauses between them. When the fan starts, the chip trembles. The spider runs forward; the springtails vanish so abruptly that the rust appears to spit. Each has released a folded spring beneath its body. They land among the filings, on the label, sometimes back where they began.
+
+By the next quiet interval they have gathered along the wall again. Ants step over them on their way to a crumb. Across the apron a forklift backs and turns, and its weight sends a slow shiver through the bearing. The pool trembles too. The springtails stop feeding until it passes, then lower their heads to the damp green surface.

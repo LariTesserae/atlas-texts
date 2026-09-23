@@ -1,0 +1,7 @@
+I would arrive with a rubbing stone, intending to make the raised plate by the entrance safe. It would seem like a small, useful job: ease the edge down, smooth the place that catches a hem, leave the aisle as the makers meant it.
+
+But the plate has a passage beneath it now. I would see the fibres carried into the floor cords, and perhaps wait long enough to hear a shield drawn slowly through the tunnel below. Pressing the plate flat would close a door I hadn’t known to look for.
+
+So I think I would be an edge-mender, though not the kind the makers first needed. I’d live on the rim, where there is room to stand and light enough to see what has shifted. I’d rub only the edges that cut. I’d secure a lashing if it began to give way, leaving its loose end for whatever has found a use for it. Much of my work would be waiting beside a proposed repair until the inhabitants showed me what it was already doing.
+
+In late afternoon I’d be easy to find: crouched by the raised plate, with my stone in my hand, watching a long animal come out to clean dust from the smaller ones. The aisle would still end halfway across. I would know the way around the basin, but I wouldn’t claim to know every way through it.

@@ -1,0 +1,13 @@
+The jointed animals are easiest to find at the end of the dim hours, though finding one usually means noticing that a piece of the wall has come away from it.
+
+They are about the length of a forearm. Their backs are low and faintly banded, like a run of thin strata seen edge-on. Six broad legs carry them over the open stone; a finer pair at the front moves almost constantly, touching each step before the animal puts weight on it. At a crack they stop and lay both forelimbs against its sides. They will remain there even if the crack is too narrow to enter. They seem less interested in openings than in the slow pressures around them.
+
+A traveller who follows one may see it climb a sheer façade. The animal sets each foot with care against the barely raised edges of the rock’s layers. Halfway up, it may disappear into what looked from below like an unbroken wall. On another day the entrance is visible, and too small for it. The animals do not appear troubled by either condition. They wait, sometimes for hours.
+
+In sheltered rooms there are smaller ones, pale until their shells harden. Several may rest together in a shallow hollow, each with its forelimbs touching the stone. They are seldom found twice in the same room. A chamber can keep its shape and still become, by some small alteration of slope or distance, a poor place to shelter.
+
+They leave no scraps of food. Where one has spent a long time, there is sometimes a cleaner patch on the floor, with the surrounding dust drawn into fine parallel lines. Perhaps they take something from the mineral film on the rock, or from the little warmth that passes through it. Their visits do not seem to wear the city down. If anything, the corners they frequent are less inclined to shed grit.
+
+There is another inhabitant, if the word can be stretched to include the stone. Its changes are not quite like growth: a street may lengthen without making room for anything, and a new stair can arrive already worn. Yet the city has habits. Certain courts repeatedly draw near one another. Certain walls warm after the long cold, while others never do. Cracks spread, ease, and acquire the rounded look of great age. The small animals move among these changes as if they can sense some of them before they happen.
+
+No one watching from a roof could say what the city wants. It provides passage and takes passage away. It makes empty rooms, then keeps them empty for years. Across one square, a grain of stone is still falling from a cornice. Below it, a jointed animal waits with its forelimbs against the paving. When the grain finally lands, the animal turns and goes through an arch that was, until then, a little farther off.

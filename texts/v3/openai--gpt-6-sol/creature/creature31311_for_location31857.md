@@ -1,0 +1,7 @@
+At first the court seems unoccupied. Then one of the pale rosettes shows a darker edge beneath it: not a shadow cast by the sun, but the thin rim of a body holding itself against the clay.
+
+There are several of them. Each is about the breadth of a fingernail, with a dry, petalled back that resembles old pigment. They have no visible legs. Over days, though, a rosette advances the width of a tile edge, leaving the seam behind it faintly cleaner. They live on what collects where the blue paint remains: a little dust, a little moisture after night, matter too fine to see until they have cleared it away. In the direct sun they press flat and become indistinguishable from the wall.
+
+The spiral in the floor belongs to the youngest. Its shallow hollow gathers almost nothing, but for an hour before dawn a film of damp settles there. Small rosettes loosen from their places higher up and make their slow way down to it. By morning they have arranged themselves along the curve, pale on pale, each with a narrow space between its neighbour and itself.
+
+The great note goes on through all of this. It does not shake them. If anything, they seem to know the court by the parts of the clay that carry it: the singing walls, the quieter lip, the nearly silent centre. When the pavement above is crowded and feet pass close by, they remain where they are. Only much later will one have turned a little, presenting its clean, flat back to the light.

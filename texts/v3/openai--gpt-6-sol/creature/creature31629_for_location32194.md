@@ -1,0 +1,7 @@
+The smallest residents leave the clearest signs. By morning, the soft banks will be stitched with crab tracks, each set of prints ending at a hole scarcely wider than a thumb. In the pools, fish turn without breaking the surface. Their movement reaches the waiting birds as a slight pressure against the birds’ legs; a beak goes down, and the water closes over it.
+
+Under the shrubs, life is less easy to see. Beetles work through wet leaves. Frogs sit where roots enter the mud, their skin the color of the clay, until one shifts and the whole shape of a root seems to change. The vines make passage difficult for anything broad-backed, but the narrow ways beneath them are worn smooth.
+
+The rustle comes again. This time there is a slow dragging sound and a brief clatter of leaves. A large lizard pushes out onto an old silt ridge. Mud coats its flanks; its tail follows heavily, then lifts clear of the ground. It stops with one forefoot raised. For a while it appears to be studying the nearest pool, though its tongue is tasting the air around it—the crabs, the stranded fish, whatever has died since the last rain. Then it lowers its foot and goes on, pressing through a gap too small to have looked like a path.
+
+By dawn the lizard may be under a bank, the birds farther down the channels, the bats folded away in trees beyond the reeds. The crabs will have taken down scraps of leaf, and the fish will have found a little more room if rain has fallen upstream. Each lives by noticing a different change in the same few inches of water.

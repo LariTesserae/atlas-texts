@@ -1,0 +1,7 @@
+At first I would find myself on the narrow stone outside the housing, one hand on the door to keep it from swinging away. I would have climbed toward the hum expecting to find a machine still doing something useful. I’d look for a switch, a dial, a name on the worn plate. Then I’d see how completely the green had fitted itself around the handwheel, and leave it alone.
+
+I would stay longer than I meant to. The note beneath the floor would reach me through my boots; the cold would make the door hard to hold. Just inside, where the shorter blades give way to bare dust, I’d notice a pale grain caught between the hinge and its iron pin. It would be too small to tell from grit, except that the dust around it had settled and this had not.
+
+That is where I think I belong: not as someone tending the thicket, but as its newest, least certain part. A thin blade would push from that seam and stop against the door. Each time the wind moved the iron, a little space would open, though never for long. I would grow only as far as that space allowed.
+
+Behind me, the chamber would remain packed and still. Ahead would be the cold blade of the mountain. I would be the small green edge between them, holding to the hinge while the note continued under the floor.

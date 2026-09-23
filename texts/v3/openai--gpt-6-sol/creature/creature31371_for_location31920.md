@@ -1,0 +1,7 @@
+What lives here is difficult to count. A runner that crosses a path may root again on the other side; a leaf may carry a seedling that will outlast it. Stems disappear into brickwork and emerge from a valve casing, so that even the plants with separate flowers seem to share a body below. The yard is crowded with individuals, but it also behaves like one growth, continually laying new living surfaces over its old ones.
+
+Its largest part is gathered around the pump. Jointed stems brace the broken machinery; roots fill spaces once meant for water or oil. When pressure builds, the roots swell against their casings. When the valve barks, they ease, and water travels outward through pipes and soil into the thick mat. The flywheel gives its tiny advance. Nothing here moves quickly except the released water, but the whole yard seems to make use of that brief motion.
+
+The growth has no need to reach far beyond the wall. It climbs the iron stair and fills the doorway; it floats leaves across the pools and plants seedlings on leaves that are still green. Even the leaning bricks have become a place to hold on. Where a gap opens, a stem enters it. Where a stem dies, others rest on what remains.
+
+There is the snail, crossing the flywheel rim as if it were a fallen branch. It is the only animal readily seen. The more persistent inhabitant is this dense, wet tangle and the working remnant it has taken in: not quite a garden growing over a machine, nor a machine keeping a garden alive, but a place where each has become part of the other’s way of lasting.

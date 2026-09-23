@@ -1,0 +1,7 @@
+The first living thing a hand might find is not the thing that moves. It is a thin, yielding skin on the warm stone, almost indistinguishable from the water filming it. Around the pale threads from above, the skin grows thicker and faintly woolly. Elsewhere it survives in hollows between the rock knobs, where grit has caught and a drop can linger.
+
+The moving inhabitant is no larger than a grain of rice. It is pale, soft-bodied, and nearly impossible to see, even by a visitor carrying a light. It crosses the grit on six fine legs, feeling ahead with its antennae. At each wet patch it pauses to graze, taking so little that the stone looks unchanged. When a drop strikes nearby, it folds into a crevice and waits for the tremor to pass.
+
+There are more of them than the occasional touch suggests. Some live among the roots overhead; others keep to the narrow spaces at floor level. Their eggs lie in damp grit beyond the reach of a finger. They know the hollow as a succession of surfaces: the ridge that stays dry, the knob with a film of growth, the little basin that fills and empties under the ceiling drop.
+
+The notched marker means nothing to them as a sign. Its lowest stone is useful, though. Moisture gathers beneath it, and in the dark a few of them feed there, sheltered by the careful work of a much larger visitor.

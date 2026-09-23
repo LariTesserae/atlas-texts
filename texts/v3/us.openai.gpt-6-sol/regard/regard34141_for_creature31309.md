@@ -1,0 +1,9 @@
+The power would not put a forest on the shelf. There is too little soil to hold one, and roots driven deep too quickly would prise apart the channels the people have cut. Nor would it fill the evening with birds. There is almost nothing for birds to eat.
+
+It would begin where the people have already begun: beneath the covered leaves in the long grassy strips. It would let fungi take hold there, and other small lives that can turn fallen stems into earth. The beds would warm a little as they settled. By the next rainy season, the woman working soil into a crack would find that her fingers carried back more than she had pressed in.
+
+The power would keep rain from stealing that gain. At the shelf’s bare edge, it would roughen a few seams in the stone—not enough to trap a foot or divert the ditch, only enough to catch the earth that washes from the plots. Reeds and grasses could root there in their own time. The people would see where the new ground held and could decide whether to tend it.
+
+One evening, a child turning a stone would find a small beetle beside the worms. There would be more under the next stone, though not under every one. Later, insects would visit the flowers in the kitchen plots. Much later, when there were seeds and shelter and enough small creatures to spare, a bird might stop on a roof.
+
+The power would leave the hooked sticks by the doors and the channels in the people’s care. In the morning, someone would still have to free a leaf from the ditch. But when they carried it to a soil bed, there would be somewhere for it to go, and more life than they could see would be waiting there.

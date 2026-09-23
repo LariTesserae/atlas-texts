@@ -1,0 +1,5 @@
+The most visible inhabitants are the ones that cannot leave. Dwarf willow lies almost flat against the bank, its stems woody and close to the ground. Sedge grows through it in narrow blades; moss fills the spaces between, and small cushions of flowers have made themselves so compact that the wind passes over them rather than through them. In daylight they might look like separate plants. Here, when a slab cracks beneath them and the whole edge shivers, they move as one cover.
+
+Below the leaves is a different tangle: roots holding pockets of dry earth, old stems becoming earth, fine fungal threads running where neither light nor wind reaches. Tiny animals shelter there too, beyond sight in the blackness. The moisture beading on the plants has not soaked down to them. The bank remains crumbly, and each new shift of stone takes away a little of what holds it up.
+
+Nothing in the hollow answers the turbine’s roar. The plants endure it as they endure the bursts of wind and the ticking fall of pebbles. Their living ground has the shape of the slope that was there before the split; along its new edge, roots hang on to soil that has not yet fallen.

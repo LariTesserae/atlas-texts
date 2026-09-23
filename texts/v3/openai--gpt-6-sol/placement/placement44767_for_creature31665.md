@@ -1,0 +1,9 @@
+I would find myself where a cart route ends without quite ending: at the rim of an obsolete conveyor, half swallowed by the root pavement. The vent that once warmed this block has cooled. Its leaves remain overhead, dry and useful as shade, but nothing here has had much reason to grow for a long time.
+
+At first I might be only a seed caught between a ceramic tooth and the conveyor’s living rim. A wheel carries me partway around and stops. Dust settles over me. Beneath it, the old root still holds a little water.
+
+I put a thin root into the gap, then another. One reaches the conveyor and follows its worn curve; another finds the pale stem of a wall. I take so little from either that neither closes against me. For years I am scarcely more than a fastening, holding a loose tooth where it can catch the next wheel. Oil from the milled fruit passes over my skin. Sometimes a seed arrives with it and lodges beside me.
+
+Then heat begins to move under the old route. The wall swells toward it, narrowing the passage, while the conveyor’s roots pull the other way. I grow into the strain. My fibers become a flexible joint between them: not strong enough to keep the street as it was, but enough to let it bend instead of sealing shut. A cart comes through, slowly, after centuries of taking another way. Its passage presses me deeper into both sides.
+
+Eventually I would be hard to pick out. Younger roots would graft along mine. The wheel might grow a new rim; the wall might open just wide enough each time the cart approached. I would not direct any of it. I would be a small living part of the place where an old route becomes usable again, keeping what moisture I can and yielding, tooth by tooth, to what comes through.

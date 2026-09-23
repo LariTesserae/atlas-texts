@@ -1,0 +1,15 @@
+At first it is easy to mistake the inhabitants for the movement of the place itself. A sleeve brushes through a curtain of ferns; a hand closes around a stem before the rest of its owner appears. People travel with one hand free, even on broad paths. They test what takes their weight, and pause when a joint creaks in a way it did not yesterday.
+
+Most carry a small blade and a length of cord. A person going to fetch water may stop to turn a shoot away from a doorway; someone crossing a bridge will pull loose moss from its drainage holes. Children learn the difference between a stem that can be bent and one that will split. They learn it partly by being allowed to make mistakes on the low, crowded platforms, where there is something beneath them to catch a fall.
+
+Their homes occupy the thicker places in the lattice. Rooms are grown around older rooms, with floors that rise gently where a buried wall has become a root. Furnishings are light, but the water vessels are large. A household listens for rain arriving inside the wood and sets out cups before the first drops show. In dry weather, people visit the chambers where a slow drip persists, bringing food or news to those tending the basins there.
+
+The gardeners know their districts by what the water carries. One seep leaves a pale crust and suits a certain moss; another brings silt fine enough for seedlings. They coax edible leaves along well-lit edges and keep the darker interior open for passage. The slow climbers help them. A climber allowed to graze through a corridor saves days of cutting, though it may eat a young bridge tie too. People hang bitter leaves around the stems they want spared.
+
+Dusk belongs more fully to the animals. The gliders unfold from their leaf shelters and cross gaps no walkway can span. Long beaks probe the joints where rain has softened the wood. Sometimes a person mending a wall works for an hour with a beak tapping inches from the other side. Neither has much reason to disturb the other.
+
+Those who maintain the distant paths spend long stretches away from home. They carry reeds for marking turns, fresh lashings, and packets of seed kept dry against their bodies. They can recognize a neglected bridge by the way it admits light: too much above, too little ahead. They may cut an entrance back into it, or leave it closed if the growth is holding a weakened span together.
+
+Everyone knows a few routes that do not agree with the view from an edge. People use them without much ceremony, though they check the reed ties before trusting an unfamiliar turn. A passage that brought water to a garden last season may carry it elsewhere this year. The gardeners move their cups; the menders follow the damp and see what has shifted.
+
+At the outer edges, the work is less certain. Someone climbs out each morning to bend new stems toward empty air and fasten them to the last sound joint. Others bring water to the growing tips. From inside, it looks like an unfinished railing. From across the hollow, if the cloud lifts, it is a narrow green line reaching toward another patch of leaves.

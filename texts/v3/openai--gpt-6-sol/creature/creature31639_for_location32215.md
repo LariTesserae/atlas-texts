@@ -1,0 +1,9 @@
+Most of what lives here has learned to use the city without using its streets.
+
+Geckos wait where a wall still holds the day’s heat. Frogs occupy the few cisterns that never quite dry, climbing into cracks as the water falls and returning when rain drums on the roofs. In the wet seams are snails, pale roots, and insects small enough to live between grains of mortar. After a storm, a wall that looked empty may move in a dozen places at once.
+
+The bats have the widest reach. They leave the buried rooms in uneven streams, one after another until it is hard to believe the room can contain more. Some take insects above the vines; others go to the figs. By morning, fruit skins lie on distant roofs, and seeds have fallen into joints no bird could easily reach. The trees growing out of the houses are, in part, the bats’ work. So is the rich, sharp-smelling soil gathered on floors that once had none.
+
+There are larger animals, though they seldom show themselves whole. A long-bodied creature travels the vine bridges before dawn, pausing to feel into a nest or nose at fallen fruit. Its feet are quiet on leaves but audible on tile. It knows which roofs give way, which cisterns have a rim wide enough to walk, and where a leaning wall will let it cross three streets without descending. Young ones follow it clumsily, making the brief scrapes and thumps that the insects soon conceal.
+
+None of them knows the city as a single place. A frog’s city is a chain of damp chambers. A bat’s is a dark room and the flowering trees beyond it. The long-bodied animals inherit routes across roofs and through foliage, while generations of insects pass within one wall. Together they keep occupying the terraces, even the ones lost from view down the valley.

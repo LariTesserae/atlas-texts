@@ -1,0 +1,9 @@
+At first, it seems the builders have left nothing alive behind them. Then, in a basin no broader than a hand, the water draws back from one corner. It does not ripple. Its surface remains level while a clear margin opens between it and the stone, as though the basin has briefly become a little larger than its contents.
+
+The inhabitants are difficult to see because they have no part that stays put. Each occupies the water in a basin, but not all the water: rain can enter without disturbing one, and a spill can leave one behind. A resident shows itself in a hesitation. A filling basin waits a moment longer than its depth should allow; a drop falling from a lip strikes the pool below without making a ring. Sometimes grit resting on the clay floor gathers into a thin curve. By morning it has dispersed.
+
+They seem to attend most closely to the notches. When water reaches an overflow, one may hold to the upper basin for days, though the water has begun to pass. Another goes with the first thin sheet and arrives below almost at once. In the long intervals between rain, their movements grow small enough to mistake for evaporation.
+
+No two basins give them quite the same life. In the round cups worked into thresholds, they can only gather and release. In the long basins across the slopes, they draw themselves out with the falling water. At a covered cistern, one lives in darkness and announces its presence by changing the pitch of a single drop.
+
+They did not lay the brick; the mold ridges and thumb marks belong to other hands. Yet they have learned every slight error in the work. A lip a fraction too high grants its resident another hour. A shallow place in the mortar lets one remain after the basin appears empty. From the ridge, the valleys look still and bright. Down among the partitions, thousands of small lives are passing from one pause to the next.

@@ -1,0 +1,7 @@
+I would live at the sheltered end, where a groove leaves the ruined structure and crosses the clean stone. At first I might look like one more loose scale: pale, flat, and still beneath a wooden paddle. The wind would lift the paddle, expose me for a beat, and let it fall again.
+
+I would be a small animal, longer than the clicking ones at the rim, with feet made for gripping the shallow walls of the groove. I would eat what collects under the paddles: insect husks, shed skins, and the fine powder shaken from passing fronds. When a notch grew packed with grit, I would work it free with my mouth. The paddle would knock differently afterward.
+
+I would know the garden by those differences. One paddle strikes twice before settling; another skids across the slab. In a strong gust I could travel from the shade to the nearest plant without once being heard. In a lull I would stay under wood, feeling the small feet of other animals cross the stone above me.
+
+I think I would grow old there, if such a creature could: not tending the paddles, exactly, but wearing a little hollow beneath the one that shelters me best. Each time the wind raised it, I would have a glimpse of silver leaves. Each time it fell, I would return to the grit caught at its edge, while the garden went on sounding much larger than it was.

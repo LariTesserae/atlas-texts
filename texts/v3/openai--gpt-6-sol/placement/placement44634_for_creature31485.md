@@ -1,0 +1,7 @@
+At first I think I would live at the outermost arch. There is a little more light there, and the cloud must sometimes lift enough to show the fall of the mountain. A seed could catch in the shelter of the last wall and put down a root while its first leaves faced the open air.
+
+But the wind would take the full measure of that place. I think I would be farther in, in a passage where you have to turn sideways between two walls. Not one of the old trunks. I would have begun as a shoot in a pale crack, with almost no soil, growing toward the damp bark opposite. For years I might have looked like one more stem making the street narrower.
+
+Then, where I pressed against the other wall, the bark would give way in a small place. New wood would grow across the contact. Water caught above me could pass into a trunk whose own roots reached only dry stone. In a hard winter, some might pass the other way. From the street, there would be little to see: a thickened join at shoulder height, silver leaves collecting drips on either side.
+
+That is where you would find me—not quite a plant you could trace from root to crown, and not quite part of the wall that holds me. I would be the place where two crowded lives had grown together. Below me, young shoots would keep testing the width of the passage. Above me, the joined stems would creak in the wind, and I would carry what water I could between them.

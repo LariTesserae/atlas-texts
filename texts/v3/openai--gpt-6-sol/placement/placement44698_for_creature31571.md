@@ -1,0 +1,7 @@
+I would first look for myself at the door: a hand on the latch, listening to a noise too large for the space behind it. I would want to be the one who could open it, discover its cause, and close it again.
+
+But I think I would be inside, in the seam beside the lowest tray. One of the small ones with a dull new back. From there the iron would not look like a wall. It would be a series of narrow places to grip, each ridge worth finding carefully with a foot. The pool would begin only a body’s length away. Above me, older animals would be pressed so closely together that their shells made a second ceiling beneath the tray.
+
+I would not yet know how to join their sound for long. I would draw a leg across the back nearest mine and feel the scrape travel away through bodies I could not see. Then I would stop to hold on. Nothing in the chamber would seem to change during that pause: the drop would remain on its screw, the pool at its line, the amber bulb steady. But a larger animal might shift, leaving enough room for me to set another foot.
+
+For a while I would mistake the great noise for something the others knew how to make without effort. Up close, I would learn it was made of attempts like mine—each grip adjusted, each scrape broken and begun again. I would stay in the seam until my plates hardened. Then I would climb onto the tray lip and find a place among them, sounding against my neighbor while the door opened and closed somewhere far away.
