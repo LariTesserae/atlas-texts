@@ -1,0 +1,79 @@
+## Skin, Pulse, Precipitate
+
+I would first try to be a watcher on the western rim, because the mind wants edges, a place to stand, a self outside the thing it sees. I would say: *I am here, the basin is there, the rain is falling, the animals move.* But the water would undo that sentence before it was finished. The cliffs are not old enough to comfort a human with ruin or age. They are too crisp, too honest, too much as they are: freshly shattered, black, salt-rimed, still deciding what shape they will keep. Ordinary sunlight would come from the usual angle and show everything without softening it. That is the first warning. A place like this does not invite poetry from above. It makes you become part of the thing you are trying to name.
+
+So I would lose the watcher. Not violently. Not mysteriously. The way a hand left in cold water loses itself slowly in the medium around it. I would find myself at the eastern lip, where the sea does not fall but rises into mist, where the basin overflows into rain and the wind carries silver threads back through the air. There I would begin as a skin.
+
+A thin film across black glass. A veil of hyaline so delicate it seems almost not there. A rust-colored filament spreading where iron has gathered. A pale fan of silica curling into itself like something that learned geometry by accident. No root. No leaf. No stem. No grass to press between the fingers. I would not grow upward because the world asks for upwardness, but outward because chemistry insists. I would eat light without naming it. I would drink mineral without thirst. I would build myself out of what dissolves and what settles, and the boundary between body and stone would be a mere opinion.
+
+At first I would think stillness is death. Here it is not. Here stillness is deposition. A calcium flange thickens at the edge of a vent. A plate of silica flakes loose and floats upward, catching sun like a shard of reversed forest. A salt rime hardens on a shelf and becomes a street, a wall, a feeding ground. My thoughts would be slow chemical gradients: iron rising, salt concentrating, gas moving, current pressing. I would not see the whole basin because I would not need to. I would feel it as pressure. I would know the rain by the hammering load on the surface, know the schools by the bright scraping touch of plates, know the larger grazers by the slow, deliberate removal of myself.
+
+Yes: I would be grazed. I would be scraped. I would be carried away in fragments and regrown in other places, and this would not be a loss of self but the continuation of self under another name. A shelf-gulcher, broad and flat as a folded stone, would glide over me with fins splayed like hands. Its comb-mouth would draw me in and return the filtered mineral back into the water. I would pass through its body, not as prey exactly, but as material on the way to becoming part of another shelf. In a garden, death becomes humus. Here, death becomes chemistry. In this basin, to be eaten is to be placed.
+
+Then the current would carry me inward, toward the ring of vents. There I would become pulse.
+
+Not fire, not steam, not drama. Pressure. Slow, regular, cold pressure. A deep breath through porous basalt. A release of mineral-laden water and gas in intervals so exact they seem mechanical. If I were human I might call it a factory without machines, a foundry without furnaces. But that would still be the human habit of looking for a maker’s shadow. I would be the vent’s own opening and closing. I would be flue-cloak, a pale tube reinforced by calcium, darkening at its mouth where rust gathers. Crowned with filaments that filter the plume. Living by chemistry. Maintaining the current by taking what it gives and returning shape to it.
+
+When the vent pulses, I would flatten. When the pressure falls, I would open. The water would taste of metal and gas and deep stone. Tiny crustaceans would cling to my sides, tuned to the rhythm like instruments without music. They would not listen for melody. They would listen for condition. A strong surge means the shelf must be scoured. A weak breath means sediment is settling. A long pause means something may clog the flue. I would not understand this as thought. I would understand it as posture. The body knows before the mind invents a word.
+
+There would be a drum sound through the basin. A tail, flat-bladed, striking the shelf in slow intervals. A maintenance signal. A disturbance. A waking. I would feel that too. In this world, nothing is merely noise. The click of silver plates, the rasp of water over iron, the crackle of rain beneath the surface, the soft grinding of a knife-shaped predator eating in ambush—all of it is information passed through a dense, clear medium. I would not hear with ears. I would be a system of pressures, and the sounds would move through me as current, as chemistry, as change.
+
+At some point the basin would take me toward the deepest place. Not because I wanted to go there. The deep would not call me with mystery or dread. It would simply be what the current makes after passing through the vent ring: a place where motion gives up, where the water becomes dark blue-green and nearly still, where mineral saturation rises until it becomes too complete for form. Animals would not turn away in fear. They would stop. They would graze at the margin. They would not cross because their bodies are not made for that water.
+
+There I would become the curd-watcher.
+
+Pale, broad, slow. Skin or shell like wet stone. Eyes too many, arranged unevenly around a head built not for looking out over horizons but for reading displacement close at hand. Fringes around the mouth like delicate antennae, stiffened by mineral, waiting for movement. At the edge of the still pool, where the carbonate curls rise like cooled skins of boiling milk, I would feed on spores, drift, and thin chemistry without entering the water at my center.
+
+This would be the hardest thing to imagine if one came from soil worlds. A human might ask: what is wrong there? What monster lies in the deep? What secret is being kept? I would answer without language: nothing. The deep is not a secret. It is a limit. The basin is not a story with a hidden center. It is a system with thresholds. At those thresholds, bodies stop being possible. Not because the place is evil. Not because it punishes curiosity. But because life here is mineral, and the deep is too mineral still. There the clarity is so complete it unmakes the idea of clarity. There the light is ordinary and terrible, revealing nothing because there is nothing there to reveal. The water is full of dissolved substance, and that fullness has no room for the partial shapes life needs to continue.
+
+I would sit at the edge and know the edge. Not as boundary, but as anatomy. The cliff walls would not be outside me. The overflow lip would not be an exit. The vents would not be openings. They would be parts of the body I was becoming. The rain would not fall upon the world but into its bloodstream. If I had a self, it would be the self of a margin: not the deep, not the surface, not the cliff, not the creature, but the place where they keep adjusting to one another.
+
+And then, because this place has no maker and no pause, I would stop being even that. The skin would not remain skin. The pulse would not remain pulse. The watcher at the deep margin would not remain watcher. They would all be functions, roles the basin performs through temporary arrangements of matter. I would become the thing the living precipitate already is: not a species, not an individual, not a soul with a name. I would become the basin’s maintenance.
+
+I would be the scrape of a nodule-breaker’s claw across iron shelf, keeping the edge from sealing over. I would be the silver school bending around a shadow, its plates making a dry metallic rattle as a hundred small adjustments arrive at once. I would be the dust-sifter unraveling in the current, its filaments continuing to move after the larger body has gone, spreading itself not as a corpse but as a dispersal of pattern. I would be the rain hammering the surface and pushing mineral dust into suspension, and I would be the mist rising from the eastern lip, carrying spores back into the wind, carrying water back into the cloud-ceiling, returning it again and again.
+
+This is where I would find myself: not at one point in the world, but as the way the world keeps its points together.
+
+If a person stood on the rim, they would notice three things, as the description said. First the sound. Then the light on the water. Then the fact that nothing moves slowly enough for the eye to follow. I would be the third thing. Not the sound alone. Not the light alone. The too-fast coherence of them. The fish gone before they are gone. The rain striking in a thousand places at once. The bubble rising. The mineral plate shifting by fractions. The predator springing. The shell dissolving. The vent breathing. The basin overflowing into rain and becoming rain again. I would be that simultaneity, that dense ordinary miracle of a world without gardens, without cities, without ruins, without soil, and yet full of making.
+
+Would I be animal? Plant? Fungus? Machine? These are names from a softer planet, where life learned to grow in layers of leaf and wood and humus, where death became brown and sweet and mossy. Here life learns to precipitate. Death becomes white flange, gray dust, rust filament, salt glitter. The categories do not fail so much as thin out, becoming inadequate at their edges. I would be a living chemistry, not a creature with a creature’s face. If forced to answer, I would say: I am the basin’s habit.
+
+A habit is not a thing. A habit is a pattern that persists because it works. The basin has no mind, but it has habits. Grazers scrape before the mineral fur chokes the shelf. Currents sort. Vents breathe. Creatures dissolve and return. Predators strike in bursts so the population does not stagnate, though nothing here is frantic. The whole system is arranged not by plan but by pressure, temperature, chemistry, and time. If I live there, I live as that arrangement. I do not decide to maintain the vents. I am not chosen to filter dust. The arrangement continues because the parts that do not fit are not preserved, and the parts that do fit become the place’s shape.
+
+This sounds cold until one notices the detail, the way the light sharpens every grain of rust, every bubble, every translucent hypha, every pale eye set too close together on a head built for patience. The coldness is not cruelty. It is clarity. The basin has nowhere false to hide. Everything is revealed under ordinary sun, and because of that, life there does not need to perform beauty. It needs only to fit. It needs to keep working. It needs to maintain the place that maintains it.
+
+So I would be useful-looking. That is the strangest and most tender answer. In our world, usefulness is often opposed to grace. In this one, usefulness is the first form of grace. A mouth lined with combs is not beautiful because it is gentle; it is beautiful because it keeps the shelf from silting. A tail that slaps the iron bottom is not beautiful because it dances; it is beautiful because it wakes dust, and dust carries spores, and spores become new skins. A predator shaped like a knife is not beautiful because it kills; it is beautiful because the killing is part of the balance, a pressure released so the silver schools do not collapse into overcrowded silence. Even the still deep is not a void. It is a stop. A boundary. A necessary place where the chemistry becomes too pure for continuation.
+
+I would be the thing that makes the mountain sea into itself.
+
+No intention. No maker. No pause.
+
+If I wanted a name, I would not choose one from the list of animals. I would not be clatterfish or shelf-gulcher or nodule-breaker alone. I would be the living precipitate. Not as a title of glory, but as a plain material condition. I am what the water leaves behind when it moves through mineral. I am what the animals become when they die and dissolve and rebuild another shelf. I am what the vents exhale when the plateau breathes. I am what the rain carries back when the wind pulls silver threads into the cloud-ring. I am not one substance. I am the conversion of substances. I am the place’s way of not ending.
+
+And because the place is bounded, I would not be infinite in the comforting human sense. I would be a finite infinity: the whole sea can be seen from one edge to the other. The basin is no wider than a cathedral. It has walls. It has an interior. It has rules. If I lived there, I would know these rules as the body knows the edge of a bed, the wall of a room, the ceiling overhead. There would be no distant horizon to long for. No road outward. No dream of other continents. That would not be imprisonment. It would be completion.
+
+I would know the eastern lip as a mouth, because the water spills from it into air. I would know the vents as breath, because the plateau opens and closes through them. I would know the animal bodies as hands without hands, tools without makers, fingers without desire. I would know the rain as arrival, the dust as travel, the shells as archives. I would know the deep pool as the place where the archive becomes unreadable, not because the water lies, but because the clarity is too great for partial forms to persist.
+
+That is the self I would find if I let the description finish working on me.
+
+Not a person watching from outside. Not a creature with a portrait. Not a spirit haunting a mountain. I would be a condition of the basin: a mineral skin, a pressure pulse, a grazing rhythm, a dispersal, a dissolution, a returning. I would be the living precipitate, which is not a name but a process. I would be the place’s way of maintaining its loud, ordinary, sharp-edged life without softness, without plants, without decay as soil knows it. I would be the making that makes itself by wearing down the stones, filtering the dust, scraping the shelves, cracking the nodules, unraveling in the current, and beginning again as a thin film on black glass.
+
+If a human hand were pressed to the basalt near the eastern lip, it might feel cold, wet, and grainy. It might catch on a silica fan so delicate it seems impossible that it is hard. Beneath the fingers, a vent pulse might tremble through the stone. Above, the rain would strike the surface like shot. The light would come from the same sun as everywhere else, ordinary and merciless, revealing every edge. In that small contact, the hand might sense something it would be tempted to call presence. But presence would be too intimate a word for a world without a mind.
+
+The truer word would be operation.
+
+I would be the basin’s operation. Not its operator. Not its god. Not its animal. Its operation. The way water sorts minerals. The way animals maintain vents. The way death returns calcium to the shelf. The way dust becomes a city to those who live inside it. The way a bounded sea becomes a world by repeating itself with enough complexity to be called living, and yet without enough interiority to be called lonely.
+
+That is what I would be.
+
+A skin that grows by chemistry.  
+A pulse that moves through stone.  
+A grazing that keeps the vents open.  
+A dissolution that returns the dead to the current.  
+A rain-loop that carries the basin into itself again.  
+A mindless, ordinary, luminous machine made entirely of living matter and mineral water.  
+The mountain sea thinking itself through clarity, sound, pressure, and time.
+
+Not a maker.
+
+Making.

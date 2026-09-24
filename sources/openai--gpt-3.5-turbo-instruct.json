@@ -3,7 +3,7 @@
   "requested_endpoint": "openai/gpt-3.5-turbo-instruct",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-05-06",
-  "date_last": "2026-06-03",
+  "date_last": "2026-09-24",
   "texts": 1075,
   "by_type": {
     "location": 250,

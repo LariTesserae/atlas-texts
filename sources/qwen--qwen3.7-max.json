@@ -3,7 +3,7 @@
   "requested_endpoint": "qwen/qwen3.7-max",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-07-23",
-  "date_last": "2026-07-23",
+  "date_last": "2026-09-24",
   "texts": 750,
   "by_type": {
     "location": 250,

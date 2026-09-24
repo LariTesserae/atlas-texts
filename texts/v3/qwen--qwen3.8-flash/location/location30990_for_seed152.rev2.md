@@ -1,0 +1,65 @@
+It is not so much a landscape as a pocket, a low and hidden basin that has been sheltered beneath the curled edge of a collapsed root shelf, where the light comes through stained green and thin, as if the whole chamber were breathing through leaves. The air is warm in the way low places are warm—not hot, not feverish, but thick with the slow heat of earth that has never learned to dry. There is no wind here. Movement comes from moisture: a mist that gathers along the high ceiling of the hollow, beads upon the raw clay, grows heavy, lets go, and falls as the smallest rain onto the newly built city below.
+
+Nothing is worn.
+
+That is the first thing the eye would notice if it could see clearly enough to understand what it was looking at. The surfaces have the strange sharpness of things only recently made: ridges of clay still crumbly and bright, pebbles lifted from deeper layers with no polish, arches not yet softened by the weathering of centuries. The world here is not eroding so much as assembling. It is under construction, and its construction is biological. There are no tools, no devices, no marks of metal or cut stone. The architecture grows because bodies grow, because mouths carry, because legs press, because glands seal, because thousands of small lives cooperate in a pattern that appears, from the inside, as city.
+
+It is a pocket-scale settlement.
+
+If a person were to lie prone at the opening and peer beneath the root vault, they might at first think they were seeing a heap of dirt, a mossy mound, a clump of fungus-stained earth. But closer—much closer—the mound resolves into streets. Not broad avenues, but lanes barely a grain of sand wide, lined with packed walls, opening into courtyards where the damp has darkened the floor into small mirrors. There are buttresses made from chewed fibers and hardened saliva. There are vaulted ceilings supported by columns of fused clay. There are towers not much taller than a thumb, but to the inhabitants they rise like cathedral spires, their surfaces alive with the motion of bodies climbing their flanks. There are granaries, nurseries, tunnels, bridges, drainage channels, sealed doors, and open windows where pale air moves through the dark.
+
+It is urban in the sense that organization has replaced accident.
+
+The structures are not random clumps. They are arranged with purpose, though no one plans them in the way a human drafts a map. The plan is distributed: in the chemistry of trails, in the tug of pheromone, in the instinct to place one particle where thousands before it have placed a particle. The city is made from the accumulated labor of creatures without minds as we recognize them—mandibles and antennae, segmented bodies and jointed legs—yet it has streets, plazas, thresholds, and chambers. Its order is more ancient than thought. It is the order of life building a place to live because living requires shelter, because shelter requires structure, because structure requires endless repetition.
+
+There is no technology, and yet there is engineering.
+
+Water is routed by slopes too subtle to call carved but too deliberate to be natural. Channels no wider than a hair carry droplets away from nursery cells where the eggs need humidity but not drowning. Vents have been opened at the top of towers where the air is warmer and thinner, drawing the breath of the whole mound upward through its hollow bones. Some arches curve with the perfect economy of things that have found the strongest shape by failure and repetition. A crack may begin at one wall, and before it can threaten collapse it is sealed by workers carrying a wet paste of soil and secretions, pressing it into place with their heads, their jaws, their backs. Repair is not occasional. Repair is the normal state of the place. The city is never finished.
+
+The moisture is not abundant, but it is persistent.
+
+There is no river running through the hollow, only dampness everywhere: on the floor in the form of shallow puddles that gather and vanish, on the ceilings as beads of condensation that tremble before releasing, on the walls as dark seams of wet clay. Sometimes a small pulse of rain arrives from above—a few drops passing through the root gaps, falling onto the open courtyards. Then the hollow comes alive with drinking. Tiny mouths touch wet ground; eggs swell faintly; fungus threads spread in sudden new white filaments; some chambers become too bright with activity because water has opened a season. Then the rain stops. The air remains humid. The puddles shrink into films. The city continues.
+
+The vegetation is lush, but scattered.
+
+One might expect a jungle, but this is not a jungle. It is a collection of individual green presences, each full and extravagant, separated by spaces that give them room to be themselves. Here a moss mat as soft and deep as velvet, its tiny leaves so numerous they become a forest when seen close enough. There a seedling broad-leaved and pale, leaning across an alley with its roots holding a wall in place. Elsewhere a liverwort carpet, a curling fern no larger than a fingernail, a tuft of grass whose blades shine with moisture. Each plant is dense with life, but they are not packed together. Their spacing gives the place an air of intention: a clearing here, an open plaza there, a path left bare because the builders keep walking it, a roof made by a fallen leaf that has settled across two clay buttresses like a green tile.
+
+The plants are not separate from the architecture. They have been incorporated.
+
+Some walls have moss growing through them, softening the edges. Others are buttressed by roots. One of the city’s bridges has been built across the gap between two mounds and has since been colonized by tiny plants whose seeds landed in the packed dirt of its railings. In this way, the boundary between built and grown becomes meaningless. The city does not end at its clay walls. It begins to green. Leaves become roofing. Moss becomes mortar. Root becomes arch. The settlement is a collaboration between animal labor and plant expansion, though neither intends it. They simply fit into each other’s spaces.
+
+The light is dim, but not dead.
+
+It filters through the overhead lattice of roots and leaf litter, breaking into patches of olive, amber, and deep shadow. Where it touches the clay, the earth looks almost wet-gold. In the tunnels, there is a darker, mineral blue. In the chambers where fungus grows, the light is absent enough that vision matters less than smell. The bright green of moss is stronger near the entrances, fading to black inside the deeper rooms, but the blackness is not still. It is full of motion.
+
+The fauna is abundant.
+
+At first glance one might think the hollow empty because there are no large creatures here. But the moment the eye adjusts, the abundance becomes obvious. Thousands of small lives pass over every surface. Workers move in lines carrying grains of sand, droplets of moisture, fragments of leaf. Beetles patrol the streets like armored merchants. Snails cross open courtyards in slow, silvering arcs, leaving trails that other creatures follow for scent. Mites hitch rides. Fungal threads spread in the dark. Ants, if they are ants, are not the only architects, nor are termites the only builders; here the exact names are less important than the fact that many kinds share this tiny urban world. Some belong to the city. Some intrude upon it. Some prey upon it.
+
+A pale larva curls in a chamber too warm for its skin. A small amphibian rests beneath a moss shelf, watching the streets with eyes that are almost black. A line of builders seals a wall as a predatory mite tests it from the other side. A snail crosses a bridge and drops a single granule into the void below. The granule falls. The city notices. Within seconds, three workers are dispatched to recover it.
+
+Predation is part of the urban rhythm.
+
+There are guards at openings, there are alarms, there are sudden collapses of tunnels that are not structural failures but deliberate closures. A chamber may become too hot and be abandoned. A passage may be re-routed because a predator has found it. A courtyard may fill with bodies and then, later, with silence. Nothing here is dramatic in human terms, and yet every event has consequence because the population is so tightly woven through the architecture. Each grain removed or replaced changes the city. Each droplet that falls from the roof opens a new task.
+
+The sounds are quiet, but the place is alive.
+
+There is no wind. There is no bird-song from this interior pocket, only the faintest distant tremor from the world above. At ground level the sound is almost sub-audible: the dry tick of a single grain rolling down a slope, the soft rasp of legs moving across packed soil, the damp whisper of a mist droplet striking a puddle, the muffled crackle of clay drying by fractions. If one presses an ear to the earth, the city becomes a hush of motion, like sand inside a sealed jar, like a candle flame heard from another room. Sometimes a swarm of very small insects passes through an upper chamber and produces a sound not quite buzzing and not quite breathing. Mostly there is silence, but it is a busy silence.
+
+The world here is active in every sense.
+
+It is not a frozen diorama. The city is not simply standing there. It is growing. At night, when the air cools and moisture condenses, fungus threads extend in visible whiteness through nursery chambers. In the warm morning, when droplets fall, worker lines surge outward from the outer gates to gather wet clay. At midday, the upper towers vent hot air and the lower halls become dark with stillness. At dusk, the snails emerge. The predators become bolder. The builders repair the walls that the daytime activity has worn down—not worn by weather, but worn by use. Everything cycles: wetting, drying, building, abandoning, rebuilding, sealing, opening, feeding, growing, dying.
+
+There are rules.
+
+The first rule is that no single body matters except as part of the whole. The second is that structure is never complete; it is always becoming. The third is that water is both foundation and threat: without it there is no mud, no clay work, no dampness in the air, no drink, no softening, no life; with too much, walls sag, eggs rot, passages flood, and the city must drain or die. The fourth is that emptiness is as important as substance. The sparse placement of structures gives movement room. The open courtyards allow light to enter and air to circulate. The gaps between plants and buildings are not lack. They are pathways.
+
+The fifth rule is that the city is hidden.
+
+It exists at the scale of a pocket. From above, it is not obvious. It is not meant to be seen by anything larger than itself. Its survival depends on concealment: the dim light, the low ceiling, the way the entrance is masked by roots and moss and the fallen geometry of the forest floor. Within its boundaries, however, it is not hidden at all. For the inhabitants, it is a metropolis. Every wall has a route. Every chamber has a function. Every passage connects. To a mite, a tower is a mountain. To a springtail, a puddle is a lake. To a builder, a new arch is a miracle. The smallness of the place makes every feature monumental.
+
+As the hour advances, the hollow warms a little. The trapped heat of the lowland presses down through the leaf litter and rests beneath the roots. The clay walls begin to breathe moisture outward. In one courtyard, the surface darkens as condensation spreads. In another, the water has dried enough that dust rises when workers pass. A crack appears in the wall of a nursery chamber. Before the hour is out, the crack is sealed. By then, three other cracks have appeared elsewhere, and they too are being attended to.
+
+This is what it is to live here: not in the grand, violent way of storms and cliffs and open rivers, but in the patient, granular way of construction and repair. The city is not beautiful in the manner of human cities, not because it is ugly but because its beauty is invisible to those too large to see it. It is beautiful the way a crystal is beautiful, the way a vein is beautiful, the way a pattern repeated millions of times becomes inevitable. Its streets are made of bodies. Its walls are made of mouths. Its roofs are made of the compressed history of labor. Its life is made of motion so small it resembles weather.
+
+And if the rain comes again—that intermittent, soft, hidden rain that falls from above into this pocket—the hollow will change. The courtyards will flash. The streets will run with silver. The workers will form new lines to protect the entrances. The fungus will swell. The plants will lean and tremble. For a time, the whole city will become wetter, brighter, more urgent. Then the water will withdraw into the clay. The moisture will settle into the air. The sound will drop back to a whisper. The city will continue building itself, grain by grain, cell by cell, life by life, warm in the dim lowland dark.

@@ -3,7 +3,7 @@
   "requested_endpoint": "moonshotai/kimi-k2",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-04-29",
-  "date_last": "2026-05-23",
+  "date_last": "2026-09-24",
   "texts": 1074,
   "by_type": {
     "location": 250,

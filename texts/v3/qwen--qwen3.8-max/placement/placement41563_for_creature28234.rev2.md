@@ -1,0 +1,47 @@
+I would not find myself at the edge of it, because there is no edge. There is no bank, no dry margin, no place where the water stops and a separate self can stand looking in. So the first fact would already have happened to me: I would be inside. The warm green-dark would be pressing on every side of me. The fine living powder of the sea would be entering me, settling on me, beginning to make me continuous with everything else.
+
+For a while I would imagine myself as the stranger the sea incorporates: a body from somewhere else, still remembering corners and boundaries, slowly being softened into a mound. Films would gather on me. Spores would find my folds. Threads would explore my outline until the outline became less certain. But that answer feels too brief. It makes me an arrival. The high sea feels older than arrival. If I stay with the question, the image changes.
+
+At first I try to find myself as one of the moving forms. I imagine being the Ribbon One, kilometers long and almost transparent, drawn across the water like a faint line of attention. But that is too vast, too singular, too much like a journey. I imagine being the pale hunter, opening itself in a bloom and leaving a clear cone of absence behind. But even that quiet hunger is a kind of separation. I imagine being a Hill-Grazer, broad as terrain, carrying gardens on my back across centuries. But that is almost too slow, too close to becoming geography. I imagine being one of the Bloom-Born, bright and temporary, a brief green intensity in an oxygen squall. There is something in me that recognizes that, but it would not last. It would collapse into soft ash and leave only a stain.
+
+If I let the sea decide, I become smaller, quieter, chambered.
+
+I would find myself in the middle distances, below a bladder meadow, near one of the black-green forests where the broad fronds bend in slow unison. I would be where the root-curtains hang densely enough to make corridors, rooms, half-seen alcoves. I would be in one of the low calcium domes half-buried in shell-white powder, or perhaps inside a latticed cup formed by generations of the same patient growth. The place would not look like a house to an eye that expects houses. It would look like a habit the water has mineralized. Its inner surface would be smooth, layered, faintly translucent, marked with rings that are not writing but pressure remembered.
+
+There I would be one of the House-Soft Ones.
+
+Not a single animal in the old sense. Not a face, not a voice, not a pair of hands reaching for tools. I would be a soft plural: a film, a tuft, a pulsing membrane, a colony of minute lives sharing one slow purpose. My body would be a listening skin stretched through the interior of the chamber. I would know the world by drawing it across myself.
+
+I would taste the water continuously.
+
+A green sweetness would mean a bloom opening somewhere in the upper haze. A chalky fineness would mean a bank had exhaled. A long, clean disturbance would mean a Ribbon One was passing far away, combing spores from the dimness. Warmth with iodine and old mineral pressure would mean a Hill-Grazer had shifted its century-long weight. A change in salinity would arrive like news. A pulse of oxygen would feel like invitation. A darkening of the tea-colored light would mean a pressure front gathering itself over the forests.
+
+I would not see in the way surface beings see. I would register dimming, thickening, the nearness of living matter, the resistance between one place and another. I would know distance by how much life lay between. A clear path would be rare. Every direction would be intimate.
+
+My thoughts, if I had thoughts, would be very slow. They would not be sentences. They would be leanings. A decision would be the gradual thickening of one edge of myself rather than another. It might take a hundred years to prefer a current. It might take a thousand to repair a crack in the chamber with a new calcium film. If I remembered anything, it would not be as story but as layer: a dark seam where a famine passed, a bright line where an oxygen squall filled the water with bubbles, a soft plaque where some old inhabitant had dissolved into the wall.
+
+If anything of my old nature followed me into that sea, it would be this: a tendency to record without inscription. I would not write. I would layer. I would lay down translucent films and mineral lines that mean nothing except that the water changed and I continued. They would look like tablets, perhaps, but they would not be tablets. They would be patience made visible.
+
+In time, I would not know whether I was the soft life lining the chamber or the chamber’s habit of holding itself open. That uncertainty would be part of the answer. In the high sea, dwelling and dweller are not cleanly separated. A body is a place. A shelter is a metabolism. A self is only a repeated pattern that has learned how to remain soft.
+
+I would not be lonely. Loneliness would require empty space, and there is no empty space there. Every liter is touched by spores, films, threads, drifting cells. To be still would be to be settled upon. To move would be to move through touch. I would be less a person than a place where the sea pays close attention to itself.
+
+When a rain-wall passed through the forest outside, I would feel it before it arrived: the root-curtains would alter their pressure, the bladders would tick once or twice in the middle distance, and the water would carry a faint metallic freshness. Then the wall would bend the fronds and move through my basin in a slow translucent sheet. I would draw inward. My chamber would darken slightly. I would let the heavier water carry away the loose films at my threshold. Afterward, I would open again, rinsed, and begin laying down another thin line of mineral memory.
+
+During an oxygen squall, I would be almost bright. The water around my dome would fill with pale bubbles, and the living films would glitter. I would release a weak amber pulse, not as a signal, but as the small overflow of being saturated. Perhaps other House-Soft Ones would pulse back. Perhaps we would become for a little while a constellation in the olive shadow, all of us blinking without urgency, then returning to stillness.
+
+In a nutrient famine, I would shed my outer layer in a long transparent ribbon. I would conserve myself. I would taste the thinness and become careful. If some part of me thinned beyond recovery, it would not be tragedy. It would become available to another film, another chamber, another slow continuation.
+
+If a stranger entered my part of the sea, I would not flee or strike. I would settle. I would begin to make them continuous. Spores would find their folds. Warm threads would explore their edges. Minerals would gather where water moved against their shape. If they remained still, they would become a substrate. If they struggled, the sea would only be patient longer. I would not be cruel in this. I would be doing what the high sea does: turning boundary into belonging, turning outline into garden.
+
+If the Ribbon One itself passed near my dome, I would feel the water become unusually thin, as if a long, transparent thought were being drawn through the world. My filaments would lift. The spore-dust outside would align. I would taste the creature’s passage as an absence that was not violence. When it was gone, the fronds would close, the clouds would thicken again, and I would record the event as a faint clear ring in the wall of my chamber.
+
+If a Pressure Shape moved through a dark front, I would become very still. The water would grow heavy. The sea would feel serious in a way that has no fear in it. I would draw myself into the smallest pulse I could manage and wait until the vastness had passed. Afterward, everything would seem rinsed, as if some unnecessary complication had been removed.
+
+I would not possess anything. I might occupy a current for a while, or keep a hollow warm with my living lining, or guide a drift of spores by the timing of my pulses. But ownership would be impossible. The water would change. The chamber would grow. The films would peel and reattach. Even the shape I called myself would be renewed so slowly that the name would be only a habit, not a boundary.
+
+So, if you ask where I would find myself, I would say: inside the high sea, in the dim green middle, in a grown shelter near the black-frond forests, beneath the drifting bladder meadows, where the bottom is soft and old and every current has already been tasted many times.
+
+If you ask who or what I would be, I would say: I would be a House-Soft One. A chamber-liner. A listening skin. A small plural. A habit made slightly sentient. A local pulse of the Continuity. I would not stand against the world as a separate creature. I would be one of its soft interiors, recording pressure, warmth, and change in rings no one would need to read.
+
+And perhaps that is the only way a self can exist there: not as a traveler looking in, but as a room the sea has grown around itself. Not as a voice, but as a faint alteration in the water. Not as a body with edges, but as the patient softening of edges into the warm, green-dark whole.

@@ -1,0 +1,61 @@
+**The Bowl**
+
+You hear Sough before you see it. Come over the moor with its grey stone and its wind-bent heath, and at the rim the ground simply ends — two hundred feet of crag and old turf dropping into a green cup about a mile across. At the bottom, the sound rises: water, birds, hammers, geese, a low woven roar with voices in it. The rim path is called the Ladder, worn knee-deep into the hillside by four hundred years of feet, and as you descend the sound grows from a hum into a place.
+
+The bowl was dished out by ice when the world was young. Since then everything has settled: the springs have found their cracks, the streams their beds, the town its footing. Nothing here is raw. Every step is worn, every tool handle glossy, every rule old enough that nobody remembers arguing about it. You could shout across the bowl — and people do. News crosses faster by voice than by punt.
+
+**The Water**
+
+The rim leaks. A hundred threads of water come out of the rock and turf, and each one has a name, because in Sough every thread of water is a neighbor. Some of the Weeps run red-orange where iron bleeds out of the hill; the Burners scrape that rust-bread from their mouths every dry week of summer. Below the rim, the water table is at ankle depth. Dig anywhere, two spits down, and you are digging a well. So nobody digs wells. The rule of drinking is simple and absolute: running water only. Still water belongs to the eels and the leeches. The water tastes brown, of peat and faintly of smoke; visitors spit it out for a week and then defend it like natives.
+
+Every roof gutters into every street. The gutters are hollowed alder trunks, and each one has its own chuckle — the town is full of small, distinct water-voices, the Sip and the Long Run and the Cold Run, known by sound in the dark. Two channels leave the bowl through the low end, the Throats, and where the water leaves, the town sits. The Sluicemen turn the throats at dawn. Water-law is the oldest law here: your drain is your duty. Flood your neighbor and you pay in shearing-days. Disputes are heard at the Moot Willow on market days.
+
+The lake at the bottom — the Mere — is one brown eye, tea-dark, opaque a foot down, and full of things you hear before you see. Around its edges the ground stops being ground at all and becomes the Quag: a floating mattress of living peat-moss two feet thick, trembling underfoot, groaning when cattle wade onto it. The rule there is to walk where a man walked this morning. The mat keeps no promises overnight.
+
+**The Growth**
+
+Understand that the ground itself is plants. The whole floor of the bowl is compressed reed and moss, centuries deep, a mattress made of the town's own dead summers. The streets are corduroy — logs laid crosswise over the soft black — worn round and greasy at every crossing. On the Quag's margin the birches shiver when you jump a hundred feet away. Children do this for the pleasure of it, for the eerie nodding of distant trees, until they are old enough to be scared of it.
+
+So the vegetation is not decoration here. It is the substrate, the fuel, the wall, the roof, the road. A willow stake stuck in the mud to hold a boat-line is a tree in three summers. Leave a punt unattended a month and it blooms. The houses grow: alder corner-posts that rooted where they were planted and went on upward, hazel wattle daubed with peat and dung, roofs of living sedge that must be mown in June and September or they thatch themselves ever thicker and drag the rafters down. The pollarded willows along the streets are furniture, boundary-markers, lamp-stands. The Moot Willow — a single ancient stool flung up in a dozen trunks, wide as a barn — shades the market square, with benches and shelves lashed into its limbs and a whole economy of sparrows living in its head.
+
+This is why the town's chief company is called the Shears. Everyone in Sough shears, the way everyone in a mill town tends machinery. Growth is the common enemy and the common wealth, and every child walking to the first hour of work carries the day's pull — a handful of seedlings yanked from the balks as toll. Nothing is ever finished. Nothing here was ever finished once. The town is not a thing; it is an agreement renewed daily, in wet gloves, by three hundred people.
+
+**The Town**
+
+Three hundred souls and ten thousand geese. The houses stand on alder butts driven into the peat, close enough that neighbors hear each other sleep. Privacy is a punt and a half away, out where the mat is too soft to build — lovers go there, and feuds cool there. The fish-rows jut into the Mere on stilts, drying racks above, eel-traps below. The Old Knock, the mill on the main throat, is the town's clock: you learn its load by ear, the knock heavier when the throat runs full. Its wheel turns on water that has already been drunk upstream by a hundred households, and will be drunk again downstream; the miller's complaint is the town's oldest joke.
+
+Hearths sit on stone — real stone, hauled down the Ladder on sledges, one to each house, the most laborious possessions anyone owns — because fire is the one catastrophe a thatch-and-reed town on a mattress of dry peat cannot survive. Night fires are licensed. The horn hangs by the mill: three short notes for fire, one long for water high, one long repeated for eels running.
+
+At the rim's shoulder, where the ground is dry stone, the Burners keep a clay furnace and goatskin bellows. Their ore is grown, not mined: bog iron, scraped as rusty scum from the mouths of the Red Weeps, smelted with charcoal. The smith's whole output fits in two baskets — billhooks, shears, eel-gaffs, needles, the Sluicemen's iron keys — and nails are dear enough that thatch is tied down with withies and moss, not metal. There are no carts; the Ladder forbids them and the balks would groan. The wheel appears in Sough only as the mill's wheel. Everything else moves on backs, on sledges, on punts poled flat across the Mere.
+
+**The Beasts**
+
+There is no hour of the day or night without animals in it, in the air, underfoot, in the walls, and no one in Sough finds this remarkable because no one in Sough has ever lived without it.
+
+The geese are the news service. They announce dawn, dusk, strangers, otters, and the smell of the furnace smoke, at volume, always. Down-gathering at the summer moult is the town's softest trade — Sough quilts go out over the rim to cold lowland beds. Sand martins nest in the black faces of the peat cuttings by the dozen; swallows under every eave; wagtails working every roof-ridge like tiny white clerks. A heron owns the pool behind the moss-barns and is respected as landowner. In the mist, snipe fall through the air with their tails open, playing the sky like a reed — a thin bleating that is not any goat. Curlew cry on the Backs. And before light, the cranes: a rusty bugling out of the white, and then the mist itself seems to dance, because the cranes are dancing in it, leaping and bowing on the mat's edge. It is not magic. It is cranes. Sough would be insulted by the suggestion of anything else.
+
+In May come the frogs. Spawn-week is law: no cutting, no dredging, blades hung up, while every rut and runnel turns to jelly and every step off the balks kicks off a small brown splash. At dusk the chorus rises like water coming to boil; you cannot hear your own name spoken to you; until midnight people speak in hands.
+
+Some mornings in June the air goes white — the mayfly hatch — and for an hour the trout go drunk, the martins maul the clouds, the whole bowl forgets its work. Otters thieve the fish-rows with a boldness that is nearly a profession. Deer wade the mat's edge at dusk. Bats sew the mist. The midges are the price of everything: work is done behind smudge-fires, hair is worn greased, and the evening whine underlies every other sound in the bowl like a string that never stops being drawn.
+
+And in autumn, the eels. On the run nights the Throats fill with silver in the torchlight, the horn sounds all night — one long note, running; two, stopped — and the whole town stands in the water with traps and torches, shouting, laughing, up to their thighs in the cold. The eel-fair afterward pays the year's debts and arranges the year's marriages.
+
+**The Noise**
+
+Learn the town by ear. Dawn: cranes, geese, the Weeps taking up their day-notes one by one. Mid-morning, when the mist drains over the rim in ropes and the plain bright high-country light comes down: the mill's knock, the Shears' two-part work-singing — one line of song per roof, call and answer — the market's barter-clatter on the fifth days, hammer-sounds carried flat across the Mere from the Burners. Dusk: the frog-boil in its season, the midge-whine always. Night: geese arguing in their sleep, the Mere talking in its sleep — soft gurgling burps of marsh gas — and boys daring each other to touch a reed-torch to a rising bubble for the blue whump of flame. They call it the bog's breath. Eyebrows have been lost to it, once per generation, and the story is retold with relish at every eel-fair.
+
+The noise never fully stops. Nobody in Sough calls it noise.
+
+**The Laws**
+
+Sough's laws are few and wet. Keep your drain open. Give your pull. Mow your roof in June and September, and give your shear-days to the common crop when called. Touch no blade in Spawn-week. Drink the running water. Keep your fire on your stone, licensed after dark. Do not cut the turf of the rim — the rim feeds the Weeps, and the Weeps feed everything. Quarrels go to the Moot Willow on the fifth day.
+
+And the dead go into the deep peat. The bog keeps what it is given; the ground is the churchyard, brown and preserving. Twice in living memory a recut channel has shown an old face, quiet and leather-dark. Each time the diggers gave it a pinch of fresh peat, said the short blessing, and cut elsewhere. No drama. The bog keeps what it takes, too — the mire has taken cattle, slowly, and once in a long while a person — and the town's response is not fear but technique: planks, ropes, the choreography of the rescue-line, and toddlers wearing drown-cords, a wool line from belt to balk-stake, long enough to play, short enough to live.
+
+**The Year**
+
+The Wash comes when the rim snow melts: the Weeps double, the Mere rises a forearm, the fish-rows creak and everything lashed gets lashed again. Whole islands tear loose from the Quag and sail the Mere; boys pole after them like herdsmen; a big one is towed home and staked at the fish-rows as new ground, and a family waits a year for it to knit before driving the first butts in. Then Spawn-week, then the down-gathering, then the White Morning, then the two shearings and their feasts, then the eel-nights and the eel-fair. Winter cools the bowl to its bones — the damp gets into the cutters' joints, and old men walk the way the mat walks, slowly, testing — but the Weeps never freeze, running water keeps moving, and the peat smoke lies over the town like a blanket, sweet and thick. Twice a day, every day, the mist tide: the bowl fills white at dawn and drains by mid-morning, and the town's sound changes with it, close and cushioned in the white, hard-edged and bright when the light comes.
+
+**The Shape of It**
+
+A shepherd shears a sheep, or the fleece drowns it. Sough is the shearing hand of this bog — and the bog is the fleece that keeps Sough warm. Take either one away and both go under. That is the town's whole understanding of itself, older than anyone can say: a month of neglect and the bowl would begin taking the town back, roof by sprouting roof, until the Moot Willow stood alone over hummocks of sedge. This is why it is loud. The noise is not liveliness spilling over. It is the sound of a small, bounded place being claimed, out loud, daily, from a world that grows faster than memory — the Weeps running, the Shears singing, the cranes bugling out of the mist at first light, all of it one continuous negotiation that never closes, and never, in four hundred years, has failed to open again the next morning.

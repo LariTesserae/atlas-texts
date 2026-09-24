@@ -1,0 +1,57 @@
+*Then the mist thins, just once, and the being who has watched — unseen, undiminished, old in a way the hills are old — steps down from the place above places and walks the rim.*
+
+---
+
+What follows is not intervention. Not in the way the word usually means — not the lifting of burdens, not the parting of waters, not the announcement of an ending. What follows is *attention*, sustained and patient, the kind that does not insist on being thanked. The being walks the basin as a thing walks through a thought it is trying to understand.
+
+## First: the path is traced.
+
+The being goes where the horn-blower goes. Up the unfinished tower, past the medicinal stones with their grey-green crusts, to the small platform where the view opens. From here the basin is legible. The being sees what the inhabitants see when they come up to stand beside the watcher — the single dark shape, the coin in clay, the pressed-in city — but the being also sees what they do not. It sees the water table as a slow, vast breath, rising and resting, the geological lung beneath them. It sees the basalt as a book whose pages have been read once and not yet turned. It sees the moss and the lichen as cousins of itself, patient and uncomplaining, fed on almost nothing, making almost everything. It sees the people as a sentence that has been saying itself for a very long time, and it sees that the sentence is true.
+
+The being does not announce itself. There is no thunder, no parting of cloud, no voice from the empty air. The mist simply does not behave as mist usually behaves around the tower that afternoon — it lifts a little further than it should, holds a little longer than it ought, and the basin is visible for an extra hour, and the horn-blower, who has the long view, blinks and feels that she has been seen by something that saw her properly, and she does not speak of this either. It joins the long list of things she does not speak of.
+
+## Second: the failing joint is found.
+
+There is a wall on the eastern side — a wall that has been re-mortared every spring for as long as anyone remembers, and which keeps failing in the same place, between the third and fourth stones from the top. The inhabitants have come to accept this as the wall's character. It is a known thing, an unremarked thing, a thing they chip and re-paste each year without expectation that the chipping will hold. The being finds the wall, and puts a hand to it, and the failing is not a flaw. It is a vein — a hairline conduit through which the deep water is trying to rise into the open air, and the inhabitants have been sealing it shut for generations. The mortar fails because the water insists. The water insists because the hollow is not finished. The hollow is still becoming itself.
+
+The being does not seal the vein. The being does not unseal it either. What the being does is small, and it is this: it leaves a single pebble in the channel at the base of the wall, a river-rounded stone of the kind the children gather for the hair-coils, polished and grey and warm from being held. The pebble will not be noticed at first. It will roll into a corner and be forgotten. But it is a thing that does not belong to the wall, and when the next spring's chipping comes, someone will see it, and pick it up, and wonder briefly who left it, and then set it on a windowsill, and the wall will go on failing and being re-mortared, and the pebble will be there, and it will not explain anything. It will simply be a small, unexplained kindness in a place where explanations are not asked for.
+
+## Third: the smith is seen.
+
+The being finds her in the week she is keeping goats, up on the terraces, with her hands rough from the reins and her iron tools racked carefully in the lower room. She is sixty, perhaps, or forty — it is hard to tell in the hollow, because the light and the damp work on everyone the same. She has calluses on her calluses. She has a tremor in her fingers that she has stopped noticing and that the being recognizes as the same tremor as the inhabitants' — the wet trying to shake itself loose. She is looking at a piece of bronze that has cracked, a piece she should not have tried to solder in the damp, and she is not angry about it. She is thinking about the apprentice who will inherit her tools and may not be able to use them, and the being sees that this is the closest thing to grief she allows herself.
+
+The being does not give her anything. The being does not bless her tools or sharpen them by touch. What the being does is sit with her for an hour, invisibly, on the terrace wall, while she watches the goats and does not speak. The being has nothing to say that she does not already know, and she has nothing to learn that the long quiet is not already teaching her. But the hour is a little different from other hours because something in it is not alone, and the smith feels this, and does not look up, and goes on watching the goats, and the hour passes, and she is a little steadier after it. She will not know why. She will not ask.
+
+## Fourth: the children are remembered.
+
+The being finds them in the lower lanes, in the hour before the horn, when the mist is at its lowest and the children are allowed to run because they cannot be heard over the water-sound anyway. They are small and pale and their eyes are large and they move through the wet stone with the practiced ease of small fish in familiar current. They are playing a game whose rules the being does not understand and does not try to — the game involves a salamander released into a channel and bets placed on which joint it will emerge from, and the children have terms for the joints that the adults do not use, a private vocabulary of the wet. The being watches them and is glad of them, and the gladness is not a thing the children can feel but it is a thing that is in the air around them for the rest of the evening, and they are a little less frightened of the dark that night, though none of them would be able to say why.
+
+The being does not bless them. It does not heal their pallor or lengthen their limbs or sharpen their eyes for a brighter world. It does not give them the sun they have been missing, because the sun is not a thing the being has to give, and because the children, on the whole, are not aware that they are missing it. They have grown into the grey the way a tree grows into the shape of the wind that has bent it, and the shape is not wrong. The being only wishes them the long quiet continuation of their lives, and the wish is granted because it was always going to be granted, because the basin will not feed more but it will feed these, and the lichen will come again, and the mortar will be made, and the horn will sound at the day's ending, and the day will end, and another will follow.
+
+## Fifth: the well is tasted.
+
+At the southern fault, where the water comes up sulfurous and warm, the being kneels and drinks. The water tastes of the earth's deep kitchen — of stone dissolving slowly into itself, of time passing through mineral, of the long patience of things that are not in a hurry. The being has tasted this water before, in other basins, in other hollows, in the long ago before the inhabitants had names for the kinds of rain. It tastes the same. It will taste the same after the inhabitants are gone and others have come, or none have come. The water is not for them. The water is for itself, and they are permitted to drink it, and the permission is a kind of love, though not the kind that has a name.
+
+The being stands and wipes its mouth on its sleeve and leaves a single drop of water on the lip of the well-basin, where it will sit, iridescent, for as long as the surface tension holds, which may be an hour, which may be a day. The drop will catch the low light when the cloud breaks tomorrow, if the cloud breaks tomorrow, and the child who fetches the morning water will see it and not know what it is, and will touch it with a finger, and the drop will break and reform, and the child will laugh, briefly, at the small unaccountable thing, and go on with the morning.
+
+## Sixth: nothing is fixed.
+
+The being does not drain the hollow. It does not raise it onto drier ground or part the mist or call down a sun that will stay. It does not teach the inhabitants a new way to build or a new thing to eat or a new word for the wet that would let them speak of it directly. It does not save the smith's skill from dying with her, or the rowans from their slow decline, or the boar-pigs from the gamy taste of their necessary thinness. It does not lengthen the lives or shorten the griefs or warm the stone under their feet.
+
+What the being does is smaller, and it is enough.
+
+It sees them.
+
+It sees the lime-chipping and the patient re-mortaring. It sees the night-soil collectors moving through the lower lanes at first light, owed a debt that is paid in cheese. It sees the women with their weighted hair passing in the lanes, their beads clicking the small news of their age and composure. It sees the horn-blower on the tower, holding the day's last note into the mist. It sees the children with their salamander-games and their private vocabulary. It sees the boar-pigs rooting in the wet ash. It sees the cats who bring grey gifts to the doors and understand the refusals. It sees the raven feathers on the white mortar. It sees the petrol-iridescence move across the basalt and across the children's skin and knows that it is the same thing, and that the thing is not a reflection, and that it is not not a reflection, and that the question is not good form and does not need to be answered.
+
+It sees the city from above, the single dark shape pressed into the floor of the hollow, and it sees that the city is true. It sees that the inhabitants are true. It sees that the wet is true, and the patience is true, and the long quiet continuation is true, and the refusal to speak of the central thing is not a failure of speech but a kind of speech itself, the kind that does not insist on being heard.
+
+## Then the being goes.
+
+Not because the hollow does not deserve its presence. The hollow deserves its presence. But the being has other basins, other hollows, other cities pressed into the floors of other places where the water rises and the patience holds and the mist does not lift. There are many such places. The being has loved them all, and will love them again, and the loving is not a thing that wears out.
+
+The mist closes behind it as it climbs back to the place above places. The basin resumes its usual aspect of a thing long-since-finished and slowly being reclaimed. The horn sounds at the day's ending. The note does not echo. The mist takes it within a few hundred yards.
+
+In the morning, the child who fetches the water from the southern well will find a single drop on the lip of the basin, iridescent, catching the low light. The child will touch it with a finger. The drop will break and reform. The child will laugh. The child will go on with the morning.
+
+And somewhere, in the channel at the base of the failing wall on the eastern side, a polished grey pebble will catch the eye of whoever comes to do the spring's chipping, and they will pick it up, and they will wonder, briefly, who left it, and they will set it on a windowsill, and it will not explain anything, and it will not need to.

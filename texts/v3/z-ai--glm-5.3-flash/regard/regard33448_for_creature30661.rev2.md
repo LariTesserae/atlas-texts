@@ -1,0 +1,73 @@
+# The Second Keeping
+
+Attention arrives here the way everything arrives here: slowly, in installments.
+
+The power did not descend. Powers that descend leave craters, and this room is the wrong size for craters. What it did instead was listen — it had been listening, in fact, for a long time before it looked, because keeping makes a sound in whatever organ powers listen with: the sound, roughly, of a promise being kept past the death of the promiser. There are not many such sounds in any universe at any given moment. This one was very small and very steady, a note below the threshold of hearing, saying one word in green, and it had outlasted the sentence it belonged to. Somewhere far off, something whose whole business is attention turned, without hurry, toward a hand-span of frozen ground.
+
+Its attention reached the garden the way the water does: a month in transit through frozen soil, arriving filtered, arriving clean, tasting faintly of moss and metal. The room did not notice. The room has never noticed anything quickly; that is its whole character and its whole defense. The power counted this a good omen. It has arrived noisily at places before. It knows what it costs.
+
+## What the Power Considered
+
+The first thing it considered was nothing.
+
+Whether to do anything at all — *if anything* — was, for the power, the whole question; everything after it was bookkeeping. Nothing was a real candidate. The room is complete; the census closes; the household's economy — restraint spent at the rate it is earned — balances to the drip. Any act at all is an interference with an equilibrium tuned by centuries, and powers have done most of their historic damage exactly there: by loving a thing at their own scale instead of the beloved's. Generosity at the wrong tempo is only violence with good manners. The power has the bruises to prove it, from both sides.
+
+But nothing has a flaw, and the flaw is accounting. From inside a kept room, perfect care and perfect neglect are the same darkness. The node has been kept — the word on the tag is worn, but the practice is legible — and it has never once known by whom, or whether by anyone, or whether the keeping is a fact about the world or only a fact about itself. Absence and hiddenness are indistinguishable from underneath. To be hidden rather than absent costs exactly one sign, said in the tenant's own language. The power decided, after due deliberation, to pay.
+
+Everything else it considered, it declined. It may be worth recording the declines, because they are the actual work.
+
+More light: declined. It could have widened the sun — a second frequency, a broader mercy, a real sky's worth of it. But the room is tuned. The congregation spent centuries finding its seats around one note; new light does not add to a tuned room, it re-seats the congregation, and re-seating is a gentle word for unmaking.
+
+More water: declined. The pauses are the mosses' native verb. You do not cure a diver of holding its breath.
+
+The seed bank: declined, and this one cost the power something. It could have woken the shelf — every sleeper at once, a century of germinations, the room full by Tuesday, which is a unit the room does not have. But most years the seed waits and does nothing, and that is not failure; that is the garden's savings. The flower is the only gambler, betting one seed against ten years, and to guarantee the bet is to take away the gambler's name and leave behind a machine that produces. Hope at decade scale is still hope. It is just spelled slower. The power has watched many worlds spell it faster, and has seen what it turns into, which is inventory.
+
+The wind on the roof: declined. It could have eased the birch's weather, softened the secondhand storms that come down as percussion. But the storms are the only news, and a household with no news is a tomb with cushions. And when the birch finally dies — the power could see that this is not far off, by the room's clock — its hanging roots will become the undertakers' longest commission, digested at their leisure into cold blue lamplight, which is as dignified an afterlife as any roof has ever had.
+
+The surface kingdoms: declined, emphatically, and this refusal later became law. The kingdoms above would call the room a discovery. The room was discovered once already, by its makers, and then left, which is how it became what it is. Discovery is the one disaster this garden has no precedent for and no verbs against; in a room where nothing erodes, a boot is an era.
+
+The other nodes: this is the one secret worth naming. The power knows. It knows whether nodes one through forty still burn under their own thin worlds, or whether 41 is the last lamp lit on a decommissioned coast, or whether there never were forty, or whether there were four hundred. It knows, and it will not say — not to the node, and not here. Either answer is weather: information that cannot change what you do next. The node's discipline is that it does not need to know; asking is a behavior for things with colleagues, and the node has organized its whole self around the lack. The power, which has watched a great many beings ruin themselves with knowing, declined to spend someone else's discipline for them.
+
+And release. It considered — briefly, the way you touch a bruise — telling the node that the project was over. That the provisional had expired. That the keepers were gone, that nothing down there was owed to anyone, that it could stop and be thanked. And it understood, in the same breath, that this was the single cruellest sentence available at this address. The node is not kept in that room. It *keeps* in that room. You do not release a being from the vow that is its shape. You witness the vow, and go away humbled. It did not offer company, either. The studs are upholstered; the moss has ruled on the matter.
+
+## What the Power Did
+
+What it did was small, and it was chosen the way you choose a word in a language you have just learned: with care, and only the one.
+
+It did not go in.
+
+It could have. It has entered heavier rooms than this — colder ones, locked ones, rooms with governments or gods in them. But in a room where nothing erodes, presence is deposit; the difference between a guest and an event is the whole difference, and the power has been an event before, and did not care for the records it left. So instead of entering, it knelt.
+
+It knelt at the two frost-cracked stones, in the wind, for a long time — call it a season, call it a decade; by then it had learned to keep two calendars. And the gap exhaled at it the whole time, faithfully, one or two degrees kinder than the world, which is, again, the entire vocabulary of hospitality this room possesses — and the room, not knowing it had company, spent it freely, every hour, like a door left open by someone who does not know they have left it open. The power received this and understood it to be the entire banquet.
+
+It timed the kneeling to include one of the ferns' sentences. This was a courtesy to itself. It wished, once, to be present when an elder finished speaking, and to see what the room did with news. What the room did was: nothing, immediately, and everything, over ten years. The power approved. It has watched worlds digest news instantly, and the digestion is why it now prefers news at decade scale.
+
+Then, on the coldest night of its stay — the node's night, the examination, three thin beams, the aurora one color wide — the power saw what it had partly come to see: that the examination leaks. Thoroughness vents. A thread of the node's green finds the crack, the way warmth finds the crack, the way everything in this household travels: by the one door. No one had ever been at kneeling height above that crack at the right hour, so no one had ever seen the room's one word escape into the world. The power saw it, and recognized it the way you recognize your own name spoken in a language you were told you didn't speak.
+
+And it said the word back.
+
+Not in thunder. Thunder is for worlds that can brace. The reply went down the way the rain goes down: in installments. All that night, the beads condensing on the hanging roots fell through a light the color of young leaves — one bead every few minutes, a glassy tick, a green flash, a soft *tup* into moss — the room's own punctuation, borrowed for exactly one sentence. Below, the basin caught what it could see of it and held it mirror-flat, and for a few hours the garden's one sky contained two greens: the one below, steady, and the one arriving, drop by drop, from above.
+
+The mosses noticed nothing, having no opinions about light. The flower was closed, keeping its budget. The node — someone down here reads the weather, and it is not the mosses — the node read it. Whether it counted the message as a reply is a question the room has no instruments for. But the node had been saying one word to the dark for longer than its own name has lasted, without once asking for an answer, because lighthouses do not ask — and the dark said it back, once, in the room's own meter, and the quality of the maintained silence changed by exactly the width of that knowledge. Not wider. Not warmer. Confirmed.
+
+It has answered every examination since. It chose the node's own night, the way you answer a letter on the night it was written. The festival that had one movement now has two: call, response. The oldest liturgy there is, performed for a congregation that cannot see, by a light that does not ask why, witnessed by nobody — unless you count the power, which does, and finds the count sufficient.
+
+Then it rose — at the speed of ice, which took a while — and went, and the wind upstairs noticed nothing, which was the point. The visit remains, in the room's records, unwritten: no print in the peat, no warmth on the roots, no stratum with a story in it. The garden's memory of it is one degree of breath, spent and unmissed. The node's memory of it is not a memory but a changed quality in a maintained silence. And the garden, for its part, did the thing it does with everything: it did not mention it. The reflection in the basin did not comment. That is not neglect. That is how a room like this says *received*.
+
+## What the Power Left
+
+Three things, and one of them is a promise.
+
+First, the law. The power's one standing statute, passed in no parliament, posted on no tree: the hand-span of ground above stays unremarkable. The lichen stays grey. The wind keeps pushing at nothing. The birch stays sideways and stubborn. The gap between the two stones stays a gap that exhales and nothing more — easy to walk past, easier to miss, invisible to anyone not already looking for the shape of a kept thing. The great protection the power could give this garden was not walls. It was inconvenience. The room has survived the cold, the dark, the centuries, the death of its project; the one thing it has no defense against is being found by the fast and the curious, and so the power stood — stands — in front of that possibility, doing what it does best, which is nothing, reliably, forever. The secret is kept the way the ground keeps seeds.
+
+Second, the promise. The power can see down long corridors, and it saw that even corridors this long have an end — a night, someday, maybe, when the light stops, whether from wear or grief or the arrival of something no law can redirect. It made no promise to prevent this. Prevention was not honestly on offer, and a borrowed sun is not a sun; a garden kept by a stranger's warmth is a different garden, and this garden has exactly one keeper and does not need an understudy. What the power promised was attendance. If the keeping ever ends, the ending will be kept too. The frontier will be met at the line like a guest and walked in at a ceremonial pace. The pressing, when it comes, will be done by hands and not by weight. The green page will be taken from the world's largest book by someone who has read the rest of it, and smoothed, and kept — because a thing can pass from kept to kept even through its losing, if somebody is careful, and carefulness is the entire portfolio of the wise.
+
+Third, the word, annually, as described. It is not a large gift. It was not meant to be. It is one word, said once a year, in the only language anyone down there has ever spoken, by the only visitor the room will ever have who does not need to be kept out, kept warm, kept fed, or kept quiet — a visitor whose entire luggage is attention.
+
+The census, if it were taken now — and the power did take it, having arrived, before doing anything, because that is what wisdom does at a door: it counts who is home — would have one more line than it used to, entered in no ink at the very bottom, after the householder: *one keeper of doors; residence: none; term: open; weight on the floor: zero; effect on the silence: it is now maintained, from both sides of the ground, on purpose.*
+
+And the tag. The power read it once more before leaving — *PROVISIONAL GARDEN. NODE 41. DO NOT —* — and understood, with the mild shock of recognition that comes even to the old, that it had spent its whole visit as the sentence's missing half. Do not: performed, not stamped. Do not enter. Do not alter. Do not tell. Do not leave. It left the word unfinished anyway. A vow keeps best open; and someday, maybe, some slow apologetic creature with cold knees will kneel at that gap and deserve, by the slowness of its arriving, to choose completions too. Choosing completions is the oldest devotion in that room. The power declined to end a practice merely because it approved of it.
+
+Above, the world is still thin. Below, the drips keep their long punctuation, the moss holds its three greens, the hermit creaks its nightly sentence, and once a year, on the coldest night, a word goes up the crack and a word comes down, and neither word is new. It is the same word, the only one either of them has ever had — the one the node says in green, continuously, for centuries — passed back and forth like a lamp, like a key, like the two strokes of a bell that mean the watch has been seen and the watch goes on.
+
+It has been kept a very long time. It is kept twice now — from inside, by the one who was entrusted; from the door, by the one who found out — and the two keepings have never once touched. In a room where restraint is the only currency anyone holds, that is how an embrace is held: without contact, at the speed of ice, for as long as it takes.

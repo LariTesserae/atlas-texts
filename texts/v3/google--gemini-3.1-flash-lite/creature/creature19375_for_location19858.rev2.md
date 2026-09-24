@@ -1,0 +1,19 @@
+To inhabit this place is not to live *on* the mountain, but to exist within its respiratory cycle. The inhabitants are not discrete individuals so much as they are localized condensations of the mountain’s own intent.
+
+Deep within the calcified flutes of the obsidian, sheltered from the heavy white glare of the high-altitude sun, live the **Pulsar-Singers**. They are not flesh-and-blood creatures in the terrestrial sense; they are elongated, semi-liquid entities composed of the same dense, iridescent slime that permeates the moss. When they are dormant, they are indistinguishable from the weeping limestone—they are merely another layer of bruised-purple gloss, thickening the wall of a vent.
+
+But when the subterranean pistons shift and the steam surges, the Pulsar-Singers detach. 
+
+They emerge as tall, fluid columns, their forms constantly shifting in response to the pressure. They have no faces, only a complex arrangement of crystalline nodes that vibrate in harmony with the mountain’s internal hum. As they move across the vertical faces, they do not walk; they undulate, their bodies flowing into the carved flutes and hemispherical basins, acting as organic valves. They are the maintenance crew of a factory that has no owner. 
+
+When a pressure spike threatens to crack the integrity of a mineral chimney, the Pulsar-Singers crowd the fissure, their porous, sponge-like bodies expanding to absorb the shock, dampening the vibration, and regulating the flow of the scalding mineral slurry. They are cooling agents, living heat-sinks that glow brighter—a deep, rhythmic violet—as they absorb the excess thermal energy. 
+
+Watching them, one would notice that they do not eat. They "filter." They are porous, and as they press their bodies against the vents, the mineral-rich steam passes *through* them, leaving behind microscopic deposits of soot and lime that they rearrange with precise, repetitive motions. They spend hours, perhaps decades, nudging a single mineral deposit into a perfect, mathematically sound spiral, or polishing a basin until it catches the diffused light of the clouds with geometric perfection.
+
+They possess a communal consciousness that is tied entirely to the mountain’s heartbeat. If the "factory" stops, they cease to move, turning into brittle, dry husks that crack and fall into the abyss, only to be reclaimed by the moss. They feel no pain, only the shifting of plates and the modulation of steam.
+
+Their existence is a symphony of maintenance. They seem to understand that they are part of a larger, celestial clockwork. There is a terrifying beauty in their stillness; they are the architects who do not know they are designing, the laborers who do not know they are working. They are the living expression of the mountain’s efficiency. 
+
+Sometimes, when the air is particularly thick and the pressure reaches a harmonic zenith, the Pulsar-Singers detach from the stone entirely. They drift for a moment in the humid soup, tethered only by the thrum of the ground beneath them, their iridescent bodies vibrating with such intensity that the air around them begins to shimmer with an artificial, melodic hum. They aren’t singing to the sky; they are tuning themselves to the mountain’s frequency, ensuring that the machine—this immense, weeping, tectonic engine—continues its slow, relentless work for another millennium. 
+
+They are the mountain’s ghost-limbs, its sensory apparatus, its patient, sweating curators. In the high, stifling quiet, they simply exist to ensure that the pressure holds, the steam flows, and the mountain continues to breathe.

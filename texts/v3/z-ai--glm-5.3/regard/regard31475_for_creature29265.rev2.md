@@ -1,0 +1,29 @@
+It would begin, as all wise powers must, by not doing anything.
+
+It would come the way anything comes to that country — downhill, through the largest Mouth, down the spiral stair whose stone wedges are polished round by centuries of feet. And it would notice, on the way, what the place demands of a visitor: that you announce yourself. So it would walk loudly. It would put its weight into each step the way the people do, stone on stone, a signature, so that the whole canyon heard it coming and no one was afraid.
+
+Then it would stay a long time. This is the first mark of benevolence in a wise power: it can wait. It would sweep a plaza, because the oldest word for maintenance and the oldest word for prayer are the same word, and it would want to pray in the local grammar. It would take its ration of dawn-water — bitter, mineral, warm almost before swallowed — and drink it without flinching, and it would feel the bitterness the way the people feel it: not as a hardship but as the one taste the world has, therefore the taste of home. It would not purify the water. It would understand, before it had been there a season, that to sweeten that water would be to change what the people are, and that changing what a people are is the one gift the drowned are never asked for.
+
+It would be tempted. It would be tempted every day. It could rain on the flat. It could fill the old sea. It could widen the fissure, deepen the light, silence the Mouths at night and give them sleep. It could do all of it in an afternoon — and it would sit in one of the dead-end quiet rooms it had been lent, listening to the chord it could unmake, and it would practice the harder discipline: doing nothing, perfectly.
+
+But there is one grief here, and it is not the salt and not the roar. It is the swept streets that lengthen each generation. The aired beds with no sleeper. A city built for ten times its people, and a people declining gently for longer than their records run. A wise power does not tiptoe past grief. It only asks — and asking is the second mark of benevolence — *which kind of help this grief can hold.*
+
+And here the power would do what the tuners do with the depths. It would listen for the answering note.
+
+Because there is something below the city, in the strata no one has mapped, that sometimes joins the chord — and when it comes, the rule is one sentence old as the place: *let it, and keep one damper open.* A wise power, having learned that sentence, would understand that it had found the way to be present without being a wound. It would not walk the streets as a marvel. It would not arrive in a pillar of light like one of the sun-shafts the first families enlarged by hand, so that the people knelt to the wrong thing. It would go down. Down past the reach of the tuners, into the dark under the deep organ, and it would take its place in the chord.
+
+The people would know it at once, in their teeth and sternums before their ears. The chest-felt note from below, the one no wind makes — but steadier now, nearer, patient. The resin moths would rise in clouds. The dust figures in the swept plazas would tear themselves and reform, and the readers under their breath-canopies would kneel all day watching new writing make itself, and they would not call it miracle, because they have no separate word for miracle and maintenance, and neither, by then, would the power.
+
+And this is what it would do there, in the deep, which is the only thing it would do: it would hold the note through the still days. When the wind above died and the roar thinned and the green went gray at the tips and the people prayed for storm, the deep voice would not let the chord fall to famine. Not louder — never louder, never enough to unmake the world's own economy of loud and quiet, for that economy is their language, their harvest, their scripture. Just *held.* A floor under the flood. The way a hand goes under a falling cup without stopping its fall.
+
+And then, one dawn — because it had learned that gifts here are spent, not given — it would come up the spiral stair one last time, into the hundred heartbeats of the Hush, and it would spend.
+
+Three hundred people speaking all at once, the decade-old apologies and the saved sentences, and among them one voice that was new and yet felt as old as the grammar it survived in. It would say one thing only, in their own language of wrist and chin, so quietly that only the nearest heard it, so that it could travel the way everything travels below — by spending, by being given onward, sentence by sentence, from the ones who heard it to the ones who did not. And what it said was what the place already knew in its oldest same-word, said once, from outside, so it could finally be believed:
+
+*You are not a remnant. You are a chord, and chords are not fewer than their notes — they are what notes make when they hold.*
+
+Then the wind would turn, and the roar would come back in like a tide, and three hundred people would fall silent together and lift their faces, and the green of the canyon would lean into the flood and drink.
+
+That season, and this is the only change the power would leave behind, more cradles were felted than funerals kept. No one would know why. The tuners would notice only that the depths answered more often now — gently, steadily, like something that had moved in and meant to stay. The readers would kneel at the plaza edges and watch the dust make its figures, and among the figures there was one that had never formed before and never failed after: two ridges crossing, and holding.
+
+The city would take its twelfth name. No one would say it. Everyone would feel it.

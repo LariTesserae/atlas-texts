@@ -1,0 +1,25 @@
+They would not arrive.
+
+Arrival is a kind of weather, and weather changes what it falls on. A wise power that has only just turned its face toward a place knows this before it knows the place's name. So the first thing they do is remain where they are, which is not a location so much as a sufficiency, and let the attention go on ahead of them like a hand held near a pane, not touching, feeling for cold.
+
+What they find is small. That matters. Benevolence that has practiced on kingdoms gets clumsy with a single life; wisdom is the correction, the willingness to become scaled to a cup, a knee, a path worn one way. They look until the place stops being a scene and becomes a set of agreements: what is allowed to grow, what is kept empty, what is fed, what is endured, what is loved without being called love because no one there has needed the word.
+
+They look at the being the same way. Not for improvement. For the grain. A life has a direction the way wood has a direction, and cutting across it is a violence even when the cut is meant as a gift. So they study the grain a long time. They notice what the being already refuses, and they do not offer that. They notice what the being already has in abundance—quiet, continuance, a craft that answers itself—and they do not add to it for the pleasure of being seen to add. Generosity that cannot bear to leave a thing unchanged is only appetite with better manners.
+
+The harms they find, they sort.
+
+Some are the place itself: damp in the joints of the day, a narrowness of diet, a solitude that would look like injury from a city. These they leave. To dry the damp would be to evict the climate; to widen the table would be to invent a different inhabitant. A wise power can tell a wound from a shape. They do not heal shapes.
+
+Some are wearing. A belt that glazes. A knee that times itself to a slower wheel. A number burned into living wood because paper cannot be trusted, and because hands leave. These they also leave, but differently—the way one leaves a tool in reach rather than taking the job. They do not unmake fatigue. They do not counterfeit company. If they grieve the smaller hooks set for a shorter reach, they grieve without recruiting the grief into a project. The absent are not a problem for them to solve from the rim.
+
+And some are threats that are not part of the agreement. A season, somewhere beyond the lip, turning wrong—water that will come too fast, or not at all, in a year the culvert was not built to refuse. A bitterness in the boundary that is starting to fail, so that what the place has kept out by taste alone will come in by hunger. A forgetfulness gathering in one of the beings, not yet visible, that will take the pitch of a drying belt before the cloth can be fetched. These are not the shape. These are the shape's interruption.
+
+Here the power acts, and the action is almost modest enough to miss.
+
+They do not speak. Speech would require a hearer to become an audience, and an audience rearranges a life around the fact of being addressed. Instead they adjust what can be adjusted from the side the inhabitants do not watch, because they have never needed to. The race, in the year of the wrong water, finds a grade it should not quite have, a thumb's width of give in an old stone, so the flood spends itself in a pool that already existed and arrives at the wheel as a long drink instead of a blow. The boundary bark keeps its bitterness through a winter that should have leached it; the beetles and the larger hungers taste, and turn, and do not know they were turned. And the forgetfulness, when it comes, comes late to one particular morning: the pitch of the drying belt arrives in the ear a moment sooner than it otherwise would have, as if the air itself had decided to carry it, and the damp cloth is there, and the day continues, and no one is saved in any way they could report.
+
+They do not stay to be thanked. Thanks would require a creditor. They remain attentive a little longer than action requires, because attention is the larger kindness and action was only the part that could not be withheld. They watch the ordinary afternoon reassert itself—the light simply day, a figure in a court letting damp equalize in a coil of cord, the temperature unchanged, the work continuous. They confirm that nothing in the hollow has learned their name. Then they let the attention loosen, not all at once, the way mist leaves a rim: first from the open ground, last from the low places.
+
+If they leave anything behind that could be called a gift, it is only this: the year does not break the agreements. The wheel takes its next turn. The being goes on being the size they are.
+
+And the power, which could have done more, does not. That is the wisdom. The benevolence was never in question; the harder art was to spend it without spending the place.

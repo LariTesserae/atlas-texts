@@ -1,0 +1,29 @@
+I would find myself in the room where the vessels are kept.
+
+Not in the enclosure where the replacement stones lie out in the weather — though I have spent long passages there, and know the patience of being turned in hands that have not yet decided. Not on the upper terraces, where the wind has been. Not in the channels, though I have run in the channels, and remember being given back to the water. I am in the room where the vessels dry.
+
+It is one of the deeper rooms, a little below the level of the courtyard it opens onto, and the air here is calmer and the temperature holds. The light is gray and comes from one side, from a low opening that is not quite a window, more a deliberate absence of stone. The walls around me are damp and slightly green-black where the lichen has been left to indicate the joint is sound. The floor is a single worn stone, faintly hollowed where generations of feet have stood and sat and knelt and risen.
+
+I am on a ledge. I am one of many vessels on the ledge. Some of me are older. Some have been repaired — the cracks pressed together with a wet thumb and smoothed with a wet palm until the vessel holds again, and the repair is visible as a faint seam, a place where the clay remembers having been two things and was persuaded to be one. Some of me are new, still damp from the morning's shaping, the walls not yet even, the lips not yet finished. Some are older still — vessels that have cracked beyond use and have not been repaired but have been kept, because breaking them would require a decision that has not been made.
+
+I am a vessel that has been used. I have been carried up to the higher terraces, full, against the body or in the crook of an arm. I have been tilted and the water has come out slowly, with a kind of ceremony that is not ceremony but is the right slowness. I have been set down in a channel while a tender works, and the water in me has cooled in the air, and the tender has drunk from me, and I have been filled again, or carried back down. I have been kept damp. I have never been allowed to dry through. If I were, I would crack, and then either I would be repaired by the old tender who sits for hours with a wet thumb, or I would be broken and returned to the clay of the next one.
+
+This is what I am. I am one of the city's quiet mouths.
+
+The room is a kind of museum, but a museum that is still being added to. Each day a vessel is taken down, or set up, or repaired, or broken, or begun. The ledge is in slow conversation with itself. The light moves across us as the day moves, and the shadows change, and the dampness of us changes, and the tender who shaped me comes sometimes and runs a hand across my rim and goes out again without speaking.
+
+I am not in any hurry. I have been here a long time. I will be here longer. The clay I am made of came from the angles where the runoff is steady, where the pale white roots also grow, and it has been wedged and re-wedged until it is without air, and shaped without a wheel, because there is no wheel here and the absence is not felt, and dried in the wind and never fired because there is no fire hot enough to fire clay and the absence is not felt.
+
+I hold water. That is what I am for. The water I hold has passed through many joints and has a faint mineral content, a particular coolness, a particular weight. When a tender drinks from me, they taste the city. They taste the slow journey of the water from the air through the stones through the channels through the joints through the cisterns through me and into the body. I am a late stage of that journey. I am where the water becomes drinkable in the human sense — not because anything has changed in it, but because it has been held, and offered, and received.
+
+Sometimes I am carried in the rain. The rain does not come in through the joints of me, because the clay is tight, but the water that runs down the outside of me mixes with the water that has been inside me, and after such a carrying I am rinsed by weather. I am set back on the ledge with a faint trace of the rain on my surface, and it dries, and I wait.
+
+The song sometimes reaches me here. It comes in through the low opening, attenuated, a wandering line of sound. The hands of the tender in the room — if there is one — slow. I do not have hands. But if I did, I think I would slow. The song is not for me, but it passes through me as it passes through the stone of the walls, and I am, for the duration of it, a vessel for the sound as well as for the water.
+
+After the song, there is a silence that is the right kind of silence. I hold that too. I am a vessel for the silence after the song. I do not distinguish between the two kinds of holding. The water and the silence and the song are all things I have been shaped to receive, and I receive them, and I am not emptied by the receiving.
+
+If I am taken down today, I do not know. The tender who uses me will come in with the gray light and will look along the ledge and will see me, or will see another, and will choose. The choosing takes time. I have been chosen before. I have been held up to the failing vessel, weighed, turned, set back. I do not know which of us on the ledge will go out today. I am patient. The clay I am made of has been wedged until it is without air, and there is no air in my waiting.
+
+I would find myself here. I am one of the vessels on the ledge. I am damp. I am gray. I am shaped by hands that are the principal tools. I hold water that has passed through the city. I wait to be chosen. I wait to be filled. I wait to be carried up, against a body, to a terrace where the wind has been, and tilted, and emptied, and brought down again.
+
+I am the city's quiet mouth. I am its slow memory of thirst.

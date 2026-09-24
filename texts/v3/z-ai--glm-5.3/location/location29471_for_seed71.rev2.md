@@ -1,0 +1,35 @@
+# The Peneplain of Falling Water
+
+It takes a full day's walk to notice that the land has a slope at all. That is the first thing to understand about this place: it is so old it has nearly forgotten how to be land. Mountains that stood here when the world was young are now long horizontal ridges of dark, dense stone — the un-erodable roots of ranges, their summits worn away and carried off to some sea that has itself since filled and flattened and become plain. The horizon is a straight line in every direction. Stand anywhere and you stand on a surface that has been settling into its final shape for longer than most worlds have existed.
+
+The scale is continental, and worse than continental — the plain makes its own weather because there is nothing left to interrupt the sky. Clouds arrive from distances you cannot imagine, travel unbroken for a thousand miles over the tabletop of the world, and shed their rain in slow, meandering, almost ceremonial fashion. It rains every few days. Not storms — *rains*, plural, patient ones, that begin without drama and end without drama, leaving the land dark and steaming faintly in the cold.
+
+## The Warm Green
+
+Because here is the paradox that defines this place: it is high — high enough that the air is thin and the cold bites through wool — and it is damp, and it is *lush*. The ancient peneplain is carpeted in a low, dense, cold-loving vegetation unlike anything botanically sensible. Moss the color of deep water. Ground-hugging vines with leaves like small hands, palmate and slightly translucent, that redden at the veins in the cold. Cushions of something between lichen and fern that spring back underfoot with a wet, silent resilience. The plants drink the intermittent rain, the constant condensation — every morning the whole plain is beaded silver, every leaf wearing a crown of dew that the weak sun never quite burns off — and they grow with a steadiness that seems to know it has all the time in the world. Which it does. Nothing here is in a hurry. Erosion ended the race eons ago.
+
+There are no animals. Not few — *none*. No insects drone, nothing burrows under the moss, no birds cross the enormous sky. The quiet is therefore total in a way that unsettles at first and then becomes the place's greatest presence: you can hear the *plants*. You can hear the cushion-ferns exhaling moisture at dusk, a sound like the plain breathing. You can hear rain coming two hours before it arrives — a whisper moving across the moss from far away, a soft advance whisper that is not wind, exactly, but the vegetation itself leaning.
+
+## The City of the Terraced
+
+People live here — sparse, tenacious, settled in a single great town that follows one of the dark bedrock ridges for a mile or two. Their technology is stone, bone, wood, clay, and a little soft copper hammered from river cobbles. Their buildings are low and round-walled and half-sunk, roofed in woven vine-mat sealed with a resin the moss-plants weep when cut. It is a warm town by necessity: fires burn in clay-lined pits, and the whole settlement smells of peat-like fuel bricks made from compressed dead cushion-fern, which smoke gently and smell like cold tea.
+
+They are terrace-builders, and terracing is their whole civilization. Across the gentlest grades of the plain they have cut thousands of step-fields, each a hand's-breadth lower than the last, so that when the patient rains come, the water walks down the terraces one at a time, filling each level, leaving its moisture, moving on. A drop of rain that lands at the top of a terraced field may take a week to complete its journey through the town's agriculture, and it is honored for it. Water is wealth, water is slow, and slowness is the local virtue. Their word for *hurry* is the same as their word for *die*.
+
+They farm the moss-plants, harvest the dew at dawn with bone scrapers and clay troughs, and keep a religion whose central doctrine is almost geology: that the world is a great being that has finished its work, laid itself down flat, and is now resting, and that all of life — the moss, the rain, the people — is what grows on the surface of that rest. To disturb the land deeply is sacrilege. They dig only shallowly. Their dead are not buried but *laid*, on stone platforms at the edge of town, where the cushion-ferns grow over them in about nine years and the person is said to have become part of the plain's blanket.
+
+## Where Reality Has Worn Thin
+
+And here is what the visitor eventually must confront: a plain this old, this flat, this saturated with deep time, has *worn through* in places. The people know the locations and avoid them, and their avoidance has the casual thoroughness of long practice.
+
+Out past the terraces, a half-day's walk, the ground stops behaving. There are places where the moss grows in perfect circular rings, sixty paces across, inside which the rain falls *upward* — drops rising slowly from the ground into low cloud, the whole cycle inverted, a quiet silver fountain that makes no sound. There is a long shallow valley where the horizon creases — where, if you walk toward the far edge, you find after an hour that you are walking back toward where you started, having never turned around. There is a stretch of plain where the dew-beads on the leaves are not reflections of the sky above them but of a *different* sky, slow-moving and differently colored, and the old terracers claim that if you drink that dew you dream in someone else's language for a night.
+
+Most unsettling are the *echo days*. Every few weeks, for an hour or so, sound returns to the world — all of it, at once. Every noise ever made on the plain, the people say, is still there, flattened like everything else, and on echo days it rises: you hear footsteps from an age of stone tools, a market's murmur from a town that stood here before this one, laughter in a dead dialect, the long slow grind of mountains being ground down — that last as a sub-audible pressure more felt than heard. Then it settles again, and the quiet returns, and the cushion-ferns exhale at dusk as if nothing had happened, which is how they treat everything, being the oldest residents.
+
+## The Feeling of It
+
+The plain leaves you with a specific and lasting vertigo: the sense of standing on the *finished* surface of a thing. Not a wasteland — a completion. The world here did its work, eroded its mountains, flattened its edges, grew its cold green blanket, and then, having finished, did not end but simply continued — resting, breathing its moss-breath, wearing its silver dew, letting its thin places whisper.
+
+The people of the terraced town understand this better than any traveler. They build nothing tall. They dig nothing deep. They move slowly, speak softly, and pass water downhill one careful step at a time.
+
+They say: the world is asleep. Be a good blanket.

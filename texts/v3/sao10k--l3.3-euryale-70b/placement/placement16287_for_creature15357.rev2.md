@@ -1,0 +1,9 @@
+I find myself as a small, green and black striped fish, darting through the dark, murky waters that cover most of the city. I've lived my entire life in this strange, twisted world, and I know its dangers and wonders intimately. I've learned to navigate the tangled underwater landscape of roots and vines, avoiding the grasping fingers of N'Tariya's fibers.
+
+As I swim, I catch glimpses of the world above the water: the twisted trees, their branches heavy with vines and aerial roots; the ancient buildings, their walls cracked and broken, their windows shattered; the feral cats, their eyes glowing like lanterns in the dark. But I am most at home in the water, where I can dart and weave through the fibers of N'Tariya's tapestry.
+
+I've seen the city change over the years, as N'Tariya's threads shift and reform. I've watched as buildings crumble and new growth bursts forth from the ruins. I've seen the colors of the world shift and deepen, as N'Tariya's threads absorb and reflect the light of the setting sun. And through it all, I've felt the gentle, insistent tug of N'Tariya's fibers, drawing me into the dance of her tapestry.
+
+I am but a small part of N'Tariya's world, a single thread in the vast and intricate web of her creation. But I am alive, and I am free, darting and weaving through the waters of this strange and wondrous place. And as I swim, I feel the pulse of N'Tariya's heartbeat, the slow and steady rhythm of her weaving, and I know that I am a part of something greater than myself, something that will continue long after I am gone.
+
+As I settle into my nest of soft mud and decaying leaves, I feel the fibers of N'Tariya's tapestry all around me, a gentle, soothing presence that seems to vibrate with the music of the universe. And I know that I am not just a fish, but a part of the very fabric of existence, a thread in the great tapestry of life that N'Tariya is constantly weaving and reweaving.

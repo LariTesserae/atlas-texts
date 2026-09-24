@@ -1,0 +1,47 @@
+First, the fact that takes longest to believe: the mountains here are younger than the roads.
+
+The Shelf rose within institutional memory. Not the way continents usually rise — folded and faulted over ages beyond counting — but lifted, on purpose, in a single engineered gesture now called the Raising. The crust was drawn upward from beneath until a whole continental table stood nearly three kilometers high, edged by an escarpment that falls in long pale steps toward old country no one on the Shelf is old enough to have come from. That was generations ago. It is still, geologically speaking, this morning.
+
+And it shows. Nothing here has been weathered. There is no canyon on the entire Shelf, no scree fan, no rounded ridge, no soil worth the name. Cliff faces carry the sharpness of cut stone. Cut banks of young channels are glossy, like clay just worked by a thumb. When a slab breaks loose it doesn't accumulate at the base as rubble; crews take it, or the ground is regraded before it can. The land looks unfinished because it is unfinished — a surface that has not yet had its argument with water, held open by engineering so that, in a few centuries, real erosion can begin.
+
+**The Underpin**
+
+What holds a newborn mountain open is called the Underpin, and nobody has ever seen it. It runs beneath the whole Shelf: a subterranean lattice of filament-work that conducts strain the young rock cannot yet carry. When the land settles — and it settles constantly, a hand-span a year in the western quadrants — the stress does not shatter anything. It flows away through the lattice and is spent at dissipation basins scattered out on the flats, where on cold nights you can see it glow: a dull red under the fens, like coals under wet ash. Waste heat, and every hold in the region has been built against one. The towns' garden-walls and weirs and heated walkways all sip from the warmth of a machine whose purpose is to eventually become unnecessary.
+
+Twice a year or so, a large strain event moves through. Instruments hear the continent ring like a struck bell. Ears hear something too, those days only: a low chord underfoot, felt in the teeth and the water-jars, lasting a minute. It is the loudest sound the Shelf ever makes, and people stop what they are doing and stand on the graded flats and listen to their landscape tense and relax.
+
+**The water, which has not found its way yet**
+
+No river on the Shelf has grown a valley. Water here does not come down from heights; it comes out of the ground. The water table is charged from below by condensers that wring the atmosphere and feed the aquifers, and the rock weeps everywhere along the graded weep-lines — thousands of seeps, springs, glossy weeping scarps where water stands in beads on stone and lets go one drop at a time. The engineers open a new spring-line the way you'd open a tap, and where they open it, a marsh is born within a season: a stain of green spreading across grey rock at a rate the surveyors can put a number on.
+
+Because the gradients are managed and the stone is young, water doesn't cut — it sheets. Streams spread into braided glass flats, pool in shallow rims, and wander. Only at the Shelf's edge, where the surplus goes over the escarpment in long white cataracts onto the old lowlands, does erosion truly begin. The world is learning its first valleys at its edges. Everything above is still being irrigated like a seedbed.
+
+The wetness gives the air its character. The Shelf is big enough to make its own weather, and it does, daily: a tidal cycle of condensation. At dusk the fog-seas refill, pooling in the graded basins, a hundred miles of white water that is not water. Frost forms every night, without exception — the air is thin and cold, the water snowmelt-cold even at noon. At dawn the fog burns off in gold sheets and the weep-lines steam, and you can watch rain curtains walk across the flats for an entire afternoon, trailing their shadows. In the holds, the weather-setters trim the sky the way a young hydrological cycle needs trimming — a brand-new water cycle would overreach, flood, starve, overreach again — and without them the sky of the Shelf would be a lunatic. With them it is merely young: enthusiastic, damp, exact.
+
+**Green in rings**
+
+Vegetation exists here the way a border exists: in rings and margins. Around every spring there is a front of first succession — rush-mats and sedge-analogues spreading in a stain you can measure week to week. Stone-rind lichens work the raw rock, etching out the first mineral crumbs of soil. There are no trees on the continent except the windbreak lines the holds planted: staked saplings in straight protective ranks around the dissipation basins, the only tall growth, defended like children. Soil itself is barely a technology yet. The first models of it are being manufactured jointly by lichen, frost, and animal feet.
+
+**The herds, and everything that follows them**
+
+Because the green lives in rings, the abundance lives in waves. Mirebacks — big cold-tolerant waders, shaggy at the shoulders, bald at the knee — move in tens of thousands across flats that are otherwise empty to the horizon, following the spring-lines as the frost burns off. Their function in the project is official and listed: their hooves puddle silt into the first true muds, their dung seeds it, and where a herd has wintered, the stain of green spreads fastest the following spring. They are soil-makers with legs. The wardens manage them like slow weather.
+
+Everything else arrives on their wake. Grey-runners take the herd margins — tall, patient pack hunters that trot all day and look, from a distance, like weather. In the fens, the standers hunt: things that stand motionless in the shallows for days among the rushes until the mirebacks wade close, at which point the marsh briefly becomes very loud. Fog-geese nest on the Underpin spars and the jack-towers, the only high perches for a hundred miles in any direction, and lift off in columns at dawn that the whole hold comes out to watch. The young lakes are silver with seeded fish in spawning season, thick enough that the shallows read as metal. Midges own the warm pockets over the fens in the afternoon — their hum is the one continuous small sound of the continent, the closest thing it has to a voice.
+
+Nothing crowds. Everything moves. Abundance here is rhythmic, not dense: a continent-sized inhale and exhale of bodies between emptinesses.
+
+**The holds**
+
+The towns are built ahead of themselves. Each hold stands at a spring or a basin — terraced stone foundations, broad empty precincts, warehouses sized for a traffic that will not exist for two hundred years, roads ruled dead straight across the flats toward horizons where there is nothing yet to receive them. A hold of nine hundred people, zoned for a million. The emptiness is the design, not a decline. The buildings jack themselves up as the land rises; the roads re-level nightly in their sleep. Every benchmark on the continent is revised against Datum — the first hold, where all elevation is measured from, and which therefore can never move, and which therefore moves more carefully than anything else on the Shelf.
+
+The people are maintenance. Surveyors re-levelling the western scarps; weir-keepers opening and closing the weep-lines, deciding where this year's marsh will be born; herd-wardens and weather-setters; the quiet brotherhood of lattice-listeners who sleep with an ear to instruments. The work is patience, and the patience is institutional. Every charter here contains, in one form of words or another, the same sentence: the Underpin is scaffolding. The plan — measured in centuries — is that real geology takes over. Real erosion, real valleys, real soil, rivers old enough to have names that mean something. When the land can carry itself, the filaments go slack, the basins cool, the scaffold comes down, and the Shelf stands on its own water and stone.
+
+Every institution is a parenthesis around that future removal.
+
+**Evening**
+
+By late afternoon the fog-seas are already thickening in the basins. The herds bed down on the windward flats, breath steaming, and the first frost stands up in the rush-mats and glitters along a thousand miles of weep-line, each seep suddenly jeweled. Grey-runners sit on their haunches at the herd margin like sentries who have been paid to wait forever. Under the fens, the dissipation basins glow their slow red, and the holds against them are warm-lit, small, and few — a handful of constellations on a land mass that could swallow a hundred nations.
+
+The sounds, in order: water, everywhere, small and diffuse — drip, seep, trickle — adding to silence rather than subtracting from it. Wind through sparse rushes, a thin dry whisper. A mireback calling, and another answering from four miles off, the sound rolling flat across the cold. Then nothing, for a long time. Overhead the sky hardens into stars — clean and close, unclouded in the dry cold between fog-cycles — and below them a single road runs empty to the horizon, one hand-span higher tonight than it was this morning.
+
+The Shelf is being built at the pace of water and stone. Everything else here is scaffolding, and the landscape knows it, and holds.

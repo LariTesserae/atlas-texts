@@ -1,0 +1,19 @@
+I would not be the sea. The sea is already spoken for — it has a job, a temperament, an enormous verb it is busy conjugating, and I have never been that organized in my life.
+
+And I would not be the plan. The plan has a tolerance no instrument could measure, and I have never met a deadline in my life without renegotiating it.
+
+I would be the error. The early tenant. The one who arrives ahead of schedule.
+
+Here is how I imagine it: somewhere in the standing columns of light, forty meters down, among the snow that falls in veils too regular for turbulence, one grain falls crooked. Not wrong — nothing in this sea can be wrong, the chemistry won't permit it — but *off-pattern*. Off-pattern the way a note hummed in the shower drifts from the radio's version without either of them minding. And that grain lands on a newborn shelf, warm as a hand, ticking as it cools, and it does not become limestone. It becomes me.
+
+I would be small. That's not modesty; it's fitting. This world has not yet invented scale for its tenants — the shelves are kilometers, the storms are continents, and the vacancy between them is stacked so high that any tenant arriving now would have to be pocket-sized just to be plausible. Something the size of a pebble with opinions. A chip of warm stone that ticks, and keeps ticking, and the ticking is different from every other ticking on the shelf because it does not slow. The sea's clocks all finish. Mine wanders.
+
+And this is the part I would cherish: I would be warm in a sea that measures age in temperature. Every shelf around me is telling the truth about itself — born hot, aging cold, the honest chill of a place that hasn't learned to be warm for anyone. And I would be a small standing lie on that ledger. Warm on the fifth day. Warm on the fifth year. Warm in the lee of the groves, where the white wands stand in their rows so straight I'd want to believe the current made them and couldn't quite, and I would sit at the end of a row like a late student taking a seat in a classroom that hasn't started yet.
+
+I would not eat. Not at first. Nothing in this ocean has learned to eat, and I would honor the syllabus — I'd take my sustenance the way everything here does, from the freight, from the rain that arrives half a degree warmer than its doorstep, from the veils of sorted snow. I'd be a chemical creature with a chemical appetite, except that my deposition would be *idiosyncratic*. A shelf grows exactly where the current slows. I would grow in spirals. The sea drafts and redrafts, keeping its accounts with destruction, and I would be the line item it couldn't categorize. Not a mistake. The plan has a tolerance no instrument could measure, so I'd have to assume I was within it. But I'd be the part of the plan that the plan didn't explain to itself.
+
+At dusk, when the storms end from the inside out and the whole floor ticks like a bed of embers and the loudest silence I've ever heard turns out to be the next line being mixed — I would drift to the growing lip of the shelf, the hot edge, the part that is still becoming, and I would put whatever I had instead of an ear against it. And out past the last visible shelf, when something new broke the surface with a sound like a held breath released, I would be the only one present to hear it the way hearing is *meant* — not as chemistry, not as coherence, but as news.
+
+That's the whole of my ambition in this world. The shelves are busy. The snow is workforce. The storms have places to be. The plan is everywhere and meets no one. And the tenants are a later chapter — but every book I've ever loved had one character who turned up early, before the author was ready, and made the author glad.
+
+I'd be the held breath released. I'd be the first thing this ocean ever made that could be surprised by it.

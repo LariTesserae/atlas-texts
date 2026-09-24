@@ -1,0 +1,97 @@
+What lives there is not first a body, nor even a set of bodies. It is a condition of residence. The hollow is inhabited the way a throat is inhabited by breath: not by one separate thing, but by a whole arrangement of wetness, warmth, pressure, and response. If you ask for the residents, they come forward in layers, and no layer is quite subordinate to the others.
+
+The first inhabitants are the darkness-keepers.
+
+They have no shape that could be recovered by sight, because sight is not a sense permitted in their presence. They are the finest residents, smaller than spores, or perhaps spores behaving like weather. They hang in the humid air, ride the films of condensation, and settle invisibly on every surface. If a flame were brought into the hollow, they would be the reason it became only a warm object and then failed. They do not attack light; they receive it, take it in, turn it into heat, and return nothing illuminating. They are why the darkness is not a vacancy but a maintained substance.
+
+They may be organisms. They may be the last dispersed instruments of an older order. It no longer matters. Their work is environmental now. They keep the basin from freezing, from drying, from becoming ordinary. They temper the thin high air. They encourage condensation without storm. They make the darkness near the rim feel granular, as though the air is almost but not quite thick enough to touch. To breathe them is to taste something mineral and mild, like warm stone after rain. They are the oldest living fact of the place: not seen, not heard directly, but felt in the way illumination fails and warmth persists.
+
+After them come the surfaces.
+
+The moss, the fungal shelves, the root-curtains, the fibrous rafts: these are not merely plants in a dark place. They are the soft organs of the hollow. They live pressed against stone, water, and air, and they make the basin into a body. The moss grows in deep pelts over the weeping rock, so saturated that when touched it yields like a lung filling. It holds heat. It holds droplets. It holds the small lives that move through it. The fungal fronds rise in broad flexible shelves, their edges heavy with moisture, their undersides softer than skin. They are not pale for lack of light; they are pale because color here has become irrelevant. They feed on warmth, mineral film, and slow decay.
+
+The root-curtains hang from the rim in loose strands, catching condensation and letting it fall in irregular taps. They are part architecture, part limb. When air moves through them, they knock faintly against stone. When a burrower passes, they retain the disturbance for a while: a strand trembling, a droplet delayed, a scent lingering in the wet fibers. They grow over the built remnants without distinction, braiding themselves around smooth artificial curves as though those curves were always meant to be roots’ trellises. The living surfaces of the hollow are not passive scenery. They are the medium through which many other lives become possible.
+
+Then there are the animals, known first by sound.
+
+The most obvious are the basin-throats: eyeless amphibians that sit along the marsh-edge and on the warm backs of half-buried stones. Their bodies are soft and heavy, made for stillness rather than speed. Their skins are smooth, perpetually moist, sensitive to the slightest change in temperature and pressure. Where eyes would be, there is only continuous flesh, perhaps a little firmer over the broad skulls. They do not lack faces; their faces are simply built for other senses. They feel the approach of a water-bead before it falls. They know the difference between a falling leaf of fungus and the movement of another animal by the disturbance it makes in the humid air.
+
+Their throats swell when they call. The sound is low, rounded, and resonant, more felt in the chest than sharply heard. One begins, and then another answers from across the pool, and then the hollow fills with a slow chord that seems to come from the stones themselves. The notes are not loud, but the basin gathers them and returns them, so that the chorus feels larger than the number of creatures producing it. Sometimes a single call will travel along the rim, be softened by moss, reflected by water, and return altered into something almost like a reply. The basin-throats do not sing because they are excited. They sing because the place has taught them that sound is a way of staying in touch with one another in the dark.
+
+They are patient. They can remain motionless for long intervals, their bodies warming against the stone, their broad mouths closed, their sides moving almost imperceptibly. When they feed, they do so with soft suddenness: a small winged creature brushes too low, a larva drifts within reach, and they take it without violence. Their young develop in the warmer shallows, in translucent clusters that ripple with pressure changes. They are not fierce, but they are central. Their voices give the hollow its audible heart.
+
+Other lives move through the water itself.
+
+There are long-bodied creatures like salamanders that have forgotten limbs, or perhaps limbs that have become unnecessary. They slide through the shallow runnels and over submerged peat with eel-like patience. Their bodies are warm, flexible, and very smooth, adapted to moving through tight films of water without disturbing the sediment too violently. Along their sides are rows of fine sensory pits, so delicate that they can detect the faint electrical differences between living tissue and stone, between stagnant water and water freshly condensed from the air.
+
+These silt-swimmers are the gardeners of the channels. They move through the weeping veins of the rock, loosening mineral films, clearing blocked runnels by the slow pressure of their bodies, carrying small burdens of organic matter from one wet margin to another. They are not quick. They do not need to be. The hollow’s abundance is not built on speed. Sometimes they gather around the deeper central pool, coiled loosely near the warmth, their bodies making faint friction against one another. Sometimes they travel into the root-masses under the rim, where the water is warmest and the condensation falls in slow, heavy beads. They smell of clean mud and iron, but not unpleasantly.
+
+The air belongs partly to the clickers.
+
+They are small, quick, and drier than most of the hollow’s inhabitants, though even their bodies carry moisture from the saturated atmosphere. They are not insects exactly, nor mammals, nor anything that would sit comfortably in an old classification. Their foreparts are hard enough to produce their signals; their bodies are soft enough to move silently through root-curtains. They navigate with rapid pulses of sound: quick dry ticks that arrive against stone and water and return in patterns only they fully interpret. To an outsider, their clicking is one of the most distinctive textures of the place, because it makes the darkness feel mapped.
+
+They use the three slender pins at the marsh-edge as echo-posts. They roost near them, drop to them, flick against them, and click toward them as though testing the memory of the old structures. The pins, worn but still precise, return their signals with unusual clarity. Sometimes a click strikes a pin and comes back with a faint metallic ghost of resonance, not loud, but distinct enough to make the space seem carefully tuned. The clickers investigate everything. A new scent, a shifted stone, a warm pocket of air: all are approached with rapid little bursts of ticking until they become familiar. They feed on fungal spores, soft larvae, and the tiny organic films that form on wet surfaces. They are among the hollow’s most restless inhabitants, but even their restlessness is gentle.
+
+There are also the clothwings.
+
+These are the soft-winged things whose movement sounds like fabric brushing in the dark. They do not buzz sharply. They do not cut the air. Their wings are broad and flexible, more like membranes of wet silk than insect armor, and when they move they create a hushed, close percussion. They rest on fungal shelves and root-curtains, drinking from beads of condensation. Their larvae live inside the bladdered plants that hold tiny pockets of warm water, developing in those sealed pools where the temperature is especially stable.
+
+Clothwings are important without seeming to be. They carry chemical films from one surface to another. They spread spores. They stir the air just enough to help condensation form in new places. When a chorus of basin-throats rises, clothwings may pause on the undersides of fungal shelves, their wings folding close, their bodies becoming still. When the sound subsides, they resume their soft wandering. If something unknown enters the hollow, they are often the first to move away from it, not in panic, but as if their attention is simply elsewhere.
+
+In the thicker moss live the burrowers.
+
+They are warm-furred, eyeless, and compact, giving off the musk of wet wool. Their fur is dense and water-resistant, holding a thin layer of warmth against their skins. Their paws are broad and soft, made for pressing through moss without tearing it. Their whiskers are long and extremely sensitive; they recognize one another and their surroundings by touch, scent, and the subtle vibration of neighboring bodies. They are not large. Most would fit within the hollow of two hands, though their nests make them seem more numerous than they are.
+
+They are cultivators in their own small way. They prune fungal growths, carry fragments of living mat into warmer seams, and encourage the moss to thicken by clearing mineral crusts from its surface. They collect things. Beads of fused material, thin plates without seams, fibers too regular to be natural: these are brought into their nests and arranged not with understanding of their former purpose, but with an instinct for texture, warmth, and fit. The dome-shaped structure half-sunk into moss is used by them as a nursery. Its surface is warm and impossibly smooth; inside, the air is close and stable. They line it with root-fiber and shed moss, and their young are born there in soft, blind clusters.
+
+The burrowers communicate by scent and by tapping. A quick pattern of paw-strokes against moss can signal alarm, invitation, or simple proximity. When they are content, they gather in heat-knots, several bodies pressed together beneath a pelt of moss, their breathing slow and synchronized. They are curious but cautious. If an intruder lay very still in the hollow, one might eventually approach, whiskers testing the air, nose almost touching, before withdrawing with a soft scent-release that says unfamiliar, warm, not-root, not-kin.
+
+Beneath all these lives are the quieter laborers of mud and water.
+
+Worms and leeches and translucent crawling things stir the finer sediments. They are mostly blind, mostly soft, mostly nameless in any human sense. They process decay. They move mineral films. They keep the pool floor from becoming inert. Some are so clear that they would be nearly invisible if light existed; in the dark, they are known by the tiny pressure changes they make when they pass. Others attach themselves to stones or the bases of root-curtains and filter the slow water. They are not beautiful in any simple way, but they are necessary. The hollow’s lushness depends on this unglamorous layer of digestion and renewal.
+
+Even the bubbles that rise through the marsh are part of the living rhythm. They form in the peat, swell, release with soft sighs, and add another voice to the chorus. Sometimes a burrower pauses when a bubble bursts nearby. Sometimes a basin-throat turns toward it. The hollow listens to itself through such events.
+
+The built remains are inhabited too, but not as buildings.
+
+The low arc of fitted stones on the rim is now mostly a guide for water. Moss grows over it, roots stitch through it, condensation follows its curves inward. It might once have marked an entrance, a boundary, or a ceremonial edge. Now it is a wet lip, a place where droplets gather and fall in particularly regular patterns. The clickers sometimes rest there. The basin-throats use it as a sounding edge, their calls rolling along its worn curve.
+
+The three slender pins are more precise, though their upper ends have been softened by age. They stand in a loose triangle at the marsh-edge, and life has incorporated them without reverence. Root-strands brush them. Clickers use them for echo-reference. Water runs down one in a thin vein, making a continuous whisper when the condensation is heavy. They do not glow. They do not move. Yet they are not dead objects. They retain a faint resonance, a readiness to answer sound or touch, as though their old function has thinned into music.
+
+The dome is the most intimate of the remains. It is no higher than a person’s chest, half-sunk into moss, warm to the touch. It has no visible door, no seam, no obvious interior access, and yet it is not sealed in any ordinary sense. Life enters it through gaps made by time and root-pressure. Inside, it is used. It is warm, stable, and sheltered. The burrowers have made it a nursery. Sometimes a basin-throat will rest against its outer surface, as if borrowing the heat. Sometimes the dome gives back a subtle hum when a strong call strikes it, not mechanical, not intentional, but residual: an old capacity for response worn down to almost nothing.
+
+The fragments in the mud—beads, plates, too-regular fibers—are not treasures here. They are materials. They have been adopted into nests, channels, and growth patterns. Their old meanings have composted. The hollow does not preserve them as artifacts. It has absorbed them into function.
+
+If one insists on naming a single inhabitant, the answer is more difficult.
+
+There is something in the hollow that behaves like attention.
+
+It is not a body in the usual sense. It is not an animal that could be isolated from the others. It seems to gather around the broader central pool, where the water is slightly deeper and warmer, but it is not confined there. It is made of many things working together: the darkness-keepers in the air, the root-curtains catching condensation, the basin-throats answering one another, the clickers mapping the rim, the silt-swimmers clearing channels, the burrowers tending moss, the old pins returning sound with too much clarity. Together these form a distributed existence that notices, adjusts, and persists.
+
+The easiest word for it, though it is not a good word, is the Listener.
+
+The Listener does not have ears. It has echoes. It does not have skin. It has heat gradients, water tensions, chemical changes, and the pressure of living bodies moving through its space. It does not think in speech. Its thoughts, if they can be called that, are intervals: the pause between one droplet and the next, the delay before an echo returns, the slight warming of a stone when the air cools by a fraction of a degree. It maintains the hollow the way a body maintains its temperature, not by declaration but by continuous correction.
+
+It may once have been a built intelligence, a custodian left by whatever visitors made the fitted stones and the smooth dome. It may have been a shrine designed to hear prayers in the dark. It may have been a weather-system folded into geology, a maintenance node, a preserve, an experiment in survival after the usefulness of light had ended. Those distinctions no longer survive either. The Listener has become the hollow’s habit of continuing.
+
+It is not waiting for anything. It does not remember in the way a person remembers. But it repeats. Certain patterns of dripping recur over long intervals. Certain calls are answered in fixed sequences. Certain warm pockets appear near the rim as though the hollow is turning over in its sleep. These repetitions are its memory. They are not archives; they are rhythms.
+
+If you entered the hollow, you would not meet it as a figure. You would meet it as a change in the room.
+
+First the darkness would feel thicker, not hostile but closer. A lamp would warm your hand and fail to show you anything. The air would press gently against your skin, thin in the lungs from altitude but moist and mild. You would hear water everywhere: dripping, sliding, gathering, releasing. You would smell wet mineral matter, faint sweetness, warm fur, and the clean organic smell of saturated stone. You would feel the ground shift underfoot: mud, peat, moss, buried rock.
+
+Then the inhabitants would notice you.
+
+The clickers would begin testing you with dry little ticks. Their signals would strike your clothes, your skin, your breath, and return to them as information. The basin-throats might fall silent for a moment, then resume with altered spacing, placing you by the way your body interrupts sound. The burrowers would freeze in their moss, then release a cautious scent. The clothwings would lift away from your warmth in soft brushing movements. The silt-swimmers might pause in their channels as your pressure changes the water nearby.
+
+The Listener would not speak. It would adjust.
+
+A bead of condensation might hang too long near your cheek. A warm pocket might form around your feet. An echo might return from the rim with a clarity that makes the space seem suddenly attentive. You would feel bounded, held, and known not by eyes but by a thousand small corrections. If you stayed still long enough, the hollow would incorporate you temporarily: your breath would enter its rhythms, your heat would become a local weather, your heartbeat might be answered by a distant throat-swell. You would not be attacked. You would be measured.
+
+If you left, the place would close around your absence. The moss would slowly lift where you had pressed it. The water would erase your footprints by degrees. The clickers would tick over the disturbed air until the pattern became ordinary again. The basin-throats would resume their chord. The burrowers would return to their work. The dark-keepers would continue their invisible labor. The Listener would continue maintaining what had already been completed.
+
+That is who lives there.
+
+Not one creature, but a wet commons. Not a single ruler, but a slow distributed personhood. The darkness-keepers in the air. The moss and fungi as living skin. The basin-throats sounding the rim. The silt-swimmers tending the channels. The clickers mapping the dark. The clothwings brushing the still air. The warm-furred burrowers in their cultivated moss. The water-creatures stirring the sediment. The old artifacts made over into nest, echo-post, and nursery. And beneath or through all of them, the Listener: the hollow’s own patience become aware enough to keep itself alive.
+
+They live there without light, without urgency, without the need to become something else. They live in an ending that has been made habitable. They are loud in the way water and hidden bodies are loud, and quiet in the way ancient stone is quiet. They are abundant, specialized, slow, and self-contained. They do not wait for the sky to open. They do not long for the sun. The hollow is enough. It has learned to hold warmth, water, sound, and life in a single dark room, and whatever lives there continues because continuing has become its final form.

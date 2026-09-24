@@ -1,0 +1,51 @@
+# The Listener
+
+Begin with the one you almost never see, because everything else on the Level is shaped like an answer to it.
+
+It is low, long, soft as a held breath — a grey-brown shape the color of the pavement between two shades, so that when it lies still it is not hiding, it is simply *being the ground a little more*. Its face is mostly ear. That is not a figure of speech. The skull is a structure built around two great dishes of membrane, furred, mobile, aimed; the rest of the head — muzzle, eye, jaw — is almost an afterthought, machinery attached to the listening. Its eyes are small and mild and it does not rely on them, because on the Level, in that honest noon light that flatters nothing, seeing is the least useful sense. Everything visible is merely standing in heat. Everything *audible* is alive, and therefore food, or danger, or both.
+
+It hunts by patience in a place that has made patience into geology. It lies in the lee of a dome's skirt for hours, warm on stone that gives back the day's heat, and it listens the way other creatures breathe — continuously, without effort, the whole soundscape pouring through it. A beetle's feet at half a kilometer. A burrow's heartbeat under a meter of undermined ground. The *tick* of a boulder losing a grain of feldspar at dawn, once a season. It knows every sound the plain makes, which is very few, which is precisely the point: in a finished landscape, any new sound is either weather or meat.
+
+It kills quietly, which is to say the prey does not get to make any. This is not cruelty. This is craft. A licker taken mid-lick, a walker-bird's neck closed before the boom it was saving for the rain ever leaves its chest. The listener takes what the plain offers, and the plain offers the incautious, and so the plain grows more careful with every generation, and the listener, in turn, must listen harder, and grows more ear. The two of them — hunter and hush — have been refining each other for longer than the varnish has been darkening. Some nights, in the cold hours, a licker at the far end of a warren will feel its own heartbeat and be unable to say whether it can hear it, or whether something half a kilometer away can. It digs deeper. It always digs deeper.
+
+Twice a season the rain comes, and for that hour the listener is the loneliest creature on the Level — deaf in a world of water, its one great talent dissolved in a wall of sound in which no single footfall can be found. And the plain knows it. You could say the plain *counts on it.* Every saved voice — the boom of the walkers, the whistling of a hundred lickers underground, the scream of the grey stream through the wet — is spent exactly when the listener cannot parse it. Whether they know what they are doing or have merely, across ten thousand rains, all the loud ones been eaten, the result reads as cunning, and the listener sits out the rain like a god on holiday, and takes up its office again when the last drops have stopped translating.
+
+# The Lickers
+
+Underfoot, in the warren districts where the ground is more doorway than ground, live the lickers — cat-sized, felted slate-grey, blunt-faced, and silent in a way that has stopped being a habit and become an anatomy. Their young dig; their old stop digging, sun themselves on the grey spoil-heaps, and become, without ceremony, protein. This is not tragedy on the Level. It is the closest thing the place has to an economy.
+
+At first light they lie belly-down on the domes' dew-dark flanks, letting the fog bead on their felt, and then they lick themselves clean, harvesting the sky from their own backs. This is as close to washing as the Level comes, and it is also breakfast. They graze the algal film the fog leaves on the stones — the same black crust of algae and fungus that lies between the grit like a skin over the whole plain, faintly damp at dawn, a whisper by noon. They are, in effect, the plain's livestock, pastured on the plain itself, herded by silence.
+
+And they queue. At dusk, at the Black Pool, they line up in strict order of arrival, each drinking a set count and withdrawing. No one enforces it. It has been seen to break exactly twice, and both times the listener's shadow passed within the minute, and so the queue holds — law, culture, or fear wearing order's clothes, kept either way, generation upon generation, a line of grey animals standing patient at a black pool whose surface breaks, every eight seconds, with one soft ring where the condensation gathers on the lip and lets go.
+
+In the crest years they are everywhere, the earth giving like a mattress underfoot; then the crests pass, and their old spoil-heaps lie out on the plain like grey reefs, and another dozen years go by. The ruin by the Pool has lickers under its floor, and their chambers widen beneath it, and the house settles gently, year by year, being lowered by its own tenants into the plain — occupied, as everything here is, on different terms.
+
+# The Dancers of Walking
+
+The walkers — hip-high, grey, bustard-necked birds — quarter the pavement in loose bands, and walking is, for them, the whole of religion. A band passes a mile in a morning and none of them hurries, because hurry is a noise made with the body, and the body is audible. They are the Level's largest visible residents and therefore its most deliberate: every step placed, every neck-turn performed, arguments settled entirely in posture, two birds standing angled at each other in the noon heat like a disagreement carved in granite. When they boom, they boom only in rain, and it is a sound like the ground itself clearing its throat — a chorus held all year in the sac of the throat and spent in an hour.
+
+Some years they walk east, in numbers, toward the notch in the eastern rim, and keep walking, and none is ever seen to come back, and no one knows what the notch knows. The walkers do. The walkers are not telling.
+
+# The Grey Stream
+
+Twice a day the dome-nests open and the crescent-winged birds go up in a single unbroken rope of bodies — thousands upon thousands, mute, the sound of them no more than a pulse of felt, a quarter-hour river of wings pouring east at the height of the fog and drinking it on the wing. They nest in the crevices of the domes and in the mouths of old licker burrows — living in the architecture of other species, the way swifts nest in the joints of the ruined house, the whole plain a stratigraphy of presences packed from the sky down to the pan, each layer near-touching the next, tenants upon tenants upon tenants, going back past the people who ground the thumb-wide drinking cups into the rock — cups the beetles still drink from, every dawn, so that the dead still water the living.
+
+# The Keepers
+
+And the corvids. Black, heavy-billed, mute like everything else, they do the one thing on the Level that looks like ceremony and cannot be explained away as economy: they carry white pebbles, one at a time, from the quartz flats to the standing stones — old work, slabs leaned upright in a line running two kilometers from the Seam toward the eastern notch, all leaning the same way, like men in an old photograph — and they set the pebbles down at the bases. A pebble a week. The cairns fatten at that rate, and darken at the varnish's rate, and have been growing for a very long time.
+
+Whether they are honoring the builders, robbing them, or simply continuing a habit whose owners are gone — no one knows, and the birds say nothing, being birds of the Level, where nothing calls and nothing cries. But consider what the pile is: a monument that grows at a pace the listener can hear, one placed pebble at a time, and nothing eats them for it. Perhaps that is the answer. Perhaps on a plain where every sound is public property and every species is shaped around one great ear, the corvids have found the one acceptable offering — slow, deliberate, *announced* — and they make it to whoever taught them, or to whatever taught them, or simply because the pebbles are white, and the stones are old, and the work was never finished, and someone should finish it.
+
+# The Small Drinkers
+
+And under all of it, in the cold hour, the beetles: rising from beneath the crust by the thousand, shoulder to shoulder, standing on their heads so the fog beads on their backs and runs downhill into their mouths — the stones looking briefly furred, the whole plain drinking the sky in position. They are the Level's smallest taxpayers and its most numerous, and the listener can hear their feet at half a kilometer, and so they have learned what the feet of a thousand beetles sound like, and they make it sound like weather. Not individually. Collectively, over ages, by the patient arithmetic of being eaten — which is how everything is learned on the Old Level.
+
+# The Ghost Tenants
+
+And in the deep mud of the Black Pool, the shrimp — whose eggs have waited in the dust, some of them probably longer than the house has been ruin — hatching only when the twice-a-season rain quickens the pool, loud days spent in an almost-ordinary place, and then the water closes like a hand and they go back into the dust and wait again.
+
+And in the terrace wall on the southern skirt of the largest dome, the last true grasses on the plain, tended still by drainage its builders never finished planning — a garden of the dead, watered by fog, grazed by the living.
+
+The people are gone. Their names are gone. They are thinner in the record than the varnish on the stones. But their cups water beetles, their wall grows grass, their standing stones collect a pebble a week, and their one carried lintel roofs nothing over a house going slowly down into the plain. The Level does not remember them. It *uses* them.
+
+That is who lives here: everyone, at once, in silence, at the end of a story, all of them agreeing — the hunters and the hunted, the dancers and the diggers, the keepers of pebbles and the waiters in the dust — on the single thing worth agreeing on, which is not to be heard. The land finished long ago. The living have matched it, grain by grain, voice by withheld voice, and stayed.

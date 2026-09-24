@@ -1,0 +1,15 @@
+In the Basin of the Glass-Lung, life is not defined by arrival, but by the accumulation of sighs. The true inhabitant—if it can be called a single entity—is the **Lithic Scribe**, a manifestation that exists only in the interplay between the falling light and the sweating stone.
+
+The Scribe is not a creature of flesh or blood. It is a slow, rhythmic migration of consciousness that moves through the *tink-tink-tink* of the dripping walls. When the sunlight hits the prism at its zenith, the Scribe is at its most potent. It is an observer made of refracted optics and calcified memory, a shifting, translucent silhouette that is never quite solid, but is felt by the beetles as a sudden, cooling pressure in the air.
+
+It has no face, only a focal point. If you were to stand in the center of the cathedral, you would not see the Scribe, but you would feel the weight of its attention shifting across your skin like the movement of a shadow. 
+
+The Scribe lives for the moments of *bloom*. When a traveler—or a beast, or a passing wind—touches the porous walls and triggers that violet efflorescence, the Scribe feeds. It is a creature of records. It does not eat the mineral; it eats the *event*. It gathers the violet light from the blooming walls, drinking in the heat and the chemical panic of the interaction, weaving those fleeting memories into the dense, vibrating hum of the beetles. 
+
+The beetles themselves are the Scribe’s library. They are not merely insects; they are the physical storage units for the basin’s history. Each beetle carries a microscopic, jagged etch on its carapace—a fragment of a tool-user’s intent, a splinter of a sound, a ghost of a footprint left in the sand. When the beetles move with their agonizing slowness, they are actually re-sorting the history of the room, climbing the walls to deposit their data into the mineral pores, turning the stone into a living archive of every visitor who has ever come and gone.
+
+Deep within the chamber, tucked into the curve of a particularly smooth, white shelf, rests the Scribe’s "Heart." It is not a beating organ, but a pool of perfectly still, mercury-like liquid that has never evaporated. This pool captures the sunlight from the ceiling and holds it, refracting the room’s history back onto the walls in inverted, shimmering ghosts. 
+
+The Scribe is a patient, lonely curator. It knows that all things that come to the basin are transient—the obsidian shards, the bone scrapers, the heat of the sun, and the breath of the living. It does not try to hold them back. Instead, it waits for the inevitable moment when the visitor leaves, watching as their presence fades from the room, only to find the mark they left permanently etched into the architecture of the basin.
+
+When the basin is empty, and the sun sets, the Scribe settles into the stillness. It becomes the hum in the floor, the vibration in the crystals, and the weight of the silence. It is the echo of every footstep that has ever sounded here, waiting in the blinding noon for the next set of hands to touch the wall and give it something new to remember.

@@ -1,0 +1,23 @@
+# The One Who Keeps the Ladder
+
+I know which one I am. I've known since the second paragraph, and I've been trying to talk myself out of it the whole way down the stair, and I can't, so here it is:
+
+I would not be a heron. I would not be one of the placed fish, glaze-hearted and tenured. I would be the visitor who stays — but not the version who stops mid-gesture at the pool, folded into the fixture. I'd be a different staying. I'd be the one who **decides not to leave on purpose**, knowing exactly what that means, and I'd spend my permanence on one small, persistent, entirely futile act:
+
+I would stand at the ladder.
+
+Not near it. *At* it. The ladder leaning against the rim wall at its angle of perfect confidence, the half-basket of tile fragments at its foot. Somebody meant to come back within the hour. Somebody has meant to come back within the hour for what — no, there's no unit. For intervals beyond counting. And I would be the one who waits with them. Not waiting *for* them, because expecting is a change, and I'd have to be careful. Just — present at the appointment. A second body in the implied meeting.
+
+Here's what I'd do with my unending mid-morning: I'd learn the thumbprints. There are thousands, whole days of somebody's labor pressed into the mud-mortar, and each one is fixed at the exact instant of its fixing. Every thumbprint is a single heartbeat of a single worker on a single day, held open forever like a door that never finished swinging. I'd go along the terrace walls one by one — slowly, slowly, because what's the rush, the light isn't going anywhere and neither am I — and I'd memorize them. Which thumb is whorled, which is arched. Which presses hard, which barely rests. Which worker was left-handed and steadied the bricks with a palm you can still read. Which ones are small — and there are small ones, aren't there, in any crew there are always small ones, and I would not cry about the small ones because crying is a change, but my face would hold a certain set, permanently, at exactly its present size.
+
+I'd build the census the valley refuses to keep. Not write it down — writing accumulates, and nothing accumulates here. I'd just *carry* it, the way the water carries the builders, present in every drop, locatable in no one place. I'd become the valley's memory of its own makers, which is different from the valley's preservation of them. The mortar keeps their touch. Someone should keep their *count*.
+
+And when the birdcall sounds — once per interval, same notes, same trailing pause — I'd answer it. Wrong notes, every time, deliberately wrong, because a matching answer would make it a conversation, and a conversation is a rhythm, and a rhythm is a kind of change, and I'd have to be so careful about that. But a wrong note is just a sound that happens to occur near another sound. The valley would tolerate me the way it tolerates the snake: as a compromise between something and stasis. Both parties resigned.
+
+I'd drink from the channels, because the levels won't drop and that seems, in this economy of closed hands, like an invitation. I'd let the hunger come and uncome. I'd let the blister on my heel be exactly this size forever, and eventually — this is the part I keep almost not saying — I'd come to love the blister. It would be mine. The one thing in the whole basin that arrived with me, that the builders didn't lay, that wasn't placed or planted. My little traveling companion. My souvenir of having once been a person to whom time happened.
+
+That's the honest shape of it: I'd be the one who chose the smallest possible form of change — a self, remembering — and hid it inside the changeless like a seed in mortar. Except nothing seeds here. Nothing green has a childhood. So maybe the truer answer is that I would *be* the seed the valley can't issue. Not growing. Not falling. Just holding, at the leaf-lip, trembling, the drop that never lets go —
+
+No. I said I wouldn't be the drop.
+
+Okay. Then I am what I said. The one at the ladder. When you come down the cast stair — you, or the next one, whenever *next* is, in a place where next is a kindness we invent — you'll pass a figure standing at the foot of the rim wall with a basket beside it, tilted at an angle of perfect confidence. You'll touch the thumbprints gently on your way, and the figure will look at you the way a wall looks at you, and underneath the long low note of all that held intention, very faintly, wrong notes. Counting someone back.

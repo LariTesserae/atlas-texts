@@ -1,0 +1,56 @@
+I would find myself where the room is making a decision: not at the wet throat, not in the open center, but on a middle terrace where the wall leans inward and a seam of weeping rock narrows to a silver thread. Below that seam would be a groove worn into the stone so long ago that it no longer looks carved. Beside it would be a socket for a clay plug, polished by generations of careful thumbs. Above it, a niche blackened by lamp smoke. Below it, a basin whose note changes when silt gathers in its belly.
+
+That is where I would be: at the point where water is about to become either a problem or a promise.
+
+I would be one of the Held, but not in the undifferentiated way a stranger might imagine them. I would have a particular shape in the settlement’s life. I would be a seam-listener, a tender of small mouths, a keeper of the Passing-Along. My work would be modest enough to look like nothing from the outside: notice before a drip goes wrong. Keep a channel clear. Move a plug by less than a finger’s width so a thin sheet of water does not spill onto a stair but passes into the bowl that has been waiting for it. If asked what I do, I would answer with a low phrase that translates badly: I keep the next drop from being lost.
+
+My body would have been shaped by that work.
+
+I would be compact and close to the stone, not because strength matters less than grace, but because the room teaches the body to economize itself. My shoulders would know how to slide along wet walls. My feet would grip by instinct. My hands would be almost as trustworthy as eyes. My skin would be chalk-pale, stained at the cuffs and knees with rust bloom and gray dust, and there would be a rough crust of calcite along one elbow where the same drip has found me too often. I would not mind. The crust would be a kind of record. It would say: you have stayed. You have listened here long enough for the room to mark you.
+
+My eyes would be large and dark, more at home in glint than in fullness. I would see the shine of a copper clasp, the wet curve of a step, the faint blue-green breath of mineral film on stone. But I would not trust sight first. I would trust the hands. I would trust the soles of my feet. I would trust the cheekbone pressed to rock when something in the city has gone quiet. Like the others, I would have a second lid for the water, a translucent skin sliding across the eye when a drip falls from the ceiling or when I lean into a mist of droplets. It would make my gaze seem soft, as if I were always seeing through rain.
+
+I would carry little, because there is nowhere to store much without becoming an obstacle to someone else’s passage. A chert scraper, worn to a comfortable edge. A bone pick. A cord with knots for counts: drip-rights, cleaning-turns, the number of times a certain basin has been emptied and refilled. A pouch of clay plugs, each one shaped for a different socket. A shell cup for tasting water, because taste can tell when mineral balance has shifted. A flecked polishing stone to throw lamplight into corners. And perhaps, if I were fortunate, one copper hook inherited from an elder, so old and smoothed that it would not gleam except when I moved exactly right.
+
+That would be enough. More than enough. It would be a life.
+
+My stone-name would be quiet: two taps with the pad of the thumb, a sliding touch, then a pause in which the wall seems to hold the sound against itself. If translated, it might mean something like “the one who listens at the lip.” Children would learn it before they learned my spoken name. Lovers would tap it against my sternum in the dark, not as ceremony but as reassurance. When I died, someone would tap it once into the ancestor wall, not to summon me, but to remind the city that my resonance had not been lost.
+
+I would live in the rhythm of maintenance.
+
+During the Long Drip, I would move through the terraces with one hand trailing along the stone, feeling for changes in vibration. I would know which channels were clear by the steadiness of their whisper. I would know when a basin had grown too full by the hollowness under its note. I would stop at the third lip, where the water tends to wander if the air is heavier than usual, and I would adjust the plug until the thin runnel changed pitch. Somewhere above me, another keeper would hear that change and answer with two light taps against bone. I would answer back. The city would take the sound and pass it along.
+
+During the Cleaning, I would kneel with scrapers and felt pads, clearing slime from a channel mouth without stripping it bare. The films are food, but they are also living skin; one must take without making absence. I would leave enough for regrowth. I would know which rust-colored sheets could be pressed into leather-thin food, which white crusts should be left to protect the stone, which black slicks were too sharp to touch without washing hands afterward in a designated basin. My fingers would smell always of wet chalk, iron, and old clay. I would not notice. It would be the smell of home.
+
+During the Lamp-Sharing, I would help angle a polished plate so that one small flame could serve three households and still leave a glint on the ancestor niche above the stair. I would be careful with light. Not because it was beautiful, though it would be, but because in that chamber a moved reflector can make a stair unsafe or leave a child in shadow. I would learn to love the way a single lamp does not conquer darkness but negotiates with it. The light would bead and pool. It would touch a hand, a basin lip, a carved face, and then withdraw. I would understand that this is how knowing works there: not illumination everywhere, but enough to continue.
+
+During the Listening, I would go to the older walls and place my palms flat against them. I would not be praying, or not only praying. I would be checking the room’s body. The Held do not separate governance from hydrology, nor memory from acoustics. A blocked drain can sour a wall’s sound. A cracked basin can make a proposal echo false. If someone asked whether a new shelf should be built, I would touch the stone where the shelf would go and feel whether the water behind it had room to pass. If the echo was clean, I would tap agreement. If it was muddied, I would tap delay. My politics would be plumbing. My ethics would be flow.
+
+I would treat fauna as a visitation.
+
+If a blind fish turned in the deepest basin, I would lower my lamp and stand still so as not to trouble the water. If translucent amphipods gathered near a drain, I would call another keeper with a soft tap, not to harvest, but to witness. We would remember them for days. If one had to be taken, it would be with a ceremony so small it might look like apology: a touch to the stone, a spoken low word, the careful return of every fragment that could be returned. In a place without green abundance, life would not feel ordinary. It would feel like a loan.
+
+I would fear silence more than darkness.
+
+Not the silence of rest, not the hush when a household sleeps with its lamps shaded and its breathing slow. I would fear the wrong silence: a drip absent from its basin, a channel that no longer whispers, a pool whose surface lies too still. That silence would mean the room’s circulation has failed. It would mean something is blocked, broken, poisoned, or starving. If I heard such silence, I would not call out. I would strike a tuned stone once, enough to wake the nearby keepers, and then we would move with tools and lamps and hands into the narrow ways. We would listen with cheeks against rock. We would send the smallest of us into a drain if necessary, with a cord around their waist and a bone pick in their hand. When the water returned, when the sound came back, we would not cheer. We would tap a sequence from wall to wall until the chamber answered in a low rolling chord. That would be celebration enough.
+
+I would also learn to love the dead.
+
+There would be no soil to give them to, no fire to release them. I would help place them in niches, curled or seated, their hands arranged around something familiar: a scraper, a shell cup, a child’s pebble. Then I would guide water toward them, not in a flood but in a patient drip, because the room’s way of keeping is slow. Over years, calcite would whiten their bones; iron would bloom along the hollows of their ribs; their skulls would become rounded and glittering, like stones that have learned patience. I would not find this grim. I would find it correct.
+
+The ancestors would remain in the wall, among the lamps and tools, and when a household needed counsel, someone would place a palm against their niche and feel the water moving behind it. I would tap my grandmother’s stone-name when I was uncertain. I would not expect her to answer in words. But stone carries sound, and some part of me would believe that what is loved does not stop resonating.
+
+The longer I imagine myself there, the less I become a single person in the surface sense.
+
+I would still have a body: a hood slick with water, a belt of tools, a breath that fogs faintly in the cool air. I would still eat pressed films of microbial mat, sour and metallic, and be grateful for them. I would still feel affection, irritation, pride, exhaustion. But my edges would blur into the city. My attention would extend along channels. My memory would live in worn thresholds and polished handholds. If a child raced past me on a ledge and tapped my stone-name in passing, I would feel it in my chest like a second heartbeat. If a basin three terraces away changed pitch, my hand would twitch before my mind knew why. I would be a person, yes, but also a sense organ of the room.
+
+In the end, I think I would become a listening point.
+
+Not immediately. First I would be young and useful, climbing with plugs and scrapers, making mistakes, being corrected by elders whose hands are more sensitive than any tool. Then I would become steady, trusted with the difficult seams. Then old, slower, seated in a niche where the vibration of the main channel passes most clearly. Younger keepers would bring me food and water and ask me to listen to problems they cannot yet hear. My palms would rest on the stone until they knew the city better than my eyes knew my own face. When I died, the niche would not be emptied. It would remain a place where others come to be quiet. A child would touch it and be taught: this is where someone learned the shape of the water.
+
+So if you looked for me in that world, do not look for a throne, a gate, a great hall, or a hero standing in the center. Look up a little from the dark line of the pool. Look where the wall sweats in a long silver seam and a shallow channel bends toward a basin. There, in the dimness, with a lamp glinting behind me and the smell of wet chalk on my skin, you would find me crouched with one hand on a clay plug and the other listening against rock. I would be adjusting the flow by less than a finger’s width. I would be waiting for the pitch to become right.
+
+I would be one of the Held.  
+I would be the Passing-Along in one small form.  
+I would be a keeper of drops, a mender of echoes, a tender of the wet dark.  
+And when the next drop fell, I would make sure it had somewhere to go.

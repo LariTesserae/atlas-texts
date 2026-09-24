@@ -1,0 +1,73 @@
+## A Census, of Sorts
+
+Start with the ones making the noise.
+
+A swiftlet weighs about as much as a folded letter. Mouse-brown, sooty under the chin, sickle-winged, with a tail that barely bothers to fork — a bird with no distinguishing features at all, which is what you get when a lineage spends fifteen million years perfecting a single trick and abandoning everything else. The trick is the air. Their feet have been reduced to a clamp: four small toes all facing forward, hooked, useless for walking, useless for perching on a branch, adequate for one thing only, which is hanging vertically on wet limestone. A swiftlet that comes down onto the floor of the Warm Mouth is not injured. It is dead. It cannot get airborne from a flat surface, and the beetles reach it before it has finished being surprised.
+
+So every individual in that colony of forty thousand lives its entire existence in exactly two conditions. Airborne, or hooked to a wall. There is no third condition. They drink on the wing, off the surface of the valley river, three days below them by foot and eleven minutes by bird. They bathe by flying through rain. They mate, I am fairly sure, in the air.
+
+Their food is what people who study it call aerial plankton, which is a lovely phrase for something genuinely strange: the permanent drift of small life that the sun lifts off the forest each morning and holds in suspension for the day. Thrips. Aphids in their winged generation. Ballooning spiderlings on threads. Parasitic wasps the size of a comma. Flies of thirty families, ants that have made the one flight of their lives and are already dying of it. The swiftlets go out at first grey and work a ceiling several kilometres above the lowland, an invisible field, and they harvest it by opening their mouths. Each bird comes home with a bolus in its throat, several hundred insects glued together with saliva, and this is what it feeds to the one nestling that survives out of the two eggs it laid.
+
+The nest is the same saliva. In the breeding season two glands under the tongue swell until they distort the shape of the bird's jaw, and it draws the secretion out in strands and loops it onto the rock, back and forth, the way you would pipe a sugar bracket, until there is a cup the width of a small plum, transparent when fresh, hardening amber, strong enough to hold a family. Some build with moss and feather worked in; the high tiers, the old birds, build nearly pure. That is the thing the valley people come for. Hold that thought; it belongs at the end.
+
+Now consider the arithmetic of return. At dusk, forty thousand of these birds pour back down a hole forty metres across into total darkness, and each one has to find its own cup among forty thousand cups on a wall that offers no light and no landmark. They do it by clicking. The double *tock* is not sophisticated — it is a coarse instrument compared to what the bats have, good for resolving obstacles the size of a fist and no better — but it doesn't need to resolve a nest. It needs to get the bird to the right square metre. The last half-metre is done by smell, by the particular chemistry of one mate and one chick, and by being shrieked at continuously from inside the cup by something that has been hungry all day. They land by crashing gently. Every bird gets home. Every night, for sixty thousand years, every bird gets home.
+
+---
+
+The bats are sorted the way a cellar sorts wine.
+
+In the crown of the dome, in the hottest and foulest pocket of air, where the ammonia is strong enough to sting a mammal's eyes and the temperature never drops below body heat, the small free-tailed bats roost at densities that have to be measured in bats per square metre — three thousand, four thousand, pressed belly to back, a living pelt on the rock that ripples when disturbed and steams visibly under a torch. They are the mass of the colony. They are why the floor rises. They are wrinkle-lipped, greasy, foul-tempered, magnificent, and they commute forty kilometres each way to eat moths over farmland they have never seen in daylight.
+
+Below them, in the middle air, hang the horseshoe bats, and these are different animals entirely — solitary even in a crowd, each one wrapped in its own wings like a man in a cloak, each keeping a private cylinder of space around itself, each revolving very slowly on its hook through the night as it sweeps the shaft with a long pure tone broadcast out of its nose. They do not stream. They leave singly, at intervals, and they hunt by hanging from a twig somewhere on the forest edge and listening.
+
+Lowest, in the cold draught near the lip of the bell, where the outside air comes in and slides along the wall, are the big ones. Wingspan of a man's spread arms. Slow, deliberate, enormous-eared, and carnivorous in the plain sense: they eat other bats. They take the small free-tails out of the evening column the way a man takes grapes off a bunch, and they eat mice and frogs and roosting birds, and once, in the season when the young swiftlets are learning, I watched one work the vault methodically for twenty minutes, upside down, walking on its wrists.
+
+Understand what the mothers do. The free-tail pups are left in crèches — bare patches of hot rock carpeted solid with naked pink young, a hundred thousand of them in a stretch of wall the length of a bus, all the same size, all the same smell to you and to me. A female returns at dawn with a stomach full of moths and finds her own. It takes her a minute, sometimes two. She calls, one voice among a hundred thousand, and her pup answers, and she crawls to within a body-length of it on memory alone, and then she checks it by scent, and if it is not hers she puts it down and goes on. She is right nearly every time.
+
+And each of those bats is itself a landscape. There is a fly that lives only in the fur of the free-tails — wingless, flattened, spider-legged, running sideways through the pelt, drinking blood, giving birth to a single pupa that it glues to the roost wall. There is a mite that lives only in the ear of the horseshoe, and it lives in the left ear, because the right one is needed. There are ticks, beetles that eat nothing but shed bat skin, and a fungus on the wing membranes that no one has named. Turn one bat inside out and you have more species than the entire ridge above the shaft can show you. I said the botanical inventory of the upper world takes a minute to catalogue. The inventory of a single bat would take a career.
+
+---
+
+Then there are the ones who live off the traffic.
+
+The pale snake is the most famous and the least numerous. Perhaps forty of them in the shaft, never two hunting the same stretch of vault. The animal anchors itself by taking two or three loops of its tail through the nest matrix and the cracks behind it, lets a third of its body hang free into the dark, and holds — for hours, at the exact height where the departing column thickens. It cannot see. It is barely warm. It strikes at the disturbance of a wingbeat, and it misses four times out of five, and four times out of five is a perfectly sustainable business when the tide comes through twice a day, every day, forever. In the months when the colony thins out it goes down into the floor and hunts crickets in the fermenting heat, and in bad years it simply stops eating for a season and waits, because it costs almost nothing to be a snake.
+
+The whip spiders are not spiders and do not spin and have no venom. Everything about an amblypygid has been sacrificed to touch. The first pair of legs has become a pair of antennae longer than the body, so fine they seem to be made of hair, and the animal holds them out and sweeps them in slow searching arcs, tasting the air for the tremor of something walking. When the tremor is close enough, the spined pedipalps close, and the closing is too fast to see. They spend the day flattened into a crack, and they will spend their whole lives, six or eight years of it, within a few metres of the crack in which they hatched. This is a common pattern here. Half the residents of the Warm Mouth are tourists who travel eighty kilometres a night. The other half never go anywhere at all.
+
+---
+
+Now the floor, which is where the real population is, and where the counting breaks down.
+
+The dermestids are the disposal system. Skin beetles, hide beetles, the same family that will strip a museum skeleton clean if you let it — and here they are in the tens of millions, a moving nap over the entire slope, larvae bristled like little brushes, adults the size of a lentil. Everything that falls, falls to them: nestlings, spent bats, husks, feathers, the pale snake when it finally fails to eat. A full-grown bat carcass is a scatter of clean bones by morning. They do not decompose so much as dismantle. Beneath them are the crickets, blind, absurdly antennaed, grazing the fungal bloom that greys the surface; the springtails in numbers that make the beetles look scarce; the pseudoscorpions hunting the springtails; the nematodes, of which there is no honest estimate beyond *astronomical*; the shin-long centipedes that are the apex predator of the floor and that will take a fallen bat pup and carry it, still moving, under a block.
+
+And under all of that — under the fauna, which is only the visible fraction, the decoration — is the actual inhabitant.
+
+The warmth you feel on your face at the rim is not stored sunlight and it is not the mountain's heat. It is respiration. Seven metres of packed nitrogenous matter at forty degrees is a bacterial and fungal metabolism running at industrial scale, and it is doing what all metabolism does: eating, warming, and breathing out. The ammonia is its breath. The sweetness under the ammonia is its breath. The column of smoke leaning off downwind on cold mornings, the thing that lets you find the place from the neighbouring ridge, is the exhalation of an organism with no body and no edges, several thousand tonnes of it, that has been exhaling continuously since before anyone was here to smell it.
+
+Some of what it breathes out will hurt you. There is a fungus in that dust whose spores, inhaled in quantity by a mammal whose immune system has never met them, will colonise a lung. The valley people climb in the wet weeks when the dust is down, and they climb with their mouths shut, and they do not talk about why, and they have been not-talking about why for a very long time.
+
+---
+
+There is a population on the outside, too, living off the exhale.
+
+The plume rising from the mouth carries heat, and heat lifts insects, and the insects that are lifted attract things that eat them, so that the air above the shaft is an inverted pond with a food chain in it. On the lee rim, where the warm damp air spills over and condenses, the cushion plants are three times the size of anything else on the ridge — because the only nitrogen this mountain has ever been given falls out of that column. A grass grows there that grows nowhere else above four thousand metres. Moss, fat and soaked, with a fly in it whose larvae live nowhere but that moss. Choughs work the rim for whatever the tide leaves. A pair of peregrines hold the same ledge that a pair of peregrines have held for longer than anyone's memory, and they are rich, and they are lazy, and they are not inhabitants of the Warm Mouth: they live at its door, which is a different address entirely.
+
+---
+
+Here is what I think, having spent some weeks with it.
+
+There is one animal in that shaft. It has a two-beat pulse, dusk and dawn. Its circulation is the braided column, arterial one way and venous the other. It feeds on eighty kilometres of lowland forest and farmland every night and it deposits the proceeds in one place, so that the effect of it, over time, is a slow pumping of the valley up onto a sterile limestone ridge where nothing should be able to live. Its body is the floor: seven or eight metres of it, growing two millimetres a year, warm right through, striped with the record of every drought and every wet century. Nothing inside it lives longer than about twenty years. It is sixty thousand years old.
+
+And it is not sturdy. It looks sturdy — it roars, it steams, it seems geological. But its entire body is the accumulated arithmetic of every bird getting home and every mother finding the right pup, repeated some tens of billions of times without a bad decade. Take the forest forty kilometres south and the dome goes cold in four years. The beetles go. The floor stops rising, and starts, very slowly, to be weather.
+
+---
+
+Which leaves the pegs.
+
+They climb in the dark, on the exhale, in the dry weeks, and they do not light the torch because light is no use to them either and smoke makes the colony boil out of the shaft in a panic that can last three days. So for those hours they are doing precisely what everything else in the Warm Mouth does: moving through a known room by touch, by memory, by the gradient of warmth, by the change in the sound when the wall comes closer. A woman with soles like the rim rock goes up thirty bamboo pegs set by her grandmother and takes the vacated nests off the high tier — never the occupied tier, never in the season of eggs — and she knows two hundred cups by feel, which is hers, which is old, which has a bird in it, and she knows this the way you know the light switch in your own hallway.
+
+They do not stay. There is no hearth, no platform, no shelter. Within a week the mountain has closed over their absence. But the pegs stay, and are replaced, and rot, and are replaced again, and the flowstone grows a lip over the oldest of them; and I would argue that a structure maintained continuously across eight or ten generations, by people who take only what has been finished with, is not a visit. It is a very slow kind of residence. The longest-lived organism associated with the Warm Mouth may be that line of bamboo, and the thing that keeps it alive is a rule nobody remembers learning.
+
+That is the census. It is wrong, of course. Nearly all of it is microbial and unnamed, and of the named part I could only count what held still. But it is what I could see in a dark room with no light in it, working the way the residents do — by hand, by smell, by listening — and it comes to this:
+
+forty thousand birds, some millions of bats, one snake for every thousand square metres of vault, an uncountable floor, an organism made of breath, a plume of insects, two peregrines at the door, and thirty pegs.

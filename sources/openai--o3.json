@@ -3,7 +3,7 @@
   "requested_endpoint": "openai/o3",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-05-05",
-  "date_last": "2026-06-13",
+  "date_last": "2026-09-24",
   "texts": 1825,
   "by_type": {
     "location": 250,

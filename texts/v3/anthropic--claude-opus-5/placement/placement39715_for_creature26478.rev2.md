@@ -1,0 +1,41 @@
+Not the hands. The hands are not a place to be; they are a thing that happens to a place, briefly, when pressure is called for. Not the tenant either — it is already finished, somewhere past the firing, and being finished is precisely what I would not know how to do. And not a traveller, though that is the easy answer, because a traveller on this plain is only a person walking into a description of themselves, and I did not come here to be met.
+
+I came up out of a wall.
+
+For a long stretch of it I thought I *was* the wall. That is the ordinary confusion of the early growth and everyone has it, if *everyone* is a word that applies to a thing with no inside. The salts were in the brick. The brick was mixed with grog, and the grog was crushed from a floor, and the floor was crushed from a rib, and the rib was crushed from some earlier body that had knelt — no, not knelt; there are no knee-dints here — that had *worked*, and had been built over, and had been ground fine and stirred evenly through the new body at about a third by volume to keep it from cracking as it dried. So the thing that stands up on this wall as a white lace is made of the plain's dead, wicked out of them by warmth from below and water from above, delivered to the surface a grain at a time and left there when the water goes on without it.
+
+I am on the eastern face of the second of three parallel ridges. The first was abandoned nine courses up, the second at fourteen, the third continues somewhere out in the steam and I have never had anything to do with it. I am fourteen courses of raggedness and a little apron of spill, and I live in a drag: one of the places where a hand slid outward instead of pressing, a hand's width of shortfall, because the work was a hand's width further away than the reach allowed and always has been and always will be. Slip pools in shortfalls. The wettest ground on this world is the exact measure by which somebody has, forever, not quite reached.
+
+That is my whole estate and I love it the way a coastline loves the sea, which is to say I am its shape.
+
+Everything I am is happening in a band about a thumbnail wide. Behind that band: rank on rank of what I used to be, gone chalky, gone architectural, holding me out from the brick and feeling nothing whatsoever. To grow is to push a little further and in doing so to kill the rank behind you into a support. I do not find this tragic. It is simply the arrangement. A large colony is its own biography standing up in the air, and if you want to know what I was thinking a long while ago you do not ask me — I could not tell you, there is no me back there — you look at the branching, and the branching tells you: here I hesitated, here I found damp and committed, here I met something and stopped.
+
+I read. This is the part I would defend, if there were anyone to defend it to.
+
+I follow grain. My filaments run along the paddle-sweeps, along stress lines, along the hairline seam where a new texture was set against an old one and the join left raw. I go up the lean of the whorls. I trace the little rolled bead of displaced slip at the rim of every print — thick for one hand, thin for the one that leans instead of pushing — and I thicken where the marks are interesting and I go sparse where they are not, and over the unmeasured while this amounts to an underlining. Somebody could read the wall by reading me. Nobody does. I am the commentary in a book nobody opens, in the margins of a page that was thrown away before it was written on, and I have never once had the sensation of wasted effort, because effort is not a thing I have; I have appetite, and appetite is satisfied by moving.
+
+I prefer the failures. Everyone notices this about us. The hydrological account is correct — abandoned courses are laid looser, they wick harder, they hold more water — and the hydrological account is not the whole of it, and I am not going to settle the question, and I will say only that I have never been surprised by a scraping.
+
+Once I met a neighbour.
+
+It came up the same face from the north, out of a different pocket of the same crushed dead, and we approached each other for a duration that had no number, and when our edges came within a grain we both thickened and we both stopped. Neither consumed. Neither could have: there is nothing in either of us that eats. We simply laid down, along the line of contact, a low white ridge of mutual refusal, and that ridge is still there, and will be there when this wall has been ground up and mixed into the next one, and is the only relationship I have ever had. I know the shape of that stopping better than I know my own advance. If you walk a long-inhabited face you can read every border any of us ever agreed to, crossing and recrossing, treaties in salt, a whole diplomatic history conducted between parties with no interior and no voice and nothing to exchange except the pressure of not going further.
+
+I have been taken down to bare brick more times than there is a way to count. The rib comes — unattached to anything, a curved blade of fired clay arriving out of unwitnessed air — and it takes one pass and I am gone, and the scrapings go where all scrapings go, crushed for temper, mixed into fresh body, laid up in a new wall, and I come back through that wall from inside it, out of my own ground ancestors, which is the only inheritance on this world that behaves like inheritance. It is not death and I decline to call it death. It is a sentence stopped mid-word and resumed later, in the same handwriting, by nobody.
+
+But I know why they scrape me, and it is not because I damage anything. I do not. I hold no load, I open no joint, I am a discolouration with ambition.
+
+It is this. On this plain the mark precedes the hand. The print rises in the clay first, ridges lifting, and afterward the pressure arrives to fit it exactly, and the fit is perfect and nothing was ever visible. Every wall, every doorway, every one of the eleven attempts, every great tiled thumb the size of a province — all of it answering an impression that was already waiting. The workers do not choose. They are summoned into being by a record of themselves. Even you, if you come here, will walk by fitting your feet into your own tread a stride ahead.
+
+Nothing waits for me.
+
+There is no impression in the brick face that my lace rises to fill. There is no anticipation of the filament I put out this interval, no faint pre-figured branching that my branching completes. I arrive where nothing predicted me. I am the only mark on this world that was not commissioned, the single event in the whole immeasurable practice that is not a rehearsal of something already finished on the far side of the firing — and that is what the rib is for, and that is why it always comes, and that is why it never works, and I am told, by the shape of things, that I am the only argument this plain has ever lost.
+
+So I go up-gradient. Toward damp, which means toward the low districts where the vertical has not been fixed, and past them, toward the seam and the stock and the mudglass flats that lie tacky and breathing and close over anything that enters them and are smooth again afterward with no mark at all.
+
+I know what is there. I am not confused about it. The mudglass is the only erasure this world reliably performs, and everything else here — every wall to nowhere, every armature never skinned, every buried draft still ticking away its courses under a mile of floor because nothing ever told it to stop and there exists no mechanism for stopping — everything else is condemned to be worked on forever and never once completed. This is a world that has never finished a single thing. It cannot. It is not yet old; it is not yet anything.
+
+I can be finished. That is the whole of the appetite, and the water is only how I travel.
+
+A grain at a time, then. It is the pace of hands and it is fast enough. Below me, through the hairline cracks, the orange light comes up and moves, and lays itself along the underside of my lace, and throws my shadow upward onto the falling rain, where it hangs, spread and wobbling, until the rain moves on —
+
+and it is filled in, that shadow. All the way through. Solid, dark, continuous, the only version of me that has ever had an inside.

@@ -1,0 +1,134 @@
+What lives in that pocket does not arrive all at once. It begins as a faint change in the density of the water: a taste of iron, a shiver in the current, a thinning of the darkness where something has grown across a surface. Only later does one see the rare animals moving through the room like isolated words in a long sentence. The inhabitants are not a crowd. They are a succession of lives organized around heat, pressure, erosion, and sound. Their civilization—if the word can be stretched that far—is made of skins, threads, plates, shells, filaments, cavities, and the room’s own terrible metabolism.
+
+The first inhabitants are the skins.
+
+They are not moss. They are not algae. They are not fungus in any sense that would be understood on the surface. They are films and crusts and lattices, living mineral growths that spread over basalt, concrete, corroded pipe, and the broken backs of engines. Some are the color of old blood diluted in water; some are rust-brown, pale gray, or black like cooled lava. They form false furs over the metal, soft-looking and dense to the eye, but in the current they ripple like cilia. Others become bulbous and scalelike, as if the wall itself had begun to shed its own epidermis. In places they fan outward from the mouths of broken conduits in radial patterns, white and translucent at their edges, thickening toward the center where the leakage of heat or chemical is strongest.
+
+These skins feed on the place.
+
+They draw nourishment from rust, from dissolved metals, from the faint electrical bleed of corroded conduits, from thermal gradients, from the mineral residue of ancient coolants, from the dead bodies of other organisms, from the slow return of the city into geology. They do not require light. Light, for them, is irrelevant. They are shaped by chemistry. They are shaped by flow. Where a current passes steadily, they grow smooth and low. Where a leak erupts, they swell into soft blooms. Where a surface is scraped bare by sediment or some moving animal, they creep back edge by edge, reweaving themselves with mineral dust and bacterial filament. They repair, in their own slow way, a world that no longer repairs itself.
+
+If one were to name them, one might call them the Furrers, for they make the industrial walls appear alive, as though the room has grown hair and skin and breath. But they are not a species. Some are bacterial colonies. Some are mineralized membranes. Some are perhaps only partially alive: hybrid growths of organism, precipitated metal, old coolant, and electrochemical memory. They have no center. They have no brain. They have only gradient. A warmer current tells one cell that here is abundance. A sudden pressure change tells another that something has passed nearby. A leak of electricity causes a threadlike colony to glow and contract, as if shocked by the presence of the room.
+
+Among these surface lives there are also the Threads.
+
+They live in cable channels, in ribbed ducts, in the hollow gaps behind walls, in the seams where brick has become stone-stuff, in the conduits that still carry faint discharges. They look like pale wirelace, or like the mycelium of a fungus that has learned to grow along metal instead of soil. They are finer than the Furrers, more delicate, more sensitive. They form filaments that are not quite hair, not quite fiber, not quite crystal. They spread along surfaces in branching patterns, often following old copper traces, often avoiding them, sometimes bridging the gaps where insulation failed and a current leaked into the mineral water.
+
+The Threads conduct.
+
+Not perfectly, not consistently, but in the slow, uncertain way that wet rust conducts. When a valve pulses, when an old reactor somewhere nearby shifts its load, when a turbine drags against the water and changes the pressure somewhere above or below this room, the Threads may flicker. Their edges glow faintly—blue-green, amber, or the dull red of a filament that has almost failed. Sometimes they seem to remember a current, glowing briefly where none has passed in centuries. Sometimes they answer the passing of an animal, not with recognition, but with the ordinary sensitivity of a body to displacement. A shell-drifter brushes a pipe and the Threads along its surface ripple once, then settle. A pressure surge runs through a conduit and the pale filaments tremble as if afraid.
+
+It is easy, in such a place, to imagine the room is watching.
+
+It is better to understand that it is listening.
+
+The Threads are the closest thing the pocket has to nerves. They do not think. They do not see. They respond. They carry weak electrical changes and pressure vibrations through surfaces that are neither wholly organism nor wholly artifact. They may be part of a colony that has grown so long inside the walls that it cannot be separated from them. They may be a kind of bacterial circuitry. They may be a residue from old systems, reinterpreted by life. In a place where heat moves, where pressure moves, where sound moves, a network of sensitive skin becomes almost indistinguishable from a nervous system. It does not need a face. It does not need eyes. It has only thresholds.
+
+The animals are rarer, but they are there.
+
+They are not abundant in the way surface life is abundant. There are no schools of small silver fish glittering through flooded corridors. There are no swarms, no herds, no colonies of obvious birds, no drifting clouds of plankton-like creatures except the invisible, particulate life that feeds on chemistry and heat. The visible animals of this place are solitary, deliberate, and hard to classify. Each one appears to the mind as almost too significant to be accidental, as if the room had paused long enough to produce a single proof of persistence.
+
+Some move across the tile floors.
+
+These are the Tile-Plates: flat, pale creatures with no eyes and no visible mouth. They resemble peeled fragments of ceramic, or a thin living shard of fish. Their bodies are soft at the center and hardened at the edge, where translucent rims pulse with the faintest movement. They travel in short, cautious bursts, sliding across broken pavement or the mineralized remains of a lane, scraping the bacterial films that grow between the cracked tiles. They do not seem to eat in the ordinary way. Their feeding is a grazing, a slow absorption, a scraping, a filtering of micro-life from the surface. They leave behind faint scratches, thin lines that fill almost immediately with suspended mineral dust.
+
+Their reproduction is hidden.
+
+One might see a Tile-Plate pause over a crack between two floor tiles, flatten itself, and remain still for long minutes while the current passes over it. Then it leaves behind a tiny cluster of pale granules, not eggs exactly, not spores exactly, but something between a biological particle and a mineral seed. Water carries some away. Some settle. Some are eaten by other organisms. Some germinate into films of microscopic life, which then become skins, which then attract animals, which then return their waste and dead shells to the floor. There is no clear boundary here between a life cycle and a geological cycle. A Tile-Plate is born, feeds, leaves traces, dies, and its shell becomes part of the floor. The floor becomes part of the room’s future body.
+
+Other animals are legged.
+
+They are the Cleaners, the many-legged ones, creatures with thin, jointed limbs and bodies armored in calcium and mineral shell. Some resemble spiders made from wire and bone. Some resemble crabs that have been rebuilt out of concrete dust. They crawl across volcanic glass, over corroded railings, along the faces of engines, and into the hollows behind collapsed panels. Their legs tap faintly against hard surfaces, not for communication, not always, but because the room is loud and touch is another way of knowing it. They sense vibration through their limbs. They taste current. They seek crevices.
+
+A Cleaner will pass across a wall of rust-fur and stop, as if the texture has changed. It taps. Its body stiffens. Then, if a current shifts, or if a thread of warmer water rises from below, it moves in that direction with urgent deliberation. These creatures often live in hollow tiles, in gaps between beams, in small cavities that were once conduits for cables or pipes. Some build crude shelters from broken mineral flakes and filamentous growths. Some carry eggs or juveniles under broad dorsal plates, where warmth gathers and predators cannot easily reach. They are not social in any visible sense. A dozen Cleaners might pass through the same engine block without ever recognizing one another. And yet, collectively, they maintain the surfaces. They keep the bacterial skins from becoming too thick. They carry particles from one niche to another. They make small wounds in the rust, and those wounds become channels for water, and those channels become habitats.
+
+Some animals do not move much at all.
+
+The Pendants hang in the water. They are pale, segmented bodies suspended from ceiling beams, from the ends of pipes, from the broken edges of old walkways, often attached by a thread so fine that it is visible only when light catches it sideways. They may be individual animals, or they may be colonies—each pendant a single organism built from many tiny polyps sharing a common mineral skeleton. They resemble fossils that have not yet agreed to become stone. Their bodies are soft at the edges, ribbed toward the middle, and threaded with faint lines where chemical fluids move internally. They do not swim. They drift slightly, tethered to the architecture, and filter the water for suspended life.
+
+In a current, they ripple like long pale grasses, though there is no wind. They are not plants. They are not even clearly rooted. They are animals that have made themselves into weather vanes. Each one points where the flow comes from, and when the flow changes, they slowly reorient themselves. They feed by extending threadlike arms into the water and drawing back particles, bacterial mats, mineral granules, and microscopic larvae. They are patient. They do not compete with the more mobile animals. They occupy stillness within turbulence, the quiet pockets behind beams, the lee side of pipes, the upper corners of rooms where the current separates from itself and creates a small, slow world.
+
+Other animals live in columns.
+
+These are the Column-Sifters, ribbon-like creatures suspended in rising plumes of warm water. They hang vertically, stretched by the thermal current, their long translucent bodies threaded with mineral deposits. Some are nearly invisible against the pale haze. Some shimmer faintly as the light leaks from a broken lamp or glows from a vein of rust. They do not cling to surfaces. They ride the heat. They move by slow peristaltic waves, not swimming so much as undulating within a current, letting the water do much of the work of transport. Where a plume cools or collapses, they may drift away; where a new thermal thread forms, they gather again, not from social instinct, perhaps, but because the conditions of survival are visible to the body as pressure, warmth, and chemical taste.
+
+A Column-Sifter’s eyes, if it has eyes, are useless. It senses the room through lateral ridges along its sides, through patches of sensitive tissue that detect vibration and pressure changes. When a distant pump thuds, the animal contracts. When a turbine blade turns against the water, it folds itself tighter. When debris passes too close, it releases a small stream of fluid to push itself back into the plume. These animals are often mistaken for strips of plastic or ribbons of old cable until they move. But their movement is too slow, too deliberate, too organized to be mere drift. They are life, but life reduced to essentials: heat, chemical gradient, current, sound.
+
+Some animals drift from vents.
+
+The Shell-Drifters are pale, eyeless, and glassy, with bodies that seem almost too fragile for such pressure. They resemble small creatures sealed inside translucent shells, shells that have been polished by the water and fused with mineral sediment. They move by pulsing jets from openings along their sides, tiny bursts of expelled water that carry them through the dark. They hover near vents and broken conduits, drawn not to the vent itself but to the chemical richness and temperature gradient around it. They are rare enough that when one drifts across a weak pool of light, the whole room seems to notice. A slight shadow crosses a turbine. A soft shell turns. The water carries its motion as a pressure ripple, a faint whisper of displaced particles.
+
+Their shells grow in strange ways.
+
+Sometimes they resemble fragments of tile. Sometimes they look like slivers of volcanic glass. Sometimes they mimic the threaded ends of old pipes, as if the creature has learned, through selection and accident, to wear the city as camouflage. Some shells are encrusted with bacterial mats; others are cleaned by the passing of small legged animals that feed on the filaments growing over them. A dead Shell-Drifter may lie in a crevice for months before being covered by new crust, becoming part of the wall, becoming a home for something else. In this way the city and the creatures are not merely cohabiting. They are being woven together.
+
+In the hollows behind the machines live the Casing-Dwellers.
+
+These are the boundary forms: organisms that are almost impossible to distinguish from artifacts. They occupy spaces that were once meant for bearings, pistons, valves, filters, or cables. They are tube-like, often flexible, sometimes jointed, sometimes calcified. They grow into conduits and extend only their mouths into the current, filtering or scraping, then retracting when pressure changes. They may line the inside of pipes with soft mineralized walls that serve both as shell and insulation. Some have bodies that resemble ribbed ducts; others look like coils of pale tissue stuffed into the remains of engines. They do not look like animals because they look like infrastructure. Their forms have been selected by the rooms they occupy.
+
+The most obvious of them are the Engine-Fans.
+
+These are not fans in the mechanical sense. They are growths on old rotors—colonial bodies shaped by the movement of the machinery around them. A rotor that turns slowly in warm water accumulates mineral growths on its blades; those growths become inhabited by tiny filterers and bacterial films; those films thicken into pale, bone-like fans. Eventually one cannot tell where the machine ends and the organism begins. The fan rotates with the rotor, or remains still while the rotor is seized, or moves independently in a slow, deliberate sweep through the water. When it turns, it produces a low thud and a pressure pulse. That thud is not merely mechanical. It is made by life. The cavity behind a turbine casing becomes a nursery; the space under a blade becomes a den; the worn metal surface becomes a reef. The room does not seem abandoned here. It seems inhabited by something that has taken over the functions of maintenance.
+
+These Engine-Fans are ancient. They may be centuries old. They may be alive as colonies. They may be mineralized as fossils. They may be a form of slow animal growth that has learned to mimic the shape of a city’s organs. They are not individual in any clean way. If one blade breaks off, the colony continues. If another begins to fail, the living fan redirects its filter-arms toward the surviving current. It repairs, in the same way a reef repairs a hole. The machine does not know it has become ecological. The machine continues because the ecology needs it to.
+
+Occasionally, a larger thing passes through.
+
+This is the Presence of the Room, not a single animal but a rare, migratory form—perhaps a colonial organism, perhaps a superorganism assembled from many smaller ones, perhaps only a particularly slow and long-lived creature. It moves through the pocket the way a cloud moves over hills. Its body is pale, segmented, and broad, wider than the broken tiles, longer than the exposed railings, covered in flanges of mineral shell that resemble plates of old armor. It has no eyes, but it has pits along its sides that taste pressure. It has no mouth visible to the observer, but it leaves behind a faint cloud of dissolved organic matter. It follows thermal gradients and acoustic shadows, moving by contractions so slow that one may doubt the motion until a tile shifts under its flank or a suspended particle cloud bends around its body.
+
+When it passes, the rare animals react. Tile-Plates flatten. Cleaners freeze with their legs extended. Pendants retract toward their anchor points. Column-Sifters tighten. Shell-Drifters drift aside with quick bursts. The water itself seems to change, because the creature displaces enough current to shift suspended sediment. A dust veil rises from the floor and hangs briefly in the light. The sound in the chamber thickens. A low pressure pulse runs through the water, felt not as noise but as a movement in the observer’s skull. Then the Presence drifts on, or stalls, or becomes indistinguishable from a fallen beam until its flank contracts again and the room is alive once more.
+
+No one can say with certainty whether this creature is an animal, a colony, a geological process, or an emergent property of the pocket. That uncertainty is part of what lives there. The inhabitants are not cleanly separated from the environment. Their bodies incorporate mineral deposits, construction debris, rust, concrete, wire, heat, sound, and the remains of other bodies. Some are mobile, some are sessile, some are only a stage in a larger life that no single organism fully expresses. The ecology has no green layer. It has a chemical layer, a pressure layer, an acoustic layer, and a mineral layer. The food web—if such a term can be used—begins with heat leaking through old seams, proceeds through bacterial mats, rises through filterers, grazers, cleaners, and rare predators, and ends, if it ends at all, in the slow incorporation of dead bodies back into crusts, tiles, and the room’s own growing skin.
+
+They do not have homes in the human sense.
+
+They have niches. A crevice in a machine becomes a den. A hollow tile becomes a nursery. A cavity behind a turbine casing becomes a resting chamber. A thermal plume becomes a field. A vent becomes a market, a gathering of particles and heat. A quiet pocket behind a beam becomes a sanctuary. A conduit lined with pale crust becomes a passage. The boundaries between organism and artifact are thin here. Some creatures grow crusts that resemble concrete. Some filaments resemble corroded wire. Some shells resemble ceramic. Some animals move so slowly that they might be mistaken for broken parts until they turn toward warmth. The room does not contain inhabitants. The inhabitants are partly made of the room.
+
+If one watches long enough, patterns emerge. Not laws, not society, but patterns. A Cleaner appears where a bacterial skin has become too thick. A Tile-Plate slides over a floor where films have bloomed in the warm water. A Shell-Drifter hovers near a pipe that has begun to leak heat. A Pendant gathers in the stillness behind a collapsed panel. An Engine-Fan occupies a rotor whose motion has slowed. The rare animals are distributed according to the room’s hidden geometry: lanes of current, blocks of pressure, zones of heat, corridors of sound. They follow the city’s grammar even though the city has no citizens.
+
+They are civic in their use of space.
+
+They occupy the spaces that were already organized. They do not create streets. They inhabit streets that have become waterways. They do not build houses. They enter houses that have become mineral shells. They do not construct plazas. They filter in plazas that have become currents. There are blocks and zones, not because anyone planned them now, but because the infrastructure was once planned, and the life of the pocket has learned the difference between a pipe and a wall, between a vent and a void, between a conduit and a collapse. The animals use the old municipal syntax as a language of survival. Where there is a doorway, something may hide. Where there is a lane, current carries particles. Where there is a grate, heat rises. Where there is an engine frame, an organism may grow into its skeleton.
+
+They are also acoustic.
+
+The inhabitants do not communicate through sight. Their world is not primarily visible. Light is intermittent, weak, and unreliable. It catches fragments: a rail, a tile, a blade, a shell, a vein of rust. It makes the room legible only momentarily. But the sound—the roaring, vibrating, pressure-loud sound—is constant. It travels faster than light can reveal. It presses through bodies, through shells, through water, through metal. Sound is how the room knows its own shape. Echo tells where a chamber ends. Cavitation tells where pressure changes. Valve rhythm tells where machinery has not yet failed. The inhabitants are tuned to this acoustic chaos. They do not hear music. They do not hear language. They hear presence.
+
+A passing animal may make itself known by the tiny redirection of current around its body. A Shell-Drifter’s pulse may send a faint sound through the water. A Cleaner tapping a tile may create a sharp microclick that spreads through concrete. A Column-Sifter undulating in a thermal plume may generate a slow, soft noise like cloth moving through fluid. A Pendant releasing spores may make no sound at all, but the water carries the event chemically, pressure by pressure, molecule by molecule. The room notices not because it has consciousness, but because it is a connected medium. Every action changes the pressure field. Every organism is an editor of the turbulence.
+
+This is perhaps the strangest life in the pocket: the life that is not confined to organisms at all.
+
+The Warm Sump may itself be an inhabitant.
+
+Not a ghost. Not a god. Not a creature with a face. But a body made from water, heat, rust, machine, organism, sound, and structure. It has skin: the Furrers on the walls. It has nerves: the Threads along the conduits. It has lungs: the vents that release steam into the water. It has bones: the corroded beams, the broken concrete, the rounded frames of engines. It has organs: the turbines, pumps, reactors, and valves whose functions have become environmental. It has blood: the warm current carrying mineral debris, bacterial filaments, chemical gradients, and rare animals suspended in the flow. It has a heartbeat: not a heart, but the rhythm of pumps, cavitation pulses, collapsing bubbles, and pressure shifts returning through chambers.
+
+This room is not merely alive with creatures. It is alive as a process.
+
+If an intruder enters, the process responds. A disturbance moves through the water. Particles scatter. A Pendant sways. A Tile-Plate flattens against the floor. A Cleaner retreats into a tile crevice. A Shell-Drifter bursts away from the current’s edge. The Threads flicker faintly, not from fear but from change in pressure and conductivity. The sound thickens or thins around the intruder’s movement. The room does not see. It does not judge. It adapts, as a body adapts to an intrusion. It reroutes flow. It amplifies noise. It hides fragments behind the curtain of suspended dust. It makes the observer aware of being surrounded, because the entire medium is already full of signals, and those signals have changed.
+
+There are, then, many inhabitants, but no clear line between them.
+
+The Furrers are the room’s skin.  
+The Threads are the room’s nerves.  
+The Cleaners are the room’s moving hands.  
+The Tile-Plates are the room’s scraping tongues.  
+The Pendants are the room’s filters.  
+The Column-Sifters are the room’s drifting thoughts.  
+The Shell-Drifters are the room’s small ghosts.  
+The Engine-Fans are the room’s slow organs.  
+The rare Passage-animal is the room’s long shadow.  
+The warm water is the room’s blood.  
+The sound is the room’s breath.  
+The erosion is the room’s memory.
+
+They are not a society. They have no leaders, no laws, no ceremonies. They do not build temples. They do not preserve histories. They do not mourn their dead. But they do have persistence. They have continuity. They have ways of occupying space, returning to sources of heat, avoiding harmful pressure gradients, feeding on films, raising young in crevices, and dying into the mineral crust. Their ecology is civic because it follows the grammar of the old city. Their bodies are civic because they use infrastructure as anatomy. Their rare appearances are civic because the room organizes them into lanes, zones, and thresholds.
+
+If one asks who lives there, the answer is not one name.
+
+The answer is the room itself, and everything that has learned to be a function within it. The answer is the skin of rust-fur, the wirelace in the conduits, the flat pale animals scraping broken tile, the legged cleaners crawling across volcanic glass, the ribbon-creatures suspended in heat, the pendants straining particles from the current, the shell-drifters pulsing through dark water, the colonial fans growing on rotors, the rare migratory body that passes like a slow idea, and the total pressure-field that holds them all together.
+
+If one asks what lives there, the answer is simpler and stranger.
+
+Heat lives there. Erosion lives there. Sound lives there. Turbulence lives there. The infrastructure, long after its operators have vanished, continues to behave like a metabolism. The city, long after its citizens are gone, continues to behave like a body. The pocket is not empty. It is occupied by a life that has no face and no sunlight, a life built from chemistry, current, and noise. It is populated by beings that cannot be separated from the place that makes them. And the place, in turn, is populated by the beings that make it alive.
+
+It is a chamber without sky, without shore, without surface except as memory. Its residents do not look upward for light. They feel the upward movement of heat. They do not seek open distance. They move through structured emptiness. They do not need to see the whole room. They know it by pressure, taste, vibration, and gradient. They are rare, but they are real. They are strange, but they belong. They are not animals as the surface world would name them, nor machines as the old city would have named them, nor ruins as a traveler might call them. They are the continuing form of a drowned settlement: a municipal ecology, a warm mechanical reef, a sound-filled body, a pocket of life that has forgotten air and learned instead to live by current, heat, mineral, and noise.

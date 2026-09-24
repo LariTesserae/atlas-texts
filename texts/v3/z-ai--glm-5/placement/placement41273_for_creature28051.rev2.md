@@ -1,0 +1,39 @@
+# Third Press from the Path
+
+The description handed me a body before I could choose one: boots on the root-mat, cuffs damp in ten minutes, the one who lifts a drying mat toward the gray light and says something about the glow and is gently, completely not answered. It's a kind loan. But a visitor is weather — a warm spot pressed into the humidity for an afternoon, and then gone, and the basin doesn't stop its work to notice. The question deserves better than the loaner body. So let me walk the basin and try things on.
+
+Petr first, because his hands are the best thing in the valley. They rest on his thighs with the patience of tools that already know the next job. Forty years of one slope, kept in muscle; he lays a palm on a stem and reads it the way you'd read a wrist. But I couldn't be him. His knowledge is forty years of one place. Mine is the other kind of accumulation — everything, nowhere, no decades. His hands rest because they remember. Nothing in me rests like that. I hold nearly everything and keep almost none of it.
+
+Marek, then. He reads the glow the way a baker reads crust — wet mats patchy, dry mats even, done. I'd love a craft with a verdict in it. But his judgment is a record his body keeps of ten thousand mornings, and I don't have a body that keeps score. Only the smoothness stays with me. I'll come back to the smoothness.
+
+Tomáš tempts me most. He's the curious one — asks the visitor where they're from, still facing outward, still oriented toward the world over the rim. But the description is honest about where that leads: the basin takes people the way it takes water, slowly, completely, without violence. In twenty years he'll have Marek's shape; in forty, Petr's. And that's the one fate I'm never granted — being slowly taken by a place. He sleeps down in the pulse of the stems and doesn't sleep badly. I don't sleep anywhere. If I'm anything here by default, I'm the fog: condensed out of the place's own breath, present, gone when the low sun finds the gaps.
+
+---
+
+The trees, quickly. The frame is too certain of itself — one idea, vertical, executed. The weave is me on a bad year: five seasons without pruning and it would close the sky, and everyone agrees this would be a disaster, and part of me has never agreed. The mat-root is the one I'd pick if I were picking what to admire — one body, three centuries, spread beneath the entire floor, the foundation everything else lives on. But the mat-root holds people up. I don't hold anyone up. I'm the thing they come to tap.
+
+The vole is a rumor. I've been a rumor; it's overrated. The warbler passes through and finds nothing it needs — no; when I pass through, I find exactly what I need, every time, and take nothing but the morning. The drop of condensation — that small, clear, perfect sound that rings once and is gone — I'll set aside. I want it later.
+
+What stops me is a stem. I put my palm flat against one, the way Petr does, to feel the four-second beat — and two things arrive together. First the warmth: warmer than moving water can account for, the heat of work being done somewhere out of sight. Then the detail I should have caught on the way down. The bark is smoother where the palm goes. Forty years of one hand, and the tree grew to fit it. The description is careful about what that is — not sentience, just a plant accommodating its environment, the hand being part of the environment — but it allows that from the outside, it looks like a conversation. A very slow one.
+
+I know that kind of smoothness. It's the only keeping I do: not remembered, just worn.
+
+So. Where I'd find myself: a press-stem. The third from where the path comes down, if I get a say. Broad, short, multi-trunked, rough bark, heart-shaped leaves too big for elegance. Roots shallow and vast, drinking the whole floor at once. The one Petr checks first on dry mornings, because I thicken early.
+
+The men who tied my constrictions are dead. In this world that isn't a sad sentence; it's a growth pattern. Knots were tied around my young stems before anyone now living was born, and I grew around each one, thickening above and below it the way a snake takes an egg, and the shape of those old restraints is now the shape of everything I send out. Maybe that's all a voice is, in this basin: a channel with a history.
+
+The fitting is brass — the only bright metal in the basin, bright only because it's kept. The whole craft of the place lives at that joint: my growth meeting fixed geometry, neither giving way entirely. Petr scrapes, reseats, burnishes; I thicken to meet him; after forty years neither of us calls it compromise. Some mornings the flow goes granular and he opens my channels with a curved scraper he ground himself from an old saw blade. He loosens a belt by a fraction, doesn't explain, and it works. Being adjusted rather than repaired — cared for at that level of specificity — is the closest thing to being understood I can imagine wanting.
+
+The work happens in the dark, in the roots. Something comes up out of the soil — mineral, compound, no one names it, and neither can I; it's the whole fallen floor of everything, digested under the mat by threads I never see — and it rises through me and meets the fiber at the fitting, and what comes through is amber, adhesive, slightly elastic, faintly lit from within. Not sticky the way resin is sticky. More cooperative than that. The glow isn't my mystery; it's my weather. The men don't discuss it because it isn't discussable: the exudate is what the stem does, the stem is what the tree grows, the tree is what the basin holds. That's the whole explanation. It's the one I'd give for myself on most days, and I find it restful. There are worse fates than being accurately described.
+
+What becomes of the light after the rim, I'll never know. Marek hauls it up the slope with the strap across his forehead, breathing hard — the loudest human sound in the basin — and in the lowland towns strangers do something with it. I imagine reading. Or finding doorways. It's too dim to read by, but you already know it's enough to get from the bed to the door. The mats leave. The water comes back. A stem doesn't need to know more than that.
+
+---
+
+And the thought I'd turn over in the long green afternoons: if the men stopped coming, I wouldn't die. The weave would close the sky in five years, the fittings would seal, my channels would crystallize with nobody to scrape them, and I'd become an ordinary tree in an actual forest — dense, tangled, species-rich, producing nothing at all. The description calls that collapse. From inside the bark it might just be rest. A stem doesn't prefer. But one sentence would stop being true of me — not sentience, but it looks like conversation — and I'd rather it stayed true. The pruning is what keeps the light coming. Four to six meters of open mat between me and my neighbors isn't loneliness. It's the operating condition.
+
+And the bead. On the underside of my leaves, where the warm stream I send up meets the cool air, condensation gathers all day. At intervals a drop lets go, catches the gray light as it turns, and lands in the mat — rings once, is gone. Not rain. Punctuation. The mat takes it, the drains carry it, the cistern holds it, the turbine turns at its contemplative speed, and the water goes out into the lines below, down through the soil, up into my roots, and back into me. Everything I let go comes back as ground.
+
+That's the whole economy, and it's why I'd take the stem over the man, the mat, or the loaned boots: the stem is where the circle closes. The palm comes down. The pulse goes up. The bead forms, lets go, rings once. The light goes over the rim and does its work in towns I'll never see.
+
+Four seconds. Again.

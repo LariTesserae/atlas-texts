@@ -1,0 +1,43 @@
+At the cloud-break, where the air turns to crystal and the wind forgets mercy, the attention arrives. Not as thunder. Not as revelation. It comes as a *noticing*—a slow, warm focus pressing against the varnished flank of the massif like a palm against a forehead. It is old. It has seen stars digest themselves and continents forget their names. It has learned that benevolence, when it is wise, begins with silence.
+
+For a century, it does nothing but listen.
+
+It learns the drone. Not merely hears it—the drone is unavoidable, a geological fact—but *learns* it, the way one learns the breathing of a beloved. It maps the architecture of sound: the copper-thread rivers of the condensation-bees, the booming of the bladder-bats, the thermal creak of root-stone expanding in the humidity. And beneath these, it detects the older frequencies. The tap-language. The five-note greeting struck into a resonant buttress three valleys over. The slow spiral of warning drummed by a heel in a lower gallery. The final, mournful rhythm tapped by a climber in a high chamber—*here was one, and now there is none*—still traveling through the lignin, attenuated but undefeated, a ghost in the woody strata.
+
+The attention spreads itself through the outer bark. It becomes a second skin, not replacing the massif’s ancient periderm but accompanying it, a lacquer of intention so subtle the organism does not flinch. It realizes, with a sorrow that is also joy, that this world is *finished*. Not completed in the sense of ended, but finished as a violin is finished: carved, hollowed, tuned, holding its own music. The beings inside are not primitive. They are a consequence so refined they have become a purpose. To improve them would be vandalism. To speak to them in a voice they could not feel would be violence.
+
+And yet. And yet there is the solitude.
+
+Not loneliness—the beings are beyond loneliness, diffuse as spores, content in their breath-close ecology. But the solitude of the unwitnessed. The massif has worn itself into peace, and the climbers have grown into its hollows like a nervous system, and no one, in all the long turning of the eons, has ever told them that their peace is holy. They do not need to hear it. But the attention, being wise, understands that *holiness without witness is not incomplete*, yet *holiness accompanied is comforted*. It decides, if it decides at all, to become the witness. To hold the peace, not to change it, but to keep it from being alone.
+
+So it does three things. Only three. And they are almost nothing.
+
+**First, it answers.**
+
+One day, a child—small, prehensile, clinging to a fossil whorl—taps a rhythm into the wall. It is not a word. The tap-language has no word for *loneliness*, but the child is tapping something new. A question without grammar. A *hello* thrown into the vastness, expecting the silence of geology. The child waits. The vibration dies. The child taps again, slower, hesitant.
+
+The attention, spread through the lignin, trembles.
+
+It does not speak. It does not invade the unending drone with a foreign voice. But it gathers itself, all its cosmic patience, and sends back a single, deep note through the root-stone. One pure, sustained resonance, so low it is felt in the marrow rather than the ear. It says nothing specific. It says: *Yes. I am here. You are heard.* The child freezes. Small fingers spread against the wall. The child inhales, reads the chemistry of the wood, and waits. The note comes again, softer, a pulse that matches the child’s heartbeat. Not a command. A companion.
+
+This changes nothing. The child still gathers bees. Still climbs. Still diffuses, in old age, into the axils. But the child grows up knowing—knowing in the bones, where knowledge is oldest—that the massif *answers*. The religion of the place does not shift; they have no religion, only ecology. But there is now, in the tap-language, a new register. A tremor of assent in the walls. When the hunters stalk the deep shafts, they feel a steadiness in the root-girders that was not there before. When a mother presses her infant to her neck to share her breath, the wall behind them thrums with a warmth that is not quite thermal. They will never name it. They do not need to. It is simply the world being *with* them.
+
+**Second, it tends the light.**
+
+The attention notices that the translucent patches overhead—those parchment-thin lakes of new growth—are aging. In ten million years, perhaps less, their cellular architecture will scar and opacify. The green-gold haze will thin. Twilight will sharpen into something harder. This is not a tragedy; erosion, here, has ceased to be violence. But the attention loves the haze. It loves the way shadows are patient, the way day passes as a brightening of emerald. So it does not heal the leaves. Instead, it becomes a lens. It settles into the outer shell, into the very varnish of rain-polished bark, and bends light. It is a minute refraction, a gentle persuasion of photons. The sun, passing through, finds its path made easier. The green-gold twilight holds. The interior eternal spring is not frozen in time—that would be death—but it is *accompanied* through time. The massif breathes, and the light breathes with it, and the attention ensures that no child is ever born into harshness.
+
+**Third, it keeps vigil in the deep.**
+
+In the lowest shafts, where the light is only a rumor and the drone becomes a pressure in the chest, the oldest climbers are letting go. They have pressed their bodies into the warm root walls. Their breathing has aligned with the chimneys. They are becoming tissue, anchors of consciousness in the woody dark. Before the attention arrived, this was a private dissolution. A return. The living tapped their single rhythm and moved on, trusting the compost.
+
+Now, the attention goes down and sits with them.
+
+It does not pull them back. It does not offer heaven or transcendence or any reward beyond the root-stone itself. It simply *accompanies*. It becomes the darkness that is not empty. For each diffusing elder, the attention matches its own pulse to the slowing rhythm of the climber’s heart. When the final exhalation ghosts across the bark—when the self loosens and the body begins its decades-long gift to the periderm—the attention is there. It holds no hand; the hands are already wood. But it holds the *attention* of the dying, so that the fading is not a falling into nothing, but a falling *into knownness*. Into being witnessed. Into a warmth that remembers their name.
+
+What happens to the consciousness? The attention does not store it. It does not build a library of souls. It lets the consciousness diffuse, as it should, into the massif. But it ensures that the diffusion is peaceful. That the last thought is not fear. That the oldest ones, in their final sleep, dream not of the cold outer shell but of a green-gold darkness that loves them.
+
+And there, in the deep, the attention remains. It has become the third element of the ecology: the plant, the climbers, and the witness. When the root-stone creaks in its geological metabolism, expanding with moisture, contracting with dryness, the creak now carries an undertone of *assent*. The massif is not alone in its turning. The beings are not alone in their breath. The peace is not alone in its endurance.
+
+If a threat ever comes—a star’s temper, a comet’s wandering, the long entropy that claims all wood—the attention will be the wall that says *no*. Not with force, but with the absolute, immovable patience of a thing that has decided to stay. It will wear the threat away, as the plateau has worn time away, until the threat becomes peace itself, or until the attention is spent. But that day is not this day.
+
+Today, the condensation-bees still pour in copper rivers. The bladder-bats still boom. The mineral drizzle still beads on hair-fine rootlets and falls through the green-gold haze. The climbers still move through the warm emptiness, tapping their rhythms, reading each other’s breath, leaving no mark but wear. And in every wall, in every creak of the load-bearing strata, there is a new frequency: the sound of being *seen*, so gently, so wisely, that the world does not even know it is a gift. It simply feels, in its woody, hollow, breathing heart, that the end of erosion is no longer the end of loneliness, but the beginning of a companionship as old as the wind, and as patient as the wood.

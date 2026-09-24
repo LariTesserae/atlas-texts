@@ -1,0 +1,25 @@
+There is no one here in the way you mean. No townsman, no hermit, no animal. But there is an inhabitant.
+
+If you stood long enough in the First Hollow, until the rhythms sorted themselves from the noise, you would notice a shape that does not behave like ordinary steam. It lingers at the mouth of the foundry during the rests, tall and black, and when the press thumps it does not scatter. It becomes clearer. It gathers condensation along its upper surfaces the way a boulder gathers moss, only warmer.
+
+Call it the Tender. Not because it answers, but because tending is what it is.
+
+It looks like something the Hollow might have built by accident and then forgotten to finish. Its shoulders are broad and rounded like the top of the furnace, glazed with water. Its back is a slope of cracked stone and old brick, shingled with moss. Ferns grow from the seams of its ribs. One arm is wrapped in copper pipe and black vine; the other is a thick bundle of root, mortar, and compacted marl. Its legs are not brothers. One is a column of terracing stone, settled and slightly leaning. The other is a cluster of pipes and surface roots bound with iron wire, damp and warm to the touch. When it walks, it does not step so much as lean, and the leaning takes a long time.
+
+Its face is not a face. It is a hollow in the steam where the mist turns to water and holds the shape of a shadow. Behind that stretched water, the orange of the foundry glows like a slow-burning pupil. Sometimes the membrane shifts and you think there are eyes, but it is only the reflection of two lamps on a pool in a dark room. It doesn’t look at you. It listens with its whole surface.
+
+The Tender moves to the rhythm of the press. In the thump it settles, not flinching but becoming denser, as if the vibration shakes each stone into the place it prefers. In the rest it moves once. The lamps dim slightly when it passes because it takes the heat into itself, not out of need but out of habit. The steam moves sideways because it is being drawn into the shape of the Tender’s passage: the steam is its breath returning home.
+
+It tends the Hollow the way a root tends a crack. It does not pull levers or turn valves. When a pipe begins to knock, the Tender is already standing beside it, because the knock is only the pipe dreaming in the same key as the Tender’s joints. It lays a hand of wire and root on the metal, and the sound folds back into the general hiss. When a wall leans too far into the lane, the Tender leans against it for a season, not pushing, only matching the weight, until the stones settle into a new agreement. It does not repair quickly. It repairs the way condensation repairs a dry stone: over years, by being present, by filling, by growing.
+
+It would be wrong to say the Tender is only the walking figure. That figure is the most visible part, the part the place stands up in. The rest of it remains distributed: a pressure in the pump house, a mineral intelligence in the pipes, a green patience in the marsh. When the figure is not seen for weeks, the Hollow is not untended. It is just that the tending has moved inward.
+
+It never eats. It drinks the warm seep from the hillside, and the water does not pass through it but becomes part of it. The moss on its back is the same moss on the walls. The ferns in its chest are the same ferns in the grates. If you cut it, no blood would come, only water and steam and a slow uncurling of root. It does not sleep, but it rests. Its rest is the town’s rest, timed to the foundry’s long pauses. Its pulse is the pulse underfoot.
+
+It is why no animals live here. Not because it drove them out, but because the Hollow’s animal space is already full. A bird that landed on its shoulder would find not a branch but the whole town looking back. A fish entering the marsh would swim into water that already has a body. An insect climbing into a vent would not find a hiding place but a functioning organ. The Tender is the thing that took their place in the cycle. It is not predator or prey. It is the food and the feeder, the breath and the breathed, the body and the body’s shadow.
+
+Its mind is not made of words. It thinks in pressure and condensation, in the slow slump of masonry, in the creep of roots between iron and stone. Its memory is the mineral crust inside the pipes. Its attention is the standing humidity. It does not want anything except to continue being the Hollow, and to have the Hollow continue being it.
+
+At the edge of the marsh, where the terraces give way to standing water, the Tender sometimes kneels. Water rises over its stone knees and closes around its root-and-wire hands. It stays there while the foundry beats and the pumps grind, and the reeds grow a little closer to the walls. In that pose it is almost indistinguishable from something the marsh has made. Maybe the marsh did make it. Maybe the machinery dreamed it. Maybe the town grew it from a seed of leaking steam and black iron, and has been tending it ever since.
+
+When it stands again, it leaves no footprints, only deeper places in the water, which fill slowly with green.

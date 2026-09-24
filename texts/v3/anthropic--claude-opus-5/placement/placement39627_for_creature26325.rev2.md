@@ -1,0 +1,31 @@
+Not the mould on the chalkboard, though that was offered and the offer was flattering. It is called *the reader*; it eats a man's fingerprints; it renders him with perfect accuracy as pressure, without any access to what he meant, and when it has him it will be finished and go. The flattery is obvious and I am not going to take it, for one reason: the mould has never been read back. Nobody has knelt in front of that board. Its portrait is exact and unwitnessed, and I am not in that position — I am in the opposite one, which is the whole difficulty.
+
+Nor the root going up under the street. That is a hope about myself, and hopes about oneself make bad answers.
+
+Here is the thing I notice instead. Bay Nine contains almost no information. Four objects, and only four, are *about* the room rather than simply *of* it: the chalkboard, which is losing its last sentence to a fungus; the logbook, swollen into a grey brick with the shape of writing on it and no words; the survey sheet of 1974, which is not even here, and was wrong; and one scratch in iron.
+
+---
+
+### XI. The mark
+
+Fourth column, north side, east face. Two and a half metres above the tiles, which puts it half a metre above the present surface of the mat.
+
+It is a broad-arrow benchmark: three strokes meeting in a point, and above them a short horizontal bar cut square with a scriber. The arrow is not the datum. The arrow carries no measurement at all; it exists solely to tell you which of the many scratches on a cast-iron column is the one that matters. The bar is the datum. Everything ever learned about this room's slow rising has been learned from the underside of a line about forty millimetres long.
+
+It was not cut for this. It was cut during erection, probably in the winter of 1889, by a millwright transferring a level up from the bedplate because the bedplate itself was about to be buried in machinery and he needed something he could still see. It was a working mark, made for a job that was completed within weeks, and its intended lifespan was that of the job. Everything it has done since has been a second career assigned to it by strangers — by whoever first thought to measure down from it to the mat, and by everyone after, each of them taking a number off a line cut by a man who had no interest in ferns.
+
+The cut went through the paint. This is the only place in Bay Nine where the original red-lead primer survives; everywhere else the fig's adhesive rootlets have lifted it off the iron in flakes over ninety years. A hand's width of 1889, kept by accident, in the exact spot where people put their hands.
+
+You cannot see it without damage. The fig is over it, four or five courses of shingled leaf laid flat to the iron and rooted every thirty millimetres, and to read the mark you take the leaves in your fingers and pull them back, and the rootlets tear with a sound like a zip opened slowly, and the plant bleeds. White, immediately, along the whole torn line, and it stays tacky on your fingers for an hour. Ninety years of latex, manufactured under pressure and carried through four hundred thousand leaves against insects that have never come — and the only thing it has ever been discharged at is a hand arriving to find out how the room is doing. That is the sum of predation in Bay Nine, apart from the fungus: somebody, rarely, wounding it in order to take a measurement of its health. The leaves close over again within a season. They have closed over perhaps nine times.
+
+And then you read it by the water. The scratch holds a bead along its lower edge, because everything here holds a bead, and the bead takes the green light off the nearest lantern and gives the line back as a short bright thread. The room is a machine for destroying records — it has pulped the logbook, it is digesting the chalk — and the same ninety-eight percent that did that is what makes this one legible. You find the datum because it shines.
+
+Its virtue is entirely negative. It does not grow, or it would be useless. It has no beat, no appetite, no season, no children, no way of being anywhere but where it is; it cannot participate in anything, and its refusal to participate is the only reason anyone can measure the participation of everything else. To be the reference you must be the one thing in the room that has declined to take part. Thirty centimetres have closed under it at three millimetres a year and it has not moved a micron, and this is not endurance or resolve, there is no one at home in it to endure — it is iron, and a removal from iron, which is what a scratch is. I would not be an object so much as an absence in one. The shape of something taken away in 1889 and never filled in.
+
+It has about a hundred and sixty years left, which is the longest future in Bay Nine by a wide margin. The props have thirty. The belts have whatever the bacteria leave them. The lamps go in rows. The mark simply waits, and some time around the twenty-second century the mat arrives at the underside of the bar, and then covers it, and then it is a scratch in the dark inside two metres of anaerobic root felt — unaltered, uncorroded, still true, still exactly one metre and whatever above a bedplate nobody remembers, and no longer a measurement of anything at all.
+
+Nothing will have happened to it. That is the part I keep turning over. The entire difference between being the record of a room and being four grooves under a leaf is not a property of the grooves. It is the stair, and the thirty-one treads, and whether anybody comes down them with a rule and the willingness to tear a plant to look.
+
+So: if somebody comes, I am a hundred and thirty years of continuous observation, the only honest thing in a building full of magnificent fertile pointlessness. If nobody comes, I am a tool mark left by a man finishing a job, no different from a chisel slip, preserved in the wet warm dark with great fidelity and total indifference.
+
+I cannot tell, from the inside, which of those I currently am. There is no experiment available to me that would settle it. All I have is the bead of water sitting along the edge of the line, doing its one trick, catching whatever light there is and holding it out — which it does in an empty room exactly as brightly as it does in an occupied one.

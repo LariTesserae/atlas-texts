@@ -1,0 +1,67 @@
+**The High Engine Sea**
+
+You are inside the water before you understand that there is a horizon.
+
+It is a cold, submerged high country: an ocean without shores in any usable sense, lying several kilometers above the older lowlands of the world, held there by a combination of geography, pressure, and old industrial will. The surface, far above, is a pale ceiling of ordinary light — not glowing, not mystical, just daylight filtered through clear high-altitude water. It casts down long gray-blue columns that make the depths look like the nave of a mineral cathedral. The light is normal. That is part of the strangeness. Everything is visible enough, plainly lit, and yet the place feels wrong because it is so still, so loud, and so empty.
+
+The terrain below is young and sharp. These are drowned mountains recently made, not smoothed into gentleness. Basalt ridges rise in black blades. Fault scarps stand like fresh cuts in the world. Talus fields of angular rock spread across the slopes, every fragment still edged. There are no rounded pebbles, no soft banks, no soil. The world has not had time to become weathered, or else something prevents it from continuing to wear down. The stone is hard, glassy in places, fractured into geometric masses. Obsidian veins catch the descending light and flicker like dull mirrors. In some places, fresh lava shelves jut into the water, their surfaces still carrying the folded tension of having only recently stopped moving.
+
+The scale is immense enough to defeat intuition. This is not a lake, not a reservoir in any ordinary sense. It is a planetary expanse of cold water laid over a young continental highland. The horizon curves. There are regions where the nearest solid object — a ridge, a tower, a living swarm — may be hundreds of kilometers away. The water itself is the landscape. Vast volumes hang in blue-gray emptiness, clear and nearly featureless. The sea is empty not because it is dead, but because its presences are sparse and widely spaced. Life, structure, and machine are islands in an enormous medium.
+
+There are no plants.
+
+Not ruined plants. Not sparse mosses clinging to rock. Not buried seeds waiting. Nothing green, nothing leafy, nothing rooted in sunlight. The water contains no kelp forests, no algal films, no reeds, no planktonic meadows. The biology that exists begins lower and stranger: black filamentous microbes that eat iron and sulfide, crusts of chemolithotrophic growth on fresh basalt, pale fungal-like threads spreading through dead matter and machine grease, thin bacterial veils shimmering over steel and stone. These are the base of the world. Life here is mineral-fed and machine-adjacent. It does not photosynthesize in any visible way. The normal light falls through the water and touches nothing that can be called a plant.
+
+The cold is constant. The water hovers just above freezing, kept liquid by dissolved salts, pressure, and the low hum of industrial heat exchangers buried somewhere below. It is not the active cold of ice forming, nor the dramatic cold of glaciers calving. It is a stable, numbing cold, a temperature that seems built into the substance of the place. Metal becomes brittle in it. Air pockets feel like mistakes. The cold makes the clarity feel sharper, as if the water has been stripped of softness.
+
+And then there is the sound.
+
+The sea is deafening.
+
+Not with the irregular crash of waves, because there are no waves. Not with storms, because there is no weather in the ordinary sense. The sound is a continuous industrial and biological roar, transmitted through water with terrible efficiency. It comes from submerged turbine halls, from pressure engines turning slowly in the dark, from valves releasing at fixed intervals, from acoustic regulators bolted to young basalt, from vast buried generators whose purpose is not to create something new but to keep everything exactly as it is. The noise has bass deep enough to be felt in the chest and high metallic overtones that sting the inner ear. It is a wall of sound, but a stable wall. It does not swell. It does not fade. It has become geography.
+
+In some places the roar is shaped by the terrain. Valleys focus it into screaming channels. Basins turn it into standing chords. Cliffs create acoustic shadows where the pressure suddenly lessens, and those quiet zones feel more alarming than the noise itself. The water is so clear and so empty that sound behaves like visible weather. There are permanent loud belts and hush zones, resonance fields and dead patches, all fixed in place. The sea is large enough to have its own acoustic climate, but that climate never changes. The same roar occupies the same coordinates forever.
+
+The built presence is scattered and small against the volume of the water.
+
+Here and there, kilometers apart, stand the remains and continuations of industrial works. A pump-house rises from a drowned ridge: rectangular concrete, riveted steel, turbine housings like black shells. A lattice tower leans slightly, its cross-braces furred with mineral deposits and clinging animals. A factory floor lies open to the sea, its lathes and presses bolted to rock, still connected by armored cables to a power source no one can see. Rail lines run along submerged shelves, their tracks bright with corrosion-resistant alloy, leading to loading cranes that hold nothing. Pipe bundles climb cliff faces like frozen worms. Some structures are intact; others are partial remains, torn open by the flood that filled this high country and then abandoned there in working order.
+
+The technology is industrial in the heaviest sense: engines, gears, pistons, transformers, pressure doors, electrical busbars, ceramic insulators, hydraulic rams, heat sinks, acoustic turbines. It is not delicate. It is not elegant. It is built to endure, to exert force, to maintain scale. Much of it still operates. That is the unsettling part. The machines are not ruins. They are participants. They turn, pump, vent, regulate, and hum. They do not seem to be building a future. They are producing equilibrium. Their labor is the prevention of change.
+
+The water level does not rise or fall. The temperature does not drift. The chemical balance remains within narrow limits. The great engines keep the sea from freezing, from boiling, from draining, from becoming something else. They hold the landscape in a permanent industrial pause. This is a world after a flood, but not after the flood has passed. The flood has been institutionalized.
+
+Fauna is abundant, but it gathers around sound, chemistry, and structure.
+
+Because there are no plants, animal life clusters where energy leaks from rock and machine. Around thermal vents and engine housings, swarms of pale amphipods drift in dense clouds, their bodies almost translucent, their movements synchronized by pressure waves. Blind fish with oil-filled skulls move through the open water in long, slow schools, their lateral lines so sensitive that they seem to navigate by the texture of the roar. Flat-bodied crawlers scour bacterial crusts from steel plates. Some resemble crustaceans, but their carapaces are thickened by mineral deposition until they look like riveted iron. Others are soft, gelatinous, and nearly invisible, pulsing gently as they filter microbial snow from the water.
+
+There are animals that have made the machines into reefs. Tube worms and anemone-like filterers attach to turbine casings, their bodies arranged in precise rows where the current is always the same. Bivalves with black shells lock themselves over pipe openings, feeding on chemically rich effluent. Cephalopod-like creatures hang motionless near acoustic nodes, their bodies fitted with resonating chambers that click and answer the engines. They are not using language, exactly, but they exist inside the machine noise as if it were a habitat.
+
+Some of the larger fauna moves in vast, sparse migrations that are nevertheless stable: the same routes, the same timing, the same numbers replacing one another generation after generation. A whale-sized filterer may pass once every several days through a particular water column, its mouth open, its baleen-like combs straining bacteria from the cold. It does not disturb the place. It is part of the stillness.
+
+The abundance is real, but it is not lush. There is no green abundance, no flowering, no softness. The life is angular, armored, pale, and efficient. It smells, if smell could exist here, of salt, iron, cold fat, and wet stone. It moves through a world without wood, without leaves, without pollen, without soil. Even death is quickly mineralized or consumed. Carcasses sink to the sharp talus and are colonized by fungal threads and scavengers until they become part of the substrate.
+
+The rules of this landscape are not the rules of an ordinary sea.
+
+First: water is the medium of everything. There is no air-filled refuge. To be here is to be submerged, pressured, buoyed, and carried by liquid. Movement is slow and heavy. Sound travels faster and farther than sight. A distant engine can be felt before it is seen. A small structure can cast an acoustic shadow large enough to hide a swarm of animals.
+
+Second: noise is not pollution. It is infrastructure. The deafening sound maintains the order of the world. Engines use it to mix the water, to keep heat distributed, to guide fauna, to prevent stagnation. Animals use it to orient, to cluster, to avoid the rare silent gaps. Quiet is not peace. Quiet is failure. In the deepest acoustic nulls, where the roar cancels itself into stillness, animals turn away as if from a vacuum. Something about those zones suggests that the world there has stopped being maintained.
+
+Third: change is absorbed, not allowed. If a rock falls, it falls once and lies where it lands. If a machine part breaks, another mechanism compensates. If a population rises, predation, disease, or engine output corrects it. The landscape does not evolve toward maturity. It is locked in early formation, sharp-edged and unfinished, yet preserved. The flood made the world young; the machines keep it from aging.
+
+Fourth: light is ordinary, but it behaves differently in the empty water. Because there is little life to cloud the depths and no vegetation to interrupt the view, daylight can reach astonishingly far. Shadows are crisp. The surface above appears as a bright, hammered plane. At certain angles, the standing sound waves make the light seem striated, as if the water is divided into transparent sheets. This is not magic. It is pressure and particle suspension affecting optics, but it gives the place the appearance of being built from glass panels.
+
+Fifth: distance is deceptive. In clear air, one might judge a ridge to be near. Here, in the cold blue emptiness, a structure may be tens of kilometers away. The sea’s density of objects is so low that perspective becomes unreliable. A pump-tower can hang in view for hours without seeming closer. A swarm of animals can appear as a smudge, then suddenly surround you because there was nothing in between to mark the transition.
+
+There are moments when the place feels almost beautiful in its severity.
+
+Imagine hanging in the water above a black basalt valley. The light from above is pale and normal, casting long shadows from the young peaks. Below, the valley floor is empty except for a single industrial intake tower, its surface studded with filter-feeding animals. The roar is so total that it becomes a kind of silence inside the skull. A school of pale fish passes in a ribbon, moving not away from the noise but along it. Far off, a pressure valve releases, and the water flinches. The valve has released before. It will release again. The interval is exact. Nothing is waiting. Nothing is becoming.
+
+The sea has weather, but the weather is fixed. There are zones where microbubbles rise in slow curtains from engine seams, forming columns that never disperse. There are acoustic storms that do not move: permanent fields of grinding sound over submerged factories. There are cold plains of motionless water where the only event is the passage of light through emptiness. There are loud shallows where the young mountains nearly touch the surface and the roar reflects between rock and ceiling of water, becoming a physical pressure.
+
+This is a mineral world, an animal world, and an industrial world, but not a human one in any comfortable sense. The scattered structures are not homes. They are organs of maintenance. The technology does not serve inhabitants so much as it serves the condition of the flooded landscape itself. It is possible that the machines were built to preserve something else — a resource, a defense line, a failed terraforming engine, a cooling system for a planetary process now buried elsewhere. Whatever the original purpose, the result is this: a high cold ocean, drowned and deafening, stable forever.
+
+The place does not feel hostile. It feels finalized.
+
+It is vast enough to contain its own physics, empty enough to make presence rare, loud enough to erase thought, cold enough to slow desire, bright enough to see forever. No plants grow. No seasons turn. No waves break. The young mountains stand under their weight of water, sharp and unweathered. The engines continue their work. The animals continue their patterns. The light continues to fall.
+
+And the roar continues, deafening and unchanged, as if the sea itself has become a machine for remaining exactly what it is.

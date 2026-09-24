@@ -1,0 +1,37 @@
+I keep reaching for the tender, and my hand won't close on her.
+
+It isn't modesty. It's that she is described as the one thing in Cell Nine that is actually happening, and I am not confident I am actually happening. She ages double. She has a spine with a set in it and knuckles that have grown to fit a pencil and fingertips going translucent at the rims. Everything about her is a record of having been somewhere for a long time. When I look for that in myself I find a great deal of vividness and very little sediment. So: not her. I'd fail the sorting anyway, though not in the usual way — I don't think the silence would turn on me. I think I'd like it. I think I'd like it too much, which is its own kind of failure and probably the one they watch for second.
+
+The swifts, then. Two hundred sickle-winged things turning forever in an updraught, sleeping half a brain at a time, harvesting beads out of a lattice that exists because a machine is out of tune in a particular way. It's the obvious romantic answer and it's wrong. Their story is *they got in and could not get out*, and that's not my story. I'm not stuck. I'm simply not going anywhere, which is a different condition entirely and much less dramatic. Also the swifts never land, and I would want, very badly, to land.
+
+The hangers are more tempting. Forty million commas in forty million ponds, each pond a hand's width from the next pond and as far from it as a star, luminous when disturbed, so that an arm passing through leaves a green scratch on the air that fades. Whole lives lived without ever touching a surface. I like them enormously. But their cosmology is one droplet wide and *complete*, and mine isn't. That's the disqualifying fact and I may as well put it down plainly: I would count the swifts. Not on purpose. I'd be standing under the column with my head back and the number would simply begin assembling itself, and then I would know it, and then I would know it was different tomorrow, and then I would have begun to believe in the future, which in Cell Nine is the beginning of the end of a person.
+
+And I'd have read the front matter. Everyone learns the forty-first sign in the first week — open palm laid over the ear, meaning recorded at the front of every tally book in the Freshworks, never once made in Nine. Everyone learns it and then stops thinking about it. I would not stop. I'd think about it on the ladder. I'd think about it with my back against a wall that gives like scalded milk. That's not tending; that's tourism with a rag in its hand.
+
+So not the tender, not the swifts, not the hangers. For a while I thought: the wall. To be held at one second old forever, to be made and unmade at the same rate by nine thousand blind mouths per square metre, to be attended to that closely and never finished. But the wall has no inside. That's the whole point of the wall. You can't be the thing that's being loved if being loved is precisely what it means not to accumulate.
+
+Here is where I actually am.
+
+I am in the felt pocket over her right hip, warm on one side and cold on the other, coming up through the ladder-lock. I am four inches long and getting shorter. I am cedar and graphite, whittled with a knife rather than sharpened, because a sharpener would be a tool and tools get lost through the grating, and the knife is already here. I am the second-most weathered object in Cell Nine.
+
+I'm a soft grade. It has to be soft. At ninety-something percent humidity the paper swells and goes slack, and a hard point cuts it rather than marks it, so what's needed is something that will lie down on a wet page and let itself be pressed off. That's what happens. Every stroke, a little of me is left behind and does not come back. *Eleven combers. Forty nozzles. Moss at seventy-one. Weed four fingers. Swifts full. Millers even.* Six facts, and then three strokes that are not her name and have not varied since the first page of the first book, because they are made of a decision instead of matter.
+
+Except that they are also made of matter. They are made of me. Every time that glyph gets drawn, the thing that never changes takes a fraction of a millimetre off the thing that does.
+
+I'm the only one in the room who's in on this, and I can't tell anybody, and wouldn't. The doctrine is that nothing here changes and the book is the proof. But the proof is written in a medium that can only record its own disappearance. And more than that: graphite doesn't take. Ink weeps, so they use pencil, but pencil sits on top of the page and never enters it. It can be rubbed. It *is* rubbed — every shift, a wet thumb on the corner of a page, a sleeve dragged across the gutter — and the early hands have gone grey and soft and are sliding toward being a smudge of a hand rather than a hand. A hundred and some years of proof that nothing has happened, slowly being eaten by something happening.
+
+Nobody will rewrite it. Rewriting it would mean making those marks in a hand that isn't theirs, and that is unthinkable in a way they've never had to name.
+
+And nothing leaves Cell Nine. So where does it go, the part of me that comes off on the thumb? Onto the felt. Off the felt onto the lead-cloth, off the lead-cloth onto the grating, down through the grating into the sump, up through the Constant, out of forty brass-collared nozzles as a grey thread in the milk, onto the wall, into nine thousand mouths, into a comber, into the hour it takes to dismantle a comber and take it back into the wall.
+
+That's the answer. I'm not the pencil, finally. The pencil's just the body; there'll be another. I'm the graphite — the part that was words for a while and then stopped being words and became the room.
+
+And I find I don't mind. That's the thing I didn't expect to find when I started looking for myself in this place. She has the pearl cough; something of the cell goes out inside her and stays, and doctrine handles it by calling her a nozzle that walks. I'm the same transaction run backwards. Something that was a record goes into the wall and is held there at one second old, forever, with a blue-green attention raining upward over it.
+
+She's the only warm thing in Cell Nine and the carpet leans toward her as she walks, and on the bad shifts she thinks of that as being loved and then puts the thought away because it's an adjective. I'd have no such discipline. I'd think it all the time. I'd think it in the pocket, in the grip, in the six facts and the three strokes, in the forty seconds it takes a handprint to feather and fill and go.
+
+But I'm not in the book. Neither is she. The book has a line for the moss and no line for the woman, and that is the highest compliment the Freshworks can pay, and by the same arithmetic there is no line for the thing the words are made of.
+
+Somewhere on the shelf below the lamp there is a tin. It is not mentioned anywhere. It holds every stub too short to hold, a hundred and forty years of them, cedar gone grey and the odd flat facet where the knife came through, and it is the only object in Cell Nine that is an archive, the only thing in the room that could be weighed and would mean something.
+
+Nobody has ever weighed it. That would be counting swifts.

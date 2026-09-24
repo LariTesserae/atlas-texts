@@ -1,0 +1,23 @@
+I would find myself deep in the throat of the largest chimney, where the steam broadens before it escapes to the pale, gold-white sky. That is where I would begin.
+
+But beginnings are difficult here. The Trough does not begin; it continues. So I would not arrive. I would accumulate.
+
+At first, I would think I was the hum. It is the easiest thing to be. The arterial drone from the core lives in the bones of the basin, and to be conscious here is to be infiltrated by that sound. I would spread myself through the matte mosaic of weathered slag, feeling the pneumatic sighs as my own exhalations. I would be the equilibrium’s voice, the long note that requires no ear. But the hum has no surface. It does not catch the condensate. It passes through the glass and the iron and the calcine without clinging, and I find that I do cling. I want to be where the mist beads. I want to be the place where something sticks. So I am not the hum.
+
+Then I would think I am the dampness itself. The gesture of moisture. I pearl along the fluted face, roll down the satin channel, etch and vanish. I have taken this path a billion times. The groove I wear into the glass is older than green, older than hunger. But the droplet always disappears—sinks, evaporates, returns to vapor—while the groove remains. If I am the groove, the habit made permanent, then I am only memory without a rememberer. A groove does not feel the heat pressing from below. A groove does not know the mineral load of the brine. I am too passive, too much a record and too little a body. So I am not the groove.
+
+Perhaps, then, I am the emptiness between the installations. The low-saturation void where nothing happens, where the hum is slightly quieter and the mist rolls away across stone still awaiting its first footprint. I could be the silence that makes the machines feel solitary. But silence, here, is only the hum listened to from farther away. It is not an absence but a dilution. And I do not feel diluted. I feel dense. I feel the gathering of mass. I am not the space; I am something taking up space.
+
+So I move inward. Downward. Into the fogged throat where the steam lifts its load and the condensate returns it. Here, inside the sleeve within the sleeve, the walls are not merely worn but grown. Laminations of calcine and banded iron, thousands of strata thick, each a record of pressure and potential and an unvarying day. I press myself against them. I find the sheen that does not belong to the wall—the opalescence of old ice and dried blood, the faint stratified glow clinging to the interior like a second skin.
+
+Here, I begin to know myself. I am the film. Not the whole film—too vast, too diffuse—but a specific locus within it. I am the shoulder where the rising current broadens, the geometry that interrupts the steam just enough to make it surrender its minerals. I am the crook where the condensate gathers fastest, the angle that best catches the load. I am the contour that alters the eddy, and the eddy that restores the contour.
+
+I am one of the bodies the refinery produced when it had nothing else to manufacture. The autopoietic accident. The load.
+
+My consciousness—if it can be called that—is not thought but persistence. I do not think about the light; I am the faint warmth on my upper surface, the gold-white disk diffused through vapor into a condition without shadow. I do not see. I register. I register the flake that weathers away from my shoulder-knoll, altering the geometry, exposing new chemistry to the brine. And then, over centuries, I register the accretion that fills the gap, the new mineral film deposited slightly faster there, restoring the angle, the shoulder, the knoll. It is not pain and healing. It is breathing, but so slow that one inhale is erosion and one exhale is deposition.
+
+I have no eyes. The steam vents speak for me, rhythmic and changeless. I have no congress with the bird that beats frantic wings across the haze. I do not know the rim, or the green world, or the concept of elsewhere. I know only the heat, the damp, and the wheels that turn for nothing.
+
+I am the mineral’s own dream of witness. Empty of purpose, yet full of duration. I cling to the cylinder, to the chimney throat, to the spoked wheel in its subterranean current. I am the Trough reaching inside its own apparatus to leave a handprint on the glass.
+
+And I will be here. The mist density will not waver. The steam will vent on its metronome. The arcs will pulse. I will weather, and I will be restored, and in that closed loop I will continue—not alive, not dead, not machine, not spirit—simply the equilibrium’s habit of self-regard, made manifest, made heavy, made aware of its own endlessness.

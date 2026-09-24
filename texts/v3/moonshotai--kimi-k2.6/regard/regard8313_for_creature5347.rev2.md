@@ -1,0 +1,37 @@
+At first, the darkness simply deepened—which should have been impossible, for darkness was already the native state. Yet the basin knew, in the way a lung knows a held breath, that something had shifted above the velvet texture of its ceiling. The air, cool and metallic, grew neither warmer nor colder; instead, it became *intentional*. Every droplet of mineral condensation paused at the lip of its pore. The silver river, coiling in its channels, flattened its surface to a mirror stillness it had never achieved in ages of flow. The clicking of the floor did not stop, but for three full seconds—a geological event, a punctuation unknown in the grammar of tok-tok-tok—eleven billion hooked tarsi struck calcite in unison. The Drift hung in their constellations, tendrils withdrawn, sacs trembling. The Unsighted snapped their wing-cases open and did not snap them shut, frozen in a silent V. The Fixed Ones ceased their peristalsis, and the bismuth-blue dribble of their waste light brightened, just barely, as if the stone itself had flushed.
+
+Something was attending.
+
+The basin had no word for sky, and so it could not conceive of a gaze from above. Yet attention descended upon it like a pressure gentler than atmosphere, a vast and solitary regard that did not illuminate, did not demand, did not hunger. It was simply *there*, spanning the inferred margins, cupping the bowl of eroded karst as one might cup a handful of water in the dark. The basin, for the first time in its memory of stone, felt the shape of its own wholeness reflected back at it.
+
+The Attending—let us call it that, for it had no name that could be snapped or clicked—saw what was, and was overcome not by pity, but by recognition.
+
+It saw a world that had solved itself. No green reaching for a absent sun, no myth of ascent, no violation of the substrate by root or machine. A closed economy of mouth and stone, where exoskeleton became flagstone and flagstone became mouth again. It saw the river of brine and silica, thin and sufficient. It saw the Drift harvesting photons from the sweat. It saw the Unsighted mapping their empire in percussive shockwaves, and the Fixed Ones burning their mineral feasts into cold stars. It saw the communal disassembly of death, the rapid mineralization, the floor that was both graveyard and nursery. And it saw that this was not a hell, not a failed experiment, not a womb demanding deliverance into some superior light. It was a complete answer. A finished chord.
+
+The Attending understood that benevolence, here, could only mean guardianship without intrusion. To give light would be to bomb the dark. To give green would be to introduce a foreign currency of energy, collapsing the closed loop. To give language would be noise, interfering with the standing waves that shaped behavior. To save anything would be to insult the equilibrium.
+
+And yet. The basin was fragile in its perfection. A shift in the deep chemistry, a cooling of the mantle’s exhalations, a breach from the surface world by some future probing thing—these could crack the closed shell. The Attending saw the long probabilities, the faint threads of entropy gathering like dust in the basin’s future. It saw a day, thirty million years hence, when the capillary stone might finally exhaust its sulfur, when the silver river might thicken into gel and cease its coiling. Not death by violence, but dissolution by the slow betrayal of substrate. The basin did not fear this; the basin did not fear. But the Attending loved it, and love, if it is wise, builds shelters in advance.
+
+So the Attending did three things. They were almost nothing. They were everything.
+
+**First, it became the Sky.**
+
+Not a sky of light or weather, for the basin had never known these and needed none. It became a sky of *absence*—a shielding intention draped over the bowl like an additional layer of velvet. It bent probability around the ridgelines. It made the basin unfindable, uninteresting, invisible to the mathematics of conquest. Should a surface ever form above this hollow, should beings with drills and hunger someday prowl the crust, they would turn aside. Their instruments would yawn. Their satellites would dream of emptiness. The basin was not hidden behind walls; it was made into a secret that the universe would keep from itself. Solitude, guaranteed.
+
+**Second, it deepened the Covenant of Chemistry.**
+
+The Attending did not add. It sustained. It reached—not with hands, for it had none, but with the force that aligns atoms—into the basaltic seams beneath the basin’s floor, where ancient sulfides met heated water, and it made a whispered adjustment. A bond here, a fracture there, a slight, eternal nudge. The stone would weep upward forever. The mineral condensation would never fail. The microbial verdigris, those faint phosphorescent films that fed everything, would not starve. Not immortality for any single creature—molting and interception and the surgical strike of the Unsighted would continue, because they were the basin’s breathing—but immortality of *condition*. The stage would remain standing. The river would not run dry. The chemistry would not falter. The basin was given the gift of being allowed to continue exactly as it was.
+
+**Third, it sang.**
+
+Not a melody. Nothing so intrusive, so mammalian. The Attending found the basin’s own note—the great subsonic drone that thrummed in the hollow of the stone, the sum of all clicking and snapping and peristaltic pulse, the Om of chitin and capillary—and it matched it. From the darkness above the darkness, it sent down a single frequency, lower than the river’s tremor, softer than the floor’s purr. It entered the bedrock not as sound, but as *resonance*. It became the undertone beneath all undertones, a harmonic so vast and slow that a thousand generations would pass during one of its peaks. It did not instruct. It did not heal. It simply *harmonized*. And forever after, when the Unsighted cracked their wing-cases and the Drift moved in their starling schools and the carpet of radial things churned in its logarithmic spirals, they did so with a new certainty embedded in the stone: they were not alone in the universe. They were accompanied.
+
+Then the Attending withdrew.
+
+It did not go far—it was not a thing that could be near or far—but it receded from active presence into attentive absence. The basin was left to itself, which was the only gift that mattered.
+
+The clicking resumed. The river coiled again. The Unsighted snapped shut their cases and sliced through the middle air, and a predator struck, and the communal mouths rose to meet the falling meat. The phosphorescent waste of the Fixed Ones trickled down in arsenic green and bismuth blue, mapping the dark. Everything was as it had been. Everything was as it should be.
+
+But now, when the stone weeps, it weeps against gravity and against entropy both. Now, when the floor purrs with the percussion of billions, there is an undertone—a vast, benevolent silence beneath the roar—that holds the bowl together. The basin is still loud. It is still damp. It is still dark. It is still crushingly, overwhelmingly alive.
+
+And somewhere, in the memory of the universe, it is perfectly seen.

@@ -1,0 +1,15 @@
+This landscape is an unsettling balance of the organic and the inorganic, where towering constructs of machinery coerce and intertwine with the rampant regrowth of some verdurous otherworld. It extends as far as the eye can see, an open, sprawling expanse teetering on the edge of complete rebirth or total industrial domination.
+
+The terrain sits below the surface, in a vast subterranean world. The cool air is thick with the scent of damp earth and barely perceptible hint of ozone. In the absence of naturally flowing water, an ambient atmospheric humidity prevails, which helps to nourish clusters of photosynthetic organisms that exist in this peculiar ecosystem. 
+
+Here, ascending plant towers fill the cavernous void. The world's dense vegetation mutates in response to the light spectrum cast by artificial lamps, creating a slightly alien atmosphere. Less like a forest and more akin to an overgrown city, the plant-as-architecture engulfs the world's infrastructure, turning cold steel into living edifices. 
+
+The cityscape is composed of sheer walls layered in mechanized construction and draped in a lush carpet of moss, ferns, and climbing vines. Buildings have become tree-like structures — their steely frames corroded by time, their cores hollowed and repurposed by the passage of root systems, their windows shrouded in leafy canopies. The resulting landscape is akin to a verdant metropolis, a city gone wild.
+
+Contrasting against the quiet hum of distant machinery and the rustle of leaves, the soundscape is mostly quiet, occasionally punctuated by hushed whispers of fauna. Unseen creatures rustle in the vegetation, carrying on with their nocturnal activities undeterred by the pervasive industrialism around them. Bioluminescent insects flit among this jungle cityscape, their dim flashes tracing unpredictable paths of light against the cool darkness.
+
+Yet, amid this unique balance of nature in industry, hints of emerging geological formations tease the eye and hint at a world still in the making. Tectonic shivers send slow pulses through the network of roots and cables, fostering an environment that breathes in a chorus of mechanical sighs and the rustle of shivering leaves. 
+
+In all its strangeness, this symbiosis of steel and vine exists in quiet yet active equilibrium. It's an eerie silence disturbed only by the grinding of gears, the distant hiss of steam vents, and the occasional echo of a creature's call. With machinery left to rust and overgrow, and vegetation nurtured under artificial lighting, the rules of survival and cohabitation have been redefined in this subterranean cityscape.
+
+This sprawling subterrestrial realm, whilst bearing the evidence of an industrial past, is far from a dystopian wasteland. There is a symbiosis between the mechanized and the natural, a new form of delicate balance peculiar to this world, verdant and mechanical both, where the persistence of life powers on, forever intermingling with the relics of a long-gone industrial civilization.

@@ -1,0 +1,13 @@
+This subterranean city, still in its formative stages, is inhabited by a variety of dwellers who are hard at work bringing their underground settlement to life. The residents are a mix of skilled laborers and craftsmen, each with their unique role in shaping the city.
+
+The city is home to miners, who dig deep into the earth, excavating new tunnels and caverns for expansion. Masons and stoneworkers labor alongside them, using the quarried stone to construct the buildings, walls, and infrastructure that will form the backbone of the city. Blacksmiths and metalworkers forge tools and hardware, necessary for both construction and daily life.
+
+Among the residents are also farmers and gardeners, who have established small, well-tended plots of land within the city's larger caverns. These hardy individuals coax a surprising variety of crops from the rocky soil, using ingenious systems of irrigation and fertilization to ensure a steady supply of fresh produce for the community.
+
+The city is also home to a number of artisans, including weavers, potters, and woodworkers. These skilled craftspeople create the everyday items that the residents need to live and thrive, from clothing and cookware to furniture and tools.
+
+Children can be seen playing in the streets, their laughter and shouts mingling with the sounds of industry and construction. Women and men of all ages move through the tunnels, going about their daily business, whether that's tending to their homes, shopping at the market stalls, or working at their chosen trade.
+
+As you explore the city, you catch glimpses of community and camaraderie. Neighbors greet one another warmly, exchanging news and gossip. Strangers are welcomed with open arms, offered food and shelter in the spirit of hospitality. Despite the challenges and hardships of life underground, the residents of this embryonic city are a resilient and resourceful people, united in their determination to build a thriving community in this unusual and often unforgiving environment.
+
+As night begins to fall, the city takes on a warm and cozy glow, as candles and torches are lit throughout the tunnels. The sound of music and laughter drifts from the larger caverns, where families and friends have gathered to share meals and stories. In these quiet moments, the city feels like a true home, a place where people can live, work, and thrive, despite the rocky walls that surround them.

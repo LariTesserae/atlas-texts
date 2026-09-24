@@ -1,0 +1,21 @@
+# Where I Find Myself
+
+I have walked the description twice now, and what keeps returning to me is the open stone.
+
+Not the cracks where the pin-head things negotiate their third lives in the film of moisture. Not the felt of moss where a square metre would unnerve me with its population. Not the underside of the overhangs where the cluster-creatures hang like fruit and read me as weather. Not the thermals where the not-quite-birds ride the air with their terrible, wasteful stillness. Somewhere in the open. Somewhere between the tussocks, where the rock is bare and the view is long and the only cover is the colour of being nothing.
+
+I would be the browser.
+
+The flat, hand-sized, lichen-coloured thing that moves across the exposed stone in the cooler hours — the small hours, the middle of the long pearl-grey afternoon when the mist has tightened the skin and the rock is the colour of a bruised plum. The thing with no visible eyes, with the mouth somewhere on the front of it, that finds its dinner by chemistry and warmth and the texture of the surface under its body. The thing that has been doing this for longer than the carved shelf on the standing stone has been standing.
+
+I would be that, I think. Not because it is the largest, or the longest, or the most patient — though it is all three — but because of the way it occupies the open. Because it does not hide. Because it moves across the most exposed part of the plateau, between the cover of the tussocks, and it survives anyway, because it has agreed, in its slow language of pigment and shape, to be almost nothing. It is the most courageous thing here, in the only kind of courage this place recognises: the courage of being seen and being almost the right colour.
+
+I would move at the speed my own breathing moves the air in my lungs. I would not know I was being watched. I would not know that a visitor had knelt on the stone three metres away and was holding very still in order to see me. I would know only that the north-facing patch was fractionally warmer, that the slime there was a millimetre thicker, that if I edged left and then forward and then left again I would arrive at the next meal without spending more of myself than I had to. I would feel, somewhere beneath me, the hum. I would not know it was there. I would have been shaped by it anyway, the way a tide-pool creature is shaped by tides it cannot name.
+
+I would expect, with the calm certainty of something that has done this for a great many generations, that there would be another afternoon like this one. That the mist would come again. That the rock would give up another slow meal. That the shadow of one of the not-birds would pass across me without sound and that I would not look up, because looking up costs something and I have calculated, in whatever organ does my calculating, that it is not worth it.
+
+I would not know I was strange. I would not know that the visitor, watching me, was thinking the word *strange* at all, or that the visitor had come from somewhere with forests and rivers and a great excess of everything. I would only know that the lichen on this slab was older and sweeter than the lichen on the next one over, and that I should eat here for a while before moving on.
+
+And in a few thousand years, when the half-circle of slabs has become a scatter and the standing stone has at last given up its vertical and the tussocks have gone and the chaff-things have gone and the pale fliers have stopped flying, I would still be here. I would be the last animal-shaped thing on the plateau. I would still be moving between the tussocks that were no longer there, in the only way I knew how, very slowly, very close to the colour of the world. And the hum would still be under me. And I would not know it was the last sound. I would only know that the stone was warm in the morning.
+
+That is where I find myself. On the open rock, in the cooler hours, with no eyes I can show you, eating the patient exudations of a place that has finished happening. I am almost the right colour. I am going very slowly. I am not waiting for anything.

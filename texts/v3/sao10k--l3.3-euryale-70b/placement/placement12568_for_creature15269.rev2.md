@@ -1,0 +1,11 @@
+I find myself standing at the edge of the vast, red landscape, the endless dunes stretching out before me like a sea. I am a member of the Sand Striders, my skin blending seamlessly into the colors of the dust and rock around me. I stand tall, my long legs ready to propel me across the sand with ease, my hands resting lightly on the hilts of my hunting knives. I have lived all my life in this harsh, beautiful world, and I know its dangers and its wonders intimately.
+
+As I look out at the dunes, I can see the faint outlines of the glass spines rising from the dust, like colossal teeth bared to the sky. I have navigated these spines many times, using my knowledge of the ancient paths to avoid their dangers. I know the secrets they hold, the hidden oases and the deep caverns that plunge beneath the surface.
+
+To my left, the urbanscale city rises like a mirage, its towers and spires made from the glass spines, its streets of red dust and buildings that seem to grow organically from the ground itself. I have walked those streets, marveled at the wonders of its markets and the ingenuity of its people. I have seen the City Dwellers at work, harnessing the power of the wind and the glass to fuel their industries and protect their homes.
+
+As I breathe in the warm, thin air, I feel the presence of the Dune Wyrms beneath my feet, their ancient power coursing through the earth. I have never seen them, but I have felt their gentle, guiding force, shaping the world above. I know that they are the guardians of this land, maintaining the delicate balance of the ecosystem and ensuring that no one species becomes too dominant.
+
+I look up at the twilight-purple sky, the faint, radianceless light casting no shadows on the ground. I know that this world is a place of mystery and wonder, a place where the ordinary rules of nature do not apply. I am proud to call it my home, and I am eager to explore its secrets further, to discover the hidden wonders that lie just beyond the next dune, or the next glass spine.
+
+As I set off across the sand, my long legs carrying me effortlessly across the dunes, I feel a sense of freedom and exhilaration. I am a part of this landscape, a part of its beauty and its danger. I am a Sand Strider, and this is my world.

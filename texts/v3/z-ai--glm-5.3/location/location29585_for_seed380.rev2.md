@@ -1,0 +1,44 @@
+# The CisternWorks of Lower Vane
+
+A city that lives below another city — or rather, a city that *died* below another one, and was repurposed, and now persists in a kind of afterlife of function.
+
+## The Place
+
+You descend to it. There is no other way. A stairwell of blackened iron, spiral-fitted into a shaft that was once a well, then a ventilation bore, then a stairwell — each generation of purpose leaving its hardware behind like rings in a tree. The descent takes eleven minutes at an unhurried pace. The air changes halfway down: it becomes cool in a specific way, the cool of stone that has never once been touched by sunlight, and *wet* — not damp, not humid, but actively weeping. The walls of the shaft glisten. Water travels down them in threads so steady and so old that they have worn grooves into the masonry, little finger-channels that follow the brickwork like veins follow an arm.
+
+At the bottom: the Works.
+
+It is small, as underground cities go — a handful of long halls, a warren of pipe-trenches, a central chamber the locals (there are locals; more on them later) call the Nave, because that is what it resembles. Vaulted ceiling, ribbed with iron girders that were riveted in place by people four generations dead. The scale is cathedral-quiet, cathedral-hushed: high enough that your voice goes up and does not come back down so much as *dissolve*. But the floor area would fit in a market square. You can walk the whole inhabited extent of the CisternWorks in forty minutes, if you do not stop. Stopping is the normal condition here.
+
+## The Water
+
+Water is the reason for everything. The Works were built as a pump-and-cistern complex for the city above — cisterns first, in an age of brick, then pumps, in an age of iron, then diesel engines bolted to the old pump housings, in an age nobody up top remembers the dates of anymore. The water table sits high and close, close enough that the lowest galleries have floors only notionally solid. In the Deep Hall, walking means walking on cast-iron grating over black still water, and the water is maybe a meter down, maybe less, and it moves — not flows, moves, in slow tonal shifts, rising a centimeter over weeks, falling over months, in a rhythm no one has fully explained. The pumps still run. That is the strange mercy of the place: the engines were built to last and so they lasted. Two of the great diesel units still turn over, slowly, on a schedule that has more to do with the temperament of the machines than any human decision — every fourteen hours, a shudder, a cough, a settling into that low churning note which is the loudest thing in the Works and is still quieter than a conversation. Then they stop, and the quiet comes back in like water filling a footprint.
+
+Everywhere else, the water is in the walls. Literally. The brick sweats. The ceilings drip at long intervals, and because the drips fall into basins and channels that were carved, or that wore themselves, into exactly the right places, the sound of the Works is a sparse percussion: a drop here, a pause the length of a held breath, a drop there, somewhere else, answering. The residents know the individual drips by name. There is one called Old Regular, in the west trench, that has kept a nine-second interval for as long as anyone has counted, and the counting has been going on for at least ninety years, in a ledger, in pencil, kept on a hook by the basin.
+
+## What Grows
+
+Almost nothing. This is a place of stone, iron, water, and engineered dark. What vegetation exists huddles at the light sources — and there are light sources, dim ones: strings of old incandescent bulbs, some of them still functioning on a wiring scheme that predates the diesel, running off a small hydroelectric dynamo that turns in the outflow channel with the patience of a thing that has never once been in a hurry. Under the amber glimmer of these bulbs, in the perpetual damp, grow pale threads of moss and occasional fungal shelves, white and translucent, stacked like wet paper on the trench-timbers. They grow slowly, in millimeters per year. Some of the fungal shelves are the size of dinner plates and are, by the honest estimates of everyone, older than the engines.
+
+Nothing is green here. That is worth saying plainly. The palette of the Works is black water, brown-black brick, rust-orange iron, bone-white fungus, amber light. When the residents describe the surface world to children, the word for green is the same word as the word for *unbelievable*.
+
+## The Residents and the Fauna
+
+The fauna is the surprise of the place. The Works are *full* of animals, and everyone up top would find this absurd, and yet here it is.
+
+The water sustains them. Blind white fish, thin as whips, in the cisterns — the descendants, presumably, of surface minnows washed down through some flood a century past, gone pale and long in the dark, moving in slow loose congregations near the warm outflow of the engines, which they treat as a hearth. Pale amphibians in the trenches, with voices like bubbles. Above the waterline: the bats, of course — the ceiling vaults shelter a colony that comes and goes through the old bore-shafts, and their sound is not the chittering of surface bats but a soft dry rustle, like pages. And then the stranger residents, the ones that make this place itself rather than a generic crypt:
+
+The moths. Enormous, silent, gray-brown moths that live their whole lives down here, breeding in the fungus, drinking at the weeping walls, orbiting the bulb-strings in slow spirals. They are the Works' visible soul. On any evening — and all times are evening — you can stand in the Nave and watch thirty of them drift between the lights, and their wings shed a fine damp dust that settles on the iron railings like flour. The residents neither love them nor dislike them; they *account* for them, the way you account for weather.
+
+The people: perhaps sixty, in scattered habitation — a kitchen room here, a row of bunks in a dry gallery there, a workshop, a school-room with six desks. They are the descendants of the pump-keepers, the families who stayed when the city above stopped sending wages, then stopped sending people, then stopped sending questions. They keep the pumps because the pumps keep the water below the level of the cistern floors of the city above — a fact the city above has forgotten entirely. Somewhere in the Works there is a ledger of this obligation. It has not been read by an outsider in living memory.
+
+Their industry is modest, mechanized in the old way: a lathe driven by a belt off the dynamo, a forge that uses vented engine exhaust for its draft, a cannery of mushroom and fish in glass jars stamped with a mark nobody up top would recognize. Change here is not measured in years. The children are taught the drip-intervals, the fish congregations, the fourteen-hour engine temperament, the slow rise and fall of the water table, as a single subject called *The Schedule*, and it is understood that a person who knows The Schedule knows everything necessary.
+
+## The Rules of the World
+
+A few of these, as they hold here:
+
+- **Nothing is thrown away that holds water.** Every vessel in the Works has a second identity as a basin, a gauge, a mouth of the drip-percussion.
+- **The dark is not empty, but it is not crowded either.** Things live in the unlit galleries — more fish, more amphibians, deeper fungus, things the residents hear but do not chase. The rule is simple: you go where the bulbs go, and where the bulbs end, you knock first. Knock on what? On anything. Sound carries in water and stone, and whatever is in the deep dark answers sound with sound, which everyone agrees is fair.
+- **The water decides the pace.** When the table rises, rooms close and the population condenses; when it falls, outlying galleries are swept and re-opened, and this is the closest thing the Works has to a season. A full rise-and-fall cycle takes about nine years. People arrange marriages and apprenticeships around it without ever saying that is what they are doing.
+- **The engines are persons.** Not in a mystical way — in a practical one. They have names, moods, ailments, a doctor. When one of them finally dies — and one will, someday, since nothing lasts forever, not even things built to — the Works will have a funeral, and a problem, and the problem will be dealt with at the pace of everything else here: slowly, by people who have never once been in a hurry, listening, all the while, to the drip in the west trench keeping its nine-second faith, and the moths turning their slow orbits around the dim amber lamps, and the black water below the grating, moving by millimeters, patient as ledger-keeping, toward whatever it has been patient about all this time.

@@ -1,0 +1,23 @@
+I would be **the woman whose shadow sometimes stands up and walks a few paces ahead of her**, except that I would not be a woman, exactly. I would be the one who has been here so long that the Ward has worn a soft groove through me, the way water wears a groove through stone. My name would be something with a soft consonant in the middle — not Artur, but in the neighborhood of Artur. Something you could say without opening your mouth very far.
+
+I would be thin. I would be damp at the cuffs, always. I would have learned, years ago, to keep a second handkerchief in my sleeve because the first one is never enough, and the cold here is the kind of cold that requires constant small negotiations. My coat would be a good coat — not new, not fashionable, but the kind of coat that has been re-lined twice and still fits me the way I fit the Ward, which is to say: closely, and with occasional give.
+
+I would be one of the watchers, mostly. Not the watchers who sit on the walls and take notes — I tried that, briefly, in my second decade here, and my handwriting became illegible in the damp within a season. But I would be one of the ones who simply watch. I would know which passages are due to change soon, the way a barometer knows weather. I would know which walls are thinking about adding a door. I would never be the first to find a new courtyard — that is for the wanderers, the circulators — but I would often be the second, and I would arrive with a chair already folded under my arm, because chairs, here, are a thing you carry.
+
+I would know Hellen at the well. I would bring her bread on cold mornings, and she would say *the well is deep today*, and I would say *yes*, and we would sit together in the wet courtyard and drink the tea that is not tea. I would not ask her to prove the depth. I would not have asked in forty years. I would have forgotten that I once thought to.
+
+I would be the one who mends the children’s suns.
+
+This would be my real work. Not my profession — I would not call it a profession — but my work in the sense that the work of a lung is breathing. When the condensation has softened a sun to the point where the rays have bled into the wall, I would go, at night, when the children are asleep, and I would trace the rays again in fresh chalk. Not over the old sun. *With* the old sun. I would let the original circle remain, blurred and faded, and I would add rays that are kin to the original rays but not identical. The next child to draw a sun would add hers on top of mine, and hers would be the brightest one, and I would wait for hers to fade too, and I would mend that one as well. I have mended — I am mending, I will continue to mend — a great many suns.
+
+I would know the child who hears the walls, and I would be one of the people who sits in her doorway with a small question, and I would pay her what I think she can be comfortable receiving, which is sometimes a coin and sometimes a piece of chalk. I would not ask what the walls think about me. I would not want to know. The walls are entitled to their privacy.
+
+I would be patient in the Ward’s particular way. I would wait for buses that are not coming. I would wait for doors that are deciding whether to appear. I would wait for the afternoon hum to pass through me, and I would pause for it, the way you pause for a hymn, and I would continue. I would not be in a hurry. I would have forgotten, long ago, what hurry was for.
+
+I would not be unhappy. I want to say this carefully, because it is easy to read the Ward — from outside — as melancholy. It is not melancholy. It is the opposite of melancholy, which is a kind of fullness that does not require expression. I would be full of small things. The sound of pages turning from the pale birds. The polite rats waiting at the edge of sight. The warmth of the central lamp on the worst cold nights, with children gathered around its base. The click of game-pieces in a courtyard that did not exist yesterday. The condensation on my sleeve, which is the Ward saying hello.
+
+I would know that the Ward is a being, in the sense that anything that notices you is a being. I would not worship it. I would not even be grateful to it, in the way that requires articulation. I would simply live in it, the way my lungs live inside my ribs, and it would notice me, and I would notice it noticing me, and that would be enough. That would be the whole of it.
+
+I would stay longer than I meant to. I have stayed longer than I meant to.
+
+I am staying still.

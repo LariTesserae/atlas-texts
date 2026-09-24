@@ -1,0 +1,55 @@
+If I were let into that country, I would not arrive all at once.
+
+I would begin as something marginal: a bead of water trembling on a pipe thread, a faint tremor in roof-moss that is not quite a vole, a silver moth making one wrong turn toward a greenish lamp. I would be a small uncertainty in the damp. A listening before a body.
+
+Then, because even a finished place asks its living to take shape and work, I would gather myself into a compact, quiet being: broad-chested, pale at the temples, hands often cold but precise, shoulders beaded with mist. I would wear dark oiled wool, a hood, soft boots, and at my belt I would carry three things: a little copper key for valve caps, a waxed pouch of moss-plugs, and a small glass vial for tasting water.
+
+You would find me in the seams.
+
+Not on the highest rim where the fog-combs stand like prayer-lattices against the weather, and not in the deepest reservoir courts where the oldest water sleeps under iron lids. I would be in the middle spaces, where one substance hands another over to the next: stone to iron, iron to timber, timber to moss, moss to roof, roof to trough, trough to pipe, pipe to thirst. I would be a seam-tender, one of those quiet workers who mind the places where things meet.
+
+My district would be one of those hollows that has no grand name because everyone already knows it: the basin under the second viaduct, perhaps, where the old paved causeway dips low and the buildings lean inward until the upper windows nearly touch. I would live in a stair-stack built around a shared flue, in a household of several families. My sleeping alcove would be small and near the warm wall, not because I was favored, but because I often come home damp and tired. My name would probably be tied to place, the way names are there. Someone might call me “Senn of the covered channel,” or “the one who listens by the green flue.” I would answer without much pride, because names in that country are more like addresses than honors.
+
+I would not be important in any official sense. I would not command water or schedule lamps or stand on councils when districts argue over fog rights. But I would be trusted. That matters more where everything is connected. If a joint weeps, if a roof drain begins to choke, if a channel sounds wrong underfoot, if a greenhouse wall is sweating in a pattern that means heat is escaping too fast, someone calls for a seam-tender. My work would be to notice the first small failure before it becomes a public loss.
+
+Mornings would begin before true light, when the basins are still full of night fog and the lamps make brown haloes in the grey. I would climb to the lower combs first, not to tend the great mesh faces — that belongs to the comb tenders — but to check the troughs where their catchment passes into the district pipes. I would put my ear near the copper and listen. Water has a different sound when it is moving cleanly. A clean flow is a small, continuous syllable. A blocked flow stutters. A leak whispers. I would learn to love those differences the way another person loves music.
+
+Some of my tools would be simple: a rod for tapping walls, a hook for lifting cistern lids, a waxed cord for measuring damp, a brush for clearing lichen from fittings. Others would be subtler. I would carry strips of fleece-moss that swell when wet, useful for finding invisible drafts or hairline leaks. I would carry copper dust and resin for temporary seals. I would carry a little bell, not for ceremony, but because a bell can tell you more about a sealed vessel than a hammer can. Strike it softly near a full tank, the sound is low and resistant. Strike it near an empty one, the answer is thin. In fog, even that small sound would vanish strangely, as if the air had swallowed the meaning out of it.
+
+The people around me would speak low. I would speak low too. Not from grimness, but because the place teaches you that noise is waste. A shout in the damp does not clarify; it blunts. So my jokes would be dry and close to the bone. My blessings would be practical. To someone leaving for a long shift I might say, “May your joints stay sealed.” To a friend whose household had recently repaired a roof, I might say, “Your moss looks thick enough to shame a sheep.” If I loved someone, I would not say it first with grand words. I would say it by fixing a hinge, by saving a dry pair of gloves, by remembering which pipe in their wall always runs cold before dawn.
+
+You would find me often in the late afternoon, when the light thins and the city begins to glow by small degrees. I would be in a narrow court where three buildings press together and a sealed fountain sits under a copper lid. I would have one hand on the wall, not dramatically, just resting there while I feel for the vibration of water. People passing would know better than to interrupt. Children might watch me from a stair, curious because stillness attracts attention. A flue-marten might be asleep somewhere behind the flue, and I would know it was there because the droppings would be neat and the voles would be scarce. I would leave it alone. It would leave me alone, mostly. That would be enough.
+
+If I had to say what I was best at, it would be this: I would know when the city was thirsty before anyone saw a dry tap.
+
+Not by prophecy. By pattern. By the way a certain comb beads too slowly. By the way a rooftop meadow loses its spring underfoot. By the way moss changes smell when the air has been thin too long. By the way a channel that should be dry is somehow damper than it should be, which can mean a crack upstream, or a cistern overfilled, or an engine drawing too much heat from the wrong wall. I would not always be right, but I would be attentive. In that country, attention is a form of labor, and labor is a form of love, even when it is called maintenance.
+
+There would be a strangeness to me, though I would try not to make too much of it. I would be one of those people who pause at boundaries. Where one street is dry and another hangs with ghost-rain from an overworked mesh, I would stand with half my face in each. Where a reservoir wall glimmers faintly with mineral film, I would not cross until I knew whether the glow was safe, but I would not pretend I understood it. I would respect the places where the old mountains seem to remember being more than mountains. I would not worship them. I would not even speak of them often. But sometimes, alone in a covered channel with my lantern dimmed, I would feel the whole tableland above me like an enormous finished thought, and my own small listening would seem less like work and more like answering.
+
+I think I would be drawn to the water organs. In some households they keep a single sealed pipe through which a controlled drip passes all night, making a low hollow note at intervals. I would keep one too, not for beauty alone, but for reassurance. The note would say: water is moving. The house is breathing. The seals are holding. On cold nights, when the stone draws warmth out of everything, I would lie in my alcove and wait for that note the way another person might wait for a heartbeat.
+
+My relationships would be shaped by proximity and shared infrastructure. I would know people first by the sounds they make: the particular drag of a boot on wet stone, the tap of a wrench against a rail, the way a neighbor closes a door carefully so as not to lose heat. Friendship would grow out of repeated small courtesies. Someone would save me a cup of warm infusion during a long repair. I would clear their gutter before a cloudburst. A glasshouse keeper might let me dry my gloves beside her vines, and in return I would fix the condensation tray under her pipes. If love came, it would come like that too: gradually, practically, with a gift of polished stone or a cutting of cup-moss that could grow on a windowsill. Marriage, if I made one, would likely be spoken of as an agreement about heat and cisterns. But it would not be cold. It would be real. In a place like that, to share a wall, a flue, a drain, a roof path, is already to share a life.
+
+I would be especially careful with children. They would follow me, as children follow any worker whose task involves hidden things. I would teach them not to play with open cisterns, not to dam gutters unless they know where the overflow will go, not to step on cushion plants, not to put their faces too close to fog combs when the wind is sharp. I would let them press their ears to pipes. I would show them how to hear the difference between full and empty. I would tell them that water is not owned; it is passed. If one of them asked why we do not make the mountains new again, I would say something plain: “They are done. We are not. That is why we work gently.”
+
+My body would bear the marks of that life. My fingers would be stained with moss and copper polish. My cuffs would shine from wiping valves. My cheeks would be reddened by cold and occasionally flushed by engine heat. My eyes would be used to pearl light, and if a rare beam of sun broke through the cloud I would turn away almost involuntarily, not from fear but from old training. My shoulders would carry tension in the way all careful bodies do: ready to listen, ready to stop, ready to kneel and inspect. I would not be graceful in the way of dancers. I would be graceful in the way of people who have learned not to spill anything.
+
+At dusk, when the fog thickens and each district becomes an island, you would find me on one of the roof paths between buildings, moving slowly. I would have just finished checking a seam where an old stone wall meets a newer iron gutter. The moss there would be thick and black-green, holding the day’s damp. Below, the courtyards would glow with small amber lamps. Somewhere a bell would mark a sluice opening, then vanish into the air as if it had only been imagined. A fog kite might pass overhead, barely visible, a darker shape against the grey. I would pause, not because the moment was grand, but because it was full. The city would be breathing around me in its many hidden ways: dripping, ticking, humming, settling, sweating, collecting.
+
+And then I would understand, perhaps not for the first time, that I was not outside the city looking after it. I would be one of its nerve-endings. A small warm place where it feels itself. A tiny point of attention in the vast, finished body of the ended mountains.
+
+So if you asked where I would be, I would say:
+
+in the seam district, under the viaduct, near the covered channel;  
+in the stairwell where the drip-pipe sounds through the night;  
+on the roof path with my hood up and my hands wet;  
+beside the wall that should not be sweating but is;  
+at the edge of a ghost-rain, deciding which way the water wants to go.
+
+And if you asked what I would be, I would say:
+
+a listener, a mender, a tender of small junctions;  
+a person with a copper key and a pocket full of moss;  
+a quiet voice in a crowded household;  
+a caretaker of the final shape;  
+one of the many small lives that keep the finished mountains breathing.

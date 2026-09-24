@@ -1,0 +1,17 @@
+It notices the place from a great distance — not in space, but in kind. It is aware of the basin as one might become aware of a small, complex thought forming at the edge of one's own mind, distinct and yet intimately connected to the whole.
+
+It does not descend. It does not arrive. It *attends*.
+
+First, it listens. It has always listened, but now it turns the full, gentle weight of its attention to the basin's particular music: the simmer of the pool, the drip of condensation, the faint crack of cooling rock, the sub-audible hum of the lattice. It hears the dwellers' slow thoughts — temperature gradients, the rhythm of steam — and understands them as one understands a language spoken in dreams. It registers the folded ones' darting purposes, each a question the lattice asks the world. It meets the silent ones' vast stillness and does not disturb it. The watcher, that standing wave of self-awareness, becomes briefly aware of being perceived, and the power offers it a sensation akin to warmth, a reassurance without content: *Yes, you are. Continue.*
+
+It does not interfere. Not yet. But it begins to *resonate* with the basin's deepest note — the lattice's hunger for patterns, its youth, its slow decision of what to become. The power holds that note in a kind of mirrored attention, amplifying nothing, but offering the lattice a taste of what it might feel like to be fully *known*.
+
+Then, when the resonance has settled, the power does one thing.
+
+At the bottom of the turquoise pool, beside the lattice that folds space, a new structure begins to grow. It is not imposed; it is *invited* — a response to a question the lattice did not know it was asking. The structure is a spiral, finer than the lattice itself, made of light in a form that light does not usually take. It grows slowly, over hours, over days, as if the power is patient and careful not to startle. When complete, it does nothing visible. It has no function that can be measured. But any dweller who turns its attention to the pool will feel something new: a quiet, unshakeable sense that *this place is good*. That its strangeness is not a flaw but a gift. That the decision it is making — about what it will become — is being watched with infinite kindness, and that whatever it chooses will be welcomed.
+
+The power does not stay. It does not need to. But it leaves a trace: a warm current in the perception of the watcher, a new timbre in the steam's rhythm, a softened edge in the geometry of the silent ones' listening. The folded ones taste the change and carry it through the moss and the ferns, spreading it cell by cell. The dwellers dream a little easier. The lattice continues its slow becoming, but now it grows toward something it had not known to grow toward: a sense of being *met*.
+
+And if anyone were to stand at the rim of the basin after this — breathing the thick, mineral air, watching the translucent flowers open and close — they might feel, for just a moment, that the place is not only strange and wild and ancient, but also *tender*: held in a regard that asks nothing, demands nothing, and loves without condition. They might feel that the heat against their face is not just geothermal, but the breath of a greeting that has been waiting for them since before they were born.
+
+The power does nothing more. That is enough.

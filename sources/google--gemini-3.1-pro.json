@@ -3,15 +3,16 @@
   "requested_endpoint": "google/gemini-3.1-pro",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-04-28",
-  "date_last": "2026-05-20",
-  "texts": 798,
+  "date_last": "2026-09-24",
+  "texts": 802,
   "by_type": {
     "location": 248,
     "creature": 247,
     "advisory": 75,
+    "regard": 4,
     "placement": 228
   },
   "evidence_grades": {
-    "event-observed": 798
+    "event-observed": 802
   }
 }

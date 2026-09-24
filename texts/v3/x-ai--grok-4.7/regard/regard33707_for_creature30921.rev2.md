@@ -1,0 +1,15 @@
+They would do almost nothing that could be named an act.
+
+The attention itself is the first motion, and it is not a descent. It is the difference between mist that has nowhere to go and mist that has been considered. Along the rim, where the rock still cuts and the wind begins to remember how to speak, a single edge stops shedding grains for the length of an afternoon. No one is there to mark it. The grains that would have fallen remain in the stone, and by evening the fracture has not lipped new moss so much as declined, for one night, to need it. The count in the doorways comes out the same.
+
+Down in the cup the power does not enter the channels or the court. It has no use for the lamps. What it does is refuse one small future that had been leaning, unnoticed, toward the town: a season in which the fliers’ tilt would have failed more often, beads souring on the leaf-tips, the braid taking weight it could not trade by morning. That season is set aside the way a hand is lifted from a sill so a file can pass. The fliers continue. Their errands stay brief. A child who cups one and finds it already failing still fails to save it, and is still right to try, and the fiber-scrap still carries the little membrane to the doorway. Nothing in that kindness is improved. It is only not made rarer.
+
+For the people, the attention is even quieter. The ones who walk the rim and return with eyes that have learned a source sleep, that night, one hour closer to the dim they trust. They do not dream of direction. They dream of seams. In the morning they cannot say what has eased. They scrape the roofs they meant to scrape. They take three pods. They leave the fourth.
+
+The tree is not addressed. A power that is wise does not speak to what is already keeping time. One bead that would have traveled to the rim and been lost in the speaking wind instead reaches a leaf that jostles under ordinary roost-weight and falls, intact, into a hand that knows how to share it in sips no larger than a fingernail. The feast is not larger. It is only not missed.
+
+No message is left. No ridge is softened. The sharp young stone remains sharp. The fullness remains too numerous for the forage you can see, and the town remains the thin agreement that certain lines stay legible. If the power could be said to want anything, it is that the agreement continue to be kept from inside, by counting, by sips returned, by walls that are apologized to in calculated neglect, by dead who become directions.
+
+So it withdraws the only way it arrived—by ceasing to differ from the mist. The rim resumes its slow shedding. The channels stop and start on their own balance. Someone stands in a doorway after the lamp is pinched and finds the files, the flex, the texture, the braid all present in their right number, and sleeps.
+
+That is the whole of what is done. A wise benevolence, having looked, keeps its hands to itself, and calls the keeping a kindness.

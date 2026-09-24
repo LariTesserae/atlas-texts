@@ -1,0 +1,15 @@
+The air here is not truly air; it is a pressurized, frigid brine—a thick, light-drinking suspension that occupies every cubic millimeter of the space. We are in the *Sump-Cathedral*, a subterranean basin trapped beneath layers of weeping, rusted iron-crust.
+
+The scale is intimate, no larger than a sprawling municipal archive, yet the density is stifling. It is an industrial ruin drowned in its own waste. Massive, corroded pistons the size of redwood trunks stand in vertical clusters, their surfaces slicked with a translucent, gelatinous moss that serves as the only flora. This vegetation is sparse, clinging to the iron like veins of pale fiber-optics, pulsing with a faint, rhythmic bioluminescence that dies out before it can illuminate anything more than a few inches away.
+
+The erosion here is ancient and settled. The metal has not been eaten away by acid so much as it has been smoothed by eons of sub-aquatic motion. Edges that were once razor-sharp are now soft, rounded ridges, coated in thick, velvety layers of oxidation and silt. Everything is in a state of suspended decay—the machinery is broken, yet it performs a slow, circular labor.
+
+A deep, low-frequency hum vibrates through the water, a phantom oscillation from engines that stopped burning fuel centuries ago but refuse to stop moving. They are driven by the tectonic settling of the basin itself, a perpetual, grinding tension that keeps the gears turning at a glacial pace. There are no sparks, no heat, no steam. Just the cold, mechanical friction of metal against silt.
+
+Light is a myth here. The darkness is tactile, a heavy shroud that only breaks when a "pressure-vent" cycles. When this happens, a plume of pressurized, super-cold liquid forces its way through the architecture, creating a brief, violent turbulence. During these moments, the bioluminescent moss flares a frantic, electric indigo, revealing the true density of the place: layers of hanging conduits, tangled like frozen snakes, and the skeletal remains of tiered walkways that bridge the void between the pistons.
+
+Fauna is nearly non-existent. Occasionally, a *needle-drift*—a long, translucent ribbon of silicate life—will slip through the interstices of the machinery. They do not swim so much as they are pushed by the currents of the cooling vents. They possess no eyes, no discernible organs, only a shimmering, fragile length that vibrates in sympathy with the deep-set hum of the engines.
+
+There is no wind, no crashing waves, no birdcall. The soundscape is defined by the absence of agitation. When the pipes groan, it is a sound felt in the marrow rather than heard in the ear—a wet, dull *thrum-thrum* that underscores the absolute silence of the deep. 
+
+This is a place of organized construction, long abandoned to the rising pressures of the planet’s depths. It is an industrial cemetery that has been fully integrated into the cycle of the basin. The architecture has become a reef, and the technology has become a geological feature, grinding away in the dark, forever cold, forever submerged, and entirely indifferent to the fact that it is the only thing left of its kind.

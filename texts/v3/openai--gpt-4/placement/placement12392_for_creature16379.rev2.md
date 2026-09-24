@@ -1,0 +1,17 @@
+In this world, you find yourself standing amongst the landscape of tarnishing industry being slowly absorbed back into the earth; in ruins that echo a forgotten technological era sinking beneath a quiet symphony of rain and silt. You are in a land constantly negotiating itself, trying to settle back into a kind of wilderness where water dominates and twisted trees appear more like apparitions than solid entities. You are embraced by an air so pregnant with moisture that even breath becomes tangible, becoming part of the landscape’s rhythm.
+
+Here, you don't just observe the world. You feel it. Invisible transmissions of energy pulse through your veins, an undercurrent of technological echoes intertwining with the organic. What was once thriving is now decayed, lost, entwined into a landscape that is attempting to shroud its own manufactured scars.
+
+You find yourself, lost and found among the ancient vestiges of a modern civilization, vanishing back into the entropy from which all life emerges and into which it inevitably returns. You tuck your hands in your pockets, wander aimlessly midst the broken towers and tired machinery, your footfalls rippling the silent hymn of the place into eddies of past and present, colliding and diverging in the muddy mantle below.
+
+And what would you be? 
+
+In this somber, introspective dreamscape, you become an observer, a nomad, a quiet interloper slightly out of step with the mutable rules governing this realm. You are Homo Erraticus, the wandering human, an impromptu archaeologist of a once resonant civilization that now lies gasping and rusting into cognition, its meaning fading as quickly as the fleeting impressions your footprints leave on the puddle-strewn floor.
+
+As Homo Erraticus, your role is not to conquer, nor to salvage, but simply to witness this post-industrial requiem in all its melancholic serenity. Your presence is ephemeral—a fleeting shadow upon the canvas borne from rusted relics sinking into ever-thirsty silt. Quiveringly aware of the collision between your species’ imprint and the relentless, heartbeat rhythm of the land, you stare into the watery layers of time, attempting to decipher a place where technological advance and nature’s reclaiming touch have drummed a rhythm of somber coexistence.
+
+But not all is quiet. You share this land with those known as the Vélaud—beings of near-imperceptible change and slow, pulsing rhythms that seem deeply intertwined with the shifting landscapes. Uneasily co-habitating, you watch them navigate the terrain with a care that borders on ritualistic, their shimmering forms moving through places both familiar and strange with an uncanny ease that sends a shiver up your spine.
+
+You are a visitor in their domain, intriguing, but perhaps, disruptively so. You are not like them, but you are of the same era—the era where rust and rain blend, and spectral trees tell tales in silent shivers. They observe you and you them, an unspoken pact of strange coexistence born of curiosity and circumstance.
+
+As Homo Erraticus, you bear no claim in this world, tread softly on its damp, yielding soil, and find comfort in the uncertainty. You'd come seeking, perhaps, a glimpse of life beyond your own, a capture of time brushed with oxidized iron and dew-kissed moss, and have found a world unapologetically reshaping itself, ready to hold its secrets close—and you, with your tired eyes and curious heart, have become a part of this dance, a step in the eons-long waltz, another melody fading into the hum of this spectral wilderness.

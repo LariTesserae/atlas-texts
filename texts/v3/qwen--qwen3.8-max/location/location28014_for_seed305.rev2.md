@@ -1,0 +1,89 @@
+It is a high, cold, bright world that has not yet learned to be gentle.
+
+The land sits at an elevation where the air is thin and hard, a continental tableland lifted so recently that its edges are still sharp. There are no soft hills here, no long-weathered slopes, no patient valleys rounded by ages of rain. Instead there are ridges like split glass, cliffs with clean fracture lines, black and pale stone still carrying the memory of its making. The mountains are young in the way a wound is young: precise, exposed, and vivid. Every ridge catches the light. Every shadow is cut rather than fallen.
+
+From a distance, the place seems almost mineral, a vast expanse of frost-bright rock and glittering rime. Then you see that it is not bare. It is crowded. It is full.
+
+The brightness is extraordinary. Light does not merely fall here; it strikes. At this altitude, with the air stripped clean and the surfaces below full of ice, wet leaf, crystalline lichen, and pale stone, the world reflects back on itself. Shadows are blue and dense. Highlights burn white along the rims of leaves, along the backs of creatures, along the thin films of water that cling to every vertical face. Even the dampness shines. Even the cold seems luminous.
+
+And yet the place is not wet in any simple sense. It is damp in a hundred interrupted ways.
+
+Water exists here as beads, films, pockets, and brief appearances. It gathers in the hollows of leaves, freezes into glassy lenses overnight, melts into black tears by midmorning, and disappears into porous ground before it can become a stream. Rain comes occasionally, not as long soaking weather but as sudden bright needles driven sideways by wind, instantly absorbed by the living skin of the plateau. More often, moisture arrives as condensation: fog dragged over the sharp rim of the land, frost forming on exposed hairs, mist caught in dense vegetation and shaken loose in slow drops. There are riverine traces, but they are short-lived—braided threads of meltwater that appear, widen, braid again, and sink into the living rock within a few hundred paces.
+
+This is a landscape of pockets of water inside a larger dryness, and because water is intermittent, life has arranged itself around the act of catching, holding, sharing, and recycling moisture.
+
+The vegetation is lush, but not soft in the way lowland greenness is soft. It is lush as a fully occupied surface, lush as pressure, lush as abundance forced into tight space. Mosses and cushion-plants pack every shelf and hollow. They grow in thick felts of blue-green, silver, black, and pale gold, so dense that they look less like individual plants than like organs of the terrain itself. Between them rise rosettes with thick, cold-waxy leaves, translucent at the edges, each one cupping a private reservoir of condensed water. There are low shrubs with stems like frozen cordage, their surfaces furred with frost-resistant hairs. There are broad, dark fronds that resemble ferns but open and close with the slow rhythm of breathing, their undersides slick with moisture and microbial sheen.
+
+Everything is adapted to cold and brightness. Leaves contain antifreeze sugars. Stems are layered with insulating air channels. Root mats spread horizontally more than vertically, binding to rock and to one another, sharing heat and water through fungal networks. In places the vegetation forms raised cushions a meter or more thick, their interiors warm from decomposition and respiration, their surfaces still edged with ice. If you were to press a hand into one of these mounds, you would feel the outer cold, then a surprising living warmth beneath, as if the land had a slow pulse.
+
+There is no emptiness between plants. Where a rock is exposed, lichen takes it. Where lichen thins, moss invades. Where moss falters, fungal crusts spread. Where water gathers, microbial mats bloom in colors that seem too vivid for such cold: rust, olive, turquoise, metallic violet. The vegetation does not merely cover the ground; it occupies it. It fills every seam, every depression, every fracture large enough to hold a thread of root or a bead of melt.
+
+The fauna is overwhelming.
+
+Not because the animals are all large—some are, but many are small, innumerable, and impossible to ignore—but because they are everywhere. They occupy the air, the plant layers, the water films, the spaces beneath mats, the interiors of stems, the surfaces of ice, and the thin boundary layer where warmth from living bodies meets the cold atmosphere. The landscape is not inhabited; it is populated to saturation.
+
+At first what you notice is motion. A shimmer along a ridge resolves into thousands of cold-adapted flying creatures, their wings narrow and reflective, adapted for thin air and intense light. They move not in frantic clouds but in slow, rolling waves, because even their abundance has acquired the patience of the place. They are followed by grazers: compact, dense-bodied animals with broad feet for gripping sharp stone, their coats or coverings thick with insulating filaments. Some browse on moss with deliberate, sideways movements of the mouth. Others scrape microbial crusts from rock, leaving faint polished trails. Some do not eat plants at all but filter the air, standing motionless with feathery intake organs spread wide, catching spores, airborne microbes, and moisture-laden particles.
+
+The density of life means that almost every organism is also a habitat. Larger creatures carry living coatings of mites, symbiotic fungi, hitchhiking larvae, and photosynthetic films that give their backs a greenish or silver cast. Even the slowest animals are followed by smaller ones, and even the smallest are trailed by others still. There is no simple individual here; there are assemblies, layers, communities moving in loose coordination.
+
+The air itself seems occupied. Not merely by flying creatures, but by drifting reproductive bodies, spore clusters, silk-like filaments, and airborne egg cases that catch the light like frost in suspension. When the wind shifts, these drifts become visible as pale bands moving across the plateau. They are beautiful and excessive. They are also part of the loudness.
+
+Because this place is loud.
+
+The sound is not the roar of engines in any ordinary sense, but it is industrial in character: continuous, layered, rhythmic, and vast. There is a low, spreading hum from millions of organisms processing matter and energy at once. There is the high, glassy whine of wings in cold air. There are percussive clacks from seed structures releasing under tension, from shells striking stone, from territorial signals passed through packed populations. There are resonant calls, not melodic so much as pressure waves, felt in the chest as much as heard. Ice cracks in long, dry reports. Condensation drips into hidden chambers and produces hollow ticking. Static discharge hisses when charged fur, plumage, or spore clouds brush against one another in the thin air.
+
+The sound builds because the landscape is dense and reflective. Stone walls bounce it back. Plant mats absorb some frequencies and amplify others through resonance. The result is a sustained, layered drone, as if the entire plateau were a vast instrument being played very slowly and very seriously.
+
+This is where the sense of industry becomes strongest.
+
+There are no constructed structures here. No walls, roads, conduits, towers, machines, or artifacts of any kind. Nothing is assembled by hands or tools. Yet the place operates like a factory system. It has production lines, energy conversion, mass processing, chemical refinement, heat exchange, electrical activity, and relentless throughput. All of it is biological. All of it is grown. All of it has emerged from evolution pushed into an extreme of density and specialization.
+
+Some organisms function as living heat engines. They are broad, columnar beings rooted in rock fissures, their bodies made of layered chambers where microbial symbionts break down minerals and generate warmth. They do not move, but they vent. Slow plumes of steam rise from their crowns in the cold air, creating local updrafts that draw in mist, spores, and smaller creatures. Around them, other life clusters to borrow warmth. These thermal organisms are not factories in the sense of built things, but they behave like power plants: they convert chemical energy into heat, stabilize local microclimates, and support entire communities around their output.
+
+Others act as refineries. There are sessile growths resembling pale reef shelves, their surfaces divided into thousands of tiny working cavities. Inside these cavities, fluids are filtered, concentrated, and transformed. They produce waxes, acids, salts, antifreeze compounds, structural fibers, and nutrient pastes. Some of these substances are used by neighboring organisms. Some are excreted into the environment and become part of the ground itself. The landscape is not merely inhabited; it is being continuously manufactured by its occupants.
+
+Electrical phenomena are common. Certain plants store charge in layered tissues, releasing it in small blue sparks when touched or when the air becomes too dry. Herds of slow-moving animals generate static fields so strong that their outlines blur with faint corona light in the brightest hours. Some creatures communicate through weak current pulses passed through damp vegetation. In a few places, natural bioelectric gradients are so strong that the air tastes metallic, and fine hairs stand upright whenever a spore cloud passes overhead. There is no grid, no wiring, no machine-made current, but the plateau is electrified nonetheless.
+
+The industrial quality also appears in scale and repetition. There are zones where one process dominates for kilometers: fields of organisms that exist only to condense water, reefs that exist only to fix minerals, carpets whose sole function seems to be breaking down dead matter into usable heat, nurseries where eggs and larvae develop in synchronized layers so thick they look like living sediment. Nothing here is quaint or pastoral. The abundance is systematic. It feels organized, even when no single intelligence directs it.
+
+And yet there is no maker’s mark.
+
+No artifact, no tool, no built thing interrupts the scene. The “technology” of this place is entirely embodied. It exists in organs, membranes, symbioses, metabolic pathways, and inherited behaviors. What would be called machinery elsewhere is here expressed as anatomy and ecology. The engines are alive. The factories are communities. The production lines are food webs and chemical cycles. The output is not goods but continuation.
+
+The scale of the landscape deepens this impression. It is vast enough to create its own weather. The massed respiration of vegetation and fauna produces humidity that collects above certain zones and falls back as localized mist. Heat from biological activity forms slow plumes that drift until they meet colder air and collapse into sudden flurries of ice crystals. Winds are shaped not only by elevation but by the texture of the living surface: rough where vegetation is thick, slick where ice dominates, turbulent where thermal organisms vent in lines along fault zones. The plateau does not simply exist under weather; it participates in making it.
+
+This is a place with weather of its own in more than a figurative sense. Storms can begin as a byproduct of life. A bloom of reflective spores can increase albedo and cool the air above a field, triggering condensation. A mass migration of heat-bearing animals can alter local temperature gradients enough to redirect fog banks for days. The system is slow, but it is large, and its effects accumulate.
+
+The cold is constant but not uniform. In open exposure, the air can freeze moisture on stone within minutes. In the interiors of plant mounds, in crowded animal clusters, near thermal vents and living furnaces, it is almost warm. This patchwork of temperatures creates countless micro-environments, and every one of them is occupied. Cold-adapted life here does not merely endure low temperature; it uses it. It uses the sharp contrast between sunlit surfaces and shaded crevices. It uses the freezing of water to fracture rock into new niches. It uses the brightness to drive photosynthesis in the thin air and to power visual signaling across long distances.
+
+The brightness shapes behavior as much as physiology. Many organisms have reflective coverings, not for display alone but to manage radiation. Some appear matte and dark, absorbing heat during the short warm intervals. Others are pale or metallic, deflecting excess light. Eyes are numerous and often clustered, adapted to glare, ultraviolet, and the strange polarization patterns created by ice and wet surfaces. In places where the light becomes almost unbearable, life retreats into translucent tissues, beneath filmy layers, or into the blue shade of overhanging vegetation.
+
+The weirdness of the place comes not from one impossible feature but from the way so many contradictions are held together.
+
+It is cold and lush. It is damp and yet not truly wet. It is high, exposed, and mineral, but saturated with life. It is untouched by construction, yet industrial in rhythm and output. It is bright beyond comfort, but full of hidden interiors, warm pockets, and dim biological chambers. It is loud, but not hurried. It is packed, yet slow.
+
+That slowness is essential.
+
+Despite the noise and density, the landscape changes gradually. Its cycles are long. Growth occurs in patient layers. Colonies expand over decades. Meltwater routes shift season by season, not hour by hour. Animal populations rise and fall in broad waves that take years to cross the plateau. The sharp stone is being broken down, but only by frost, life, and chemistry acting in concert. Nothing here is sudden except light, occasional rain, and the sudden crack of ice under stress.
+
+The dominant motion is accretion. Moss thickens by millimeters. Fungal networks deepen by degrees. Thermal communities expand outward as their heat alters the rock around them. Herds move across the land in slow, grazing tides, leaving behind compacted trails, fertilized mats, and new chemical balances. Even the loudest sounds often belong to processes that take a long time to complete: reproductive cycles, territorial adjustments, the slow redistribution of moisture, the buildup and release of pressure in living tissues.
+
+This is not a quiet slowness. It is a slow loudness. A slow industry. A slow brightness.
+
+The rules of this world are severe and simple.
+
+Water must be caught when it appears and shared through living systems before it vanishes. Heat must be conserved, pooled, and circulated. Space is never truly open; any surface left unused is colonized quickly. Energy is transformed again and again, passed from sunlight to tissue, from tissue to heat, from heat to motion, from motion back into chemical storage. Nothing is built, because building would require separation between organism and environment, and here the environment is already made of organisms. Technology is not external; it is inherited, embodied, and ecological.
+
+Survival depends less on speed than on integration. To be alone here is to lose heat, lose water, lose protection, and lose function. Almost every creature exists in relation to others: attached to, embedded in, surrounded by, fed by, or feeding upon them. Even predators, where they exist, are not solitary hunters in the usual sense but regulators within dense systems, culling, dispersing, or stimulating processes elsewhere. Death is rapidly reabsorbed. A fallen body becomes a warm patch, a nutrient node, a nursery, a chemical source. The plateau does not waste.
+
+There are moments when the strangeness becomes almost visible as pattern. At midday, when the light is hardest, the whole landscape glitters so intensely that movement seems to stutter, as if reality were being overexposed. Then a cloud of reflective organisms rises from a warm ridge, and the brightness bends into a pale halo overhead. Below it, thermal vents release slow columns of vapor, and grazing animals move through the mist with static flickering along their backs. The sound becomes a layered drone, not urgent, but immense. The land feels less like a place than like a process that has become large enough to have weather, voice, and intention.
+
+At other times, especially in the cold lulls between light peaks, the plateau seems to contract into its warm pockets. Life gathers closer. Condensation beads on every surface. The vegetation darkens with moisture. The loudest sounds become the ticking of droplets and the low biological hum of metabolism. The sharp ridges stand black against the bright sky, still young, still cutting, still unfinished.
+
+There is no road into this landscape, no ruin, no sign of passage made by tools. If a traveler came, they would not find shelter built by anyone. They would find shelter only as another organism finds it: by entering the living system carefully, by fitting into a gap already occupied, by becoming part of the density rather than standing apart from it.
+
+That is perhaps the deepest truth of the place.
+
+It is not undeveloped because it lacks complexity. It is undeveloped because it has no need for external construction. Its industry is internal. Its machinery is evolutionary. Its factories are ecosystems. Its engines are bodies and communities. Its products are heat, moisture, motion, sound, and continuity.
+
+A high, cold, bright continent of damp stone and packed life, young and sharp-edged, loud with slow biological industry, strange in its fullness, vast enough to make its own sky, and so densely alive that there is no room left for emptiness.

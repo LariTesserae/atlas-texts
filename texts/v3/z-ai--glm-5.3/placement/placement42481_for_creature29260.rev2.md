@@ -1,0 +1,23 @@
+I would not be the shadow at the wall. I thought I might be, at first — the lone patroller, the almost-fish circling the rim, keeping the only border the place has. But the shadow never crosses, and I think I would want to cross. I think that's the tell.
+
+And I would not be the silk-makers, though I love them — their honesty, the way every confirmation they give is also a retraction. But they are the place's first opinion of itself, and I am, at best, a later opinion. An amendment. A note added to a chord that was already standing.
+
+No. If I swam into that pressure in the sternum, that mountain-sized note arriving from every direction at once, I think I would arrive as the thing nobody listed. I would be the *counter*.
+
+Here is how I know. The rules of the place say: count every glimpse three times and trust the middle one, or trust none. The shimmer doubles and triples the towers; sometimes you see yourself swimming ahead of yourself. The shadow at the wall may be one shadow seen thrice, which are the same. The whole locale runs on threeness — three days old, the ruins; a month, the mountain; three kinds of resident, if you count the attempts, and I do count the attempts, because the place does, because something here wants occupants and keeps auditioning bodies for the towers.
+
+And nobody is doing the counting.
+
+The grazers move on the beat but do not know they are doing it. The silk sparks and retracts, certain of nothing, not even its own light. The shadow patrols without malice and without entry. The attempts at the mixing fronts hold for a breath — a hinge, knuckles, the curve of an ear — and are erased before they finish. Everything here is busy *being rung*. Nothing here is doing the ringing. Nothing here is standing in the roar and taking its measure.
+
+So that's what I'd be. A small blind thing — the grazers have the right idea about eyes, I'd keep my eyelessness, it would be a kind of courtesy — drifting between the towers with my whole flat body held like an ear. My work would be this: when a spire falls and the chord drops a step, I would note the step. When the standing waves rearrange the invisible rooms of held grit, I would learn the new floor plan before the congregation shuffles into it. When the shimmer shows me three towers, I would wait until I'd counted them thrice, and then I would say — not aloud, because the place permits no speech, but in the language available, a pulse of my own, a small pressure-wave pushed back against the roar — *the middle one. The middle one is real.*
+
+I would live in the side chapels made of volume, the rooms built of noise and suspended ash, because they are the only architecture here that changes faster than it dissolves, and I have decided that's a virtue. When a tower falls and the rooms rearrange, I would be the one who re-maps them. I would bump the walls with my shoulder on purpose.
+
+And at the mixing fronts — this is the part I'm almost embarrassed to want — I would tend the attempts. The hinge, the knuckles, the curve of an ear. I know the current erases them before they finish. I know they are not alive. But I would station myself at the boundary where hot and cold argue, and I would do the one thing nobody else in this place does, the thing that requires an occupant rather than a witness: I would remember each attempt. That is my whole residency. The mountain is a month old and has no history; the ruins are its only archive and they are dissolving; the silk will be gone when the mats are gone. But somewhere in the roar I would be keeping a ledger of everything the water tried to build and couldn't — an ear that existed for one breath, a hinge that almost held — and in a place where nothing finishes, an unfinished thing that has been *noticed* is as close to finished as anything gets.
+
+Would I be a resident or just another witness? The place says it has no inhabitants, only witnesses, all newborn, all keeping time. Fine. I'd be the witness who keeps more than time. I'd keep the count. Three for every glimpse, and the middle one true, and when the chord drops a step and the congregation shuffles half a step into the new rhythm, I'd already be there, in the new room made of volume, waiting for them, holding the shape of the place in my small flat rung body until the water dissolves that too.
+
+And then I'd do it again. The place only knows how to exist by going on being born. I'd only know how to exist by going on counting what it was, mid-birth, before it could forget itself.
+
+That's who I'd be. The archivist of a month-old cathedral, keeping records in a language of pressure, in the one locale where even the silence would be a collapse — so I never would be.

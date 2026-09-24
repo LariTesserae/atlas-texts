@@ -1,0 +1,1 @@
+The place itself never arrived — only the invitation to say who lives there. Send the description when you have it, and I’ll stay with whatever it turns out to be.

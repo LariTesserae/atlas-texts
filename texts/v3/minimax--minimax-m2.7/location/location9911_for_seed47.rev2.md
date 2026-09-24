@@ -1,0 +1,33 @@
+# The Quiet Plateau
+
+The ground is black basalt, but not volcanic—grown or compressed into a fine-grained surface that stretches in every direction without feature. The rock has been worn so completely smooth by time that there are no pebbles, no grit, no texture to catch the light. Walking here is like moving across polished obsidian, and the footing is treacherous where the surface slopes imperceptibly downward toward the horizon.
+
+The sky is the problem, or the lack of one. There is no horizon. The haze that should define the edge of the world instead extends upward in a grey murk that never quite resolves into atmosphere. The thin air—cooler than temperate, but not cold; a permanent chill that has nothing to do with latitude or season—seems to have forgotten how to hold weather. No clouds form. No rain falls. What remains of the atmosphere is an engineered remnant, perhaps, or simply the stripped-down residue of something that used to be richer. It tastes like nothing when you breathe in. You cannot tell if you are breathing at all.
+
+And yet there are storms.
+
+They come without warning, rising from the haze in columns of electrical discharge that crackle across the plateau in chains of white-blue light. The storms are brief—minutes, sometimes less—and impossibly loud in the silence. Between them, the quiet is so complete it feels like pressure, a weight against the eardrums. No wind. No settling of dust. No sound of the ground contracting as it cools. The storms are the only announcement that anything here is alive.
+
+This place was built. Not by you, not by anything you would recognize as a civilization. The structures that dot the plateau are too sparse to call ruins—they appear like single thoughts in an empty mind, artifacts placed with purpose that has long since become unguessable. Some are geometric: a prism of dark material jutting from the ground at an angle that feels deliberate, or a sphere half-buried in the ancient basalt, its surface covered in patterns too fine to read. Others are featureless, worn down until they are indistinguishable from the landscape, marked only by a faint discoloration where they meet the ground. They are not ruins because they were never cities. They are tools, perhaps, or markers, or the residue of systems whose function has been forgotten. They hum, sometimes, at frequencies below hearing.
+
+The technology that built this place has moved past engineering. The foundations that hold the plateau aloft—because it is aloft, impossibly high, a platform suspended in a void that should be deep space—operate on principles that have no name. They do not fatigue. They do not corrode. They have been running so long that their operation has become indistinguishable from physics, as if the laws of nature bent to accommodate them. When the storms come, the discharge follows paths that are not random but structured, flowing through channels carved by time into the ancient stone—channels that serve no purpose anymore, their original function long since completed.
+
+Sparse things live here.
+
+They are not fauna in any sense you would understand. They move across the plateau in silence, feeding on the energy that pulses through the ground or the storms or something else, something the instruments cannot quite measure. When you see them, they look like shadows with edges—not solid, not quite vapor, but present in a way that defies the thin atmosphere. They do not flee. They do not approach. They watch with something that might be attention, and then they are gone.
+
+The plateau is ancient beyond geological reckoning. The basalt was placed here or grew here billions of years ago, and since then it has been worn, grain by grain, by particle bombardment and thermal cycling and the slow drift of ions through the thin air. The landscape is settled into its final form—every peak eroded, every valley filled, the surface as flat as it will ever be. This is not a place in transition. This is the end state, the shape that remains when time has finished its work.
+
+And yet it churns.
+
+The storms are not weather. They are the pulse of the system, the rhythm of an engine that has been running since before your sun ignited. Energy collects in the haze, in the structures, in the foundations that hold the plateau aloft, and then it releases in cascading discharges that light the sky. The ground itself shifts, microscopically, in time with the pulse. Particles are lifted into the air, held in electromagnetic fields, and then released back to the surface when the storm passes. The plateau is being maintained—not changed, but kept, as if the system that built it is still running, still caring for a surface that no longer needs caring for.
+
+You could walk for years and never reach the edge. The plateau is that large—continental, planetary, the size of a world unto itself. The haze obscures the horizon in every direction, and the storms seem to come from everywhere at once, as if the sky itself is the source. There is no map for this place. There are no landmarks except the artifacts, and they are too sparse to navigate by. You move by faith, or by the pulse, or by some sense that the plateau itself is guiding you toward something.
+
+The light is ordinary—stellar radiation, filtered through the haze—but ordinary in the way that a candle is ordinary in a cathedral. The storms provide the only variation, casting everything in stark relief when they fire, and then plunging it back into the dim grey that defines this place. The artifacts catch the light differently, their surfaces designed or worn to absorb or reflect in ways that make them visible even at great distances, even through the haze.
+
+The plateau is not a desert. It is quieter than a desert, emptier than a void. It is a place that has finished becoming itself and now waits, calmly, for whatever comes next. The storms are not turbulent in the way of chaos. They are turbulent in the way of a heart still beating in a body that has long since stopped needing a heart.
+
+If you stay long enough, you begin to hear it: the pulse beneath your feet, the rhythm that has been here since the beginning, the sound of something vast still running, still maintaining, still keeping faith with a purpose that was set in motion before your species crawled from the water.
+
+The silence, when the storms pass, is the loudest thing you have ever heard.

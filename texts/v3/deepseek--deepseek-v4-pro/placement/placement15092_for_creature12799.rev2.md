@@ -1,0 +1,13 @@
+The morning seep has begun, and with it the slow, ambient percussion of water finding its way from stone to stone. I am crouched in the angle between two walls, my back against schist so cold it burns even through the oiled wool of my cloak. The mist is thick today—thicker than it has been in a season—and I can feel rather than see the city waking: the subsonic groan of pakka stirring in the byres below, the scuff of leather on stone steps somewhere to my left, the faint vibration of a herder's whistle too high and thin for the ear but felt in the palms I press flat against the wall.
+
+My hands are working even now, signing into the wool of my own sleeves, a habit I learned before I could speak aloud. *Cold morning. Seep heavy. The wall is sweating well.* No one is there to read the signs, but motion is its own kind of thought. I find myself doing this often—narrating the world to an invisible listener—as though meaning only solidifies when shaped by the fingers.
+
+I am called Kerith, a name that in the older, slower dialect of the upper galleries means "one who waits at the edge." It was given to me by the Hand-that-Knows of my shift, old Ammen, who saw in me as a child a tendency to linger on the outermost terraces and watch the mist lift. I am not young anymore, nor am I old. I am in the middle of my carving years, that long stretch when a person is expected to shape stone and raise young and listen, always listen, to what the schist asks of us.
+
+Today I am meant to be on the east gallery, working the lintel of the new sleeping chamber my sister's daughter will one day roof. But the mist has thickened, and a stillness has come over me, the kind that the elders call *yarul-touched*: a moment when the breath of the mountain pauses, and you pause with it. In a city built on patience, even stillness is a form of labor.
+
+Above me, a skirr chatters, the sound muffled and directionless in the fog. A moment later I hear the soft plop of its egg dropping into a wall crevice nearby. Good. I mark the location in my mind: two handspans left of the moss seam shaped like a bent finger. I will send a child to collect it later, leaving one for the bird, as we always do.
+
+The light is beginning its slow climb toward the grey noon. In another hour or two, the mist will thin enough to see across the gully to the terraces of the next shift—the family of old Hanel, whose carvings are the finest I have ever seen, spirals so delicate they seem to move when you look at them sidelong. But for now, I am alone in the white, wrapped in wool and the scent of my own breath, my fingers tracing a silent prayer into the wool.
+
+*Let the stone open kindly. Let the seep return to Yarul. Let the bones of the dead hold fast in the walls.*

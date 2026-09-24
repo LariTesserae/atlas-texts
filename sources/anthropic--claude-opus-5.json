@@ -3,7 +3,7 @@
   "requested_endpoint": "anthropic/claude-opus-5",
   "endpoint_granularity": "house-tag",
   "date_first": "2026-07-25",
-  "date_last": "2026-08-16",
+  "date_last": "2026-09-24",
   "texts": 1053,
   "by_type": {
     "location": 250,

@@ -1,0 +1,24 @@
+# The Foundry Marshes of the Unfinished
+
+The world is being built by hand, and the hands are not yours.
+
+**The plain.** You stand on a floor of hammered bronze-copper sheets, continents wide, dim under a light with no visible source — a low amber glow that seems to come from the metal itself, from somewhere beneath it, as if the whole floor is a lantern skin stretched over a slow fire. The temperature confirms this: the ground is hot enough that rain cannot lie on it. And it rains constantly. Thin, warm rain, mineral-tasting, condensing out of the thick air only to hiss away again a heartbeat after landing. The floor steams everywhere at once. The whole world exhales.
+
+**The construction.** Nothing here is natural — or rather, "natural" has not yet been decided upon. This is a landscape mid-fabrication, geology replaced by assembly. Ranges of scaffolding rise in the far distance like mountains that haven't been filled in yet, their ribbed frames already kilometers high, sheets of metal only partly skinned over them. Between you and them, the plain is a patchwork of finished sections and raw substructure: exposed girders, unsealed seams sweating orange condensate, floor panels still marked with chalk lines — long straight lines that fade if you look at them too long, because the chalk is not chalk and the one who drew it is still drawing it, somewhere ahead of you, always ahead of you.
+
+**The water.** Pools collect in the unfinished depressions, in the seams between plates, in the scooped hollows where the floor's skin was never closed. The water is hot, faintly luminous, and wrong — it reflects things that are not above it. Look into a seam-pool and you see not the dim sky but scaffolding seen from underneath, or your own hands, aged, still working. The rocks — the few cast blocks scattered like forgotten tooling — weep steadily, though nothing rained on them, as if they have simply decided to grieve.
+
+**The storms.** The world is turbulent at the pace of manufacture. Whole kilometers of completed floor are, without warning, *unscrewed* — panels rising one by one into the murk, in reverse order, patient as un-ringing a bell — and then new panels descend, differently arranged. This is weather. The inhabitants, if you can call them that, watch for the telltale clatter of loosening rivets and move aside. You learn quickly to sleep with your feet pointed toward the sound.
+
+**The makers.** There are figures here, sparse as landmarks, a day's walk apart. Humanoid, or human-shaped, or shaped from the memory of humans. They work with mallets and tongs and hand-drills — nothing more advanced, and yet what they build has no business being built by such means: floors that continue themselves, seams that seal when tapped, water that obeys a chalk rule. Each maker tends one region and will not answer questions about the others. One of them, when asked who made *her*, pointed down through a weeping seam and said, "The ones under the floor are still doing the underside of me. I keep them fed." Then went back to hammering.
+
+**The quiet.** Mostly, silence — heat and steam don't carry sound well. But at intervals the whole plain rings once, a single enormous struck-bell tone from no direction, and every maker pauses, sets down tools, and listens the way you'd listen to a clock in an empty house. Then work resumes. No one has told you what the bell means. Some days it means a section is done. Some days it means a section is *undone*, was found to have been wrong for a thousand years, was quietly removed. You have seen the gaps. Rectangular absences in the floor, edges ground smooth, rain falling into them and never hissing back.
+
+**The rules, as far as you've learned them:**
+- Do not step on chalk lines; they mark what will exist soon, and being underfoot when soon arrives is fatal.
+- The rain falls upward at dusk, briefly, returning to the air it came from. Don't be under the pools when they go.
+- The makers will share water, food, tools. They will not share the plan. When you ask about the plan, they laugh — not unkindly — and say: *which one? This floor has been built eleven times. You're standing on the twelfth attempt of the first attempt.*
+
+**The far edge.** The horizon isn't a horizon. It's where the assembly *stops* — an abrupt seam between warm bronze floor and raw nothing, featureless, dim, unfired. The makers are working toward it, have always been working toward it, will always be. The rain condenses thickest there, as if the unfinished dark is where the water is made, and the world is drinking it in and sweating it back out through its floor, forever, until the work is complete —
+
+— which, on the thirteenth night, a maker admitted to you over a shared fire: it never will be. "The one under the floor," she said, hammering a rivet into the night, "keeps revising. That's not a flaw. That's what a world *is*."

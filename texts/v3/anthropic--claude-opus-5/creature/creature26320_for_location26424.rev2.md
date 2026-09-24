@@ -1,0 +1,61 @@
+They are mostly women, and you know them by the neck.
+
+A carrier from the Throat can be picked out of a crowd in a market two days' walk away. It is not the height of her or the colour of her. It is that she stands as though a weight has just been taken off her head and another is coming, so that the neck is short and thick and very straight, the chin level, the shoulders down and back, and the eyes fixed at a point some distance ahead and slightly above. She does not look at the ground. She has not looked at the ground since she was nine. Her feet are wide, splayed at the toe, the sole a horn-plate that takes a thorn without noticing, and green-stained from the ankle down for four months of the year. Her gait is the well-walk: flat, rolling, a metronome, never hurried, never slowed, because the pot on the head punishes both. At the crown of her head is a flat place where the hair grows thin in a ring the size of a hand, and on old women this has gone from a flat place to a shallow dish, and the dish is a thing daughters touch for luck.
+
+Each of them owns a head-ring, a coil of rag bound with cord, and the rings hang on pegs along the fourth landing in no order but an order everyone knows. You can read the whole household off that wall. Five rings missing at midmorning means five women below the wet line; the big ochre one gone at dusk means the eldest has gone down to sit with the water, which she does when something has upset her, and you should not follow.
+
+Eighty of them, near enough, in twenty-odd families that are really one family with old grudges. They own no fields. This is the fact under everything else about them. The village up on the dust owns the fields, and comes down with pots — two hundred a day, more in the dry — and pays into the Throat a measured share of grain and oil and cloth per household per year, and in exchange the eighty keep the machine. Nobody calls it a wage. The village calls them *the damp*, half affectionately. They call themselves nothing at all; among themselves the well is simply *the house*, and its nine tiers are rooms, and to marry in is to *come into the house*, and to be expelled — it has happened four times in memory — is to be *put out of doors*, which in a place with no doors means put up, into the light, onto the dust, among people with fields.
+
+They are deaf, most of them, by forty. The Throat pays in ears. It happens so uniformly that it is not thought of as affliction but as maturity, the way grey hair is; a man of thirty-five who still flinches at the swifts is considered young in a faintly embarrassing way. So they have two languages. The first is the bellow, the public register, flung across four tiers, deliberately coarse and simple because subtlety does not survive nine reflections — news, orders, insults, prices, the whole loud commerce of the shaft. The second is hands, and hands is the intimate one. Hands is what the old use for everything. Hands is where the jokes are, and the tenderness, and the things said about a neighbour with her back turned twelve feet away. Courtship is conducted almost entirely in hands during the swift-hours, when eighty people sit shoulder to shoulder in an unbearable shrieking and cannot hear their own thoughts, and two of them have a conversation at knee height that nobody else is looking at. A marriage in the Throat is understood to begin in a noise so total that it is equivalent to privacy.
+
+They are named off the water. A child takes the number of the step the water stood at in the month of its birth, so that there are a great many Twenty-Twos and Twenty-Threes, distinguished by nicknames that stick for life and are mostly cruel. There is one man called Thirty-Four, born in a drought nobody living remembers the whole of; there is no other Thirty-Four; he is considered unlucky, is consulted about weather, and trades on both.
+
+*
+
+The trades are few and each one is a lineage.
+
+The masons hold the bronze. Four chisels in a rolled hide, resharpened until they are stubs, and when a chisel is worn to the length of a thumb it is not thrown away — it is retired, laid in the lap of the god with the jar, and there are perhaps sixty of them there now, a heap of green nubs in a stone basin worn out of a stone thigh. The mason's work is not building. There is nothing left to build. The work is the equilibrium: to replace exactly as much stone per year as the year takes off, no more, and to do it in whatever stone can be got, which is why the colonnade of the sixth tier has one pillar of pale grey in a rank of ochre and everyone knows the story of that pillar. Their marks are cut small at the base of everything they set, in an alphabet they can write and cannot read, which is the fourth alphabet in the shaft and no more legible to them than the other three. They are aware of this. They find it satisfying rather than sad. It is proof that the house eats languages and goes on.
+
+The moss-scrapers work the treads below the fourth tier with wooden blades, every eight days, and this is the most important job in the Throat and is given to the meticulous and the humourless. They do not clear the moss everywhere. They clear it from the treads and the nosings and leave it on the risers and the wall-foot, because bare wet stone below the water-line grows something worse, a black slick with no beard to it, and the moss keeps it out. So they farm moss in order to have less of it. A scraper who takes too much is shouted at from four tiers up.
+
+The potters hold the measure. There is a master pot, fired generations ago, kept in a niche on the second tier with a cloth over it, and every pot made for carrying is checked against it by nesting one in the other, and a pot that does not fit is broken on the spot, because the whole building is dimensioned to that pot — the tread depth, the riser, the width of the flights, the height of the resting-bowls cut into the landing walls. The master pot is the only object in the Throat that is never used.
+
+The rope-women twist grass into cord that rots in eleven months in the wet and is therefore always being made, everywhere, by anyone sitting down. It is what hands do when hands are not talking.
+
+There is one drip-tuner. There has always been exactly one. She is old and her hearing is uncanny, and the reason it is uncanny is that since girlhood she has stopped her ears with beeswax through the swifts' two hours, which is considered by many to be a small, persistent blasphemy — the swift-hours are given to you, you are supposed to sit inside them — and is tolerated because the alternative is nobody who can hear. She knows the two hundred drips by pitch and can name the wall each belongs to. When someone cannot sleep she is fetched, and she goes along the tier at night listening, and hangs a clay pot on a cord under the offending drip, and tunes it by adding or pouring off water until the note it makes is a note the sleeper can lie under. There are perhaps forty of these pots hanging in the shaft at any time, each one a settled argument.
+
+And there is the family that holds the bottom. They take the bat guano off the ninth gallery at night while the bats are out, in baskets, up nine tiers, and it goes to the fields above and is worth more per basket than grain; and in the hottest month at the dark of the moon the same family sends its two or three strongest down into the water with a sinking stone and a rope and oil rubbed over them against the warmth, to sweep the basin floor. The silt they raise is the best soil in the district and is fought over. The family smells, marries only within itself, sits apart at gatherings and knows its own worth to the last basket. They are the only people who touch the bottom of the world.
+
+They pass down one sentence about what is under there. They do not say it aloud and they have never said it to anyone else, and it is not clear that all of them believe it.
+
+*
+
+The others who live here are not thought of as wildlife. They are thought of as tenants with rights.
+
+The swifts hold the upper joints outright, and their tenancy is written into the maintenance calendar: no work is done above the third tier between the month the birds come and the month the last young fledges, whatever is cracking. Ten thousand of them, and twice a day for an hour they own the air and the ears of everyone in the shaft, and that hour is rest, not by kindness but by physics.
+
+The doves are food, occasionally, and are otherwise furniture.
+
+The bats are a crop.
+
+The frogs are citizens. They are counted every spring by the children, who go round the reed-line at dusk tallying calls on knotted string, and the count is announced, and a low count is bad news of a kind that makes the old quiet. When a die-off came two generations back, four men walked eleven days to a stepwell in another valley and negotiated for frogs, and came back with them in a sealed jar, and that journey is one of the three stories every child in the Throat can tell.
+
+The bees in the sixth-tier crack are left alone and are understood to be holding something up.
+
+And the fig is a person. It has a name; the face carved in the fused root is its face and is oiled at the turn of the year; in the drought that made Thirty-Four's name they carried water *up* nine tiers, a pot at a time, for eleven days, to a tree. Ask them why and they will look at you as though you have asked why they fed their grandmother.
+
+*
+
+Then there is the water, which is the eldest inhabitant and the best-mannered.
+
+It keeps the house rules better than the people do. It never stands halfway up a riser. It comes and goes only at night, and only by whole steps, and lays its edge along the front of a tread as neatly as a woman setting down a pot in a resting-bowl. This is not regarded as a marvel. It is regarded as courtesy, and it is returned: you do not shout at the water, you do not enter it except to sweep it, you announce yourself to it when you come down at night, and when the count changes in the night, whoever notices first says so quietly to the wall before saying it to anyone.
+
+The risers are notched at the shoulder with tallies of how often each has been the waterline, and the deepest-notched of them all is the twenty-second, and to say *the house is at twenty-two* is to say that things are as they should be.
+
+On the fifth landing, in the third bay, people shout sentences at the middle pillar and receive them back shuffled, and because the sentence comes back changed it is held to have been *taken*. Children keep the list of good ones. Adults use the bay for what cannot be said flatly — a proposal, an accusation, a confession of a debt — because a thing said there is answered by the house, in the house's own arrangement of your words, and that answer is binding, and afterwards it is nobody's fault.
+
+Nobody sleeps on the ninth tier, where the shelves are cut and the air is warmest. The ones who try report the same dream with a consistency that has stopped being interesting and become simply a fact of the place: the well empty of people, lit from below, the water at the lip, flat as a floor, and themselves standing out on it. And more to the point, they are found at the waterline, awake or nearly, with their feet in it, having walked down the western flights in their sleep, past the eleventh step from the bottom, which is a finger too high, and which did not stop them.
+
+At night, in the gap between the last frog and the first swift, the shouting is gone and the drips come forward — two hundred pitches, and forty of them tuned, and the channel on the east wall gurgling under everything — and the whole shaft takes a slow warm breath upward and lets it go, and condensation drops off the undersides of the landings in a rhythm you can time your own breathing against.
+
+That is the hour in which it is clearest what lives here. Eighty people live here, and they will tell you so. But they are the hands of it, the way the masons are the hands of an alphabet they cannot read. What lives here is a made thing, nine tiers deep, entirely faced, entirely worn, kept exactly level with its own decay, and it has held four languages and outlasted all of them, and it is being carried up the eastern flights one pot at a time by a woman who does not look at the ground.

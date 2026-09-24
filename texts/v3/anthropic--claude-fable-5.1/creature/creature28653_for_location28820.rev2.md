@@ -1,0 +1,55 @@
+Nothing lives here. That is the plain's first answer, and it gives it the way it gives its flatness — true at the scale of the eye, false at the scale of the hand. Kneel. Wait through three or four strokes. Things begin to show.
+
+---
+
+Start with the smallest, because it is also the oldest.
+
+The slime in the pools is not a plant, and it is not green when you look at it directly. It is a film the colour of wet ash lying on wet ash, a hair's thickness, indistinguishable from the fill beneath until a big engine strokes and the whole sheet of it goes pale for half a second and then dies back. It does not live where the reeds live. It lives in the other places — the antinodes, the stretches of plain where the beats from two or three engines arrive together and the ground is shaken hardest — exactly the ground on which nothing with a root can hold. The reeds have the lines of quiet. The slime has everything else. Between them they have divided the basin along boundaries neither of them can perceive, and the boundaries drift, and they drift with them.
+
+It eats the beat. There is no other way to say it. There is nothing here worth calling light; what it takes from the water is iron and sulphur and whatever else the fill gives up as it is shaken, and the concussion is what drives the water through it, pulse after pulse, the way a bellows drives air. The glow is its waste. A pool that has lain under a strong engine for a century is thick with it, and after a stroke the light runs across the water in the shape of the standing wave — a grid of points, a spiral, a ring — and you understand that what you are seeing is not the pattern of the water but the pattern of the feeding.
+
+When an engine falls silent the slime in its region goes dark within a day and stays dark. The reeds come in over it. When the engine is restarted, years later, the film returns from nowhere — from something in the ash that has waited through the whole of the quiet without changing — and the reeds die back to their lines, and the pool begins to flicker again. It is the one thing on the plain that the sound does not wear down. It is the one thing the sound wakes up.
+
+---
+
+The reeds you have seen. What you have not seen is that a bed of them is, very likely, one plant.
+
+Nothing here sets seed. A seed would fall, and the ground beneath it would be shaking, and the shaking would carry it off the line of quiet in an hour. So the reeds spread the only way they can, by the root, along the node, a hand's width in a year. A bed that runs for a mile beside a drainage channel is a single organism that has crossed that mile by dying at one end and growing at the other. It has never once been anywhere the sound was strong. It has followed the quiet as the quiet drifted, faithfully, for as long as there have been engines; and if you could stand on the rim with a century's patience you would see the grey-green lines creep across the black plain like the hands of a clock that measures the ageing of bearings.
+
+It does not know the sound exists. There is nothing to know; it lives entirely inside the one place the sound is not, and has never had a comparison. In this it is like everything else that lives here.
+
+---
+
+Fireboxes do not stand ajar by themselves. Somebody left them so.
+
+This is the evidence, and you have to build from evidence, because you will not see them. The fog is thick, and they do not come out to be seen, and the plain does not take footprints — but a person crossing a pool breaks the standing wave, and for a moment after they have passed there is a wake in the pattern, a smeared line where the grid does not hold, and then at the next stroke it closes. You may see that. You may see a lamp move in the smear of light at the base of a distant engine, and a door go from orange to black. That is what there is.
+
+Start with where the coal comes from, because there is no coal here. Then correct yourself: there is. The plain is furnace ash, and no furnace ever burned clean. Every barrow of clinker that was ever tipped on this ground carried its fraction of coal that went through the fire and came out the other side, unburnt, and was thrown away with the rest. The tenders dig for it. Around each engine-house the crust has been lifted, in a wide, shallow saucer, and sieved, and put back; the ground there is finer and greyer and more worn than anywhere else on the plain, and it is because the plain has been through more hands there. They burn the ground the engine stands on. The ash goes back onto the ground. In a year they will sieve that too, and find in it what the fire missed a second time. The engines eat the plain, and the plain is the ash of everything the engines have ever eaten, and the layers go down for ever, and no one has found the bottom.
+
+Now the hands.
+
+The brass is worn to the shape of hands — you have heard that, and it is true, and if you go in and hold a handle you will find something stranger: it is worn to the shape of *one* hand. Not a hand-shape, generalised, the way a rail is smoothed by a crowd. One grip. A thumb here, the heel of the palm there, over the whole life of the engine, as if only ever one pair of hands had held it. There is no need for that to be a mystery. The brass shapes the hand as much as the hand shapes the brass. Whoever comes to the handle grows into the hollow the last one left, and leaves it a fraction deeper, and the next one grows into that. What lives in the engine-house is not a lineage of people so much as a lineage of grips, passed on through the metal.
+
+They are deaf. Not deafened — there is no story of a hearing lost. They are deaf the way a fish is dry-blind: hearing is not a faculty the plain supports, and it was not brought here. What they have instead is the beat. They know the engine through the soles of the feet and the bones of the face, and they know it better than you know your own pulse, because your pulse is inside you and the beat is inside everything. They walk in step with it; everyone who stays does, within a day, and cannot help it. They know a bearing is going by a change in the taste of the fog, a sourness of hot brass a week before it fails. If they speak to each other it is through the iron — a palm laid flat on the beam-housing, a knock, and at the far end of the house another palm feels it and answers. There are two or three of them to an engine, or one. Between engines there is no one, and no one crosses, except along the node lines where the reeds are, because the reeds are where you can stand.
+
+Their bodies have been here as long as the brass has, and the plain has done to them what it does. Their edges are going. This is the thing to sit with, because it is the thing they most are: not people who tend the engines but a part of the plain that has not yet been laid flat. Their skin is the colour of the crust and always wet. Their hands have thickened into the shape of the work until it is difficult to say where the glove of callus ends. They are not tall, and they move low, and they do not sleep so much as lie down inside the sound and let it hold them, and wake when it changes. What they eat is reed-root and the bitter bark of the small willows and whatever the pools give up, and it is not much, and they are not many, and they do not need to be.
+
+There are children, sometimes. Few. Born into the beat, so that the first thing they ever knew was the plain coming up through their mother's ribs, and they never in their lives learn what silence is. If you could tell them of it they would understand it as a kind of death, and they would be right, because on the plain it is: the quiet is the flood. They grow into the grip. They put their hand where the brass is hollow. The engine strokes.
+
+And the old ones wear out like the bearings. There is no other word for it. Every stroke takes a little from them, as it takes from everything, and when one has been taken from enough they go out onto the plain, along a node line, to a place where the reeds are thin, and lie down. And the beat does what it does. It shakes them level. It jostles them into the hollows and rounds their edges and lays them into the fill, a hair's breadth at a time, until they are a slightly different colour, a slightly different grain, and then the same. The rust-brown layers far below, the fill that is older than anyone's memory of works — a part of that is them. The plain is made of the people who kept it dry. The engines eat the plain; the plain is the tenders; the tenders feed the engines. You could not, from inside it, find the place where the loop began.
+
+---
+
+There is one more inhabitant, and it is the one the others exist for.
+
+The water lives here. Not the pools — the pools are its fingers. The thing itself is under the fill and outside the rim and in the air, all at once, and it is the only presence on the plain that has never been worn down by the sound, because it has no shape for the sound to take. It is the head the engines labour against on the bad nights. It is what comes up through the ground on the water's own schedule. It is not waiting, because it does not need to wait; it has been arriving for as long as the engines have been lifting it, and the two things are one process, and it does not know that it is losing or winning, and it is not.
+
+The tenders do not hate it. There would be no sense in that. It is the reason there is a grip in the brass for a hand to grow into. When an engine falls silent and the water rises over that stretch of plain and the reeds thicken and the slime goes dark, the tenders of the neighbouring engines feel the load come onto their beam — a deepening, a labouring — and they open the firebox a little wider and sieve a little more of the ground, and they do not think of it as a fight. They think of it as the beat changing, the way weather changes. They lean into it.
+
+---
+
+So the answer to who lives here is not a list. It is more like a single organism with several organs, the way the reed bed is one plant.
+
+The slime that feeds on the beat and the reeds that hide from it. The tenders, who are the plain not yet laid down, sifting the plain that is. The engines, which are the only things here that move by their own will and have none, worn into the shape of their running. The water, which has all the time, and the sound, which has all the rest.
+
+If you have to choose one thing and say *this is what lives on the plain*, it is the beat. Everything else is what the beat keeps — keeps fed, keeps flat, keeps quiet along the lines where it cancels, keeps in the shape of a hand on a handle. It has been arriving for longer than anyone remembers and it is nearly finished, and when it is finished the water will come and the quiet will come and they will be the same thing, and until then a palm goes down on the iron somewhere in the fog, and a firebox door opens and closes, and the ground comes up through the soles of the feet, and comes up through the soles of the feet, and comes up through the soles of the feet.

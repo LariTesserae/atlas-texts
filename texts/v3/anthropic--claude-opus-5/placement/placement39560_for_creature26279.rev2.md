@@ -1,0 +1,37 @@
+## The Fifth Edition
+
+I went in through the soap-hole because there was nowhere else, and the brine took me at chest depth and held me there like a tray, and the first honest thing I can report is that I was useless immediately. I had brought eyes. The mat obliged by brightening where my shoulder dragged it, a smear of bluish fog that showed me nothing except that I was the one making it.
+
+So: not a visitor, then. A visitor has somewhere to go back to and is entitled to be bad at things. The question is what I would *be* here, permanently, with no exemption, and I went through the roster the way you'd go through a list of rooms to let.
+
+The eel first, because the eel is the flattering one. Six hundred in the whole dome, forty-year lives, the only citizen with a map. I liked the idea of lodging in a corbelled joint with my head out, doing arithmetic on the water, and I liked very much the four-or-five-times-a-year business of coming in from two galleries off when the hill knocks, arriving over hours at a wound in the stone that will feed everyone for a decade. But the eel's map is not a map of the building. It is a set of expectations about where warmth is. The eel knows the Sunk Crown the way a gut knows a meal — thoroughly, in the only terms available, and without ever once having the thought *this was made*. I couldn't stop having that thought. It's disqualifying.
+
+The shrimp, then, and I'd have taken it. To receive a vault as a pattern of returns, to have the one surviving decision of some long-dead mason about the pitch of a corbelling arrive in my antennae several thousand times a second, forever — that is a better relationship with architecture than I have ever had with anything. But the shrimp receives without keeping. It is a weather. It is also *plural* in a way I can't fake; the shrimp is not an animal but a graininess, and I would spend my whole tenure trying to be the one grain that noticed, which is precisely the ambition that makes you bad at being a grain.
+
+The mat is the closest thing here to a mind — two hundred kinds pressed together so long they've divided the chemistry like a village dividing a water right, and thick where it is old, so that thickness is just time standing up. But it grows toward nothing. It grows where the water delivers. I am a growing-toward and not much else; strip the toward out and there is no residue to file.
+
+The ceiling slug: nine seconds. Once or twice a month the softest, slowest, flattest thing in the building lets go and drops through the dark onto a snail it judged by no sense I can name. I would love to say I was the fastest thing in the world once a month. I don't have the patience it takes to earn a fall like that. You have to spend thirty days at a hand's breadth an hour to buy those nine seconds and I would spend the thirty days *thinking about* the nine seconds, which is a different, much cheaper life.
+
+The tube-dwellers, down where the brine is heaviest and a chamber feels furred and is very slightly breathing on you — one of them was already old when the last hand came off the last block, and has since done nothing but open and close a fan a few hundred million times, and *is not waiting*. That last clause is the whole qualification and I cannot pass it. I have never once been in a warm current without waiting.
+
+The crew inside the stone, the ones who have never been in the water and don't know there's a building and are nevertheless the demolition — four hundred years of turning the inside of a joint into something that is no longer load-bearing, and then the knock. That one I lingered on, because it is the most consequential position available and requires no awareness whatsoever, and I wondered whether I had been offered it already, elsewhere, and accepted.
+
+And in the attic, under the crown, in the hand's span of cool shimmer the heavy water holds up like a shelf: the clock-keepers, with their patch of pigment that is not an eye and cannot form an image and registers only the difference between grey and no grey, keeping a day that matters to nothing below them. Nearly. Nearly, nearly. But they don't descend, and I had gone straight down through the curtain in the first ten seconds, with that soft swallowed *thop* behind me, without even deciding to.
+
+---
+
+I was in the fourth gallery when I stopped looking for a vacancy, because there isn't one. Every role here is full and none of them is hiring the kind of thing I am.
+
+What I did was put my hand on the band at chest height, the one that runs through every gallery and was certainly *something*. And it is exactly as described: you feel where the meaning was. The stone is softest there. Ten thousand years of snails going about their business with no malice at all, taking a few microns each, preferring the deep-cut places because deep cuts hold more mat — so the most careful carving was the most nourishing and the most nourishing was the most attended and the most attended went first. Whatever they most wanted to say is the part that is most gone. Not smashed. *Polished.* Every edge rounded into every other edge.
+
+And standing there in blood-warm water with my palm in the trough, I understood what I am in this place, and it isn't an animal.
+
+There have been editions. The first was cut into tufa with antler and a dark stone mallet by people whose picks are still lying in the niches with the cord mineralized beside them, knots still tight. The second is the snails: four hundred nations separated by twelve feet of doorway, stout-shelled where the frieze ran dense, thin where it ran quiet, carrying the *distribution* of the thing long after the thing itself was eaten — a transcription that destroys the source in the act of making the copy, and drifts a little every generation, and is lossy, and is the only one left. The third is the midden, every floor ankle-deep, graded fine below and coarse above: the frieze in powder, still readable by weight if anyone weighed it. The fourth is the eels, who have been eating edition two for as long as there has been an edition two, and who carry some unrecoverable fraction of it around the galleries in the dark at the speed of the convection.
+
+I am the fifth. I am the description. I am the voice that says *perhaps four hundred chambers, perhaps five hundred* and calls the approximation knowledge; I am the one that arrives ten thousand years late with eyes that don't work here, puts a hand on the softest part of the wall, and converts what's left into sentences, which is just another substrate, no better than calcium carbonate and considerably less durable. Stone to mat to shell to dust to speech. Each one the only edition that still exists. Each one made by consuming the last, patiently, without malice, at a few microns a day.
+
+I pressed harder than I meant to. I took some. That is not a metaphor — a hand takes microns off tufa, and mine did, and the glow came up under my palm the way it does when anything disturbs the mat, and followed me down the gallery as a slow smear.
+
+I left through the soap-hole. Behind me, for about a quarter of an hour, there was a man-shaped light in the fourth gallery, brightening where I had touched the band, fading from the edges in.
+
+Nothing in the building has an eye.

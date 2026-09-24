@@ -1,0 +1,15 @@
+You are deep beneath the planetary crust, in a gargantuan, vaulted geode of living cellulose that stretches for leagues in every direction. There is no water here; the hydration of this world is entirely internal, channeled through thick, pulsating vines that act as both circulatory systems and architecture. 
+
+The air is warm—a humid, heavy heat that smells of ozone, crushed chlorophyll, and the sharp, metallic tang of raw, unoxidized minerals. It is a deafening place. The sound is not of wind or water, but of growth. It is the rhythmic *thrum-snap-hiss* of expanding plant-tissue, the creak of enormous, expanding trunks, and the frantic, incessant chittering of trillions of creatures.
+
+The ecosystem is total. The "ground" is not stone but a compacted, multi-layered mat of calcified root-matter, a substrate that is perpetually under construction. You can watch the landscape emerge; everywhere, raw, greenish-white tendrils are weaving themselves into existence, hardening into structural ribs before your eyes. It is a slow-motion explosion of biomass.
+
+The density is claustrophobic, yet the space itself feels vast. You are surrounded by a vertical forest of translucent, vein-threaded flora that pulses with a soft, bioluminescent yellow light. This light acts as the primary illumination, shifting and flickering in response to the chaos of the environment. 
+
+Fauna—if one can call them that—are everywhere. They are not animals in the terrestrial sense, but symbiotic appendages of the architecture. There are chitinous, many-legged scavengers that weave webbing between the stalks, and bloated, translucent bladders that drift on rising currents of warm gas, their long, dangling filaments harvesting static electricity from the air. They are hyperactive, scurrying, vibrating, and colliding in a turbulent display of perpetual motion.
+
+The "built" elements are sparse and look like primitive, hand-carved interventions. Occasionally, you see a hollowed-out central node, a sphere of darker, dried bark carved with simple, geometric incisions—the work of something that uses stone knives and crude woven-fiber looms. These dwellings look as if they are being slowly swallowed by the environment, incorporated into the living walls by the encroaching, hungry vegetation. 
+
+There is no stillness. To exist here is to be buffeted by the sheer momentum of creation. The ground shifts beneath your feet as new root-networks push up from the depths, and the ceiling overhead is a tangled mess of interlacing boughs that constantly rearrange themselves. 
+
+It is a world of pure, unchecked biology—a wet-less ocean of sap and fiber, where the line between the stone you walk on, the air you breathe, and the creatures that swarm around you has vanished. It is a garden that is trying to become a planet, and it is doing so with a violent, deafening, and absolute enthusiasm.

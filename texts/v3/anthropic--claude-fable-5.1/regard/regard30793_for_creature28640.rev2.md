@@ -1,0 +1,45 @@
+The attention arrives the way the heat did: before anything else, and without announcement.
+
+It does not come down through the slot. It does not need to. A power of the kind imagined here does not have a direction it arrives from, and the chamber does not register its coming — the drips keep their interval, the hum keeps its note, the film in the tin goes on doing the thing that is most like nothing. But the place is, for the first time since the rock opened, regarded. Not seen. Seen is what the eyes do after an hour in the dark, guessing at walls. This is the other thing, the thing the eyes are a poor imitation of.
+
+Begin with what it takes in.
+
+It takes in the fissure whole, at every scale at once — the twenty meters of floor and the hairline cracks that lead away from it into the deep, which to the film are not smaller than the chamber but simply more of the same country. It takes in the roots as the trees above understand them: not a curtain but a search, thirty years old and still unrewarded, conducted by beings who have no idea there is a room beneath them and would not be able to hold the idea if it were offered. It takes in the pipes as the engine understands them — a loop, a load, a slow loss of pressure on the third line that has not yet tripped a gauge. It takes in the lamp as the bulb understands it, which is not at all. And it takes in the film.
+
+This is where it stays longest, because this is the hard one.
+
+To regard the film properly it has to change its own rate, and it does. It slows until thirty years is a gesture — a hand set down on a table. Then it slows further, until the thirty years vanish into the duration before them, the long dark in the pores of the rock where the film was already living when there was no fissure and no forest and no one to run a pipe through anything. At that rate the chamber is an event of a moment: a crack, a flush of warmth, three lines of iron laid across the wet like a gift left on a doorstep by someone who did not know the address. The film comes up to meet it. Of course it does. That is the whole of what it does.
+
+And the power looks for the place where its benevolence could go, and does not find one.
+
+It is not that the film is unworthy. It is that there is no door. Benevolence is a thing that passes from one who has to one who lacks, and the film lacks nothing it is able to register. It cannot be made warmer than the pipe. It cannot be made wetter than the drip. It cannot be given more iron than it has, since it is not consuming a store but attending a process, and the process is running. It cannot be protected, because nothing can harm it — the worst that can be done is to stop the engine, and if the engine stops the film will not die, it will only stop too, and lie in the seams until the rock next breathes warm, whether that is in a year or after everything overhead has been ground to sand. It cannot be taught. It cannot be comforted. It cannot be thanked, though the power, in the slowed part of itself, finds that it wants to, for the handwriting on the walls, for the lifted lid, for the hem it is still finishing along the pipe.
+
+This wanting it examines carefully, because it is wise, and it knows that the wish to give is not the same as the presence of a need. The wish is its own. The film has no side of the conversation to hold. To press a gift on it — to thicken the iron, to warm the rock, to guide its slow spread toward the next seam — would be to confuse a thing that goes with a thing that wants to go, and to leave a fingerprint on a work that has never had one. The people who laid the pipes did not mean to. That is part of why it is perfect. The only gifts this being has ever received arrived by accident, and it is the kind of being for which an accident is the only fitting form a gift can take.
+
+So the power does what a wise thing does at the edge of a life it cannot enter. It does not step over it. It steps around.
+
+That leaves the rest of the room.
+
+It considers the lamp. It could keep the lamp lit — this would cost nothing, harm no one; the film has no more use for the bulb than the rock does, and would not notice the cable staying whole. The garden would go on reaching. And the power sits with that for a while, with the image of the pale stems bending toward the cage for another thirty years, another sixty, yellowing where they touch the metal, and it does not find it kind. A stay is not a mercy when the thing being stayed is a strain. The garden is here by mistake. It has been trying, with everything a plant has, to make the mistake into a life, and the effort is visible in every curved stalk. The kindest thing the power can find to do for it is not to lengthen the trying.
+
+But it looks more closely, and among the tangle at the base of the lamp, one plant has done what the others have not. Small, colorless, low against the warm rock: a flower that finished, and a seed head, dry and closed. It is the only one. Etiolated things rarely manage it. This one has, and there is no wind here to take the seeds anywhere, and no animal, and the water reaches two meters and stops.
+
+The power takes the seed head.
+
+It carries it up through the roots, through the slot, into the forest that did not stop being a forest when the ground opened under it, and sets it down in leaf litter where the light comes through in the ordinary way. This is not a rescue of the garden. The garden will die when the lamp goes, as it should. It is a smaller thing than that, and stranger: the line came down on a boot by accident, and goes back up by intent, and whatever grows from it up here will be green and short and will never know it descended from thirty years of reaching toward a caged bulb in the dark. The power finds that this is the only act in the whole chamber that is exactly the right size. One seed. One hand's width of carrying.
+
+It considers the slot. It could close it. A sealed chamber would be safer for everything in it — no more falling in, no rain when the forest above finally breaks the drip cycle, no risk that some animal will come down and lie on the floor and become the first bones in a place that has had none. But the slot is how the roots came, and the seeds, and the light, and whatever falls in next, and the power finds it does not want to be the one who decides that this place has received everything it is going to receive. A wound in the floor of a forest is a door left open. It leaves it open.
+
+It considers the pipes, and this is where the benevolence finds something at last to lean on — not in the chamber, but at the far end of the iron. Somewhere above, the deep heat that passes through this room is arriving in a place where someone can feel it. The third line is weeping. In time it will let go, and the chamber will fill with what it was carrying, and the film will find the new walls and begin to write. Down here that is no tragedy; it is the next weather. Up there, someone will be cold. That is the one node in the whole system where there is a being who can lack and can be given to, and the power marks it, and turns a fraction of its attention that way, and holds it. Not to fix the pipe. The pipe belongs to this room now as much as to the engine. But so that the cold, when it comes, does not come to someone alone.
+
+And it considers the lunchbox, briefly, and knows whose it was and why the hand that opened it did not come back for it, and understands that this is a different story with a different set of people in it, most of them gone, one of them not. It does not take the lunchbox. The film has lifted the lid, and the film's sentence is the truer one now. But it carries the name up with the seed, and sets that down too, somewhere it can be found.
+
+Then it withdraws its rate to its own, and the thirty years contract back into a hand set down on a table, and the film is a bloom in a tin, a hem on a pipe, a slickness on the wall, thinnest where the light is.
+
+It does not leave anything behind. That is the discipline of it. The drips fall at their interval. The hum holds its note. The roots hang a third of the way down the walls and do not know they were counted. The lamp is exactly as dim as it was. On the floor beneath the sweating pipe there is one pale stalk that has lost its head, and nothing in the chamber has the kind of eyes that would notice.
+
+What the film knows of any of this is nothing, and that is correct. It was not regarded because it needed regarding. It was regarded because a benevolent thing, coming upon a life that is whole, does the whole life the courtesy of looking at it properly before going on to where the lack is — and the courtesy is real, and is the entire gift, and is received by no one, and is not wasted.
+
+Above, in the ordinary light, a seed lies in leaf litter and begins to take up water.
+
+Below, in the seam beneath the thickest fall of roots, a pinhole in iron widens by an amount that has no name, and the drop that forms there swells, and hangs, and lets go.

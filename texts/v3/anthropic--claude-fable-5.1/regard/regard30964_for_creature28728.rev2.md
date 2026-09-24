@@ -1,0 +1,53 @@
+Begin with what it does not do.
+
+It does not come as a stranger, because there are no strangers here and the arrival of one would be the first violence. It does not come down a stair with light on its face; the plateau has that already and knows what to do with it. It does not speak. There is no one to speak to who has a word for what it would say, and a wise thing does not hand people words they will have to build a grief around.
+
+It comes up in the cloud. That is the plateau's own door for things that were not sent for, and the power is courteous enough to use it. One morning the fog comes through the fourteen decks a little warmer than it should, and beads on the fern-fronds a little heavier, and passes over the beds and the pump-houses and the twelve brick towers and the ranks of pale lizards just waking on the rivets, and stands in the canopy for the length of a breath before the sun takes it. That is all. A tower-keeper on the north cistern feels the chord come up into her palms half a heartbeat early and does not know why. A crew-woman on the third return finds a snail where no snail was yesterday, and lifts it, and moves it, and does not think of it again.
+
+And the power looks.
+
+---
+
+It looks the way the plateau has taught everything on it to look: from the shade, into the seen. It takes its time. It has more of that than the plateau does, which is the first thing it learns and the thing it will not stop knowing.
+
+Because it can count the coal. Not from the galleries — the stokers are right, the fire is not approached — but from the other end, from wherever the rattling belt begins in the cloud, and the power can follow a belt. It follows it down. It does this before anything else, and the reason is simple and is the whole of what wisdom means here: the plateau's account of itself has a hole in it, and the hole is *below*, and a thing that acts on a world it has only seen from the top is not wise, whatever else it is. Everything on the plateau turns toward the heat, and the heat comes from a place no one has seen. So the power goes to see it.
+
+Down through the lattice. Deck by deck. Past the sixth, where the cutters say the goats are not black, and the goats are not black; they are the brown of iron-stain, and thinner, and they look up at the fog going by them and do not startle, because nothing comes down from above but water and struts and neither has ever been a threat. Past the ninth, where a coil of rope is still tied to a stanchion, the knot gone hard as rivet under a fur of moss, and no rope below it. Past the eleventh, where the moss stops, because the heat of the mains no longer reaches and the iron is simply iron, cold and honest and eaten to lace. Into the white.
+
+It is a long white. The power is patient in it. And at the bottom the white thins to grey and the grey to a brown that is the first brown the power has seen in this place that is not rust — a country, flat and enormous, dry, scored with old channels, and standing in it on legs so wide their bases are hills, the piers.
+
+The power stands at the foot of a pier and looks up and cannot see the top. From here the plateau is weather. The fourteen decks are a shadow going into cloud, and out of the cloud, in a hundred thin ropes, comes the water, falling so far that it arrives as rain, and where it lands the brown is not brown. There is a ring of green at the foot of each pier, a mile across. There are reeds in the old channels. There is a grove of something that the power walks into and knows by the shape of the leaf before it reaches the fruit, and the fruit is a fig, and the fig tastes faintly of sulphur.
+
+Nine went down. Here is what came of at least one of them, or of the seeds in one of their sacks, or of a fig-root cut and thrown off the edge and carried this far in the silver rope: a grove at the bottom of the world, watered from the top of it, standing in soil that is the plateau's own soil come down as silt, grey in its lower layers with snail-shell. The power stands in it a long time. It does not find a person. It does not find bones. It finds, in the reeds by one channel, a sandal soled with split bamboo, rotted to the shape of a foot, and it lifts that with the same care the crew-woman gave the snail and puts it back.
+
+Then it finds the coal. It is not far. There is a cut in the country to the east, and a mouth in the cut, and the belt goes into the mouth on a rattle that has not changed pitch since it was set going, and there are no people at the mouth and never were — only the machine, chewing at a seam by a rule set before anyone's grandfather was born, feeding the chutes, going a hand's width a generation into the dark. The power looks at the seam. It counts. It does not say the number. It is enough to say that the number is not so large that the power does not have to think, and not so small that thinking is all there is time for.
+
+And under the belt, under the cut, felt in whatever the power has that answers to feet, is the other note. The cutters were right about that too. It is not a boiler. It is the country itself, the old bones of it settling, deep and slow, a chord below the chord, older than the plateau and going on without it, and the plateau's whole sound — the pumps, the shriek on the north sluice, the pressure in the chest that every child is born into — is a high thin harmonic laid across it. The plateau has never heard the note it is standing on. The power hears both at once and understands that this is what it came down to learn, and that it cannot be carried back up.
+
+---
+
+So. It has seen. Now what would it do.
+
+It could hold the piers. It has the reach for that. It could go along the fourteen decks like moss and take the weight off every lace-eaten strut and make the plateau a thing that does not shed, ever again, and the note would stop coming up through the feet, and the people would stop stopping to count. And then a woman's number would be the number she had the day the power arrived, forever, and the young would have no way to grow old. The power turns this over and sets it down. A world that cannot fall is not safer. It is only stopped.
+
+It could make the coal not end. It could reach into the seam and thicken it. And the fire would go on, and the fog would rise, and the forest would stand in its ancestors, and the water would fall on the grove at the bottom, and the plateau would be a thing kept, in the way a snail is kept on a gauge-face by a hand that will not let it move. The power knows the difference between tending and keeping. The crews know it too, though they would not say so: they do not repair the structure, they tend it, and what they tend they let eat its own edges. The power sets this down also. Not because it would be cruel. Because it would be a lie the plateau would have to live inside without ever being told.
+
+It could tell them. Put the words in — the grove, the machine, the number. And every grower stepping out onto the plate at noon with the cloth over her eyes would be stepping into the blur, and would know now that the blur was the truth and the seen was the guess, and the shade where things had been clear would fill up with shapes. They have made their eyes for this dark. The power will not blind them to be kind.
+
+What is left is small. It is the size of what the plateau does for itself, a hand's width a generation, and the power decides that this is the right size, because a wise thing that arrives in a balanced place does not add a new weight. It adds its weight to the side that is already there.
+
+First: it stays at the bottom. It tends the grove. This is the plateau's child and no one on the plateau knows it has one, and someone should. The power is fog in the morning at the foot of the piers now, and reeds by the channels, and the thing that keeps the goats off the young figs. It is making a place. It is not making it for anyone in particular. It is making it the way the beds were made — a little soil at a time, brought down in the water, in case.
+
+Second: the rope. On the ninth deck the knot has gone to rivet, and below it nothing. The power puts a rope there. Not a good rope; a good rope would be a stranger. A rope the cutters could have left, of bamboo fiber and fig-root, tied off badly, going down. And another on the eleventh. And a third at the lace, where the moss stops and the iron is honest and a hand needs somewhere to go. It does this over years, so that no one will notice a rope that was not there yesterday. When the tenth goes down — and there will be a tenth; there is always a reason, and the reasons are always different — the way will be a little less than nothing. That is all. Not a stair. A hand's width of one.
+
+Third, and last, and the one that is nearest what the power would call its heart: it goes back up. Not to stay. The plateau does not need it; the plateau has never needed anything that came up in the cloud except the heat and the frogs. It goes up at evening, in the hour when the pumps cycle down and the forest begins to tick and rasp like a second machine, and it goes to the edge — not the cutters' edge, the near one, where the sluices run off — and it stands where the water leaves.
+
+A hundred silver ropes. Falling into the white. Not coming back.
+
+It has been to the bottom of that white and knows the water comes back as a grove. It could tell no one this. It does not try. It stands in the wind where the chord is faint and the tower-keepers would call it mad, and it does the one thing the plateau, in all its balance and all its long wet roaring life, has never had a position for.
+
+It watches the water go.
+
+And that is what it does, if it does anything: it takes up the one empty place in a world where every place is full, and fills it, and asks nothing. The lizards go down through the cracks. The swifts come out of the vents screaming. In the galleries the stokers break coal from a seam the power has counted and will not name. In the beds a grower goes by with wet hair and orange hands and does not look toward the edge, because there is nothing there, because there has never been anything there.
+
+There is something there now. It is small and it is quiet and it will be there tomorrow. When the tenth comes with her sack of figs and her coil of rope and stands at the lattice looking down into the white, she will not see it. But she will find, on the ninth deck, a second rope below the first, and think the cutters left it, and go on.

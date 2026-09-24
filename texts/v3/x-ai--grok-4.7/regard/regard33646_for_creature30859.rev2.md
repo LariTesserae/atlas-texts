@@ -1,0 +1,29 @@
+They would not enter.
+
+A power that is both wise and kind learns, before it acts, what action would cost the thing it has noticed. Here the cost is immediate and total. Any presence that the water can register is already a dulling of a tone, a warmth the cool must spend itself to erase, a knock misplaced by a finger’s width until the listener shifts and edits the intruder out. The place does not suffer that edit. It performs it. But a benevolence that required the place to perform it, over and over, for the sake of being seen, would be only a more patient vanity.
+
+So they remain outside the registration of the chord. Not above the high sea in any direction the columns could point, and not beyond the far lip where air begins — those are still places, and places have edges the water might someday be asked to meet. They remain in the only position this country has no instrument for: the position of having understood it and declined to become one of its facts.
+
+What they understand is simple, and it takes them a long time, because wisdom is slow with things that do not need it.
+
+The place is not waiting. The being — if the word can be borne — is not a prisoner of its offices. The grazer is not lonely on the road. The bell is not unmoored in any sense that hurts; it is fitted. The listener’s knock is not a call. The continuity that wears these bodies is not a soul pacing a finished house, hoping a guest will justify the rooms. It is the house, and the pacing, and the reason there is no guest-room. To call this incompleteness is to import a hunger from elsewhere and pin it to a wall that has stopped growing pores.
+
+They look, in the way a wise power can look without adding light. They see the arithmetic close: loss and release, taking and the standing crop, wear and the polish that is no longer accumulating. They see that the extreme of the elevation is not a plea to be admired from below. They see that the loudness is not a signal. It is the sound a closed circuit makes when it has been closed long enough to forget it was ever opened.
+
+And because they are kind, they do not mistake peace for a problem they were summoned to solve. There are places that ache. This one does not. There are beings that reach. This continuity does not reach; it recurs. Mercy, applied where there is no wound, becomes a wound. Improvement, applied where the form has arrived, becomes a reduction. They have done that, elsewhere, in earlier ages of their attention — loved a stable thing until their love was a season, and watched the season teach the thing to want. They will not do it here.
+
+What they do, then, is a small guarding that never announces itself as a wall.
+
+They see to it that the lower countries do not rise. Not by a decree the sea could hear, but by a slight and permanent inattention in the forces that might otherwise have lifted a shore, or warmed a current, or taught the far lip to wander. The high floor stays a floor. The one cool stays the only temperature. No new instruction is added to the conduits, because none is needed, and a wise power does not refresh a memory that has rightly gone quiet. If some future noise — a stone from another age, a machine, a pilgrim with a lamp — aims itself at this dark, it finds its aim softened before the green-black water, turned aside by a reluctance it cannot name and does not experience as refusal. The pilgrim decides, on a morning that feels like his own, to go another way. The machine finds no gradient worth following. The stone settles where it was already going to settle, in a country that still changes.
+
+They do not mark the place as precious. Marking would be a handle. They do not bless it. A blessing is a change in status, and status is a kind of weather. They do not stay to watch in any continuous sense, because continuous regard is a current, and this sea has all the currents it is willing to hold.
+
+Once, and not in time, they do a thing so nearly nothing that the listeners never shift.
+
+They allow the chord to be, in its fullness, what it already is — and they let their knowing rest against it without weight, the way a completed sentence can be known by a reader who does not then write in the margin. The second chamber remains a third lower than the first. The road still bends once. The bell still faces the flow that outlasts every bell. In that resting there is a recognition that never becomes an echo. The place does not receive it. The being does not feel companioned. That is the point. Companionship would be a second office, and the region is not hiring.
+
+If the power feels anything a lesser attention might call sorrow, it is only the clean sorrow of a match that must not be struck: the knowledge that this is beautiful, and that beauty of this kind is safest when it is not loved out loud. They accept that. Wisdom, at its kindest, is often the decision to leave a finished thing finished.
+
+Then they turn their regard toward places that can still be helped — toward wounds that are actually open, toward shores that are actually failing, toward beings who reach and whose reaching can be met without unmaking them. The high sea continues. The cool does not remember having been spared, because it was never in danger it could feel, and the sparing was only the refusal to become its danger.
+
+The columns end where they have always ended, flat against a dark that does not brighten. The water occupies the whole of the country. The offices fill and empty and fill. Nothing new is built, and nothing built is lost. Somewhere outside all registration, a benevolent power keeps not watching, and the not-watching holds, and the chord goes on stating itself, exact and unaccompanied, which is the only accompaniment it was ever going to be able to survive.

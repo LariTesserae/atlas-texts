@@ -1,0 +1,153 @@
+What lives there is not one kind of being, and not a simple population. It is a pressure of lives, a crowded wet civic ecology in which every resident is also part of the city’s substance, and the city’s substance is partly resident. At first, if anything can be said to live there, it seems to be the city itself: the breathing walls, the contracting doorways, the towers that glow faintly along their ridges when a warm pulse passes. But that first impression does not dissolve into metaphor. It becomes more literal the longer one attends. The place is inhabited by organisms that have become architectural, and by architecture that has remained alive.
+
+The most numerous lives are small and constant. They are the city’s ordinary weather.
+
+Pale, eel-like creatures slide along the walls with their mouths slightly open, tasting the currents. They have no eyes in any ordinary sense, only shallow pressure pits and long sensory fringes that tremble when water moves through a channel. They know the city by flavor and resistance. A street to them is a particular saltiness, a mineral sharpness, a memory of warmth. They rub against old shell surfaces to scrape off bacterial films, then slip into crevices when something larger displaces the water.
+
+Armored shrimps cluster around the warm seeps. Their bodies are translucent, milky white, faintly pink where blood or symbiotic pigment moves beneath the shell. They crowd so densely near the mineral vents that their combined movements create a soft rustle, like dry leaves heard through cloth. They pick at chemosynthetic threads, groom one another, and flick their antennae constantly. They are not merely wild; they are tended. Certain larger inhabitants encourage them, herd them indirectly with scent, guide them toward fresh growths, and harvest the dead, the molted, and the weak.
+
+Broad-limbed crabs patrol the upper terraces. Their shells are chalky, pitted, patched with old repairs and overgrowths. They move with slow deliberation, their flattened bodies suited to slipping under shelves and across crowded ledges. They are cleaners, scavengers, and inadvertent road-makers. Where they pass, sediment is shifted, surfaces are scraped, and small organisms scatter. They do not speak, but their presence is understood. Other creatures read the chemical residue on their legs and know whether a terrace has recently been cleared, fed, fought over, or abandoned.
+
+Bivalves cling in clusters where the current slows. They open and close in rhythms that seem lazy but are actually attentive. Each shell is a small record. Inside their tissues and along the inner layers of their shells, chemical traces accumulate: warm seasons, mineral floods, deaths nearby, blooms of bacteria, changes in oxygen. Some of the older bivalves are treated as living archives. They are not worshiped exactly, but they are consulted. Certain residents press sensory fronds against their shells and read the accumulated layers by taste.
+
+Tube-worms extend feathery crowns from holes in the stone. When a warm pulse rises, hundreds of them unfurl at once, turning a wall into a field of trembling filaments. They filter nutrients, but they also act as indicators. If their crowns withdraw suddenly, the city notices. A change in current, a predator’s passing, a chemical spill from below, a tremor in the basin floor: all can be announced first by the contraction of those delicate crowns.
+
+Soft-bodied drifters move overhead like living bags of dark fluid. They pulse slowly, almost mournfully, their membranes trailing fine tendrils. They are not numerous, but when they pass, smaller creatures drift away from them, uncertain whether they are harmless or hungry. Some of them carry faint internal glows, not bright, only a dim smear of blue or amber, as if they have swallowed a colony of luminous organisms and not yet fully digested it.
+
+Small schooling creatures gather in the wider avenues. They are slender, quick in short bursts, and covered with tiny reflective patches that catch living light in brief silver-green glints. They do not school tightly as sunlit fish might. Their formations are looser, more like mist. They move together in order to confuse predators, but in this dense vertical city, confusion is limited. Shadows are everywhere. A sudden stillness in their cloud means that something below or beside them has shifted its weight in the dark.
+
+Larger predators live in the shaded alcoves, in broken towers, behind curtains of sponge, inside old hollows where current eddies and scent collects. They are patient. They do not chase unless forced. Most are ambush hunters: folds of flesh, expandable mouths, sticky tendrils, or sudden muscular closures. Some resemble pieces of wall until they move. Others resemble dead growths until they open. Their presence is one of the reasons the city is quiet.
+
+But the beings who make the place feel most like a city — not merely a reef or a den, but a lived-in urban whole — are the ones whose habits have most deeply shaped its spaces.
+
+They are not people in any familiar sense. They are softer, slower, more communal, and more porous in their individuality. If a name must be given to them, “the Accreted” is the closest translation, because their own sense of self is built from layering, inheritance, and continued addition. Their identity is not a fixed boundary. It is a pattern that persists while growing.
+
+The Accreted are pale, heavy-bodied, soft-limbed beings, more like folded cephalopods than land animals, though no part of them belongs to the sunlit world. Their bodies are translucent in places, smoke-grey or bone-white elsewhere, sometimes faintly violet where symbiotic filaments live just beneath the skin. They have no hard outer shells, though their tissues can become stiffened with mineral deposits as they age. Inside, they are supported by cartilaginous cores and hydrostatic pressure, not bone. They move by muscular contraction, by trailing limbs, and by subtle manipulation of the water around them.
+
+They are not beautiful in a simple way. They are beautiful in the way old coral, wet stone, and deep-sea flesh are beautiful: textured, functional, patient, slightly unsettling.
+
+Their limbs are numerous and divisible. A mature walker may have several thick primary arms, each capable of anchoring or lifting, and from these can extend finer tendrils lined with cilia, sensory pores, and secretory glands. These finer tendrils are used for tasting, greeting, grooming, guiding growths, and reading surfaces. The tips are extraordinarily sensitive. They can detect a change in mineral deposit no thicker than a breath of silt. They can tell whether a wall has been recently repaired, whether a passage has been marked by another lineage, whether a living door is healthy or beginning to fail.
+
+Their faces, if that word can be used at all, are not centered on eyes. They have visual organs only in the sense that they possess light-sensitive patches and photophore-recognition fields. They do not see shapes as a surface animal would. They perceive patterns of living light: rhythm, intensity, location, color-shift. Around the mouth hang feeding veils and sensory fronds. The mouth itself is muscular and toothless in the young, becoming harder and more complex with age as natural chitinous plates thicken. They do not use tools. Their bodies are the tools. Their secretions are the tools. Their relationships with other organisms are the tools.
+
+Each Accreted is also a small ecosystem. Within their tissues live symbiotic bacteria, luminescent colonies, mineral-secreting micro-polyps, and chemosynthetic filaments. These are not decorations. They are capacities. A single individual can produce light, exude cementing mucus, release scent-markers, digest tough bacterial mats, and sense chemical changes in the water because of the lives inside it. When an Accreted moves through the city, it carries its own tiny civic population.
+
+Their light is not bright. It is language.
+
+Along their flanks and arms are rows and clusters of photophores. Some produce a cold blue-green glow, some a dull amber, and a few a stark white flicker used only in alarm or conflict. They do not use light to illuminate the city. They use it to speak across it. A slow pulse may mean presence. A double flash may mean recognition. A traveling wave along the arms may mean hunger, readiness, warning, or invitation. Certain patterns are so formalized that other species respond to them. When a mature Accreted emits a low amber rhythm, vent-shrimps often move closer. When it gives a broken white sequence, smaller creatures scatter and living doors begin to contract.
+
+Their speech is not only luminous. It is chemical, tactile, hydraulic. They release scents that carry lineage, mood, reproductive state, territorial claim, and recent history. They touch walls and one another with fine tendrils, reading residue. They sense pressure changes with pits and fringes. In close conversation, two Accreted may face one another in darkness, arms slightly extended, exchanging faint pulses and minute chemical puffs while the water between them becomes dense with meaning.
+
+They are not gentle by human standards, but they are not frantic. Their violence, when it occurs, is abrupt and economical. Their tenderness is long, repetitive, and practical. They groom. They repair. They feed. They wait.
+
+Their life cycle explains much of the city’s form.
+
+They begin as larvae, tiny motes released into warm currents. At this stage they are almost nothing: fragile, drifting, vulnerable, carried by thermal pulses through avenues and tunnels. Many are eaten. Many fail to settle. The survivors are those that find surfaces marked by the right chemical signatures: old kin-scent, healthy bacterial lawns, stable warmth, appropriate flow. Settlement is not random. It is guided by elders, by anchored ancestors, by living walls that release attractive compounds into the water.
+
+Once settled, a juvenile begins as a small, soft, highly active walker. It spends long periods exploring channels, learning the chemical map of its district. It tastes the seeps, memorizes the timing of warm pulses, learns which passages flood with silt and which remain clear. It feeds on bacterial films, dead tissue, discarded mucus, and small organisms. It is tended by older members of its lineage, but not coddled. In this city, survival is taught by proximity and imitation.
+
+As it matures, it becomes more capable of shaping its surroundings. This is the crucial point. The Accreted do not manufacture. They cultivate, persuade, feed, secrete, and encourage.
+
+If they need a wider passage, they do not carve it. They attract boring organisms — slow worms, burrowing bivalves, dissolving microbes — by laying down a trail of nutrient mucus along a desired line. They wait. They feed the borers. They protect them from predators. Over time, the stone softens, pits, and opens. If they need a stronger wall, they feed calcium-secreting polyps and colonial crusts until those organisms thicken the surface. If they need a door, they encourage a contractile tissue, a muscular sponge or anemone-like growth, to form across an opening. If they need light, they transplant a fragment of luminescent colony and feed it until it adheres and begins signaling.
+
+Their architecture is therefore a kind of negotiated growth. The city is not built in the sense of assembled dead materials. It is coaxed into shape through long biological relationships.
+
+Some Accreted remain mobile all their lives. These are the walkers, tenders of channels, herders of vent-shrimps, readers of currents, mediators between districts. Others, as they age, become more sessile. They choose a place — a wall, a tower base, a sheltered arch, a warm fissure — and begin to anchor. Their bodies slowly fuse with the living architecture. Their limbs reduce to sensory fronds and feeding veils. Their tissues mineralize in places. They become part of the city’s fabric.
+
+These anchored elders are not dead, nor are they fully immobile. They are slow, vast, and deeply aware. They taste the water that passes through their district. They control small contractions in the living walls around them. They emit signals along colonial ridges. They store memory in chemical gradients and growth layers. When a warm pulse rises from below, an elder may send a slow amber wave through an entire tower, and smaller residents will respond by opening feeding crowns, releasing larvae, or closing vulnerable nursery doors.
+
+In this way, the city is partly made of ancestors. Not metaphorically. The walls contain the hardened remains and living descendants of earlier generations. A room may be shaped by the body of an elder who anchored there long ago. A passage may open because an ancestor grew in a particular direction. A district may carry a lineage-scent because its architecture is continuous with the bodies of those who settled it.
+
+This makes privacy nearly impossible, but also makes belonging profound.
+
+The Accreted live in households that are less like families and more like stacked ecosystems. A household may include mobile walkers, juveniles, anchored elders, symbiotic colonies, cultivated shrimp herds, attached filter-feeders, cleaner organisms, and living wall-tissues, all sharing a vertical cluster of hollows and channels. They recognize one another by a blend of chemical signature, light-rhythm, and remembered touch. Strangers are not attacked immediately, but they are tasted carefully. A false scent is one of the gravest offenses in their world. To impersonate another lineage, to mask one’s intent with deceptive chemical traces, is to violate the medium itself.
+
+Their social life is dense, subtle, and constantly mediated by the water.
+
+In warm districts near active seeps, life is richest. There the bacterial lawns are thick, smoky olive-black or faintly violet, and the water tastes of minerals. Vent-shrimps crowd the fissures. Tube-worms bloom. The Accreted maintain these places with great care. They adjust flow not with machines but with living baffles: curtains of sponge, muscle-walls, calcified ridges, and cultivated growths that redirect currents. They know which seeps are stable, which pulse unpredictably, and which carry toxic traces. They mark productive vents with layered scent-claims, but ownership is not absolute. It is maintained through presence, tending, and recognition. A vent untended for too long may be claimed by another lineage, not by conquest but by gradual chemical overwriting.
+
+Wealth, in their world, is heat, clean flow, and reliable food. A rich district has warm water rising through it, dense bacterial mats, healthy signal colonies, active nurseries, and strong living doors. A poor district may be cold, silted, dim, and thin. Movement between districts is common, but descent into colder zones is usually a sign of displacement. The city’s politics are hydraulic. Power is not held by weapons but by control of current.
+
+When disputes arise, they are slow and structural. One lineage may grow a barrier across a channel. Another may encourage borers to open a competing route. Rivals may overlay one another’s scent-marks, feed signal colonies until they flash competing rhythms, or subtly alter the chemistry of a shared basin. Open violence is rare because it is dangerous. Sudden movement attracts predators. Loud chemical alarm brings scavengers. A fight that disturbs the city too much can turn the city against the fighters.
+
+Their councils, such as they are, take place in still-water plazas and warm basins. These gatherings are not loud. They look, to an outside observer, like many pale bodies suspended in darkness, arms slightly extended, photophores flickering in slow patterns, while chemical plumes drift between them. Decisions emerge gradually. A consensus is felt as alignment: rhythms synchronize, scents blend, postures relax. If no agreement forms, the group disperses and the issue continues in architecture. A wall will thicken. A passage will narrow. A vent will be redirected. The city itself becomes the record of unresolved politics.
+
+They have no writing, but they have memory.
+
+Memory lives in growth bands, chemical residues, scars, mineral deposits, and the bodies of elders. A wall can carry the trace of a past flood. A shell can preserve the chemistry of a season when food was scarce. A scent-mark can last for years if renewed. The Accreted do not tell stories by sound; they tell them by leading younger individuals along particular routes, allowing them to taste old marks, observe old repairs, and feel the shape of spaces shaped by earlier events. A significant place is not described; it is re-experienced through contact.
+
+Certain bivalves and slow-growing nodules are especially valued as memory-bearers. They are not owned, but they are protected. To damage an old archive-shell is not a crime in the sense of broken law, but it is treated with horror, because it weakens continuity. When an elder dies, the chemical record of its body is not lost if the surrounding wall has absorbed enough of its traces. The city remembers by incorporation.
+
+Other species live alongside the Accreted in relationships that range from mutualism to tolerated parasitism.
+
+The vent-shrimps are perhaps closest to herds, though they are not domesticated in a coercive sense. They follow warmth and food. The Accreted maintain conditions that favor them, remove certain predators, and encourage breeding by leaving nutrient trails. In return, the shrimp provide food through their dead, their molts, and their waste. No one milks them. No one cages them. The relationship is ecological, but deliberate.
+
+The broad crabs are respected as cleaners. They are not commanded, but their movements are anticipated. The Accreted leave scent trails where cleaning is needed, and the crabs follow. Sometimes a crab will enter a household hollow and be tolerated while it removes dead tissue or silt. If it becomes too aggressive, it is driven away by pressure pulses and warning flashes. If it dies within a district, it is consumed and recycled like everything else.
+
+Blind taste-eels are both wild and useful. They move through passages, reading chemical gradients. The Accreted observe them. If eels avoid a corridor, other residents may do the same. If eels gather near a seep, it may indicate a change in mineral content. Some lineages encourage particular eel-lines by feeding them at intervals, creating loose loyalties. The eels do not obey. They merely prefer.
+
+There are also living doors.
+
+These are not creatures trained so much as cultivated. They are contractile growths: muscular sponges, anemone-like tissues, colonial membranes that tighten when touched or when chemical alarm is present. They line doorways, nursery entrances, and sacred heat-chambers. They are fed, pruned by selective starvation, and sometimes grafted from one opening to another. A healthy door is a valued member of a household. When one begins to fail, the Accreted repair it with nutrient mucus or introduce new tissue from a healthy growth elsewhere.
+
+There are signal colonies too.
+
+These are ridged, encrusting organisms that emit slow waves of bioluminescence along their surfaces. They grow along avenues, arches, and tower edges. They are not lamps. They are civic nerves. When disturbed, when fed, or when touched by specific chemical cues, they transmit pulses over long distances. A wave of blue-green light passing along a wall can mean that a warm pulse is rising. A broken amber rhythm can mean that a predator has been detected. A sudden white cascade can mean danger severe enough to close the district.
+
+The Accreted tend these colonies carefully. They remove competing growths, feed them during lean periods, and protect them from grazers. In some districts, the signal colonies are ancient. Their ridges have grown so thick with generations of tissue that they resemble carved reliefs, though nothing has been carved. They are living records of light-language. Old patterns sometimes repeat in them without immediate cause, like memories surfacing.
+
+Predators shape every part of this life.
+
+The most common hunters are the wall-folds. They are soft, flat, tissue-thin creatures that rest against surfaces, resembling sheets of living membrane or old sponge. Their color matches the surrounding growth. When prey comes near, they contract around it with terrible speed, enclosing it in a wet, suffocating fold. They do not pursue. They wait. Their presence is one reason the Accreted move with such controlled slowness. A sudden dart can trigger a wall-fold’s strike. A careless flash can betray position.
+
+There are also lure-users. These are among the most feared organisms in the city because they corrupt the grammar of light. They produce false signals: a harmless blue pulse that means food, a familiar rhythm that means kin, a dim amber glow that suggests shelter. When a small creature approaches, the lure-mouth opens. The Accreted learn early to distrust isolated lights. A signal without context is suspicious. A message that comes from no known colony or body may be hunger wearing language.
+
+Larger predators rarely enter the densest districts, but they pass through the wider channels. Some are vast, slow-moving shapes that displace water so heavily that the city feels the pressure before the creature is near. When such a hunter approaches, the signal colonies dim or fall silent. Living doors close. Walkers draw into hollows. Elders contract their sensory fronds. The city becomes smaller, tighter, more watchful. It does not flee. It holds still.
+
+Death in this place is not private.
+
+When an organism dies, the evidence spreads. Scent carries. Scavengers arrive. Small opportunists swarm. The body is cleaned, opened, broken down, and distributed. There is no horror in this, or not only horror. It is also continuity. The city recycles its own substance. Shell becomes foundation. Chitin becomes food. Soft tissue becomes bacterial fuel. Minerals return to walls. Even the Accreted dead are incorporated. If a walker dies near its household, its body may be placed by current and scavenger action into a digestion basin or low courtyard where cleaners can work. Later, its hardened parts may become part of a nursery wall or a heat-baffle.
+
+This is not desecration to them. It is inheritance.
+
+Their emotional life, if one can call it that, is expressed in rhythms rather than faces. They do not smile. They do not weep. But they have states that are legible in their behavior: calm expansion, watchful contraction, feeding eagerness, territorial alertness, reproductive urgency, grief-like stillness when a familiar chemical pattern disappears. When a household loses an elder, the district may grow quiet. Signals slow. Feeding crowns remain closed longer than usual. Young walkers circle the anchored place, tasting the wall again and again, as if searching for a voice that has become stone.
+
+They are capable of play, though it is subtle. Juveniles practice light-patterns on one another. They chase scent-trails they have made. They explore collapsed towers, test new passages, and imitate elders. Sometimes, in warm pulses, small groups will move together through a channel in coordinated flickers, not for hunting or mating but simply because the current feels rich and the city is responsive. These moments are rare and brief, but they exist.
+
+Their intimacy is physical and chemical. Because water carries everything, their social world has no clean separation between self and environment. To be near another is to taste it. To be angry is to leak anger. To be afraid is to scent the water with fear. They have evolved elaborate etiquette around this. One does not release strong emotional chemicals without cause. One does not mask one’s state in crowded spaces. One does not flood a nursery channel with alarm unless the alarm is real. To violate these rules is to endanger everyone.
+
+Their sense of time is long. They measure events not by days or suns, but by pulses: warm pulses, mineral pulses, silt-falls, oxygen-thin intervals, breeding-swells. They know the city as a sequence of recurring conditions. A good cycle is one in which heat rises steadily, food is sufficient, predators are balanced, and the walls remain intact. A bad cycle is one in which currents fail, seeps sour, silt chokes the nurseries, or a great predator lingers too long in the avenues.
+
+They have no word for surface. If they have a concept of above, it is not sky but thinner water, colder water, water without heat, water where scent disperses into emptiness. Their sacred direction, if they have one, is downward and inward: toward warmth, toward mineral richness, toward the deep seeps that feed the city. They do not worship fire or light. They revere flow. They revere continuity. They revere the slow addition of living matter to living matter.
+
+The districts themselves have characters.
+
+Near the lowest seeps, the city is densest and most warm. The water there is heavy with dissolved salts and fine silt. Walls glow faintly with bacterial films. Shrimp clouds pulse around fissures. The Accreted move slowly through crowds of attached life, touching walls, exchanging signals, adjusting living valves. Here the architecture is thick, bulbous, swollen with heat and growth. Passages are short and crowded. Doorways contract at the slightest alarm. The airless water feels almost tender, but every hollow has a mouth, every shadow a potential appetite.
+
+Higher up, the terraces are cooler and more open. Shells overlap like old roofs. Crabs patrol broad shelves. Signal colonies run along ridges in long, slow lines. The Accreted here are more watchful. They maintain wider sight-lines, though sight is weak, and rely more on pressure-sense. The water moves in broader sweeps. Silt collects in corners and must be cleared. Predators from open water sometimes pass above, casting pressure-shadows across the terraces.
+
+In the underpasses and drainage tunnels below, the city becomes narrower, darker, and more secretive. Warm water rises in slow pulses through vertical shafts. Blind eels taste the walls. Scavengers wait in low basins. The Accreted who tend these places are often solitary, heavily scarred, and chemically complex. They know the city’s waste routes, its collapsed passages, its hidden heat-veins. They are respected and slightly avoided. Their scent carries the mineral sharpness of deep water and old death.
+
+There are also districts that are not fully Accreted. Some towers are dominated by ancient colonial organisms that predate the current inhabitants. These beings are not intelligent in the way the walkers are, but they are vast, reactive, and historically significant. Their feeding channels have become streets. Their dead cores have become shelters. Their living ridges carry signals they no longer wholly control. The Accreted live in and around them as tenants, gardeners, and parasites. Sometimes a tower will close a passage over years because the colony inside it is slowly changing shape. The residents adapt. They do not complain. The city rearranges itself by growth.
+
+Some plazas are living stomachs. They are still basins lined with digestive tissue where dead matter is processed. The Accreted do not build such places; they recognize and maintain them. When a body falls into one, the basin slowly consumes it, and the nutrients pass into surrounding growth. These places are not avoided, but they are treated with care. They smell of dissolution and renewal. They are where the city’s hunger becomes visible.
+
+Some streets are throats. They widen and contract with slow muscular action, moving water through the city in rhythmic pulses. The Accreted use them as highways, but they must time their passage. To be caught in a contracting throat is not always fatal, but it is dangerous. Juveniles learn to read the pressure-signs: a subtle inward pull, a chemical change, a dimming of nearby signal colonies.
+
+The city’s atmosphere is therefore not merely inhabited; it is negotiated. Every resident is both subject and environment. The Accreted shape the city, but the city shapes them. It selects for patience, for chemical literacy, for bodily restraint, for the ability to live in close contact with many other lives. It punishes loudness. It rewards attentiveness. It makes memory physical and speech luminous.
+
+If one asks who lives there, the simplest answer is: the Accreted.
+
+If one asks more carefully, the answer is: the Accreted and their thousand companion species, their cultivated herds, their living walls, their signal colonies, their predators, their scavengers, their archive-shells, their doors, their towers, and their ancestral bodies fused into the architecture.
+
+If one asks still more deeply, the answer is stranger.
+
+The city itself lives there.
+
+Not as a single animal, not as a god, but as a distributed, slow, urban organism made of many organisms. Its streets are current-channels shaped by hunger and flow. Its lights are living languages. Its walls are accumulated generations. Its weather is thermal pulses carrying larvae, minerals, and messages. Its memory is chemical and architectural. Its mind, if it has one, is not in any head. It is in the pattern: the way a warm pulse opens feeding crowns, the way a warning flash closes nurseries, the way an elder’s body becomes a doorway, the way a dead predator is cleaned before it reaches the basin floor.
+
+It is intimate and heavy. It is ancient and fertile. It is not hostile, but it is not kind. It is full of hidden appetites, close bodies, and patient pressure. It flickers. It listens. It repairs itself with living tissue. It eats its dead and builds with them. It does not stand against the water; it is made by water, warmed by water, darkened by water, and continuously renewed inside water.
+
+What lives there is not a single image. It is a drowned civic ecology: soft-bodied walkers tending heat, pale crabs clearing silt, shrimps crowding vents, eels tasting walls, colonial towers dreaming in mineral pulses, predators folded into shadows, elders becoming architecture, and countless small lives rising and settling with the warm breath of the basin.
+
+Everything there is occupied. Every surface has a resident. Every glow means something. Every silence is being read. The city does not merely contain life. It is life arranged into streets, walls, appetites, signals, and memory.

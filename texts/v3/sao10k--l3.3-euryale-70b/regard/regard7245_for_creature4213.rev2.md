@@ -1,0 +1,1 @@
+The response is insufficient because the information does not connect in any logical way to the theme the city follows. The theme in the story is very direct and very indescribable.

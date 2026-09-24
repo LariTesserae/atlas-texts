@@ -8,7 +8,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `aion-labs--aion-2.0` | 1,072 | 2026-05-12→2026-06-08 | advisory·75, creature·250, location·250, placement·247, regard·250 | route | event-observed 1,072 |
+| `aion-labs--aion-2.0` | 1,072 | 2026-05-12→2026-09-24 | advisory·75, creature·250, location·250, placement·247, regard·250 | route | event-observed 1,072 |
 
 ## claude-3-5-haiku-20241022-v1.0  ·  1,188 texts
 
@@ -22,11 +22,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `anthropic.claude-3-5-sonnet-20240620-v1.0` | 1,200 | 2026-04-29→2026-05-13 | advisory·400, creature·400, regard·400 | route | event-observed 1,200 |
 
-## claude-3-5-sonnet-20241022-v2.0  ·  1,200 texts
+## claude-3-5-sonnet-20241022-v2.0  ·  1,199 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `anthropic.claude-3-5-sonnet-20241022-v2.0` | 1,200 | 2026-04-29→2026-06-03 | advisory·400, creature·400, regard·400 | route | event-observed 1,200 |
+| `anthropic.claude-3-5-sonnet-20241022-v2.0` | 1,199 | 2026-04-29→2026-06-03 | advisory·399, creature·400, regard·400 | route | event-observed 1,199 |
 
 ## claude-3-7-sonnet-20250219-v1.0  ·  1,120 texts
 
@@ -62,7 +62,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `anthropic--claude-fable-5.1` | 1,074 | 2026-09-01 | advisory·75, creature·250, location·250, placement·250, regard·249 | house-tag | event-observed 1,074 |
+| `anthropic--claude-fable-5.1` | 1,074 | 2026-09-01→2026-09-23 | advisory·75, creature·250, location·250, placement·250, regard·249 | house-tag | event-observed 1,074 |
 
 ## claude-haiku-3  ·  1,600 texts
 
@@ -117,7 +117,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `anthropic--claude-opus-4.5` | 1,870 | 2026-04-28→2026-06-03 | advisory·95, creature·269, location·269, placement·272, regard·965 | house-tag | event-observed 1,866, route-reconstructed 4 |
+| `anthropic--claude-opus-4.5` | 1,870 | 2026-04-28→2026-09-23 | advisory·95, creature·269, location·269, placement·272, regard·965 | house-tag | event-observed 1,866, route-reconstructed 4 |
 
 ## claude-opus-4.6  ·  1,455 texts
 
@@ -141,13 +141,13 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `anthropic--claude-opus-5` | 1,053 | 2026-07-25→2026-08-16 | advisory·74, creature·249, location·250, placement·245, regard·235 | house-tag | event-observed 1,053 |
+| `anthropic--claude-opus-5` | 1,053 | 2026-07-25→2026-09-24 | advisory·74, creature·249, location·250, placement·245, regard·235 | house-tag | event-observed 1,053 |
 
 ## claude-opus-5.5  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `anthropic--claude-opus-5.5` | 1,075 | 2026-09-22 | advisory·75, creature·250, location·250, placement·250, regard·250 | house-tag | event-observed 1,075 |
+| `anthropic--claude-opus-5.5` | 1,075 | 2026-09-22→2026-09-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | house-tag | event-observed 1,075 |
 
 ## claude-sonnet-3  ·  1,600 texts
 
@@ -161,17 +161,17 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `anthropic--claude-sonnet-3.5` | 1,606 | 2026-04-28→2026-06-20 | elsewhere·406, location·400, placement·400, transmission·400 | house-tag | event-observed 1,606 |
 
-## claude-sonnet-3.6  ·  1,600 texts
+## claude-sonnet-3.6  ·  1,601 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `anthropic--claude-sonnet-3.6` | 1,600 | 2026-04-28→2026-06-20 | elsewhere·400, location·400, placement·400, transmission·400 | house-tag | event-observed 1,600 |
+| `anthropic--claude-sonnet-3.6` | 1,601 | 2026-04-28→2026-09-23 | advisory·1, elsewhere·400, location·400, placement·400, transmission·400 | house-tag | event-observed 1,601 |
 
 ## claude-sonnet-3.7  ·  1,675 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `anthropic--claude-sonnet-3.7` | 1,675 | 2026-04-28→2026-06-20 | creature·75, elsewhere·400, location·400, placement·400, transmission·400 | house-tag | event-observed 1,675 |
+| `anthropic--claude-sonnet-3.7` | 1,675 | 2026-04-28→2026-09-23 | creature·75, elsewhere·400, location·400, placement·400, transmission·400 | house-tag | event-observed 1,675 |
 
 ## claude-sonnet-3.7:thinking  ·  225 texts
 
@@ -213,19 +213,19 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `cohere--command-a` | 1,072 | 2026-04-29→2026-05-23 | advisory·75, creature·249, location·250, placement·249, regard·249 | route | event-observed 1,072 |
+| `cohere--command-a` | 1,072 | 2026-04-29→2026-09-24 | advisory·75, creature·249, location·250, placement·249, regard·249 | route | event-observed 1,072 |
 
 ## deepseek-chat  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `deepseek--deepseek-chat` | 1,075 | 2026-04-29→2026-06-03 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `deepseek--deepseek-chat` | 1,075 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## deepseek-r1  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `deepseek--deepseek-r1` | 1,075 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `deepseek--deepseek-r1` | 1,075 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## deepseek-v3.1-nex-n1  ·  1,223 texts
 
@@ -237,7 +237,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `deepseek--deepseek-v4-pro` | 1,069 | 2026-05-10→2026-05-23 | advisory·73, creature·249, location·250, placement·249, regard·248 | route | event-observed 1,069 |
+| `deepseek--deepseek-v4-pro` | 1,069 | 2026-05-10→2026-09-24 | advisory·73, creature·249, location·250, placement·249, regard·248 | route | event-observed 1,069 |
 
 ## gemini-2.0-flash-001  ·  1,075 texts
 
@@ -268,7 +268,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `google--gemini-2.5-pro` | 1,059 | 2026-05-06→2026-05-23 | advisory·64, creature·249, location·250, placement·249, regard·247 | route | event-observed 1,059 |
+| `google--gemini-2.5-pro` | 1,059 | 2026-05-06→2026-09-24 | advisory·64, creature·249, location·250, placement·249, regard·247 | route | event-observed 1,059 |
 | `google--gemini-2.5-pro-preview` | 884 | 2026-05-22→2026-05-23 | advisory·57, creature·204, location·217, placement·202, regard·204 | route | event-observed 884 |
 | `google--gemini-2.5-pro-preview-05-06` | 1,003 | 2026-05-22→2026-05-23 | advisory·64, creature·232, location·243, placement·232, regard·232 | route | event-observed 1,003 |
 
@@ -283,15 +283,15 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `google--gemini-3.1-flash-lite` | 1,075 | 2026-05-22→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
-| `google--gemini-3.1-flash-lite-preview` | 1,075 | 2026-05-22→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `google--gemini-3.1-flash-lite` | 1,075 | 2026-05-22→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `google--gemini-3.1-flash-lite-preview` | 1,075 | 2026-05-22→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## gemini-3.1-pro  ·  1,457 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `google--gemini-3.1-pro` | 798 | 2026-04-28→2026-05-20 | advisory·75, creature·247, location·248, placement·228 | route | event-observed 798 |
-| `google--gemini-3.1-pro-preview` | 640 | 2026-05-13→2026-05-21 | regard·640 | route | event-observed 640 |
+| `google--gemini-3.1-pro` | 802 | 2026-04-28→2026-09-24 | advisory·75, creature·247, location·248, placement·228, regard·4 | route | event-observed 802 |
+| `google--gemini-3.1-pro-preview` | 636 | 2026-05-13→2026-05-21 | regard·636 | route | event-observed 636 |
 | `google--gemini-3.1-pro-preview-20260219` | 19 | 2026-05-19 | placement·19 | route | event-correlated 19 |
 
 ## gemini-3.5-flash  ·  1,075 texts
@@ -310,7 +310,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `google--gemini-3.7-flash` | 1,075 | 2026-09-07 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `google--gemini-3.7-flash` | 1,075 | 2026-09-07→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## gemini-3.8-flash  ·  1,075 texts
 
@@ -328,55 +328,55 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-4.6` | 1,070 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·245 | route | event-observed 1,070 |
+| `z-ai--glm-4.6` | 1,070 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·245 | route | event-observed 1,070 |
 
 ## glm-4.7  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-4.7` | 1,075 | 2026-08-17 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `z-ai--glm-4.7` | 1,075 | 2026-08-17→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## glm-5  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5` | 1,075 | 2026-08-17→2026-08-18 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `z-ai--glm-5` | 1,075 | 2026-08-17→2026-09-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## glm-5.1  ·  1,069 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5.1` | 1,069 | 2026-05-12→2026-05-23 | advisory·74, creature·250, location·250, placement·250, regard·245 | route | event-observed 1,069 |
+| `z-ai--glm-5.1` | 1,069 | 2026-05-12→2026-09-23 | advisory·74, creature·250, location·250, placement·250, regard·245 | route | event-observed 1,069 |
 
 ## glm-5.2  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5.2` | 750 | 2026-07-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
+| `z-ai--glm-5.2` | 750 | 2026-07-23→2026-09-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## glm-5.3  ·  411 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5.3` | 411 | 2026-09-05 | creature·120, location·173, placement·65, regard·53 | route | event-observed 411 |
+| `z-ai--glm-5.3` | 411 | 2026-09-05→2026-09-23 | creature·120, location·173, placement·65, regard·53 | route | event-observed 411 |
 
 ## glm-5.3-flash  ·  304 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5.3-flash` | 304 | 2026-09-20→2026-09-21 | advisory·12, creature·75, location·195, placement·9, regard·13 | route | event-observed 304 |
+| `z-ai--glm-5.3-flash` | 304 | 2026-09-20→2026-09-24 | advisory·12, creature·75, location·195, placement·9, regard·13 | route | event-observed 304 |
 
 ## gpt-3.5-turbo-instruct  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--gpt-3.5-turbo-instruct` | 1,075 | 2026-05-06→2026-06-03 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `openai--gpt-3.5-turbo-instruct` | 1,075 | 2026-05-06→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## gpt-4  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--gpt-4` | 1,075 | 2026-04-29→2026-06-03 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `openai--gpt-4` | 1,075 | 2026-04-29→2026-09-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## gpt-4.1  ·  1,075 texts
 
@@ -394,7 +394,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--gpt-4o` | 1,075 | 2026-05-06→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `openai--gpt-4o` | 1,075 | 2026-05-06→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 | `openai--gpt-4o-2024-05-13` | 1,075 | 2026-05-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## gpt-5  ·  1,062 texts
@@ -431,7 +431,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--gpt-5.5` | 1,621 | 2026-04-28→2026-06-12 | advisory·75, creature·250, elsewhere·3, location·250, placement·228, regard·812, transmission·3 | route | event-observed 1,621 |
+| `openai--gpt-5.5` | 1,621 | 2026-04-28→2026-09-24 | advisory·75, creature·250, elsewhere·3, location·250, placement·228, regard·812, transmission·3 | route | event-observed 1,621 |
 | `openai--gpt-5.5-20260423` | 20 | 2026-05-19 | placement·20 | route | event-correlated 20 |
 
 ## gpt-5.6-luna  ·  1,075 texts
@@ -516,13 +516,13 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `x-ai--grok-4.3` | 1,075 | 2026-05-10→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `x-ai--grok-4.3` | 1,075 | 2026-05-10→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## grok-4.5  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `x-ai--grok-4.5` | 1,075 | 2026-07-23→2026-09-05 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `x-ai--grok-4.5` | 1,075 | 2026-07-23→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## grok-4.6  ·  1,075 texts
 
@@ -534,7 +534,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `x-ai--grok-4.7` | 1,075 | 2026-09-22 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `x-ai--grok-4.7` | 1,075 | 2026-09-22→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## grok-code-fast-1  ·  1,000 texts
 
@@ -552,13 +552,13 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `nousresearch--hermes-4-405b` | 1,075 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `nousresearch--hermes-4-405b` | 1,075 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## inkling  ·  1,068 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `thinkingmachines--inkling` | 1,068 | 2026-08-16→2026-08-17 | advisory·75, creature·250, location·250, placement·248, regard·245 | route | event-observed 1,068 |
+| `thinkingmachines--inkling` | 1,068 | 2026-08-16→2026-09-24 | advisory·75, creature·250, location·250, placement·248, regard·245 | route | event-observed 1,068 |
 
 ## k3-hf-fp8  ·  936 texts
 
@@ -570,25 +570,25 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `moonshotai--kimi-k2` | 1,074 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·249, regard·250 | route | event-observed 1,054, event-correlated 20 |
+| `moonshotai--kimi-k2` | 1,074 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·249, regard·250 | route | event-observed 1,054, event-correlated 20 |
 
 ## kimi-k2.5  ·  1,073 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `moonshotai--kimi-k2.5` | 1,073 | 2026-05-06→2026-05-23 | advisory·73, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,073 |
+| `moonshotai--kimi-k2.5` | 1,073 | 2026-05-06→2026-09-24 | advisory·73, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,073 |
 
 ## kimi-k2.6  ·  1,063 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `moonshotai--kimi-k2.6` | 1,063 | 2026-05-06→2026-05-23 | advisory·75, creature·247, location·249, placement·247, regard·245 | route | event-observed 1,063 |
+| `moonshotai--kimi-k2.6` | 1,063 | 2026-05-06→2026-09-23 | advisory·75, creature·247, location·249, placement·247, regard·245 | route | event-observed 1,063 |
 
 ## kimi-k3  ·  1,066 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `moonshotai--kimi-k3` | 1,066 | 2026-07-23→2026-07-29 | advisory·75, creature·248, location·249, placement·248, regard·246 | route | event-observed 1,066 |
+| `moonshotai--kimi-k3` | 1,066 | 2026-07-23→2026-09-24 | advisory·75, creature·248, location·249, placement·248, regard·246 | route | event-observed 1,066 |
 
 ## l3-euryale-70b  ·  1,026 texts
 
@@ -600,7 +600,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `sao10k--l3.3-euryale-70b` | 1,068 | 2026-04-29→2026-06-08 | advisory·75, creature·250, location·250, placement·243, regard·250 | route | event-observed 1,068 |
+| `sao10k--l3.3-euryale-70b` | 1,068 | 2026-04-29→2026-09-23 | advisory·75, creature·250, location·250, placement·243, regard·250 | route | event-observed 1,068 |
 
 ## laguna-m.1:free  ·  1,067 texts
 
@@ -618,13 +618,13 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `meta-llama--llama-3.3-70b-instruct` | 1,075 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `meta-llama--llama-3.3-70b-instruct` | 1,075 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## longcat-2.0  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `meituan--longcat-2.0` | 750 | 2026-09-01→2026-09-02 | creature·250, location·250, placement·250 | route | event-observed 750 |
+| `meituan--longcat-2.0` | 750 | 2026-09-01→2026-09-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## mimo-v2-flash  ·  1,075 texts
 
@@ -648,25 +648,25 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `xiaomi--mimo-v2.5` | 1,075 | 2026-05-22→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `xiaomi--mimo-v2.5` | 1,075 | 2026-05-22→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## mimo-v2.5-pro  ·  1,073 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `xiaomi--mimo-v2.5-pro` | 1,073 | 2026-05-12→2026-05-23 | advisory·74, creature·250, location·250, placement·250, regard·249 | route | event-observed 1,073 |
+| `xiaomi--mimo-v2.5-pro` | 1,073 | 2026-05-12→2026-09-24 | advisory·74, creature·250, location·250, placement·250, regard·249 | route | event-observed 1,073 |
 
 ## minimax-m2.7  ·  1,073 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `minimax--minimax-m2.7` | 1,073 | 2026-05-12→2026-05-23 | advisory·74, creature·250, location·250, placement·250, regard·249 | route | event-observed 1,073 |
+| `minimax--minimax-m2.7` | 1,073 | 2026-05-12→2026-09-24 | advisory·74, creature·250, location·250, placement·250, regard·249 | route | event-observed 1,073 |
 
 ## minimax-m3  ·  1,068 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `minimax--minimax-m3` | 1,068 | 2026-08-04→2026-08-05 | advisory·75, creature·248, location·250, placement·248, regard·247 | route | event-observed 1,068 |
+| `minimax--minimax-m3` | 1,068 | 2026-08-04→2026-09-23 | advisory·75, creature·248, location·250, placement·248, regard·247 | route | event-observed 1,068 |
 
 ## mistral-7b-instruct-v0.1  ·  1,075 texts
 
@@ -690,13 +690,13 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `meta--muse-spark-1.2` | 1,075 | 2026-08-16→2026-08-17 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `meta--muse-spark-1.2` | 1,075 | 2026-08-16→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## muse-spark-1.3  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `meta--muse-spark-1.3` | 1,075 | 2026-09-05 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `meta--muse-spark-1.3` | 1,075 | 2026-09-05→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## nova-pro-v1  ·  750 texts
 
@@ -708,13 +708,13 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--o1` | 1,075 | 2026-05-06→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `openai--o1` | 1,075 | 2026-05-06→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## o3  ·  1,825 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--o3` | 1,825 | 2026-05-05→2026-06-13 | advisory·75, creature·250, elsewhere·250, location·250, placement·250, regard·250, transmission·500 | route | event-observed 1,825 |
+| `openai--o3` | 1,825 | 2026-05-05→2026-09-24 | advisory·75, creature·250, elsewhere·250, location·250, placement·250, regard·250, transmission·500 | route | event-observed 1,825 |
 
 ## ox-alpha  ·  109 texts
 
@@ -750,13 +750,13 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3-30b-a3b` | 1,076 | 2026-06-02→2026-07-14 | advisory·75, creature·250, location·250, placement·250, regard·251 | route | event-observed 1,075, operation-observed 1 |
+| `qwen--qwen3-30b-a3b` | 1,076 | 2026-06-02→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·251 | route | event-observed 1,075, operation-observed 1 |
 
 ## qwen3-max-thinking  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3-max-thinking` | 1,075 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `qwen--qwen3-max-thinking` | 1,075 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## qwen3.6-max  ·  1,068 texts
 
@@ -768,19 +768,19 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3.7-max` | 750 | 2026-07-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
+| `qwen--qwen3.7-max` | 750 | 2026-07-23→2026-09-24 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## qwen3.8-flash  ·  923 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3.8-flash` | 923 | 2026-09-20→2026-09-21 | advisory·3, creature·243, location·249, placement·243, regard·185 | route | event-observed 923 |
+| `qwen--qwen3.8-flash` | 923 | 2026-09-20→2026-09-24 | advisory·3, creature·243, location·249, placement·243, regard·185 | route | event-observed 923 |
 
 ## qwen3.8-max  ·  1,052 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3.8-max` | 1,052 | 2026-08-16→2026-08-25 | advisory·55, creature·250, location·250, placement·249, regard·248 | route | event-observed 1,052 |
+| `qwen--qwen3.8-max` | 1,052 | 2026-08-16→2026-09-24 | advisory·55, creature·250, location·250, placement·249, regard·248 | route | event-observed 1,052 |
 
 ## ring-2.6-1t  ·  1,075 texts
 
@@ -798,7 +798,7 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `stepfun--step-3.5-flash` | 1,075 | 2026-05-12→2026-06-03 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+| `stepfun--step-3.5-flash` | 1,075 | 2026-05-12→2026-09-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## talkie  ·  75 texts
 

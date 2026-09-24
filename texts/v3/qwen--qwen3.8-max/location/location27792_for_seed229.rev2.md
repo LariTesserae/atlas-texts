@@ -1,0 +1,33 @@
+The place is a high, dry, loud garden set inside a small mountain bowl — a cirque no larger than a cathedral nave, open only where the rim has broken into a narrow notch. Beyond that notch there is altitude, wind, and a long drop into haze. Here, there is no water. No stream cuts the floor, no dew collects on the stones, no ice seams the rock. The ground is pale salt, black mineral dust, powdered ash, and old weathered basalt, all polished into settled forms by long ages of dry wind.
+
+The bowl is high enough that the light is thin and dim, even at midday. The sun appears as a dull copper smear behind a permanent veil of airborne resin, dust, and spore-haze. The air is warm, not from lowland summer but from deep stone heat and slow exhalations rising through cracks in the ground. It smells of heated resin, dry pollen, hot mineral, and something sharp like burnt amber.
+
+Vegetation here is lush in form but sparse in arrangement. There are only a few great plants, widely spaced, but each one is dense with life. They are broad-trunked, wax-leaved things — not trees in any ordinary sense. Their bodies are thick, ribbed, and slightly elastic, built to flex rather than break. Their leaves are glossy, oiled, and heavy, folding and opening with changes in pressure and heat. They do not drink water. Their chemistry is resinous and volatile: they feed on warm mineral vapors, airborne carbon, heat, and charged dust. When a leaf is torn, it does not bleed sap so much as bead with a clear, amber solvent that evaporates almost at once.
+
+Each plant is a vertical wilderness. From a swollen base rise clusters of stalks, hanging fronds, hollow tubes, and seed-horns. Some parts are thick and fleshy; others are dry and pipe-like. The tallest growths reach into the moving air and sway continuously. The lushness is not a carpet or a forest. It is a scattered abundance: a few living towers standing in open space, each one crowded with leaves, tendrils, nesting hollows, and resinous fruit.
+
+The terrain is old and established. The wind has been working on this bowl for a very long time, and everything shows it. The stones are rounded, not jagged. The salt floor is worn into smooth shallow channels. The roots of the great plants have polished the rock around them. There is no sense of a new ruin or a fresh disaster. Even the turbulence here feels mature, balanced, habitual. The place has existed in this state long enough to become stable inside its own violence.
+
+Sound is everywhere. The bowl is loud almost beyond hearing. Wind enters through the broken notch and moves across the hollow stems, split leaves, and porous trunks of the plants. It makes deep organ-notes, whistles, dry rattles, and sudden percussive cracks when folded leaves snap open. The salt floor hums where gas moves beneath it. The leaves strike one another like stiff leather. Seed vessels shake. The whole grove behaves like a badly tuned instrument being played by pressure and heat.
+
+Fauna is abundant, but it is strange. Most of it lives in the air, on the plants, or in the upper parts of the bowl. There are membrane-winged creatures like pale moths the size of hands, their bodies inflated with gas-bladders, drifting and jerking through the gusts. There are blind, bristled climbers that move along the waxy leaves, feeding on resin and humming with their wings. There are long, ribbon-bodied gliders that seem less like animals than like animated strips of skin, riding the updrafts between the plant towers. Some have no visible eyes; they navigate by vibration. Others have large acoustic crests, hollow throat-sacs, or thin antennae that tremble constantly.
+
+None of them drink water. They take what they need from resin, pollen, oily fruits, warm vapor, and one another. Their bodies are sealed, dry, and efficient. Many of them produce sound constantly: clicks, buzzing, low pulses, thin whistles. The animals add to the noise of the plants until the air itself feels crowded with vibration.
+
+Every few moments the bowl changes state. A thermal column collapses. A gust slams through the notch. The great leaves turn upward, then flatten. A cloud of dark spores bursts from a seed-horn. The airborne creatures scatter in a sudden spiral, then reassemble. Dust rises in curtains. Resin droplets fly. The hollow trunks change pitch. Nothing is still, yet nothing is destroyed. This is not chaos without pattern; it is a turbulence that has become the pattern.
+
+Built marks are few and scattered. There are a few low shelters near the sheltered side of the bowl: frameworks of carved bone and dark wood lashed with sinew, covered with layered hide and sealed with resin. They are small, temporary, weighted down with blocks of salt and stone. Nearby stand simple windbreaks, stretched membranes tied to stakes, and rough racks where tools or offerings might be left. The technology is primitive but careful: chipped obsidian, bone awls, polished hooks, cordage, resin glue, hand-carved whistles and signal tubes.
+
+Some structures are broken, half-buried, or reduced to alignments of stones. Faint grooves in the rock show where ropes have been tied and retied. There are small cairns, cracked drums, and shallow basins filled with dust instead of water. Whoever passes through this place does not build heavily. They build lightly, tie things down, and accept that the wind will rearrange whatever is not essential.
+
+The rules of the place are simple and severe.
+
+There is no water to find, so thirst must be answered by other chemistry.  
+There is no silence, so communication becomes gesture, touch, or learned signals.  
+There is no open ground that stays empty for long, because dust, spore, and creature move through it in waves.  
+There is no safety in height, because the gusts hunt upward.  
+There is no true stillness, because the plants breathe with the pressure of the bowl.
+
+To stand inside it is to stand inside a living instrument. The light is dim and amber. The air is warm and thick with floating particles. The ground is dry, mineral, and ancient. Around you, a few great resinous plants rise like green-black organs from the salt floor, their leaves shining dully, their hollow throats sounding in the wind. Strange animals drift and swarm among them, abundant but never crowded. The noise is loud enough to feel in the chest.
+
+It is a small place, bounded and singular. It is lush without moisture, turbulent without collapse, rich with life despite the absence of water. It has been exactly itself for a long time: a dry, high, singing bowl where wind, resin, heat, and animal noise have learned to exist in a continuous storm that never quite breaks.

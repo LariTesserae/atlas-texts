@@ -1,0 +1,1 @@
+The description of the place never arrived — the message stops at the invitation. Send the place (a paragraph, a list, a scrap of setting, whatever you have) and I’ll write whoever or whatever lives there, slowly, letting the inhabitants take shape instead of locking an image early.

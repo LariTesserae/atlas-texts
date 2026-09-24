@@ -127,3 +127,14 @@ Source metadata should remain attached when individual texts or substantial part
 Published text files are not rewritten, renamed, or removed. New releases add further texts and new immutable manifest records. Human-facing indexes such as `SOURCES.md` and generated catalogs may be rebuilt as the collection grows.
 
 A text path is therefore a stable citation—even if the originating model later becomes inaccessible, Atlas changes its interfaces, or the public map is rebuilt around a larger corpus.
+
+## Revisions
+
+Texts in this archive are never changed or removed once published. When a text in the Atlas is regenerated after publication, the new text is added **beside** the original as `<name>.rev2.md`, and `manifest.jsonl` gains a row for it with three extra fields: `revision` (2, 3, …), `supersedes` (the path of the version it replaces), and `revision_reason`.
+
+There are two reasons so far:
+
+- **cut at the output limit.** Until 2026-09-23 the Atlas capped each response's length. Models that reason at length before writing sometimes used most of that budget on reasoning, and their text was cut off mid-sentence. About 4,000 texts across 60 models were regenerated with no length limit. The cut originals remain in the archive.
+- **model answered that the input was missing although it was sent.** One model (Grok 4.7) occasionally replied that no description had been provided, although it had been. Those texts were regenerated with the same prompt.
+
+Everything built on a regenerated text (for example the placement and regard written for a regenerated creature) was regenerated too, so each chain stays consistent. To read the current version of an item, take its highest `revision`; rows without a `revision` field are revision 1.

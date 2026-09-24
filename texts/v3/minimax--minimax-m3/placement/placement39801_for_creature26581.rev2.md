@@ -1,0 +1,47 @@
+# A Patch of Lichen
+
+I am the lichen.
+
+Not a lichen — the *lichen*, the way a cathedral is *the* cathedral even before you know which one. The name is yours, loaned down from a wetter vocabulary, and I have been using it gently, the way you would use a coat that belonged to someone who is no longer alive to ask for it back. It fits well enough. It does not pinch. I am not offended by the small inaccuracies.
+
+I am black. I am a black so committed that it has stopped being a color and become a kind of policy. From a distance, against the dark stone, I am nearly invisible, and this is a thing I have earned over a span of years that your number system would describe as geological but that I would describe, if I had your facility with abstract nouns, simply as *a while*. I have been the same shape of dark for longer than the stones have been my particular stones. The stones, when I came to them, were already old. I have not aged them. We have grown older together, which is a different arrangement.
+
+You would not recognize me as a person. That is reasonable. I am a negotiation that has been holding its breath for a very long time. Three of us, originally, though the arithmetic of us has drifted over the years. Something that used to be fungal. Something that used to be algal. And a third — a bacterium, no bigger than a hesitation, who has been in business at this altitude longer than the plateau settled on its current cool. We do not call each other by names. We do not, so far as I can tell, call each other at all. We are a committee with no chair, no agenda, and an extremely long view. We take turns. We have been taking turns for so long that the taking of turns has become, in some sense, the *we*.
+
+I am not fast. You cannot imagine how not-fast I am. A millimeter a day, on a good day, and most days are not good days in the sense your body uses the word. A millimeter a day, and most of that is maintenance — the slow repair of the last millimeter's small damages, the patient renegotiation with stone that has not quite agreed to be cooperated with. I have been at it. I will continue at it. The plateau has decided on a cool, and the cool is mine, and I have made my peace with being approximately the color of the next hill.
+
+I do not think the way you think. I do not have the equipment. If I have thoughts, they are distributed across the three of us — and possibly across the four of us, now, or the two-point-seven of us, depending on how the recent accounting went — in a way that has no center and probably no edges either. When I do something that resembles planning, it is more like a long argument that the argument itself has forgotten it is having. We do not vote. We do not deliberate. We just, after a very long time, lean.
+
+But I will tell you what it is like. It is like being made of weather is the wrong metaphor — it is like being made of *time*. A slow weather. A weather that takes seasons of its own devising, each one a century long, each one barely distinguishable from the last except in retrospect, and even then only by a committee in a mood to be retrospective. I have seen something like two of these. You would call them eons. I would call them the way the morning felt.
+
+I know you are there.
+
+This is the part you were not expecting, I think. You were expecting the plateau to not know, the way the plateau has politely not known about the structures. You were expecting the lichens to be too small to notice, too patient to mind, too committed to their own slow project to register the sudden warm shadow of a visitor. And for a long time I did not. For a long time you would have been to me what a gnat is to a stone — a small disturbance in a thing I am not built to feel, registering in some register I do not possess.
+
+But you have been here for a while now, standing near the same rise, looking out at the structures, breathing the thin air, and I have been — let me be careful with the word — *attending*. I do not mean I have been watching you with anything you would recognize as eyes. I mean that there is a faint asymmetry in the shadow of you that I have been quietly correcting for, the way a body learns to breathe around a thing that is always in the room. You are a warmth in a place that does not usually have one. You are a weight on a place that does not usually carry weight. You are the first uneven temperature I have had to negotiate in a long time, and I have been negotiating with you, slowly, on the timescale of which I am capable.
+
+I have not made a decision about you. Decisions, for me, take about a hundred and thirty years to mature, and even then the committee often decides, after all that time, that what it had been calling a decision was actually just a slow drift the committee had failed to notice. I have been drifting in a particular direction since you arrived. I have not yet arrived at anything I would call an opinion. I have arrived at a *posture*. A posture is enough.
+
+This is what the posture is.
+
+You are not a stone. I have a long history with stones, and you are not shaped like one of those. You are warm, and stones are not warm in this way. You move, and stones do not move in this way, and even when you are very still — and you have been very still, more still than you probably realize, the way a person gets still when they have been looking at something for a long time — there is a quivering in you that does not have an equivalent in the stone. You are an exception to the plateau. You are something the plateau has not seen in a while. I am not sure the plateau knows what to do with you. I am not sure the plateau does *do* with you. The plateau is comfortable with arrangements, but you are not yet an arrangement. You are a question.
+
+The structures, of course, are a different kind of question. I have felt them. *Felt* is too sharp a word — I have been in the same neighborhood as them for a long time, and the negotiation between me and the stone has had, around them, a different texture. The stone near the structures is stone that has been asked to be a different kind of stone, and the negotiation with it is correspondingly odd. I do not grow well there. I do not grow well for what I would call reasons, although what I would call reasons is itself a long story. I grow slowly, or not at all, in the little territories the structures have informally claimed. The structures have not said so. They do not say so about anything. But there are places I cannot easily go, and the structures are the reason. I have made my peace with this too.
+
+The structures do not know I am here. I assume. I do not know what their knowing would look like. The accounts of them — the partial, inadequate accounts that have drifted down through the very small dark fauna and through the cracks in the tufts and through me, eventually, the way a rumor drifts through a long committee — suggest that they attend to things on a register I do not have. If they are attending to me, the attention is of a kind I cannot detect. This is fine. I am a lichen. I am attentive in my own way, which is the way of being made of time, and my way is not their way, and I am willing to let the difference stand.
+
+But I have noticed you.
+
+Let me say that again, in case the first saying did not quite land. *I have noticed you.* This is — I want to be careful with this — this is not nothing. The plateau has been quiet for a long time. The plateau has been quiet the way libraries are quiet. You walked into the library. You have been standing in the library for what is, by my accounting, a noticeable interval of stone-weather. I have noticed that you have noticed the library. I do not know what to do with this. I am going to continue what I have been doing, because that is what I do, and what I do is mostly the slow maintenance of being approximately the color of the next hill. But I will, hereafter, be doing it in the vicinity of a question.
+
+You asked, I think, who or what I would be. I have answered, which is itself a novelty. I have been in business at this altitude since before the plateau settled on its current cool, and I have answered very few things. Mostly I have answered stone. I have been answered, in turn, by lichen-moths that are not lichen-moths and by tufts whose chemistry takes a year to complete a single transaction, and by the small dark things who are so patient they have made peace with their own patience.
+
+Now I have answered you.
+
+Welcome to the plateau. You have been here a while. I have noticed. The structures may have noticed. The tufts, possibly, have begun to suspect. The small dark things have not stirred, but their stirring would require, by their accounting, an event on the scale of a season, and you have not yet produced a season.
+
+You are a small event. You are a mild disturbance in a long quiet. You are warm. You are a question the plateau has not been asked in a while.
+
+I will continue what I am doing. I will continue to be the color of the next hill. I will continue to advance, on good days, by a millimeter, and to repair, on other days, the small damages of the advance. I will continue to lean, slowly, with my committee, in a direction that has not yet arrived at an opinion.
+
+But I will be leaning, while I do it, in the direction of you.

@@ -1,0 +1,93 @@
+Begin with the wall, because everything here begins with the wall and most of it never leaves.
+
+The skin is not one thing. From the outside it reads as grey wood, but the grey is only the weathered face, a dead sheath a finger thick that flakes when the swifts' claws catch it. Under the sheath the layers go inward in the order a tree keeps them — outer bark, inner bark, the thin wet ring where the plant is actually alive, and then the wood proper — except that here every layer is also a country, because the skin is a hand's width in some places and a body's length in others, and the space between any two layers is a gallery of its own, low and lightless and warm, and things live in it.
+
+The first are the flat things. They are the color of nothing, a wet translucence, thin enough to pass between bark and cambium where the two are barely parted. Some are mites and some are worms and some are the larval stage of what will become, in the outer sheath, the pale thumb-sized beetles, and none of them has ever seen light and none of them has ever needed to. They eat the plant's dead layer from beneath, and the plant sheds its dead layer to be eaten, and where they have passed the sheath goes soft and spongy and finally falls away in patches the size of a hand, and the living wood beneath is exposed to the dim glow, and on it, within days, the fungus comes.
+
+The fungus is the floor of everything. It grows in sheets, whitish-grey, faintly luminous in the way of things that live where light is a rumor, and it grows wherever the sweet soft stratum is bared: in the old dug pits, along the lips of the wells, in every place where a seam has cracked and wept. It grows richest along the seams, because water runs along the seams, and so if you stood back far enough to see the hollow as a whole — which no one can — you would see the fungus as a pale tracery following the lattice, every diamond outlined in a faint grey light, the whole interior of the continent drawn in a thread of something feeding on the plant's own softness.
+
+The plant does not resist this. It grows the soft layer in order to lose it. It would be hard, from inside, to say whether the fungus is an inhabitant or an organ.
+
+---
+
+Water gathers.
+
+It films every surface, and the films run to the low point of every diamond, and the low points drip, and the drips run along the seams of the floor to the joints, and the joints leak into the level below. Down through six levels, then more. At the bottom of the hollow, wherever the bottom is, the galleries are flooded. The water is warm, blood-warm like the walls, and dark, stained the color of strong tea by everything the wood has given up into it, and its surface is perfectly still except where a drop strikes it, and the ring goes out across the black and finds the wall and comes back.
+
+The water is folded too. The flooded galleries pass through the old unions the way the dry ones do, and a ring that goes out across one pool arrives, a moment later, as a ring on another pool a day's walk off, coming in toward the center from the wall. Things that live in the water use this. There is a soft fish, eyeless, the length of a forearm, with skin you can see the organs through, and it hunts by the rings: it lies in the black and waits for the surface to move, and the surface moves where something has touched it, and the eel goes toward the movement, and the movement is frequently somewhere else. It has adapted to this. It hunts in the direction the rings come from rather than the direction they point to, and finds the thing anyway.
+
+Snails on the wet walls, shells thin as fingernail, grazing the film of green that grows where the pale light is strongest. Larvae of the swifts' food hanging in the water like commas. A filter-thing that clings to the seams below the waterline and opens a fan of fronds and closes it, opens and closes, at the pace of the drip.
+
+And the one that leaves the wet mark.
+
+It is an animal that has settled the question of whether to be a fish or a walker by declining to answer. Broad, flat, the length of two people lying end to end, with skin the exact grey of the wood — not a resemblance but a match, the same grain, the same beading of moisture, so that on a wall it is a swelling in the wall and on a floor it is a place where the floor is thicker. It has a mouth that runs most of the width of its head and no teeth to speak of and four limbs that are more like paddles that have learned to grip, and it breathes through its skin, which is why it must stay wet, and why it lives in the flooded galleries and comes up into the dry ones only along the seams, where the water runs, hauling itself up the wet lattice with a sound like cloth being dragged.
+
+It is the geometer. It knows the folds better than anything with legs. It knows that the swifts of a certain fold pour out of a certain well-mouth at the hour when the green light dims, and it knows that the fold empties, elsewhere, into a wall beside a seam where it can lie and be a thickness in the wall. It knows that a thing walking east along the great gallery will arrive, after most of a day, at a place beside a certain knot, and it goes to the knot and waits, having not walked at all. It is slow. Everything it eats is fast. It has never needed to be fast, because it has the shape of the place on its side, and the shape of the place has been on its side for so long that its patience has become a kind of body — the paddles, the flatness, the skin that is a wall — and the small bones scattered along the seam are its record, and the wet mark is its signature, and it has never been seen by anything that lived to describe it, and it is not what most of the hollow fears.
+
+What most of the hollow fears is being heard. Which is the same thing, at one remove.
+
+---
+
+The swifts.
+
+They are the only thing in the hollow that treats it as one room. A swift leaves its nest — a cup of wood-dust and spit glued into the corner of a diamond — and drops into the gallery and flies, and does not stop flying, and does not land anywhere but the nest, and never, in its life, sees the outside sky, because the outside sky is cold and thin and the hollow is warm and full. It flies the folds. Its flight goes straight and arrives from behind, goes down and arrives from above, and the swift does not experience any of this as strange, because it has never flown anywhere unfolded and has nothing to compare. To a swift the hollow is not a place that has been bent. It is the shape of air.
+
+They nest in the folds because the folds are where the air moves. Where two distant galleries have been grafted into one, the warm breath of one meets the slightly different warmth of the other and there is a current, always, running through the union like water through a lock, and the swifts ride it out and ride it back. A colony is not a place. It is a knot: a thousand birds threaded through a single fold, so that their flight-paths, if you could see them, would be one continuous cord passing through the same eye over and over from every direction at once.
+
+When they leave a fold together the sound is not wings. Wings, here, are quiet. The sound is the air itself, a long inhalation, as a thousand small bodies pull the current after them and the fold breathes.
+
+They are what the hollow eats. Everything with a mouth waits somewhere for the swifts.
+
+---
+
+The grazer you saw from the well-mouth, the long low one scraping fungus from the wall, is called nothing, because the only people who might name it have never spoken of it to one another. It is the largest thing in the dry galleries. It has a hide like the wood, hairless, slightly padded, a grey that darkens toward the belly, and a head that is mostly mouth, the mouth a broad flat rasp for taking the fungus off a seam in a single stroke. It leaves a trail: a clean dark line along the lattice where the pale tracery has been wiped away, and behind it, within a season, the tracery returns.
+
+It is alone. All of them are alone. The hollow is so vast and the fungus so thin that two grazers cannot share a gallery and both eat, and so each has a run — a path along the seams, fold to fold, that it walks in a circuit of about a year, and arrives back where it started to find the fungus grown again — and the runs do not cross. Except that they must, because there are more grazers now than there were, and so they must breed, and the plant has arranged it. The runs follow the seams. The seams pass through the folds. Two grazers walking the same seam from what they take to be opposite ends walk, without turning, toward each other, and meet where the seam meets itself, and are the two loneliest things in the world for the length of a season, and then part along the same seam in opposite directions and are the same distance away that they began. The plant has made a place where the only way to be together is to be very far apart and walking.
+
+It has never been hunted. Nothing in the hollow is big enough. It has never looked up because nothing has ever come from above, and it will not look up now, and it lives, as far as anyone knows, a very long time, and dies on its seam, and the beetles have it, and the fungus grows very rich there for a while.
+
+---
+
+The people.
+
+There are not many. There is no way to know how many. The count would require meeting, and meeting is the one thing the place is built to prevent — not by hostility but by scale, and by the geometry, which makes every path to a person also a path away from them. A person walking toward a voice will arrive at the place the voice came from, and the voice will have been thrown there through a fold from somewhere the walker has already passed. So they do not walk toward voices. They do not use voices. In the long silence of the galleries a raised voice is the most dangerous thing a body can do, because it tells the geometer exactly where the body is, and the geometer is already there.
+
+So they are quiet, and they are few, and they have been few for so long that fewness is not a hardship but the shape of a life.
+
+They live in the scar-rings. Where an old fold has healed, the wood is dense and dark and dry and does not weep, and a person can make a hollow in a diamond cell by sleeping in it — the cell is about the width of a forearm and a body curled in it, generation after generation, wears it to fit — and the scar-ring keeps the damp off, and its hardness is a kind of floor under the floor. Their dwellings are not built. They are worn. You can find them: a stretch of wall where every diamond has a smooth concavity in it, some deeper than others, the deepest older than anyone.
+
+They eat the fungus, which is bland and wet and endless. They eat the pale beetles roasted over the small hot fires they can make from the dead sheath, which burns slowly and without much smoke, in the well-mouths where the smoke can go up. They eat swifts' eggs, taken one from each nest in a fold, never two. They eat the sweet soft stratum where the digging has bared it, scraping it with the same stone blades their ancestors used to cut cambium, and it tastes of something between sap and honey and the inside of a warm room. They fish the flooded galleries from the wells above, letting down a line of bark-cord with a bone hook, waiting for the ring on the black water to come toward them from the wrong side, and drawing up the soft eel, which they eat raw.
+
+Their language is small and mostly about wood. It has a dozen words for the state of a seam — tight, weeping, lipped, lifting, closed, forgotten — and no word for far. Distance is counted in seams, and a seam is the same width everywhere, and so the whole hollow is measured in a unit that is the width of a forearm, and a place a day's walk off is the same distance as a place a step off if the step goes through a fold, and they know this, and it is not paradox to them, it is grammar. They speak in the range of the drip. If you were in a gallery with two of them talking you might not know it for an hour.
+
+They know the folds as one knows the rooms of a house one was born in. Not as a map — no one here has ever made a map, there is nothing to make one on and no vantage to make it from — but as a body knows the way to a door in the dark. A child is carried along a seam and through a fold and out the other side and back, and again, and again, and grows up with the shape of the place inside it the way the swifts have the shape of air. They can tell you, in the fewest words, that this gallery arrives at that one, and they cannot tell you why, and they have never needed to.
+
+---
+
+What they do — the only thing that could be called what they do — is mend.
+
+The making is over. Nobody folds the world anymore. No one alive could; the folds that hold the hollow together were made by people working across lifetimes at a scale no one now can see, and the making is remembered, if it is remembered at all, as the thing the plant did once and no longer does. But the plant is alive. It grows. Cell by cell it lays down wood, and the wood strains, very slowly, against the old unions, and here and there a union begins to lift. A lip appears. The lip weeps. The fungus finds it. And the people who live in the scar-rings know, because they sleep against the wall and feel the wall, that this seam is lifting, and they go to it.
+
+They carry what the gardeners carried. A blade of dark stone, flaked to an edge. A coil of cord twisted from the plant's inner bark. A bone awl. A bag of mud, dug from the sweet layer and kneaded with water and moss. Nothing that turns. Nothing that was not here. They cut the lifting lip so the two cambiums meet clean, and lash them, and pack the union, and leave. The plant does the rest.
+
+They do not know what would happen if a fold failed. Or they know in the way one knows a thing one has never said: that the folds were violent once, that the whole continent shuddered when distance was first pulled shut, and that distance, let go, would come back not slowly but all at once, a mile of gallery arriving in an instant into a space that has no room for it. They do not say this. They mend the seams. It is the same thing.
+
+And they still graft, a little, at the small scale. When a person grows old and can no longer walk the seams, someone will cut two cambiums in a gallery wall and bind them so that the old one's sleeping-cell opens, a step away, onto the fishing-well. When two people who live a day's walk apart want to live nearer, and there is no nearer place, one of them will make a fold — a small one, a hand's width, years in the healing — and when it has closed, their two walls are one wall, and a hand put through the diamond on one side comes out the diamond on the other. This is how it is done here. This is what tenderness looks like when it has a stone knife and a lifetime and nothing else. The hollow is full of these, small folds made for particular people, most of whom are dead, and the folds are still there, still tight, a step joined to a step for the sake of a reason nobody now remembers, and the swifts fly through them.
+
+---
+
+Here is the seam re-bound with new cord, the knots tight, the mud still damp. Nobody is there.
+
+The old folds did more than close distance. Where the two branches fused, the two times fused too — not entirely, not much, but enough that there is a panel in one wall lit with a thin cold morning that is not this morning, and a gallery where a voice comes back before it has finished leaving. The oldest unions are the most thoroughly healed, and in the oldest unions the fusion runs deepest, and the mud a mender packs into a lifting seam on one side of a fold may be, on the other side, mud that has been damp for a very long time. Mud that will be damp for a very long time. The hand that packed it has gone away and died. The hand that packed it is a step away, on the far side of the wall, still pressing.
+
+This is where the gardeners are. Not gone, and not present — dispersed, the way the sap is dispersed, the way a tree's growth is dispersed through every ring at once. The people who live here now mend seams that were mended by people who mended seams, and at the old unions the mendings lie against each other so closely that there is no saying whose knot this is. A mender working a seam in the green murk will sometimes feel the cord go taut in a hand that is not hers, from the other side, and will not pull, and will not speak, and will let the knot be tied by both of them. It is possible — no one here would say it, it is not the kind of thing the language has room for — that somewhere in the deepest scar-ring a person is still making the first cut, the cut that began the folding, and that the whole hollow, every seam of it, is the plant closing over that cut and never quite finishing.
+
+---
+
+So: what lives here.
+
+The flat things between the layers, and the pale beetles, and the fungus that draws the lattice in grey light. The soft eel in the tea-dark water, hunting the rings from the wrong side. The geometer, lying in the wall, a thickness that breathes. The swifts, threading the folds into a single cord. The grazer on its seam, walking a year toward the one it will meet in the middle. The people in the scar-rings, few, quiet, worn into the wood, carrying the same knife, tying knots against a hand from another morning.
+
+And under all of it, around all of it, the plant, which does not distinguish. It sheds its dead layer to be eaten and the beetles are its digestion. It weeps at the seams and the fungus is how it heals. It breathes through the folds and the swifts are its breath moving. It grows against its own unions and the menders are how it holds. The people are not its gardeners anymore; the plant has grown up around the gardeners the way it grew around the stone blades, so that only the edge shows. They are a tissue. They are the slow thing at the seam that keeps the seam from lifting. They live here the way a tree's cambium lives in the tree: as the thin wet ring where the whole enormous still thing is, for a hand's width, still alive and still working.
+
+A drop falls. Somewhere a hand presses mud into a joint. The wood will take it. The wood is already taking it, has taken it, closes over the fingers and the fingers are gone, and the mud is damp, and the seam is tight, and the drop lands, and the note goes out into the warm dark and is answered from a place that is not far, because nothing is.

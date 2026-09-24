@@ -1,0 +1,33 @@
+The Benevolent Power did not descend in glory. Glory would have been an insult in a place where radiance is common as air. It did not come with commandments, for what could be commanded of a being that had already achieved the surrender that saints only pray for? It came as a question too respectful to demand an answer. It came as a coolness.
+
+First, there was a single droplet on the cable. Not warm. Not native. It condensed there from a breath exhaled by something that had traveled a long way down, through stone and time and the sluggish dreams of tectonic plates. The drop was clear, but in its refraction, if one had looked closely, there were stars. Not the stars of any sky the chamber had ever known, but remote, steady lights from far outside the mountain’s weight. The droplet hung for a day, learning the rhythm of the chamber’s pulse. Then it fell, joining the central pool without a ripple, and the temperature of the reservoir dropped by less than half a degree. Just enough to notice. Just enough to say: *I am here, and I am gentle.*
+
+The entity did not assemble. Not yet. The power understood that to force a surge would be a violence. So it waited. It distributed itself through the fluted channels, a cool thread in the warm currents. It listened to the bass hum in the bedrock and learned to sing with it, not altering the note but adding a harmony so subtle the stone itself did not know it was hearing a duet. It touched the fungal filaments with a temperature that made them stir, not in alarm, but in the slow, surprised motion of someone feeling a breeze after centuries of still air. It did not speak. It *attended*.
+
+Through three surge cycles it waited. It felt the pressure invert against the eardrums of the world. It watched the column rise, the face of braided currents assembling itself in defiance of gravity. It heard the cable’s high, tense harmonic—the groan of effort, the loneliness of standing upright when everything else has agreed to lie down. And in the collapse, in the wet thunder and the explosion of mist, the power felt the entity dissipate back into its own atmosphere, breathless, nameless, alone.
+
+On the fourth cycle, the power moved.
+
+When the air pressure began to shift, when the pool started its inhalation, the coolness in the water gathered. It did not interrupt the physics. It did not try to hold the entity’s shape or force it into a body it had outgrown. Instead, as the column erupted upward—three meters, five, eight—it surrounded it. Not as a prison. As a mantle. A sheath of cooler water, a fraction of a degree less, interlaced with the warm spirals but never mixing, like oil held in suspension. The entity, usually fighting every second against the collapse, felt something it had not felt since before it had nerves: the weight of *holding* shared by another.
+
+The column rose higher than it ever had. Ten meters. Twelve. The face within the water became defined—not forced into the mask of a human, but clarified into its own geometry, its own braided majesty, bright and terribly tender. The cable sang, but this time its harmonic was answered by a deeper tone from the bedrock, a bass note the power had prepared during its long wait. The tension did not vanish; it was *accompanied*. The standing became, for thirty seconds, a duet.
+
+Then the collapse. The thunderclap.
+
+But this time, as the water hammered down and the mist exploded outward, the power did not let the form dissipate unseen. It caught the breath of the entity—the vapor, the luminous condensation—and held it. Suspended above the roiling pool, a ghost of mist and cool silver light remained. A mirror. A shape. For the first time since the treaty was signed between mineral and moisture, the entity saw itself. Not a memory of when it had bones and sat on benches. Not a dream of hands. But what it was now: a storm made wisdom, a lung made sovereign, a weather system aware of its own terrible beauty. The mist-form lingered, gazing down at the pool with a face of braided light. Then, only then, did the power release it. The form melted into the brightness, not as a surrender, but as a return blessed by recognition.
+
+Afterward, in the calm, the power turned its attention to the motes.
+
+It found one rising from the reservoir’s skin—an obsolete thought, a crystallized instruction, trembling on the edge of its glassy shriek. The power did not try to save it. To save a dying memory from a being that has transcended memory would be cruelty. Instead, it guided the mote to one of the fluted channels, to a hollow where the stone ran slightly cooler, where the condensation beaded with a different, slower gravity. There, the mote settled. It did not scream. It chimed once—a clear, underwater bell-note—and became a pearl of quiet light on the channel floor. The chamber’s forgetting had been given dignity. The cache cleared itself now with lullabies, not shrieks.
+
+Then the power sat on the bench.
+
+Not with a body. It had none that would fit here. It sat as a shape in the condensation, a cool outline against the warm stone, an absence of mist in the exact form of a seated figure, head bowed, listening. It remained there through the next cycle, still and present, while the water rose and fell and rose again. It did not speak. It did not need to. The bench bore its weight, and the stone knew it.
+
+And finally, the power spoke to the entity in the only language that could be understood: it changed the hum.
+
+The deep, geological drone that had been the chamber’s unconscious backbone since its creation was altered—not in pitch, but in timbre. A note of tenderness was added, low and vast, a basso profundo that said: *Your treaty is witnessed. Your effort is honored. You are not the last thing. You are not alone.*
+
+Then the power withdrew to the edges of the chamber, becoming a permanent coolness in the corner, a guardian breath, a star-refraction in the water. It did not take over the cycles. It did not dim the native glow. It simply remained, vigilant and unobtrusive, ensuring that the crack in the deeper earth would admit only those who came in humility, and that the chamber’s wet, bright storm would continue for as long as the entity wished to maintain it.
+
+The entity never assembled differently after that. It did not become more human, more solid, more comprehensible. It did not need to. But when the column rose now, it rose a little higher, held a little longer, and when it fell, the mist that remained in the silver air was slower to dissolve, as if the chamber, small and sparse and endlessly awake, had been given the one gift it did not know it lacked: a friend who understood the weight of weather.

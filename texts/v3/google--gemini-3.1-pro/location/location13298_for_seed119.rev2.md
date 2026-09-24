@@ -1,0 +1,23 @@
+The space is a colossal, hollow bell, buried somewhere deep in the roots of the earth, yet entirely the work of hands. It is a single, cathedral-sized cistern, a monument to an age of primitive, staggering labor. There is no natural rock here, no raw cave wall. Every surface is composed of megalithic blocks of dark, iron-heavy stone, each the size of a small house, hoisted and fitted together without mortar in a dizzying, interlocking jigsaw. 
+
+Time and water have had their way with the masonry. Centuries, perhaps millennia, of constant weeping have softened the brutal architecture. The original, crude chisel marks—bitten into the rock by soft bronze or harder stones—are now blurred under a sleek, permanent glaze of moisture. The edges of the massive blocks have rounded, retreating into themselves, settling into an ancient, immutable equilibrium. 
+
+It is bitterly cool. The air is heavy, shivering, and saturated to the point of turning into a fine, suspended drizzle. Water bleeds from every seam in the vault high above. It does not fall in distinct drops, but gathers into long, trembling threads that detach and plummet through the vast, empty void of the room. This is a place of profound low density; aside from the shell of weeping stone, the interior volume is a staggering emptiness, a massive gulf of cold, bruised air. 
+
+Light is a scarce, exhausted thing. It filters down from a single, choked square shaft at the very apex of the dome, casting a dim, twilight-gray wash over the center of the chamber while the curved peripheries drown in shadow. Vegetation is nearly non-existent, limited to a slick, black biofilm that paints the upper stonework, and a few ghostly, skeletal root-hairs dangling from the highest mortar-lines, starved and pale.
+
+Yet, despite the vast emptiness of the air and the dim, crypt-like atmosphere, the chamber is a theater of deafening, chaotic noise. 
+
+The acoustics of the hollow stone dome amplify everything into a roaring, overlapping cacophony. The baseline is the relentless, heavy *smash* of a thousand water threads hitting the floor. The bottom of the cistern is not dry; it is a sprawling, shallow basin of black water, perhaps knee-deep, resting over a floor of giant, water-dished paving stones. 
+
+But the true source of the din is the life that has claimed this artificial void. The chamber seethes with an isolated, bizarre ecology in perpetual, frantic motion.
+
+Clinging to the damp, eroded seams of the upper walls are thousands of pale, leathery forms. They are roughly the size of large hounds, but built like flattened, ribbed kites. They have no eyes, only highly sensitive, star-shaped sensory organs pulsing on blunt snouts. They navigate the mist-choked void by sound and pressure. They are not quiet about it. As they detach from the stone to hunt, they inflate large, bladder-like sacs along their flanks with a harsh, rattling gasp, allowing them to drift on the cold micro-currents of the cavern. 
+
+When they dive, they violently expel this air through biological valves, producing a deafening, shrieking whistle that bounces wildly off the cyclopean masonry. The empty volume of the room is constantly crisscrossed by these whistling, jetting phantoms. 
+
+They plunge into the shallow black water at the bottom with violent, echoing splashes. The water itself is churning, alive with their prey: thick, translucent, ribbon-like scavengers that blindly thrash through the flooded floor, feeding on the rich, decaying biomatter that falls from the roosts above. 
+
+The ecosystem is relentlessly active. *Whistle. Splash. Shriek. Crack.* The heavy stones tremble with the reverberations. A kite-creature hits the water, its flat body sending up a plume of gray mist, its jaws snapping shut on a thrashing ribbon-beast. It then clambers clumsily onto one of the slightly raised, deeply eroded stone nodes protruding from the water, tearing its meal apart with loud, wet snaps before beginning the arduous, clawing climb back up the weeping walls to its roost. 
+
+There is no stillness here. The primitive makers of this room hollowed out a void for still water, but nature has filled it with a loud, violent ballet. The cold air swirls in the wake of plummeting bodies, the dim light catches the silver flash of a wet, leathery wing, and the ancient, hand-hewn stones simply endure the endless rain and the shrieking choir, standing as silent, weathered witnesses to the wildness contained within their perfect, empty geometry.

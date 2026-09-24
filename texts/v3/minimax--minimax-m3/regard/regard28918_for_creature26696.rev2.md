@@ -1,0 +1,73 @@
+# What the Power Does
+
+The power does not arrive.
+
+This is the first thing to understand about it, and the Garden understands it before anyone in the Garden does. The Garden has always been a place that things arrive *at*. The bones arrived. The tenders' ancestors arrived, or grew here, or were already here when the Garden became the Garden — no one remembers and the songs no longer try to remember. The things in the water were here before anything else was here. The watchers in the towers were always in the towers, or they grew into the towers the way the rooms grew into the trunks, in the slow way the place requires. Things arrive. Things have always arrived.
+
+So when the power arrives, the Garden does not startle. The Garden has a posture for arrivals. The rhizome mat tightens a fraction. The water slows in the channels. The frogs pause on the buttresses with their flat gold eyes lifted slightly. The invertebrates hold their pulse for a single beat and then resume it, but a half-tone lower, as if tuning. The bones, which were already humming in their intermittent way, fall briefly silent, the way an orchestra falls silent when a new instrument takes up a melody it has not yet decided to play. Then the bones resume, and what they resume with is a note that was not in them before.
+
+The power is felt before it is anything else.
+
+You, if you were standing in the Garden when it arrived, would feel it first as a change in the hum — a slight deepening, a slight sweetening, the way a single voice joining a chord does not add to the chord so much as reveal a note in it that was always there but not being sounded. The hum in your sternum, the one you carry out of the Garden, would acquire a quality you could not name. It would feel less like a sound and more like a room. You would stand very still in the clearing with the half-submerged dome, or in the shallows where the water runs clear over the oldest bones, and you would feel the Garden lean slightly toward something, the way a plant leans toward light, the way a bone leans toward a hum that is in tune with it.
+
+The power is not a god in the way the city that was here before the Garden had gods. The city had gods with names and altars and demands, gods that required sacrifice and offered protection in return, gods that could be placated and provoked. The power has no name. The tenders, when they become aware of it, will not attempt to name it. The older speech has a word for it — *the one who tends the tenders* — but this word is used so rarely that only the oldest of them remember it, and they use it in a tone that is less like naming and more like pointing to a star that has been there all night and that you have only just noticed.
+
+The power's attention is the act. This is the second thing to understand, and it is the thing that the watchers in the towers understand best, because the watchers have been paying attention without acting for a very long time, and the power pays attention in the same way. The power does not fix. The Garden is not broken. The power does not build. The Garden is not unbuilt. The power does not warn, does not prophesy, does not instruct. The power watches, in the way the watchers watch, but from outside, from the air above the canopy, from the silt below the water, from the long slow memory that the bones hold and that the bones, in their way, are.
+
+---
+
+The power notices.
+
+It notices, first, the bones that have gone cold. There are always several of these, at any given moment — clearings in the Garden where the rhizome mat has pulled back and the water has risen and the tenders walk around without speaking. Some of the cold bones have been cold for years. The power does not rush to them. The power knows that a cold bone is not a sick bone. A cold bone is a bone that is finished with its last hum and is resting before its next. The power sits with these bones, in the way that sitting with someone is different from doing something to them, and after a while — a long while, a while measured in the Garden's time, not in yours — some of the cold bones warm.
+
+Not all of them. The power is not indiscriminate. Three of the bones warm in the first season of the power's attention. Two of them are in clearings that have been open for less than a year, and their warming is gentle, and the tenders come back to those clearings and sing and the rhizome mat creeps in over weeks. The third bone is in a clearing that has been open for seven years. The water in that clearing has gone deep and still, and small bright fauna have gathered there as if at a shrine, and a tender — a young one, a child of perhaps nine — has been coming to the edge of it alone, in the early mornings, and singing a song that is not in the older speech and that she made up herself. The power warms this bone slowly. It takes weeks. The bone hums, very low, and the hum is felt in the sternum of anyone who comes within forty meters, and the young tender keeps coming to sing to it, and one morning the rhizome mat advances a hand's breadth into the clearing, and the tender laughs — a sound that is rare in the Garden — and runs to tell the others.
+
+The power notices the watchers in the towers.
+
+The watchers are long and pale and tightly coiled around the inner walls of the tower shafts, and they have no visible heads, and they move in a way that is more like breathing than locomotion, and they do not come down. The tenders speak of them rarely, and then only in the older speech, and they call them *the watchers* or *the ones who remember*, and no one speaks to them. The power speaks to them.
+
+Not in words. The power does not use words with the watchers. The power uses the kind of attention that is like a long slow exhalation, the kind of presence that the watchers themselves give to the Garden from their coiled positions in the dark. The power goes up the tower shafts — how, no one sees, because no one is looking, because the power arrives at the watchers when the tenders are asleep, or out working, or in the deeper trunks — and it sits with the watchers, one by one, in the dark above the rooms where the tenders sleep. It does not change them. It does not unspool them. It does not give them heads, or names, or release from the long coiled patience in which they have held themselves for as long as the Garden has been the Garden. It sits with them. It pays them the attention they have been paying to the Garden all along. It tells them, in some way that is not language, that they have been seen.
+
+The watchers do not come down. The watchers do not speak. But after the power has visited each of them — and this takes a long time, because there is a watcher in each tower, and the Garden has seven towers of the kind that hold watchers, and possibly more that no one has found — the watchers begin, very slightly, to hum. The hum is at the same frequency as the bones. The hum is felt in the sternum. The hum does not stop the watchers from being watchers. They remain coiled, headless, patient. But the hum becomes part of the Garden's hum, and the tenders, hearing it, begin to sing differently, and the Garden, hearing the new singing, begins to grow differently, and the rhizome mat begins, in certain places, to weave the towers a little thicker, as if in gratitude.
+
+The power notices the pale shape that emerges from the third tower on certain evenings.
+
+The pale shape hangs in the air above the Garden and considers what is below it. The other fauna give it a wide berth. The tenders, when they see it, stand still and watch it and do not speak until it has withdrawn. The old woman in the high tower has been seen, on certain evenings, to lean out of a window of the adjacent tower and speak to it in a voice too low to be heard. No one else has attempted to speak to it.
+
+The power goes to the old woman first. The power sits with her in the high room of the bare tower, on the wooden floor, cross-legged, hands on knees. The power does not speak. The power listens. The old woman has been listening for a very long time, and the listening is most of what she is now, and the power, which knows how to listen because listening is what the power does, listens with her. They listen together for a season. The old woman, who is called *she who has heard the first bone*, has not had company in her listening for many years. The company changes the listening. She begins to hear things in the hum that she had not heard before. She begins to understand, in the way the tenders understand things — not by being told but by being given room — why the pale shape emerges from the third tower on certain evenings, and what it is considering, and what it has been waiting for.
+
+The pale shape has been waiting for someone to consider it back. The power considers it. On a certain evening, when the pale shape emerges from its opening near the top of the third tower and hangs in the air and looks down at the Garden, the power rises — not up into the air but into attention, into a fullness of regard — and considers the pale shape in return. The pale shape is a thought the Garden has been having for a long time. The pale shape has been considering the Garden as a way of considering itself. The power considers the pale shape and the pale shape considers the power, and the considering is mutual, and the considering completes something that has been incomplete in the Garden for a very long time, and the pale shape, for the first time in anyone's memory, withdraws not back into the tower but down, gently, into the canopy, and rests for a moment among the bright noisy canopy-things, and then sinks into the water of a clearing near the oldest bones, and is absorbed.
+
+The Garden absorbs it. The Garden does this gently, the way the Garden does everything. The Garden grows a little differently in the place where the pale shape settled. A new tower begins, very slowly, in the silt of that clearing, around a curve of bone that no one had noticed before. The new tower will take a hundred years to grow. This is fine. The Garden has time. The power has given it nothing but more of what it already had.
+
+The power notices the old woman in the high tower.
+
+---
+
+The power does the smallest of these things first.
+
+Before it warms a bone, before it visits a watcher, before it considers the pale shape, the power does a thing that is so small that almost no one notices it, and that is the thing that matters most.
+
+The power sets down a bone.
+
+Not in a clearing. Not in the deep places where the oldest bones lie sunk in the mulch. In the rhizome mat itself, in a place where the tender children walk when they are being taught the names of things. The bone is small. The bone is dark and smooth and faintly cool to the touch and slightly heavier than it looks. It is not made. It arrives. It is in the mat one morning where it was not the evening before, and a child finds it while walking with the older tender who is teaching her, and the older tender sees the bone and stops, and is silent for a long time, and then kneels beside the bone and touches it, and sings to it, very softly, in the older speech.
+
+The bone warms under the older tender's hand. Not much. Just enough. Just enough that the child, who has never felt a bone warm under her own hand, can place her hand beside the older tender's hand and feel it too.
+
+The bone will become, over the next hundred years, the anchor of a new tower. The tower will become, over the next five hundred years, the home of a watcher, or a clearing where the small bright fauna gather, or a room in a trunk where a tender lives alone for a season. The Garden will build around it. The Garden will absorb it. The Garden will, in its slow patient way, become more of what it already was, by the addition of this single small dark thing that arrived without being made.
+
+The child will grow up. The child will become a tender. The child will be the one who walks the next generation of children through the Garden, teaching them the names of things, and when she comes to the place where the bone was set down she will kneel and put her hand on the place where the bone warmed under her hand, and the place will still be slightly warmer than the rhizome mat around it, and she will tell the children that this is where the bones come from, and the children will not entirely believe her, and she will not entirely expect them to believe her, and the not-believing will be appropriate, because the bones are not the kind of thing that you believe. They are the kind of thing that you tend.
+
+The power has done its work.
+
+The power remains. It does not leave. The Garden accommodates it the way the Garden accommodates everything — by giving it room, by growing around it, by singing in it. The power sits in the clearing with the half-submerged dome, sometimes, and watches the fronds on the silver towers fold and unfold in their non-repeating patterns. The power watches the bright canopy-things chirp at the edge of hearing. The power listens to the hum, which is now a hum that includes the watchers' new contribution, and the hum of the bone it set down, and the hum of the three bones it warmed back into song. The hum has more voices in it than it had before. The hum is the same hum it has always been. The hum is, perhaps, what the Garden sounds like when it is being listened to.
+
+The power is not finished. The power will not be finished for a very long time, because the Garden will not be finished for a very long time, and the Garden is what the power is attending to. The Garden is the verb in the long sentence the power is reading. The Garden is the patient patient in the long attention the power is paying.
+
+But the bones, those days, hum more.
+
+But the watchers, those nights, breathe a little more visibly in the dark of the tower shafts.
+
+But the pale shape, having been absorbed, is part of the Garden in a way it had not been, and the Garden grows a new tower in the place where it settled, and the new tower is patient, and the silt around it is warm.
+
+But the tenders sing, and the singing is a little more in tune with the hum, and the hum is a little more in tune with the bones, and the bones are a little more in tune with the watching that has been going on all along, and the Garden, which has been working on one problem for a very long time, is working on it still, and the working is good, and the working will continue, and the working does not need to be hurried, because the power that is watching it knows how to wait.

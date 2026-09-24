@@ -1,0 +1,13 @@
+This is the Basin of the Glass-Lung, a hollowed, subterranean chamber deep beneath the crust, though it feels like the sky has been inverted and pulled into the dark. 
+
+The space is small—a single, vaulted room roughly the size of a cathedral, carved by ancient, patient water currents that have long since receded. The walls are not stone, but a calcified, porous mineral, bone-white and smooth as river-pebbles, curved into organic, undulating shapes. Because there is no ceiling, but rather a ceiling of sheer, prismatic crystal that filters a brilliant, refracted sunlight from the surface world above, the chamber is bathed in a perpetual, blindingly bright noon. The light is so intense it feels heavy, pressing down on the floor like a warm, tactile blanket.
+
+Everything here is in a state of suspended erosion. The air is damp, not with rain, but with a rhythmic, low-frequency condensation. Every hour, the temperature spikes, and the walls begin to weep. Fine, silken beads of moisture gather on the pores of the mineral walls, shimmering like quicksilver before slowly running down to disappear into the thirsty, dust-fine sand of the basin floor. 
+
+The environment is vast in its emptiness. There are no structures, no walls built by hands, and no artifacts of a civilization. Yet, there is the ghost of intent. Scattered across the floor are hand-knapped tools—heavy, crude obsidian shards and bone scrapers—left by creatures who do not stay, but visit in cycles lasting decades.
+
+The fauna is unexpectedly dense for a place so lonely. The creatures are small, translucent beetles with wings that hum at a frequency just below the threshold of human hearing, making the air feel thick and vibrating. They navigate the brilliant light by clustering in the shadowy pockets where the wall curves inward, clinging to the damp mineral skin. They move with a agonizing slowness, spending days to cross the diameter of a single crater.
+
+There is a strange, delicate law here: nothing remains long enough to become permanent, but everything leaves a mark. If you touch the wall, the warmth of your skin causes the minerals to bloom into a faint, violet-hued efflorescence that takes years to fade. The silence is profound, broken only by the *tink-tink-tink* of condensed water striking the basin floor, a sound that echoes with the clarity of a bell in the vast, empty room.
+
+The basin is a patient observer. It does not grow, it does not rot, and it does not build. It merely waits for the next cycle of the sun to strike the crystals above, bathing the cathedral in a light so bright it erases the color from the world, leaving only form, moisture, and the slow, crawling vibration of life in the quietest place on earth.

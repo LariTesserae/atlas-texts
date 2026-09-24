@@ -1,0 +1,75 @@
+Ask who lives in the Root-Cavity of Iyesh and you will get four different answers, depending on what you mean by *lives*.
+
+By headcount, the answer is millions, and none of them human. By mass, the answer is the Old Growth, by a margin so absurd the comparison is insulting to make. By tenure, the answer is the Old Growth again; four hundred years of human occupation is a rounding error against the substrate that holds the question. Only one sense of the word returns *sixty humans*—the sense in which an inhabitant is someone who would answer if asked. So begin there, with the people. They would want to be first. It flatters them. The flattery will need correcting by the end.
+
+## The Sixty
+
+They call themselves the Sixty. This is not a census. Most seasons the true count runs to fifty-three, or forty-eight, or, after a hard low-sweat, forty, and no one adjusts the name. A visitor who counts heads and reports a discrepancy has corrected a word and learned nothing. "We are Sixty" is a statement of identity, the way a family name stops meaning anything about a family. It declares that the community is one thing, countable, continuous—a vessel of fixed shape through which persons pass.
+
+Children are not among the Sixty. One joins the count at the first re-cutting of a groove, around the sixtieth sweat of a life, when a child's hands are judged steady enough to reopen a storage channel in the living wall without tearing the growth layer beneath. Until then a child is loved, fed, taught, and not yet counted. The community is precise about this, in the way of people who are precise about very few things.
+
+Their bodies are where you would expect four centuries to leave their marks, and they have. The skin does not macerate. A surface-dweller's, kept damp this long, would soften and split; theirs stays whole, hosting a flora that has negotiated terms with the wet. The eyes read light on the scale of a weak crescent moon and call it a working day; color is rumor to them, and they know one another by silhouette, gait, warmth, smell, and the small personal weather of glisten-mites that rides each sleeper. Their immunity is ferocious or they would not exist. Visitors sicken in days; the Sixty drink the sweet, mineral, faintly alive water and call it water.
+
+But the deepest adaptation is not biological, or not only. It is postural. They move as people move who are inside something. Weight forward, steps placed rather than taken, hands trailing a wall the way a reader trails a line of text. The primary sense organ of Iyesh is the palm. It reads the ripeness of the New Skin by texture, the mood of the Old Growth by temperature, the presence of a friend by the half-second of warmth where a hand has just been resting.
+
+## The Work of Staying
+
+There are no guilds. There are functions, and people grow into the shapes of them. A cutter walks like a cutter—weight on the balls of the feet, blade angled toward the nearest wall out of pure habit. A tender of the fungus gardens can be identified at arm's length by smell: brighter varieties are encouraged, dense growths are pruned, and the work leaves a spore-dust on the worker that functions, locally, as a job title.
+
+The channel-walkers wade the low passages where the water-table nearly touches the floor. They taste the water the way a vintner tastes a year—sweet means old wood upstream, mineral means the deep beds are working, *wrong* means trouble in a register they decline to describe to visitors. Their most important duty is not any trap or channel. It is the silence protocol. The damp-singers go still when something large enters their water, and a singer's silence is the community's alarm; a channel-walker who hears the chorus stop does not investigate. He stands, counts to one hundred in the old way, and backs out along his own line. He will tell you this is caution. It is also, by any reasonable definition, obedience to the singers, and no one in Iyesh finds that embarrassing.
+
+The groove-keepers hold the strangest and most tender office. The storage grooves in the root-walls heal over if left alone, so each must be re-cut, seasonally, forever. Rows pass down through families. A keeper knows her stretch of wall the way you know a face—its exact grain, where it thickens, where it resists the bone stylus—and she re-cuts lines her grandmother cut, into tissue that closes and must be opened again. It is a conversation in which one party speaks in cuts and the other in healing-over, and it has continued in the same place for six or seven generations. When a family line ends, the row begins to smooth itself out of existence, and the community either adopts it as an orphan row or lets the wall have it back. Both are considered respectable outcomes. This tells you most of what you need to know about Iyesh.
+
+The listeners are the eldest, mostly. They hold no ritual office and yet the day waits on them: the wake-period begins when a listener's palm is on the Old Growth during its expansion and the wall gives up its half-second of metabolic warmth. She murmurs the waking. The exhale is morning. The rest of the rhythm—work in bursts, rest in insulated pockets, the communal pile—follows from there, revised continuously according to what the walls are doing with their forty seconds.
+
+The markers track the deep-crawlers' routes with knotted cord and cut notches, updating after every high-sweat, and conducting the year's real festival: the low-sweat survey, when the water recedes and reveals chambers no one living has seen. The whole community walks the new dark together, quiet as a held breath, mapping by touch. To block a crawler's route is the gravest offense one person can commit against the place short of violence. The routes are its anatomy. You do not tie off a vein.
+
+## How They Hold Each Other
+
+The Deep Markets run on flow—take what you need, leave what you can—and the same logic runs uphill into status. Wealth is not accumulation; it is attention. The most honored person in any season is the one who noticed first: smelled the high-sweat a wake-period early, saw the sag in a passage lip that became a collapse. There is a standing, half-joking ledger of who noticed what, and it is the closest thing Iyesh has to a hierarchy.
+
+Its opposite has a word. *Heavy.* A heavy person is not stupid or cruel—heavy means loud-footed, bright-tongued, oblivious, a person the place has to flinch around. The term is not metaphorical. The Hangers retract from certain vibrations, and the ceiling does not lie about anyone. You can claim to be quiet; the Hangers will not corroborate you. Children learn this before they learn most other things, and the forbidden game—humming pitches until the Hangers rise—is forbidden not because it is dangerous but because it is rude. You do not startle your elders.
+
+The sleeping pile is the community's true map, redrawn nightly. Newcomers at the cold rim. The trusted toward the center. Lovers in a shared hollow. The small and the old at the warm heart, where heat is a birthright. The pile's gradient is the social order made physical, and Iyesh's most quietly remarkable institution sits at its edge: care before symptom. When the deep-crawlers begin avoiding a person—and they avoid the sick, unfailingly, though no one has ever established how they know—the listeners read it as diagnosis. You are moved to a warm chamber before you feel ill. A watcher sits between you and the well. By the time you understand you are sick, you have already been cared for, sometimes for days. No one resents this. Being singled out by the crawlers' indifference is one of the reliable mercies of the place.
+
+Courtship is conducted in knowledge, because knowledge is the only gift worth giving. Not tokens—a token sits in a groove. But *I will show you a passage you do not know* is a confession. *Come feel this singer-channel, the pitch that hums in the sternum* is a proposal. And the declaration, the famous one, the one every community in every telling of this place arrives at independently: *I will show you where the wall stays warm through the cold hours.*
+
+## The Two Tongues
+
+The speaking tongue is low, close, half-signed, and grammatically incomplete without touch—a hand on the forearm changes the meaning of the sentence it accompanies. The lower tongue is for the names of the deep-crawlers, for the dead, and for the oldest stories, the ones about what the Old Growth wants. It is not spoken into the air, where echoes mislead. It is mouthed against surfaces—into water, into the New Skin—so the words go somewhere instead of bouncing. Children are taught its first rule before they can walk: some words are not for the air.
+
+## Arrivals
+
+Newcomers exist, which surprises visitors, since the stories insist that outside is hostile and the passages out are impassable. Both things are true and people arrive anyway, through channels too narrow for most bodies—except that hunger folds a person into a shape that fits. Most come from sister-pockets somewhere in the Old Growth, speaking variants of the tongue. A few come from the surface, driven down by whatever the old stories mean by *driven*. They are given a teardrop cell in the Sprawl and a place at the cold rim of the pile, and they earn inwardness the only way it is earned: by seasons of noticing.
+
+Visitors are rarer. Permission is granted by the listeners, and the phrasing matters—the community does not ask itself whether it consents to a guest. The question is put to the wall overnight, and the answer arrives as a temperature. Hosts are chosen from ex-newcomers, the half-adapted, people who remember what it is to be ill inside a place and can therefore walk at a guest's pace. The guests sicken and leave, always. Iyesh grieves for them mildly and briefly, which sounds cold and is not. In the kindest available reading, visitors are weather.
+
+## The Given-Back
+
+There is no burial here. The dead are given back to the New Skin at family giving-places, where the growth layer runs thick, and only that family harvests there. Understand what this means plainly, because they do: you may eat what your grandmother became, and you will not say her name aloud, and both of these are the same respect. The dead are called the given-back. Their names go into the lower tongue. Their groove-rows pass to kin or are adopted as orphans.
+
+Grief is quiet because everything is quiet; you cannot wail in a place where a wail seems to come from three directions at once and arrives at the mourners as confusion. Mourning is done mouth-to-wall, in the tongue meant for it. At a giving-back, someone always says "we are Sixty," over the fresh place in the skin, with fifty-two people standing against the wall. It is true and it is not true and no one present needs help with that arithmetic. That is what the word is for.
+
+## The Neighbors, Reconsidered
+
+It would be accurate, and slightly misleading, to call the fauna co-inhabitants. They are fellow staff. The weave-spiders are housekeepers with territories, and the courtesy of the place is that you do not sweep a web without leaving a crumb at its edge; in exchange, the webs function as news, a running account of what the air is carrying. The dust-crickets are the waste crew, herded off stores with scent-lines rather than killed—useful, unpleasant to watch, tolerated with the specific grimness of people whose compost has legs. The damp-singers are a sentinel chorus kept healthy by no contract anyone can name. The Hangers are elders in the loosest sense: indifferent, always present, never once violent, and consulted by everyone about everyone.
+
+And the deep-crawlers, who are not named aloud, whose names exist only in the lower tongue: their crossing your sleeping cell is, by community consensus, good news. It means the walls' assessors found nothing in you worth avoiding. No mechanism has ever been established. The practice works regardless. When a crawler route changes for no reason the markers can find, the listeners trust it over their own palms—which is to say Iyesh's best meteorology has an exoskeleton and opinions.
+
+There is a further thought about the crawlers, the one no one says in the speaking tongue. They may be the cavity's way of touching its contents.
+
+## What Arrives
+
+The Deep Markets fill through channels too narrow for most bodies, with worked bone of no local animal, dry knots of surface-grain, very occasionally a stone bead—objects with no maker anyone can name. The theories are stable and unresolvable: upstream cousins in sister-pockets; the cavity itself providing; the given-back, still giving. Whatever sends the goods is small, patient, or not people. Iyesh's policy, four centuries old, is to take what arrives and leave what it can spare and not investigate. The flow is the relationship. You do not interrogate a neighbor's kindness; you answer it.
+
+## The Oldest Resident
+
+So, who lives here? The honest answer, arrived at last, is: the Old Growth. The Sixty live in it the way the mites live in them—constantly, intimately, unremarked. The stories of arrival vary, as the stories do: the ancestors fled the surface, or rose from somewhere deeper, or were driven here by something the tellers decline to specify. There is a third story, told only in the lower tongue, mouthed into the wall: that the ancestors did not find the cavity. That the cavity was grown for them—or they were grown for it; the grammar does not distinguish. That the first grooves were not cut but *found*, already shaped, healed over, waiting.
+
+Some of the listeners hold one further thing, and they hold it lightly, the way you hold something you are not sure was yours to pick up. The word *Iyesh*—which names the community, not the place—may be older than the community. No one's grandmother coined it; no one's grandmother's grandmother did. Perhaps the people did not name themselves at all. Perhaps the name is what the cavity calls them, and they took it because it fit.
+
+Ask a listener directly who lives in the Root-Cavity, and she will give you the practical ledger: the households, the crawler routes as of the last survey, which singer-channels are loud this season, where the warm pockets have shifted. She is not deflecting; this is the true daily answer. But if you have earned an hour of her, she may take your hand, press your palm flat against the dark braided wall, and wait with you through the long draw of the forty-second breath—until the exhale, the half-second of warmth, the moment the people of Iyesh call morning.
+
+*It does,* she might say, in the tongue meant for surfaces. *We live in it the way the mites live in us.*
+
+Whether the Sixty are its tenants, its guests, its cells, or simply a habit it has not yet broken—whether the place contains them or is, in some slow vegetal sense, *keeping* them—the cavity has not said. It breathes regardless. Forty seconds. Draw, and release. The people time their whole lives to the exhale, and call that home, and are not wrong.

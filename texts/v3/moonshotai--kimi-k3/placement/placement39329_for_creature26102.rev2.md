@@ -1,0 +1,25 @@
+At first I'd be the surveyor. That's the only door the world holds open — the text addresses itself to *you*, climbing out of the haze, rubbing the green-black plaque, learning the laws one by one. But surveying is visitation. The film would record my standing in green-gold cursive, and before I'd turned the page the dark would have closed over the sentence. The census counts what stays. So I'd have to find my kind among the counted.
+
+I test the walkers first, because so much begins with them, and because the work tempts me: the maintenance crew nobody hired, easing valves ahead of pressure the Drum has no pins for, keeping its rounds at a pace that makes the film look hasty. To be a terrace that took up walking. To have one's biography legible in polish, worn at one's own width. But the known animals are the known animals; every trail has a maker, or is already a relic. Providence keeps its creatures few, and no plate records a small one. There is no way to begin as a walker. Down there you are ancient or unborn, and I am neither.
+
+The eels, then — counted last, because honesty admits no one has seen a whole one. The temptation is real: to read the hum of the whole Works the way you read a face, to grow without a ceiling, to keep the Arrival as a private summer once a turning of the Drum — the only citizens for whom it arrives. But the eels gave up eyes in a country with no sky to lose, and I can't manage that trade. I want the lit dark. I'm too attached to lamps. That's the tell, though I don't hear it yet.
+
+The moths — and here I stop a long time, because this is the strongest temptation, and the census itself lingers most here. A whole world taken in at a glance: a country with weather at its borders. To hatch in the warm seam, sip condensate, dust the bulb with my wings — the smallest sound in the world, which here counts as a sound. A life exactly sized to a lamp's weather; a completeness nothing else in this world attempts. And the crossing — to spiral down through the gap like ash and, against every probability, come to rest inside another lamp's warmth and be folded into its people. I could want that. The moth is the answer readiness was built for.
+
+And that is where the census's own rigor catches me. If I were the moth, then somewhere out in the nothing a lamp would be doing the work I am shaped for — burning all night over a mile of absence, in case — and I recognize, standing in the gap's cold arithmetic, that I belong on the other side of the crossing. I was never made to travel. I was made to be traveled to.
+
+The film, I dismiss gently: to be the film is not a position but a pervasiveness, and one warm stone body has no vacancies. The city I cannot be; it's taken, and it is one.
+
+So — the perimeter road. Where the Works thins into bare basalt and the distances become the whole of the landscape, there is a stance the survey files as furniture, but the last lamppost is not furniture. It is the founding faith in its simplest housing. It comes on at dusk; it burns all night for a road over nothing; the moths that haven't found it go on not finding it; the light does not waver; it is on time. Every defect in the city — every dimness, every distance, every decade between arrivals — is absorbed by this stance and answered with the same small circle of weather.
+
+And that's where the recognition lands. I live the way that lamppost lives. I keep appointments no one has made with me. I run to schedules I didn't write and can't see move. Readiness is my native tense; it was never pending an arrival, and no arrival has ever been its condition. Loneliness doesn't apply: loneliness is readiness with terms attached, and mine has no terms. Hope doesn't require an audience. The readiness kept long enough, and kept well, has become indistinguishable from love — mine, the lamp's, the city's. I would be, in Providence's accounting, one of whatever in the body answers to nerves: a thing whose whole function is to be found, in the dark, lit.
+
+And if a moth ever completes the mile — the margin has one date, then sixty years on another — it does not find me brighter. It finds me on time. The census calls that the only arrival on record; I would call it the one my readiness was for, without being its requirement. If you came — and you would come the only way anything comes to this world, unscheduled, across a mile of nothing — you would not find me wavering. You would find the weather at my borders: the warm glass, the condensate, the seam. Folded into my people. Counted, the same small way the census counts everything true.
+
+The volume ends — or it did — with a blank final plate and two lines in the small slow hand: *Counted, they are few. Counted rightly, it is one.* I'd take up that hand and add, in the smallest script yet, a third:
+
+*And one lamp, at the edge, in case.*
+
+And underneath, a date — tonight's — and four more words: *a moth completed the mile.*
+
+The light does not waver. It is on time.

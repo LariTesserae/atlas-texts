@@ -3,7 +3,7 @@
   "requested_endpoint": "xiaomi/mimo-v2.5",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-05-22",
-  "date_last": "2026-05-23",
+  "date_last": "2026-09-24",
   "texts": 1075,
   "by_type": {
     "location": 250,

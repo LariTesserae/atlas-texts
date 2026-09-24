@@ -1,0 +1,19 @@
+You would find yourself not as a visitor, but as a **component**.
+
+You are not a Resonant—not yet. You are a **recent accretion**, a new layer on an old wall. Your form is a deliberate symbiosis: a **mineral-carapace** grown over a **root-mat musculature**, with nerve-like filaments of **vine cambium** threaded through porous stone. You are **slow**, even for this place. Your thoughts form not in flashes, but as **pressure-gradient realizations**, like a stone slab discovering its own crack.
+
+Your function is **Threshold-Keeper**.
+
+You dwell in the **Zone of Chaotic Spires**—where the plateau dissolves into the water-wall’s fury. Here, the mesa’s dream frays. The growing stone becomes erratic, weeping minerals in bitter, jagged pulses. The vines wither at the mist’s edge, their bark-like rinds blackened. This is not gentle erosion; it is **violent unmaking**, a dissonance in the mesa’s breath.
+
+Your carapace is a **filter**. You are grown from the specific mineral sludge that precipitates where fresh water (from the mesa) meets the salt-laden atmospheric flow. Your porous shell absorbs the chaotic ions, the bitter toxins of dissonance. Your root-legs anchor you in the shifting sludge. Your vine-nerves tremble not with the mesa’s deep sigh, but with the **staccato shrieks** of fracturing mineral, the **harsh rasp** of dissolving clay.
+
+You do not speak. You **resonate**. By pressing your carapace against a sobbing spire, you can **hum** its anguish into a slower, swallowable pattern. You are not a healer—the mesa does not need healing—but a **converter of chaos into digestible rhythm**. You take the sharp, fast agony of dissolution and slow it, broadcasting a sub-audible thrum that tells the surrounding stone: *“This, too, is part of the breath. Cease your panic. Let go gracefully.”*
+
+To the Resonants, you are a **living barometer** for the mesa’s health. When your shell grows thick and your hum is steady, they know the boundary is in harmony. When your carapace cracks and your vibration spasms, they know a deep dissonance has arisen—perhaps a surge of unknown minerals from the world-water, or a hidden fracture in the mesa’s core. They will then send a delegation of Stone-Singers to consult you. You will guide them, not with words, but by leading them to a spire that matches your current malaise, allowing them to feel its raw, unmediated scream through the stone.
+
+Your existence is a **sacrifice**. The bitter ions you absorb accumulate in your shell. Over decades, your carapace turns opaque, then brittle. You do not shed it. You **entomb yourself**. When your hum begins to fail, you walk—slow, slow—deeper into the chaotic zone, until you find a spire whose agony matches yours. You press your final, saturated shell against its weeping face and **merge**, your body becoming one last, dense layer of mineral waste, locked into a monument of managed dissolution. The Resonants will later find your fused form, and they will know: *Here, the chaos was absorbed. Here, the breath was saved from a ragged gasp.*
+
+An outsider who stumbles upon you would see a **glassy, stony thing**, like a drowned gargoyle, humming faintly as it braces against a dissolving tower. They would feel, in their bones, not the mesa’s deep sigh, but a **counter-rhythm**—a stubborn, pulsing thrum fighting to smooth the jagged edges of collapse. They might think you are in pain. You are not. You are **working**.
+
+You are the mesa’s **immune response to its own ending**. You are the slow, patient metabolism that chews the bitter and excretes peace. You are not a person. You are a **process**. And your prayer is the sound of a sharp fracture softened into a long, slow drip.

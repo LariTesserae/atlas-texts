@@ -1,0 +1,11 @@
+The inhabitants of the Atriae Aquascape are as enigmatic and wondrous as the realm they inhabit, their forms and behaviors shaped by the extraordinary duality of air and water that defines their home. They are neither typical sea creatures nor creatures of the sky, instead embodying the blurred boundary between the two realms. Here, life unfolds in unusual and astonishing ways, bound by rules unfamiliar to those of terrestrial or oceanic domains.
+
+### **The Aetherials**
+Closest in spirit to a windborne organism, the Aetherials are shimmering, translucent beings that drift lazily at the intersection of air and water. Their elongated, jellyfish-like bodies are veined with luminous filaments that pulse faintly with bioluminescent energy, fluctuating in colors that mirror the surrounding light conditions. They have no discernible eyes or mouths, yet seem bizarrely sentient, gliding through the seamless gradient of sky and surf as if guided by some intricate awareness of their surroundings. These beings feed off the energy produced by the phytoplankton-like vegetation, absorbing nutrients or light through osmosis, and they drift in slow, unpredictable patterns, more like sentient ghosts than animals.
+
+At times, they gather in assemblages during Atriae's transitional hours—the first pale streak of dawn or the silver-fringed edges of twilight—spinning in complex spirals that seem choreographed yet purposefully unintelligible, as though performing an ancient ritual whose meaning was lost long ago.
+
+### **The Crested Gillfins**
+Spirited dancers of Atriae’s underwater gardens, the Crested Gillfins are darting flashes of whipping tails and swirling patterns, rarely still. These shimmering creatures are amphibious hunters, their gelatinous forms sleek and flexible. They have iridescent fins that ripple outward like intricate wings, useless for flight but mesmerizing in the drifting liquid corridors below the surface. To an outsider, these appear to glow faintly in dimmer light, carving trails of bioluminescence glowing faint green into the gloom.
+
+Unlike most fish, Gillfans occasionally leap, hovering for several seconds, displaying sophisticated control over their internal buoyancy past aquatic spaces climbing semi-air f its spur-spirited effort.

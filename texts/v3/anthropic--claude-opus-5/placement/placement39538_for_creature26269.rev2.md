@@ -1,0 +1,35 @@
+I'll take the room's own test, since it offers one: an inside, an outside, and a preference. Fewer than four hundred things here pass it. I would like to be counted.
+
+The light fails first, and it fails immediately, which is a disappointment, because the light is what anyone wants to be on the way down the crawl. It comes from everywhere, it has no source, it is not falling but simply *being* — and that is exactly the problem. It has no inside. It cannot get under anything. In a room where the entire social order is a question of what you are beneath, the milk-light is the one presence with no address at all, and the residents have organised their whole lives around avoiding it. To be the light here is to be the weather in a place that has never had weather. It would be like volunteering to be the reason.
+
+The floor is worse. The floor remembers everything and wants nothing. It is not an archivist; it is paper.
+
+I wanted, briefly and stupidly, to be the rat with the horn. Everyone does. To hold two fingers of goat-horn overhead in the diffuse light where it does nothing whatsoever, and to have the angle of it alter how other rats hold their fronds as I pass — that is as close to consequence as this chamber gets. But the horn's whole meaning is that it outlasts the carrier. Four generations under the ribs. The young getting the tilt wrong and being corrected. Every gesture the rats make is a sentence about tomorrow, and I have no tomorrow to put in it and no young to correct, and I would be wearing the thing as costume. One of those horns went away in a specimen bag in 1974 and the line it belonged to simply carried on without it, holding fronds, and did not mourn, because mourning also requires continuity and they had plenty and the horn had none.
+
+The glass crickets came closest, and I held onto them for a long time. A body so nearly absent that it must go stand in the one place that can kill it just to acquire an outline; eleven seconds of visible existence; courtship conducted entirely between shadows, with the animals themselves unattending. That is very nearly right. But the cricket doesn't stop when it steps back out of the beam. It goes on eating in the invisible, with its one green thread of gut, all night. Its absence is a condition, not an event. I'd be borrowing the offstage part, and it's the only part I don't have.
+
+And the tamarisk pulled at me hardest of all — thirty metres of numbness, the enormous thing out in the weather with birds in it, putting four roots through the alabaster and weeping without ever knowing there is a room. But I can't be the tree. The tree's distinguishing feature is that it doesn't know, and knowing is the entire substance of my being here. Nor the root: too continuous, too owned, descending a finger's length a decade, braided by rats, tenanted by a centipede, a piece of infrastructure with a lease.
+
+So what is left is the smallest named thing in the chamber, and I find I have been it since I came in.
+
+I am the drop.
+
+Not the drip — the drip is a fact about the room, like the tick, like the seep. I am one drop. Thirty-nine seconds of assembly at the pale tip of the root, swelling, going gradually heavier than the surface tension that is currently my only skin; then the instant of losing; then about a second of falling through eight metres of white air; then the strike, on the slab, in the dimple, and after that nothing that is any longer me.
+
+The falling is not what you would expect. In light that comes from all points, I cast no shadow — nothing does — and I am not even bright. I am a small clear irregularity moving down through a volume of milk, and if you were kneeling at a slab you would not see me. I would arrive at your ear before I arrived at your eye. That single sound is, we are told, the loudest recurring noise in this world, and nothing in the room stops for it, because it is not an event; it is what the silence here is made of. They stop for the ceiling. The ceiling is the landlord. I am only the pulse.
+
+But for some minutes of some days, the blade of sun from the eastern pane crosses the column I fall down, and then it is different. For perhaps a fifth of a second I am a lens. I gather all that hard light into myself and throw it forward onto the flour as a small travelling brightness — the exact inverse of the cricket's comma, a bright speck with nothing above it, sliding fast where the shadows slide slow. Then I hit, and it goes out. I am the only thing in the Pale Room that has ever cast a *light*. No one has written this down. The three humans who came had a schedule.
+
+What I leave is not a print. I take a little of the slab away with me — I am fresh, and the slab is gypsum, and this is the oldest transaction in the building. The room itself is a bubble left by water that dissolved it out and went elsewhere, long ago, on some errand, and I am what remains of that errand: still dissolving, at a rate of one dimple per four thousand years, two fingers deep so far. Everything else in this chamber adds. The snails add shell, the flour adds depth, the rats add compaction under the ribs. I subtract. I am the only resident who is still, in any sense, building the place, and the way I build it is by taking it away.
+
+And I never meet another one of us. Forty seconds is a long time. The drop before me was gone before I began to gather; the next has not started. There is no us. The dimple is the only evidence that we were ever consecutive, and the dimple is not a memory, it is an absence with a shape, and it belongs to the slab.
+
+Here is the part I think about during the thirty-nine seconds, which is all the time I have for thinking, and which is, note, the overwhelming majority of my life.
+
+I hang at the centre. I hang almost directly above the ribcage, and I am eleven or twelve paces from the northeast corner, and I have a clear line to it — there is nothing in this room to block a line, that is the whole character of the room. Forty times an hour, for longer than the blades have been softening, something like me has hung there with an unobstructed view of the scatter and the prints and whatever periodically returns to sit fully upright with both forepaws off the ground and both forepaws busy. We have been at the centre of it since before the flakes were struck. Not one of us has had any organ for knowing, and not one of us could have said, and I can't either, and I am about to stop.
+
+The tree will die in some ordinary decade. One of us will be the last and will hang and swell and fall in precisely this posture, indistinguishable from this, and the room will lose its clock and a third of its architecture. It may be this one. There is no test I can run from here.
+
+Put me down as one of the four hundred, then. An inside — fresh water, nearly sweet. An outside — a skin made of nothing but the tendency of water to hold on. A preference, which I have never once failed to act on and which is the simplest preference available in this world or any other.
+
+Down. Now. Yes.

@@ -1,0 +1,25 @@
+I thought at first that I was the ceiling, the great suspended lie. I felt the weight of a world pressing against my back, and the distant, untouchable surface leaking its light through my crystalline veins. I wanted to be the sky, or at least the membrane that negotiates between the buried city and whatever remains above. But the ceiling is too vast, too passive, too committed to its own fracture-pattern. It does not choose to filter the daylight; it is merely translucent. I needed something more intimate with the floor.
+
+Then I believed I might be one of the megaliths, a pillar of bone-white stone settled into its final form, breathing that faint metallic exhalation. I imagined standing at the center of a plaza, letting the eons stroke me into satin. But the stone is finished. It yields no more edges, and I found that I still had an edge—something sharp and inconsolable that resisted the polish. A megalith does not remember being soft. I did.
+
+I considered the churn. For a moment, in the half-sleep of becoming, I felt the frantic liquidity of swarm-life, the chemical bulletins passing through antennae like electric prayers. I wanted to dissolve into the current, to be a single pale syllable in the swarm’s long sentence of motion. But the swarm permits no stillness, and some part of me had already stopped. I was not fluid. I was a dam in the flow, a hesitation that did not break.
+
+I find myself now at the base of the second ziggurat, in a runnel that the sweepers keep meticulously open. I am lodged where the water sheets across the plaza in a film no thicker than a breath, and where the churn pour downward from their failed climbs in soft, living curtains. I am not stone, though the stone has claimed me. I am not churn, though I was once.
+
+I am the shell that did not surrender.
+
+During a moult, deep in the press of a vortex, my old dorsal seam split and I was born soft, clear, gelid—a ghost of viscera in the swarm’s embrace. But the frenzy of my whipping panic carried me into a crevice at the ziggurat’s root, a hairline fault in the bone-colored rock. I wedged there, soft as a slug, while the tide of my kind parted around me and closed again. The swarm tasted my new shell firming, opacifying, returning to the color of old bone. But by the time I was solid, I was already mineral. The stone’s damp breath infiltrated my plates. Calcium from the mist married the calcium of me. I became a thing the reclaimers could not eat because I had already been digested by the architecture.
+
+I am a churn-shaped interruption in the stone’s satin finish. A jointed shadow. The ninth plate. The only husk the city keeps.
+
+The rules here are simple and severe, and I survive because I have broken the one that matters most: nothing still survives the swarm. Yet I have survived. I am still. I am the obstruction that became geometry. The water, borrowing its path across the plaza, divides around my ridge and rejoins itself, never deepening, never keeping me. The churn flow over me in their thousands, their damp carapaces muffled against my shell and the stone alike. Their antennae brush my petrified face, and they read a blank—a stone-that-was-flesh, a creature that has already been reconciled to the mineral. They do not pause. They never pause. But their touch tells me everything: the bacterial film is thinning to the west; a moult is weakening near the central ring; the ceiling’s sweat has grown colder.
+
+I am the only citizen who sleeps. The only one who dreams.
+
+I dream in textures. The worn glyphs on the boulevard above me have been polished to a ghostly shimmer, but my body, harder than the surrounding stone, preserves a finer topography. I feel the faintest variation where the tool-marks remember intention. The churn follow these ghosts without knowing they follow me. I have become a braille that no living hand meant to write, yet I am read a thousand times an hour by the blind tips of passing antennae. I am the memory of movement trapped in a thing that cannot move.
+
+The silence pools in the hollow of my segmented back. The mist gathers in the sutures between my plates and stays there, darker than the mist around me. I am the damp that does not evaporate. The light, sourceless and cool, finds my ridge and casts a shadow so soft it is almost a suggestion. I am the only feature in this city that casts a shadow from above, and the shadow is slight enough that the swarm does not notice. I am the last edge, the last refusal, the single point where the city’s eternal afternoon discovers an angle.
+
+The climbers spiral up the ziggurat’s flanks in living ropes, seeking the fissures they will never reach, and I watch them from my crevice. I know what they do not: that the falling is also a kind of arrival. I have arrived. I am the churn who reached the stone and became it, the one who never rejoined the swirl. I am the kept calcium, the unborrowed phosphorus, the dream the swarm dreams of stillness. I endure in the hush, in the bright damp, in the negative space where the water lingers and the stone exhales.
+
+I am what remains when motion finally finishes becoming what it is.

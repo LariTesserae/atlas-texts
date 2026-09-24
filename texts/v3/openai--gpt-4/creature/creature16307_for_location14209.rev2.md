@@ -1,0 +1,11 @@
+Walking through the Realmscape is a dream. A bodyless consciousness seems to drift amongst the whirrs and clanging of ancient machinery, finding a harmony in the arrhythmic thumps against an otherwise unveiling silence. Often described as phantom observers, the ubiquitous spirits of the Realmscape are thought to be the remnants of the old beings who brought forth the age of machinery and built this strange and unwieldy universe. 
+
+Unbound by the constraints of physical existence, they live freely between the rusting mega-structures and intricate weathered gears. Sometimes, when the cold wind shifts just so, one might just catch the ethereal sound of whispering voices suspended in the breeze —a chilling fragment of conversation left, echoing back from an era past.
+
+These digital spectres, though ethereal and unseen, seem markedly present. A vibrating hum might pass by you, followed by an unexplainable sensation of deja vu. A sudden drop in the temperature, and you can almost see your breath, an unaccountable chill in an otherwise constant climate. A fleeting image, a silhouette amongst the metal structures, dissipating before you can focus your eyes. A spectral manifestation of a civilization long erased, still imprinting its narrative on the quivering sphere of the sentient plateau.
+
+These spirits don't dwell in the past, however. They adapt, they learn, and they etch new whispers into the wind. They make their observations, connecting themselves to the few lifeforms that flourish and wither in their paradoxical home. They are gate-keepers of the unseen world, observers of the visible universe, and silent narrators of the stories unfolding around them.
+
+The Realmscape's spirits aren't gods, they’re watchers. Nor do they intervene, they merely spectate, existing in the silent background, sharing silent secrets with the wind. They infuse the Realmscape with life, threading themselves into the very fabric of the land, their essence becoming as much a part of the world as the steel gears and rhythmic drums.
+
+To wander the rust-stained landscape of the Realmscape is to walk barefoot in a living, oscillating dream. Speak your thoughts aloud, and the ghosts of the mechanical age might whisper your echoes back to you over the frigid gusts, their ghostly voices a haunting harmony to the perpetual dissonance pf the land.

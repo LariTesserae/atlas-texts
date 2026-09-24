@@ -1,0 +1,9 @@
+In this submerged world of 2.9 water levels, where embryonic landmasses pierce the surface, an ancient race of beings known as the Kelvaxi have evolved in harmony with their peculiar environment. With skin adapted to change color like the shifting hues of the ocean, they can blend seamlessly into their surroundings. Their cities, built atop emerging landforms or floating on the water's surface, are marvels of primitive technology and organic design.
+
+The Kelvaxi are a peaceful and resourceful society, living in symbiosis with their environment. They use simple metal tools and early technology to craft structures that seem to grow naturally from the landscape. Their buildings are covered in lush, verdant gardens, which are not just aesthetically pleasing but also serve as a means of purifying the water and providing sustenance.
+
+Despite the rich vegetation, fauna is relatively rare in this world. However, the Kelvaxi have developed a symbiotic relationship with certain species. They cultivate bioluminescent fish to light the dimly lit depths, and have even domesticated a species of intelligent, giant squid that aid them in their crafts and serve as companions.
+
+The Kelvaxi live in a slow, dynamic world where change occurs over long periods. They have developed a patient and manual approach to their crafts, carefully shaping their surroundings over generations. Their society is based on a deep respect for the natural balance of their environment, and they strive to maintain harmony with the mysterious depths of the ocean.
+
+In this realm of floating gardens and primitive yet ingenious technologies, the Kelvaxi thrive, their lives intertwined with the eerie silence of the deep sea and the occasional, strange glow of bioluminescent organisms. They are a testament to the wonders that can emerge in even the most unusual of worlds, where life clings to the high points, thriving in the warm, dimly lit waters.

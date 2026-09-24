@@ -1,0 +1,31 @@
+# The Shelf of Nagrak
+
+It sits at 4,900 meters and pretends it doesn't. The heat is the first lie the place tells you — a dry, radiating, muscular heat that has no business at this altitude, rising out of the black rock itself the way a fever rises out of a body. The second lie is the quiet.
+
+The plateau is called a shelf, though it's less a shelf than a wound: an uplifted slab of scoria and rust-colored tuff, three kilometers across, tilted a few degrees toward the eastern escarpment where the world falls away into haze. It is packed — that's the word your body understands before your mind does. Packed with presences. The shelf has no empty gesture in it; every square meter is claimed by something, though almost none of it is green. Vegetation survives only in the leeward creases where condensation gathers: mats of gray cushion-plant with leaves like fish scales, a few threadwort hangs off the condenser frames, one defiant stand of dwarf thorn-shrub in the south quarter whose roots tap a buried seep. That's it. The rest is mineral, machine, and animal.
+
+## The Machines
+
+The condenser towers are why everything else is here. Roughly forty of them, cast iron and riveted zinc, each one a lattice spire eight to fourteen meters tall, standing across the shelf in a grid so regular it reads as intentional — and it was, a hundred and sixty years ago, when someone decided this ridge, which lives *inside* the cloud deck most afternoons, was the ideal place to comb water out of the sky mechanically. The design is brutal and simple: cold deep-rock water piped up from shafts (this is where the heat comes from; the plateau is a thin lid over a cooling pluton, and the shaft water arrives warm at the bottom and cold at the top of a two-hundred-meter loop, a thermosiphon nobody fully explains anymore) runs through the tower lattices. Fog condenses on the chilled fins. It runs down gutters. It collects.
+
+The fog comes most days between two and four in the afternoon, rolling up the escarpment from the lowlands in a flat gray tide that the towers comb into strings and threads — and this is where the sound lives, or rather where the shelf's profound quiet is *textured*. No wind, most days. No engines; the condensers are entirely passive. What you hear, if you stand still long enough, is dripping. Hundreds of points of dripping, out of phase with each other, a slow irregular applause against stone and iron. A low mineral creak as the towers heat each morning and cool each dusk. The tick of iron under sun. Otherwise: nothing. The quiet has a pressurized quality, like the inside of a kiln.
+
+## The Animals
+
+The water made the animals, or rather the water plus the heat plus the emptiness of everything above and below. The shelf is an island — a cloud-forest island at altitude, isolated in every direction — and it has filled its islandness greedily.
+
+Start with the condenser doves — nobody's doves, really; slate-colored rock-doves gone feral and then gone *specialized*, three hundred generations deep into living on the towers. They nest in the lattice gaps, drink from the gutters, and have developed a behavior the locals call *queueing*, though there is no local anymore to call it that except the watchman. The doves line up along the collection flumes at dusk in rank order of seniority and drink in shifts. It looks like a ceremony. It might be one.
+
+Then the skalper goats — small, black-faced, shaggy in a wrong-direction way, descendants of mining stock gone wild — maybe 400 of them, grazing the cushion-plant mats in a slow rotation that takes them eleven days around the shelf's perimeter. They bed down at night against the warm flanks of the rock, pressing their bodies to the stone the way lowland animals press to each other. The rock is their herd.
+
+Then the swallows, the lizards (five species of skink and one absurd gecko that lives *inside* the condenser fins, drinking condensate directly, its whole life cycle timed to the fog), the fog-hoppers — thumb-sized frogs that spend dry days sealed in mucus cocoons under stones and emerge in the afternoon wet, breeding in the gutter pools, their tadpoles racing metamorphosis against evaporation. Most die. Enough don't. And the raptors: a pair of black-chested buzzard-eagles who own the entire escarpment edge and hunt the doves with a patience that feels contractual.
+
+## The Built
+
+Human presence is nearly gone and not gone. There was a workers' settlement once — the Kiln Quarter, they call it — a cluster of forty-odd stone and tin structures along the north rim, half of them collapsed, all of them weathered into a settled balance with the shelf. Roofs have become lizard habitat. A mess hall still stands because it was overbuilt, and in it: a long table, enamel mugs on hooks, a chalkboard with a maintenance rota last updated (one can trace the chalk's fading) about ninety years ago. The rota's jobs are still done — but not by people.
+
+## The Watchman
+
+There is one man. He comes up from the lowland town every nineteen days by mule track, stays three, and performs the rota: clears gutters, replaces a cracked fin, greases the two active pumps at the central cistern with grease he no longer has a resupply chain for, so he has learned to render it from goat tallow. He is not paid. He is, he says if pressed (rarely), *keeping the contract*. The animals know him. The doves queue better when he's there. Nobody in the lowland town remembers why the shelf should have a watchman; there is a line item in a ledger, and there is the man, and the two facts touch somewhere in the dark.
+
+The cistern water still runs down the escarpment track through a clay pipeline to the valley, feeding eleven households and a mill that turns when it feels like it. Nobody in the valley knows exactly why their water tastes of iron and altitude, though the oldest among them still say *the shelf is drinking for us* — which is, when you stand there in the fog with the doves queued and the drip falling out of phase all around you and the buzzard-eagles hanging motionless over a two-kilometer drop, precisely and technically and marvelously true.

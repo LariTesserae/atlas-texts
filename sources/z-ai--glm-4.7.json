@@ -3,7 +3,7 @@
   "requested_endpoint": "z-ai/glm-4.7",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-08-17",
-  "date_last": "2026-08-17",
+  "date_last": "2026-09-24",
   "texts": 1075,
   "by_type": {
     "location": 250,

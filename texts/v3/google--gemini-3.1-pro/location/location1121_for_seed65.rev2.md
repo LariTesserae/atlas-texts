@@ -1,0 +1,27 @@
+At the absolute roof of the world, where the atmosphere stretches thin and the sky bruises into a permanent, star-pricked indigo, lies the Great Caldera. 
+
+It is a place of brutal, blinding illumination. Without a veil of vapor or atmospheric dust to scatter it, the sunlight here does not merely shine; it strikes. It bleaches the vast expanse of rock into a searing, monolithic white. Yet, despite the intense radiation, the air is desperately cold. A biting, frigid stillness holds the landscape, chilling the pale stone so deeply that the rock itself seems to radiate a glacial ache.
+
+The terrain is an amphitheater of immense, sweeping scale, measuring miles across its shallow, bowl-like depression. The geology here has long since surrendered to the eons. The erosion is ancient, complete, and settled into a flawless equilibrium. There are no jagged peaks, no tumbling scree slopes, no raw edges of new tectonics. High-altitude winds, blowing uninterrupted for millions of years, have sanded the pale limestone-like rock into undulating, velvet-smooth curves. It is a landscape of soft parabolas and immense, hollow voids. Standing on the rim, the sheer volume of empty space before you is staggering—a vast, concave basin containing nothing but thin air and light.
+
+And sound. 
+
+The noise is absolute. It is a physical weight, a 360-degree wall of pressure that vibrates the fluid in your eyes and rattles the marrow in your bones. It is a deafening, continuous, booming drone—a titanic, multi-layered harmonic chord, like a million brass horns and cicada shells resonating in unison. The sound never stops. It never wavers in volume, never crests, and never fades. It is a locked, permanent roar that fills the empty basin to the brim, trapped and amplified by the parabolic curves of the eroded stone. 
+
+The source of this overwhelming noise is the caldera's sole, abundant occupant. 
+
+Clinging to the smooth, terraced walls of the basin and gathered in massive, dense flocks across the far slopes are millions of creatures. They are large, perhaps the size of humans, covered in a thick, insulating down of pale grey and silver that protects them from the bitter cold. They possess broad, leathery gliding membranes folded against their flanks, and heavy, hollow biological structures crowning their heads and chests—bony casques, like the crests of cassowaries but intricately chambered. It is from these crests that the sound emanates. They do not need to open their mouths to sing; they simply force the thin, freezing air through their respiratory chambers, vibrating their very skeletons. With millions doing this simultaneously, the acoustic output is cataclysmic. 
+
+Yet, for all their alien appearance and the primal ferocity of their choir, they are quiet, meticulous laborers.
+
+Look closely at their hands—for they have hands, delicate and articulated, extending from their mid-sections. They build no structures. There is no architecture here, no walls, no nests, no alteration of the landscape whatsoever. The caldera is entirely untouched by construction. But the creatures carry tools. 
+
+Slung across their silver-furred chests are simple, beautiful harnesses braided from their own shed down and the tough, sinewy fibers of mountain roots. In these slings, they carry dark, glossy stones—obsidian and chert, hauled up from valleys miles below. As they sit bathed in the blinding light and the deafening drone, they work. They use round hammerstones to expertly knap the dark glass, flaking off razor-sharp blades with deliberate, manual precision. 
+
+With these primitive hand-tools, they scrape the deep, wind-carved grooves of the limestone. Here, in the micro-shadows where the blinding sun cannot reach, the extreme temperature differential causes the frigid air to condense against the cold stone. Intermittent, creeping moisture beads along the rock face, trickling down into perfectly spherical, wind-hollowed pockets. These shallow, scattered pools of freezing condensation are the only water source in the vast dryness. Around the rims of these pools grows the caldera’s only vegetation: a sparse, wire-tough, rust-red lichen, feeding entirely on the damp rock. 
+
+The creatures use their freshly knapped stone blades to harvest this tough lichen, peeling it away in slow, methodical sheets to eat. The visual contrast is striking—millions of silver bodies against stark white stone, gripping shards of black glass, chewing raw red fibers. 
+
+Nothing changes here. The dynamic of the caldera is locked in a frozen, eternal afternoon. As individual creatures sleep, pressed against the cold stone, others wake to take up the drone. The volume of the choir has likely not fluctuated by a single decibel in a hundred centuries. The intense sunlight beats down, the cold bites deep, and the deafening resonance dominates all. 
+
+If you look down into one of the shallow condensation pools, you can see the strangest truth of this place. The water is perfectly clear, but its surface is never still. The overwhelming, never-changing wall of sound forces the water into complex, standing cymatic waves. Intricate, flawless geometric mandalas ripple endlessly on the surface of every damp pocket, trapped in the freezing water, holding the exact shape of the deafening, eternal song.

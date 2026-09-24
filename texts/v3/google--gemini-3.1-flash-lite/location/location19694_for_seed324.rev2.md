@@ -1,0 +1,13 @@
+You are standing inside a "Lung." That is the only name for it, though it is not biological; it is a pressurized, industrial ventilation chamber embedded deep within the basalt core of a high-altitude mountain range. 
+
+The space is small—a tight, hexagonal gallery no larger than a studio apartment—yet it feels infinite because of the noise. The sound is a physical weight, a rhythmic, bone-rattling *thrum-hiss-thrum-hiss* produced by massive, piston-driven hydration pumps that occupy the ceiling and floor. 
+
+Everything here is built. There is no stone, no soil, no sky. The walls are constructed of dull, brushed-titanium plating that has never known the sun. Because of the constant cycling of the pumps, the environment is in a state of perpetual weeping. Water does not rain here; it condenses. Cold, industrial-grade moisture beads on the matte-grey panels, running in thin, silver veins toward the floor grates. The air is heavy, tasting of ozone, recycled oxygen, and the metallic tang of damp circuitry.
+
+The ecology is entirely mechanical. Scattered across the floor are thin, sparse extrusions of copper wiring and braided-steel filaments—the "vegetation" of this place. They sprout from the rivets in the floor, swaying slightly in the turbulent currents created by the overhead intake fans. They do not grow; they are tensioned by the air pressure, trembling with the industrial heartbeat of the chamber.
+
+Because the erosion is so young—the chamber is fresh, recently brought online, and kept in pristine, sterile condition—the edges of the machinery are sharp enough to cut. There are no animal lives here; there is no biology to speak of. The only "motion" is the relentless, rhythmic expansion and contraction of the pressure seals, and the endless weeping of the walls.
+
+Light is a dim, bruised violet, emanating from recessed strips of flickering LED tubing that run along the seams of the wall panels. It casts long, stuttering shadows that jump in time with the pistons. 
+
+The sound is truly deafening—a roar that makes it impossible to hear one's own heartbeat, a cacophony of hydraulics and pressurized gas that demands absolute submission. It is a lonely, cold, and hyper-constructed pocket of reality, a place where the world is reduced to the mechanical necessity of moving water through a heart made of cold, humming metal. You are inside a singular, perfect, and terrifying machine, existing in a state of high-altitude dampness, forever trapped in the cycle of its own fabrication.

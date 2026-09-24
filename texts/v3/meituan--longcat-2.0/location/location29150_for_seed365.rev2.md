@@ -1,0 +1,69 @@
+# Grithen
+
+## The Bowl and Its Making
+
+You come down into it rather than up to it — a cirque carved not by ice but by the sudden parting of rock, as if the mountain opened a hand and left its fingers curled around a hollow. The walls are sharp. That is the first thing. Every edge is recent: fractured basalt and pale quartzite still carrying the glassy sheen of fresh breakage, not yet softened by lichen or frost-spalling into roundness. Some faces show striations — parallel grooves left by whatever force wrenched the stone apart — and these catch the thin light like the ridges of a shell. The whole bowl is perhaps eight hundred paces across, terraced by natural shelves into four or five distinct levels, and the settlement occupies the lowest two.
+
+It is very quiet here.
+
+Not silent — silence is the absence of sound, and sound is still present. But it is the quiet of felt things: the slow seep of water through porous stone, the faint tick of cooling rock, the almost-subsonic hum that might be settling or might be something alive. The cirque walls hold sound the way a held hand holds warmth — it does not travel outward, and so the place feels sealed, intimate, even though the sky above is open and vast and filled with a grey-white brightness that never resolves into sun.
+
+That light. It is the light of perpetual overcast at altitude, of cloud so even and dense that direction cannot be determined. It diffuses through the cirque like water through cloth — coming from everywhere, illuminating nothing sharply, making shadows that are suggestions rather than statements. Colors exist here but they are the colors you see with your eyes half-closed: the dark green-black of moss, the iron-rust of wet stone, the bone-pale of exposed root structures, and everywhere, everywhere, the grey of cloud and distance and cold water.
+
+The water is not a river but a condition. It weeps from the upper walls in slow dark streaks, gathering in terraced pools on each shelf — pools that have no visible outlet, as if the stone simply drinks them down. Between the pools, the ground is merely damp: black soil that clings to the fingers, moss that yields like a sponge underfoot, patches of standing water in the footprints of dislodged stones. It rains sometimes — a fine, almost imperceptible rain that seems to rise from the ground as much as fall from the sky, condensation forming on every surface and then releasing in heavy droplets that strike the leaves of ferns with a sound like a single finger tapping a table, repeated, repeated, repeated.
+
+---
+
+## The Settlement
+
+They have built along the second and third shelves, where the slope is gentle enough to stand on and the rock provides both foundation and back-wall. The structures are small — each one sized for a single family or function — and they are made almost entirely of the material the cirque provided: angular blocks of basalt fitted together without mortar, their sharp edges left deliberately uncut, so that the walls look less like masonry and more like a held breath, a pile of stones that has decided to stand. Roofs are a lattice of split pine — stunted trees from the cirque rim, carried down — covered in layers of moss and turf that have taken root and now grow outward, so that the buildings blur into the hillside, becoming hummocks, becoming landscape.
+
+There are perhaps forty structures. They are not arranged in a grid or a spiral or any pattern that suggests a planner's hand. They follow the contours of the shelves, clustered where the ground is driest, spaced apart where the seepage is heaviest. Between them run paths of flat stone — not laid but selected, each one chosen for its natural flatness and carried to where it was needed. The paths are narrow. They curve. Walking them, you must occasionally turn sideways to pass between two buildings, or duck under a low lintel where a structure has been built into an overhang. It feels grown rather than built, though every stone was placed by hands.
+
+The lowest shelf, the one nearest the floor of the cirque, is not built on at all. It is left open — a long, curving plaza of damp ground and standing water, crossed by a single raised walkway of fitted stone. At its center is a fire pit, though it has no regular fire. Around it, the ground is worn smooth by standing feet. This is where they gather, on the occasions when gathering is called for. The rest of the time, the plaza is empty and the water stands in it like dark mirrors, reflecting the grey sky, reflecting the walls, reflecting nothing of the life that moves above.
+
+---
+
+## The Green
+
+Lush, but selective. The cirque's walls, above the settlement, are nearly bare — too steep, too sharp, too recently exposed. But every ledge, every crack, every pocket of soil has been claimed. Mosses first — thick, saturated, the kind that hold ten times their weight in water and release it in slow cold drops when you press them. Then ferns: small, dark, their fronds curled tight against the cold, uncurling only in the direct light that comes for perhaps two hours each day when the cloud thins and the sun, somewhere up there, briefly asserts itself. Then the flowering things — tiny, star-shaped, white and pale violet, growing in clusters so dense they look like patches of unmelted snow. Their roots are visible above the soil, pale threads that grip the rock like fingers.
+
+On the shelves where the settlement sits, the green is different. It is cultivated — or something adjacent to cultivation. Broad-leafed plants with waxy surfaces that shed water, grown in the terraced channels that carry the seepage downward. Ground-hugging herbs that smell of something sharp and medicinal when crushed. A kind of grain, or grass-seed, that grows in dense tufts and is harvested by hand, the seeds rubbed between palms and caught in woven baskets. The people of Grithen are not farmers in any way you would recognize. They are gatherers who have learned to encourage. They move plants to better ground. They redirect water. They pull competing growths. But they do not sow, not in the cyclical sense. The plants are already here. The people simply adjust the terms of their abundance.
+
+Above the settlement, at the rim, the trees begin. They are not tall. The altitude and the wind have kept them low and twisted, their trunks parallel to the ground for the first meter before turning upward, their canopies pressed flat on the leeward side like hair in a windstorm. They are pine, but not any pine you know — the needles are shorter, bluer, and they exude a resin that is liquid even in the cold, pooling in the bark-fissures in droplets of pale amber that are collected and burned in small stone lamps. The light these lamps give is steady and smoky and dim — barely enough to see your own hands — but in the close quarters of the buildings, it is sufficient.
+
+---
+
+## The Animals
+
+This is where the place becomes difficult to explain.
+
+They are everywhere. Not in the sense that you see them immediately — you do not. You see the settlement, the walls, the green, the water. You see the empty plaza. You see the narrow paths. You see, if you look closely, the signs: fine scratches on the stone where something has climbed, a shed skin draped over a branch like a stocking, pellets of compacted fur and bone beneath a ledge, the quick dark shape that vanishes into a crevice before your eye can focus on it. But the animals are not hiding, exactly. They are simply — present. In the way that air is present. In the way that moisture is present. In the way that the cold is present.
+
+They are small. That is the second thing you understand. Whatever lives here, the overwhelming majority of it is small enough to occupy the spaces between things. Insects, mostly — though the word "insects" does them a disservice, because they are not insects in the way you know insects. They are something that has taken the form of insects the way water takes the form of its container: beetles the color of wet stone, their carapaces smooth and faceted like polished rock; moth-like things with wings of such pale translucence they are nearly invisible against the cloud-light; long-legged spiders that move across the surface of the pools without breaking tension, their reflections perfectly mirrored below them. And smaller things still — mites, or mite-analogues, that drift through the air like dust motes, that settle on your skin and clothing the moment you enter the cirque and do not leave, that you will carry with you for days after you go, a fine living silt in the folds of your garments.
+
+And then there are the others.
+
+The lizards — if they are lizards — that cling to the walls of the buildings in such numbers that the stone appears to move, their bodies pressed flat, their skin the exact color and texture of the basalt they adhere to. They are cold-blooded, as you would expect, but they have solved the problem of the cold in a way that seems wrong: they gather in the channels where the seep-water runs, allowing themselves to become so cold that they enter a state of near-suspended animation, and then, when the brief sun comes, they pour up the walls in a river of sudden warmth and movement, hundreds of them, thousands, a single flowing organism of small scaly bodies that reassembles itself into stillness when the cloud closes again.
+
+The birds — if they are birds — that roost in the trees at the rim and descend into the cirque at irregular intervals, not in flocks but in streams, a continuous thin trickle of small dark shapes that enters from the east and exits to the west, each one pausing on a stone or a rooftop for exactly the same duration before moving on. They do not call. They do not seem to eat. They are simply passing through, endlessly, a migration that has no destination, or whose destination is the passage itself.
+
+And the ones you do not see. The ones you feel. The weight of something moving through the walls. The sense of being observed from the crevices between stones. The presence — undeniable, unshakeable — that the cirque is not empty of large life but that the large life has learned, or always knew, how to be invisible among the small. There are droppings, sometimes, on the high ledges — dark, fibrous, too large for any lizard. There are marks on the trees at the rim — not claw marks, not tooth marks, but something like the marks made by a rope dragged under tension, scored into the bark in parallel lines. There are sounds, at the edge of hearing, that might be breathing.
+
+The people of Grithen do not speak of these things. They step around the droppings. They do not climb to the high ledges. They leave small offerings at the base of the marked trees — seeds, resin, water in cupped stone vessels — and they do not wait to see if the offerings are accepted.
+
+---
+
+## The Rhythm
+
+Morning, such as it is — the cloud thinning from charcoal to pewter — brings the lizards up the walls and the birds down from the rim. The people emerge from their structures and move through the settlement in a pattern that looks random but is not: each person visits the same pools, the same plants, the same shelf-crevices each day, tending, harvesting, observing. The work is slow. The tools are stone and bone and the hard curved claws of something that no longer lives, hafted to wooden handles with resin and sinew. There is no metal. There is no fire except the central fire, which is lit only when the cloud breaks fully and the sun — briefly, gloriously — fills the cirque with a light so sharp and golden that it seems to belong to another world, casting shadows that have edges, making the water in the pools flash like mirrors, turning the grey-green moss into something luminous and impossibly alive. On these occasions — rare, perhaps ten or twelve times in a full turning of seasons — the people gather in the plaza and the fire is built and something is burned on it that gives off a thick sweet smoke, and the lizards swarm the walls in a frenzy of warmth, and the birds pause in their passage and perch in the trees above the rim and watch, and for a few minutes the cirque is loud with a sound that is not quite music and not quite speech, a humming that comes from the people's chests and the vibrating stone and the heating air, and even the small things — the mites, the beetles, the spiders on the pools — seem to pause and attend.
+
+Then the cloud closes. The light dims. The fire is allowed to die. The people return to their structures and the paths between them are empty again and the water begins its slow work of reclaiming the warmth, and the cirque settles back into its grey-green hush, and the animals resume their ancient, inexplicable business, and nothing is resolved, and nothing needs to be.
+
+---
+
+## The Rules
+
+The cirque is young. The rock remembers its making — remembers the violence of its exposure, the sudden release of pressure, the cracking open. There is a feeling here of something that has only recently become itself, as if the place is still deciding what it is. The sharp edges will soften. The seepage will find channels and become streams. The settlement will grow, or not. The animals will remain, because they were here before the cirque existed, in some form, and they will be here after it has worn to a gentle depression in a worn-down mountain.
+
+But for now — for this brief geological instant — the place holds its shape. The walls are sharp. The water weeps. The green fills every crack. The small things are beyond counting. The large things keep their own counsel. And the people of Grithen live their quiet lives on the shelves of the stone, walking their narrow paths, carrying their stone tools, tending their mossy roofs, stepping around the droppings on the ledges, leaving their offerings at the base of the marked trees, and not asking questions that the cirque is not ready to answer.

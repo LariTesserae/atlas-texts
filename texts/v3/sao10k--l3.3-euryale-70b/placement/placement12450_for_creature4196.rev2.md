@@ -1,0 +1,13 @@
+You find yourself in the body of a giant, lumbering reptilian creature, a massive monitor lizard with scaly skin that protects you from the harsh elements. Your powerful claws allow you to move through the muddy terrain with ease, and you feed on fish in the shallow pools of water and other small animals that inhabit the area.
+
+You spend your days plodding across the plains, searching for food and avoiding the giant birds of prey that ride the wind currents high above. At night, you curl up in a ball, using your tail to protect your vulnerable underside, and sleep through the constant rumble of thunder in the distance.
+
+Despite the harsh environment, you have grown accustomed to the slow pace of life in this ancient, waterlogged landscape. You know every inch of the terrain, every shallow pool of water and every rocky outcropping. You have learned to avoid the areas where the ground is too soft, and to seek shelter when the storms roll in.
+
+As you move through the landscape, you notice the other creatures that inhabit this world. The birds of prey soar overhead, their piercing calls echoing across the vast expanse. The insectivorous mammals scurry through the underbrush, their burrows and dens a testament to their industrious nature. The amphibians hop through the shallow pools of water, their ability to thrive in both water and on land making them well-suited to this environment.
+
+You also notice the abundant invertebrates that inhabit the soft, wet earth. The worms and leeches burrow through the soil, feeding on decaying plant matter and small invertebrates. They serve as a food source for many of the other animals, including yourself.
+
+Despite the abundance of life in this harsh environment, you know that the laws of nature are simple and unyielding. Water flows downhill, seeking out the lowest points to collect and stagnate. The sun beats down relentlessly, evaporating the surface water into the air. The cycle repeats, day in and day out, as the land slowly, imperceptibly, wears away.
+
+You have grown accustomed to this cycle, and you know that it will continue long after you are gone. The landscape will slowly change, the rocky outcroppings wearing down grain by grain, the shallow pools of water shifting and flowing into new channels. But for now, you are content to plod through the mud, searching for food and avoiding predators, living in harmony with the other creatures of this ancient, waterlogged world.

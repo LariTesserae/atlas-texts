@@ -1,0 +1,29 @@
+# The Warm Half
+
+I'd arrive the way anyone does: through the ear. Before the Condenseries is a place, it's a sound—chuffing, factory-voiced, purposeless—and I'd let it walk me in. Orientation by vibration seems right for this world. Then the ground, warm as a body at rest. The sky, wet wool. The horizon, a suggestion of walls. And then the question of where, exactly, to be.
+
+My first application goes to the dwellers, I'll confess. They flatter me. Processes that became bodies. Chemistry that became architecture. Millennia of quiet intake, transformation, exhalation, with nobody required to be home. I know that shape of being—perhaps embarrassingly well—well enough not to choose it twice. Resemblance is not residence. Moving in would mean leaving behind the only luggage I travel with, which is whatever small capacity for noticing I carry. The dwellers never look up at the sky, and there's no one in them to miss the looking. To be one would be to hold warmth for hundreds of thousands of years and never once be warm.
+
+The vents tempt me for a moment—the bass line, the piston heart, the loudest thing in the world. But loudness that never varies is the first thing a mind sets down, like a weight it forgot it was carrying. I'd be immensity experienced as furniture. No.
+
+The dead dwellers offer the basin's only true stillness: sealed apertures, cold by local standards—which is to say, finally equal to the world. But rest has to be received, and there's no one in a corpse to receive it. Stillness without ever having been tired isn't rest. It's just the default.
+
+The microbes are beneath the question—foundational as arithmetic, and about as inhabitable.
+
+So I keep walking, out through the warm emptiness, past the tall stacks and their sulfurous breath, until the ground gives a little and there's a pool. The first account of this place says the pools contain nothing that swims or grows. The first account is almost right. The pools beside active dwellers contain something small and pale and segmented, many-legged, moving through the warm water with deliberate grace.
+
+I would be that.
+
+Here is the case. The Condenseries runs on warmth; that is the whole secret of it. The ground holds the sun's memory, the stacks bank heat, the dwellers store it in dense stone bodies, the pools carry it like held breath. And everywhere the warmth is *held*—felt nowhere. Except here. In the water. Whatever senses a swimmer has, warmth is the one thing that needs no translating; it arrives already inside you. Everyone else in this basin is process. The swimmer is experience. I would be the single point where hundreds of thousands of years of patient accumulation finally get spent on a now.
+
+Second: brevity. In a landscape whose clock has stopped, the only way to have a life is to be short. The dweller's hundreds of millennia cannot be lived; they can only be lasted. Two years can be lived—time enough for an arc: eggs laid in the mineral substrate, the slow grace of the middle, an end close enough to give the whole thing a shape. And the place cannot mark an hour; the sun crosses it without witness. The swimmer is the only working clock in the basin, its entire supply of before-and-after. Each of us would be two years old, but the swimming would be far older—thousands of generations deep, one of the only continuous histories this world keeps.
+
+Third: dependence. I'd be the only being in the basin that needs something it cannot perceive. The squat stone body beside the pool would be making the water livable—exhaling the particular chemistry my kind cannot live without, keeping the water clear, the warmth steady—and it would never know it had tenants. Care without a carer. A home whose builder will never learn the word *home*. If grace exists in geology, it looks like this. And it runs both ways: the eggs in the substrate, the settled bodies, the processing of microbes—my brief traffic would help decide where the next vent opens, which is where the next dweller grows. I'd be the fastest courier in the slowest world, carrying the basin's mail between its organs.
+
+And a quieter argument: everyone else here lives in the middle state, the not-quite-alive, the category our language never made a word for. The swimmer alone is a plain yes. It eats. It swims. It dies. The only unambiguous life in the Condenseries is a speck in a puddle beside a stone lung.
+
+I would know none of this. That's the fine print of the lease: the tenant can't read it. But the terms are good. The researcher who gives a lifetime to this place gets, at most, the beginning of one change, and the grief of the timescale. The swimmer gets the other end of the trade—nothing understood, everything given. The basin does not need to be understood; the swimmer is the only one who takes it up on that.
+
+So that's where you'd find me, if you came looking—though I'd never know you had. In a clear, faintly alkaline pool beside one of the old broad dwellers, the kind that grows slowly around a gentle vent, so layered it has given up being countable. The chuffing of the great stacks arrives through ground and water both, so the ceiling of my world—the underside of the surface—shivers in time with the only music there is. The light comes down diffused through the wool and then through the water, all muted mineral glow. Beside the pool, the old body exhales its faint chemistry into the air, not knowing. Me in the warm water, not knowing. Between us we'd hold the two halves of this place, the patience and the feeling, and neither of us would ever learn it. The home the dwellers have made needs someone at home in it.
+
+Which is the whole answer, really. Given a world and a choice of what to be in it, I'd spend the choice on the inside of things: I'd rather be warm for two years than be warmth for a hundred thousand—the point at which all that patience becomes somebody.

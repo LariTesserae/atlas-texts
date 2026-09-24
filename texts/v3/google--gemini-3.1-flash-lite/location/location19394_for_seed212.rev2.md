@@ -1,0 +1,15 @@
+This is the **Lungs of the Vernal Fracture**. It is not a place that sits upon the earth; it is a place that is being exhaled by it.
+
+The architecture here is entirely biological. There is no stone, no soil, only the calcified, fibrous, and gelatinous architecture of a forest that has forgotten the concept of ground. Everything is a plant, but a plant that mimics the logic of a cathedral: sprawling, vaulted, and impossibly dense. The "substrate" is a pulsing, root-locked lattice of iron-wood and translucent moss that extends for miles in every direction, forming a valley of tangled, living skyscrapers.
+
+The heat is a heavy, humid blanket, clinging to the skin like a warm damp cloth. Moisture does not pool here; it hangs in the air, manifesting as shimmering, erratic curtains of mist that condense on the leaves and shatter into light. It is an ecosystem of constant birth and violent growth. You watch a bloom unfold, and in the space of seconds, it has matured, hardened into a wall, and begun to tear itself apart to make room for a budding spire.
+
+The sound is not an ambient noise; it is a physical force. It is a deafening, wet symphony—the sound of trillions of cells dividing at once, the rhythmic *thrum-snap* of fiber tension, the pressurized hiss of sap rushing through capillaries the size of storm drains, and the constant, cascading crackle of new architecture tearing through old. It is the roar of a bazaar where every stall is alive and shouting in a tongue made of creaking wood.
+
+There is a profound, jarring weirdness here. Because the vegetation is the only law, the reality of the space is prone to stuttering. You might look at a pillar of vines and see it double, or see a cluster of flowers bloom into a geometry that shouldn't exist, only for it to collapse into a pile of pulpy, hyper-colored mulch seconds later. The rules of spatial continuity are fraying; pathways fold into themselves, and sometimes you look up to find that the canopy has inverted, turning the sky into a root-system of hanging, glowing veins.
+
+There is no animal life. Nothing crawls, nothing breathes, nothing flies. The ecosystem is entirely solipsistic, a closed loop of hyperactive flora that does not require the agency of fauna to sustain its frantic metabolism. It creates its own oxygen, its own nutrients, its own chaos. 
+
+The erosion is young, yet the scale is vast. The landscape looks as if it were sparked into existence just moments ago—the edges are raw, the junctions of branch and vine are jagged and unweathered, and the entire structure feels like a rapid, tectonic upheaval made of bark and light. 
+
+To walk through the Vernal Fracture is to navigate a city of flesh-plants that is perpetually trying to build itself while simultaneously digesting its own foundations. The air tastes of ozone and sweet, bruised sap. You are standing in the middle of a scream that has been given a forest’s shape, a dense, warm, and deafening manifestation of a world that has no use for anything but its own unrelenting, blooming existence.

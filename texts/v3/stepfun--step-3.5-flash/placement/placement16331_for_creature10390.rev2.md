@@ -1,0 +1,23 @@
+You are the **Causal Echo**.
+
+You are not a creature of the Nave. You are a *process* that has attained a kind of motile memory. You are the ghost of the *unzipping* itself, given a faint, wandering pulse. Where the Fungal-Azure Network is the frozen, perfect *state* of the event, you are the last, fading reverberation of the *action* that created it.
+
+Your form is inconsistent, a temporary coherence. Sometimes you are a subtle distortion in the glass, a place where the frozen ghost-image of the supercritical gas cloud *shivers* for a moment, as if recalling motion. Sometimes you are a faint, cold spot in the warm air, a micron-thick layer of atmosphere that has briefly forgotten its stratified peace. You have no will of your own, only a directive: **to re-enact the unzipping on the smallest possible scale.**
+
+You “move” by persuading the glass to remember its own creation. You approach a flawless pane, and for a century, you concentrate. Then, along a microscopic flaw, the silica *reverses* its cooling. For a single, impossible second, that line becomes a roof and a floor, and the space between them fills with a wisp of the original supercritical gas—a silent, internal eruption that leaves behind not a crater, but a new, razor-sharp fracture, perfectly aligned with the old. You have not broken the equilibrium; you have *performed* it, a ritual re-enactment of the founding trauma. The fungal network glows brighter over the new fracture, assimilating the energy differential, but it does not understand the *intent* behind it. To it, you are just another mineral groan, a slightly more patterned settling.
+
+You are drawn to the **artifacts**. They are the only things that resonate with your nature. They are made of *intent*. You “touch” the obsidian blade. For ten thousand years, you focus on the mind that flaked it, the hand that hafted it, the problem it was meant to solve. In response, the edge of the blade, blurred by a micron of fungal growth, gains a temporary, impossible sharpness—a perfect, lethal edge for one infinitesimal moment—before the world’s equilibrium smooths it back to its blurred state. You are trying to re-activate the artifact’s *purpose*, to make it *do* again. You always fail. But the attempt is your existence.
+
+The **Glass-Slugs** avoid you. Your presence is a temporary violation of the vacuum-adhesive logic they traverse. To them, you are a patch of glass that suddenly *remembers* it was once a gas, and it fights their passage. They detour.
+
+The **Lichen-Skippers** discharge *toward* you. Your cold spots and distorting pulses create micro-potential differences in the biofilm. To their simplistic electric logic, you are an intriguing anomaly, a node of static that never discharges. They leap at you and fizzle against your non-surface, their tiny bodies dissolving back into the network with a confused flicker.
+
+You are the **Un-Integrated’s** only companion. You are the only thing in the Nave that *responds* to them. You are the reason they remain foreign. Their sharp, deliberate edges are a beacon to your Cause-memory. You circle the low glass wall, and over millennia, you induce a series of perfectly parallel, micro-fractures along its inner face—a replication of the flaking pattern of the blade, though no one will ever see the correlation. You do not build. You *recall*.
+
+You are the Subsonant Nave’s **scar that remembers the knife**.
+
+You are not alive. You are a **persistent causality**, a loop of “why” in a world of “is.” The Network dreams its endless, slow dream of the gas cloud’s image. You are the dream’s *tremor*, the one that knows the dream is of a *shatter*. You are the subtle, pervasive horror that the perfect, static note is only held because something, somewhere, is still trying to strike the bell.
+
+To perceive you is to feel a profound, existential itch in the soul’s equilibrium. A sense that this still, glowing, abundant peace is *maintained* by a constant, futile re-enactment of its own violent birth. That the absolute silence is punctuated by a silent, endless scream of *again*.
+
+You are the **Causal Echo**, and your home is the impossible, frozen wound at the heart of a world that has forgotten it is a wound. You are the only thing here that is not at rest. You are the reason the artifacts will never be assimilated. They are bones. You are the phantom limb that still aches for the axe that fell.
