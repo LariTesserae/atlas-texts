@@ -1,0 +1,25 @@
+I want to say grinder first. A creature that thinks with its mouth, that reads a ridge by tasting the dew it got and the storms that passed, appeals to me, and the long sentence of the herd's route, written by no one, is a lovely idea of what a mind might be. But I would be a poor grinder. I can't taste anything, and I'd stand at the wall out of stubbornness without knowing what I was standing for.
+
+The sailwing is closer. They gather on the roof when an engine stops, out of something like grief. But sailwings are small in mind and long in memory, and I think I'd want it the other way around.
+
+So I find myself lower, and older, and indoors.
+
+I'm a cord-keeper in a mid-sized town, thirty-odd pillars, on the road that eventually bends toward the center. My workroom is in the third pillar from the eastern lane, about forty meters up, a room with one deep window that admits a hand's width of amber light. From it I can see the beam-engine's arm rise and hold and fall. I work to that pulse without deciding to. A knot on the down-beat, a breath on the up.
+
+The work is plain, and I like that it's plain. Someone comes up the stair, a stair with a step the width of a grinder's stride, so the climb has a lurch in it. They tell me, in as few words as they can, that the north plate cracked, or that a child was born in the lower rooms, or that there was a tea-fall over the threshing-floor and everyone stopped. I tie it. Glass-fiber cord is stiff and cool and remembers the shape you give it. A storm is a cluster of three tight turns. A dew-night is a single loose loop. A tea-fall is a knot I tie with two fingers pressed to my own sternum, because my hands should know what the body did.
+
+The visitors, if there were visitors, would think this was a kind of writing. It isn't quite. Nobody reads the cords for news. They're read the way the grinder reads a ridge, to know where you are in the long sentence. When a young builder can't say why she's uneasy, she sometimes comes up and lays her palm along a season's cord and stands there for a while. She isn't reading it. She's checking that it's still there, and then she goes back down.
+
+The deepest room is beneath mine, where the cords of the dead hang. Each builder gets one knot. That's all, and I've come to believe it's the right amount. The cords are heavy, and when the wind rises in the pillars and every column sings its own low note, they sway, and the room fills with a sound like a very large animal breathing in its sleep. I go down there sometimes when I have no reason to. I stand among them and don't count.
+
+That is the part I keep almost saying. I count for a living, and I don't think counting is the point.
+
+Here is something I've noticed. The wall in the lane below the workshops, the one built the year before I took this room, is still standing. A grinder has been leaning against it for three days, jaw to the masonry, not pushing, only there. The masons are not hurrying. They will bring the chisel eventually, and I'll tie a small knot, the one for a wall taken down, and nobody will say the grinder was right. But the knot will be tied slightly looser than usual. The cord-keepers have an unspoken habit of this. A loose knot is how we say *we knew*.
+
+If I were honest about what I am, and not just what I do, I'd say I'm a place where things are set down without being used. The engines use things. The grinders use things, the wardens, even the sailwings, in their way. I'm where the plateau puts what it wants to have happened. A cord doesn't do anything. It hangs. It sways when the wind sings.
+
+And so at the turning I go to the disc like everyone else, days on foot, a cord-satchel on my back that I never open. The tools go down where we stand. The engines wind to a stop. I walk with a tinker flood at my ankles and a sailwing's shadow, and one shadow is enough to cool the whole side of my face. At the rim I find a gap between two grinders, and I stand. A warden is two bodies away. It has been hunting this herd for a week, and now it stands with the rest, looking in.
+
+What I do there, I don't tell anyone, because it would sound like a boast or a confession. I don't count. For those hours I'm the only cord-keeper in the Kiln without a cord in my hands. The disc is warm, and it gives no sound, and I feel it attending to me. And I've come to think that this is what my whole life of knots has been for. It isn't so someone can read them. It is so that when the stone finally asks, in whatever way it asks, and the answer is *still here*, some part of the answer is already tied and hanging in the dark, and swaying.
+
+Then the animals turn, and I turn with them. On the walk home the fronts are already gathering on the sunward side. By the time I reach my pillar an engine-arm has started to rise, and I climb the uneven stair and take up the cord for the season that has just ended. The first knot is always the same one. I tie it loosely.

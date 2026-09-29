@@ -1,0 +1,35 @@
+# The Kilnwold
+
+The plateau sits high enough that the air should be thin and cold. It isn't, because the ground is burning slowly from the inside. Nothing here is soil. Beneath every surface lie the compacted dead layers of an older growth, then older ones under those, hundreds of meters of pressed fiber that once was forest and is now a warm, dense, rust-brown floor. It smolders far down, and the heat climbs through it like a fever through a body. The air at the surface is around fifty degrees and smells of hot resin, scorched sugar, and iron.
+
+There is almost no light. Whatever sun reaches this altitude is strained through a permanent overcast of pollen and soot, and then through the canopy, and what arrives is a brownish dusk that never becomes day. Your eyes adjust to a different illumination. Vents in the deep fiber breathe out dull orange, and the light stays low, crawling along the undersides of things. Every pipe and hull glows faintly at its seams, as if the whole landscape were a stove with the door slightly ajar.
+
+## The Architecture
+
+Everything is built, and everything is plant. The builders are gone, or were never separate from what they built. The structures are trained wood: trunks grafted into buttresses, branches woven into lattices a kilometer across, vines wound into cables as thick as houses and then cured until they ring like iron when struck. There are vaulted halls whose ribs are living heartwood, still sending up pale shoots that are pruned back each cycle. There are aqueducts with no water in them, and they carry resin instead. It is amber, slow, and hot enough to blister skin, and it moves along the sloped channels by a patient, ancient gravity.
+
+The industry is grown too. Boilers are hollow woody bulbs the size of granaries, sealed with hardened gum, and inside them terpene vapor swells and pushes on pistons made of density-packed burl. The pistons turn shafts of twisted fiber. The shafts turn wheels, and the wheels turn other wheels down long galleries into the dark. The engines are living, or partly so. Their cambium layers thicken and heal around the stress points, so a machine that has run for ten thousand years has grown itself into the exact shape of its labor. Wear has become anatomy. Gears have knuckled into their axles. Belts of braided bark have fused to their pulleys. The whole apparatus has settled into a final form and cannot be pried apart.
+
+## Packed
+
+Nothing stands alone, and there are no clearings. Where a factory hall ends, a stand of pressure-columns begins. Where the columns thin, stacked drying racks rise in tiers, loaded with black plates of pressed leaf, each plate the size of a door. Between racks run walkways that are also roots, and beneath the walkways run conduits that are also veins. Even the negative space is occupied. Hanging curtains of fine filament fill the gaps, and moss-slick mats of inert fiber pad every crevice. You move through the place sideways, ducking, pushing past leaves the size of tarpaulins that are warm and faintly damp with sap, though the sap is oil, not water.
+
+Water is nearly absent, and the plants have adapted around the lack. Their sap is a light hydrocarbon syrup. Their leaves are dark, waxed, and leathery, folded like bellows and tuned to trap heat rather than shed it. There are a few dew-collectors, brittle white cups on high branches that gather a thimble of true water each night. Whatever drinks it is a plant, and it drinks for a whole season.
+
+## Turbulence
+
+The plateau is ancient, worn down over so many ages that the original mountains are just rounded swells under the fiber. The skin of it never rests, though. Growth here is a kind of violence. A trunk can add a hand's width in a day, and it heaves upward, splitting a gallery roof, jamming a transmission. Then the maintenance systems answer. Cutter-vines, stiff with silica, sweep and snip along set routes. Grafting arms press new limbs into old breaks. Whole sections collapse under their own overgrowth with a long shearing groan, and within days a new structure has knitted itself over the wreck, fed by the rot. Fires start in the deep layers and run through the galleries as slow orange tides. They are not stopped, only channeled, into the boilers, where they become power. Nothing is wasted. Whatever falls is eaten by roots and returned as wood, and the wood is shaped into a part.
+
+Pressure storms build under the canopy when vapor accumulates faster than the valves can bleed it. The air gets heavy and sweet. The leaves rattle in unison. Then a thousand relief stacks open together and a sound like a great breath goes across the wold, and hot gas streams upward into the soot-sky in pale, luminous columns, catching the ember-light from below.
+
+## Sound
+
+It is mostly quiet, which is the strangest thing. With all this machinery you'd expect thunder, but the engines are wooden and fibrous and oiled in resin, and they run with a dampened, muffled thrum, felt in the chest more than heard. What you hear are small things. The ticking of wood as it cools and heats. The pop of a seed-pod that has finally dried in the heat. The creak of a shaft turning once in some far tunnel. The soft hiss of valves. Now and then a long low note rises from somewhere deep, when a vast bole flexes under load, and holds for a full minute before dying away. There are no voices and no wings, and no animal has ever lived here to make either.
+
+## The Strange Part
+
+The wold makes something, and no one is left to use it. In the eastern reaches, the mills produce the black pressed plates by the millions. Conveyors of braided vine carry them to great stacking halls where they are piled in perfect ranks, until the ranks rise to the ceiling. Then, in a different hall, the plates are fed into shredding wheels, macerated, and returned to the growth beds as mulch, where they become new leaf, which becomes new plates. The cycle is flawless. It has run for longer than any record could hold. There is no buyer, no destination, and no end use. The product is the process, and the process is the place.
+
+Among the highest and oldest trunks, the grain runs in patterns too regular for chance. The wood is inscribed. Its rings spiral outward in ordered bands, as if the trees themselves were punch cards, and the machines read them by touch as they grow, adjusting their motions to instructions laid down in the wood a thousand generations back. Whatever the builders meant to say is being obeyed, slowly and exactly and in the dark, by everything that grows.
+
+At the edge of the plateau the fiber floor ends in a broad, sloping shoulder, and the canopy thins to a ragged fringe. You can look out from there over the lower country, which is the same thing continued: dim, warm, tangled, humming, an entire world of patient, self-repairing, unattended industry, glowing faintly at the seams, going on.

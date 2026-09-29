@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **145** source folders · **165,319** texts
+- **146** source folders · **166,393** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -208,6 +208,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `anthropic--claude-sonnet-5` | 1,000 | 2026-06-30 | creature·250, location·250, placement·250, regard·250 | house-tag | event-observed 1,000 |
+
+## claude-sonnet-5.5  ·  1,074 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `anthropic--claude-sonnet-5.5` | 1,074 | 2026-09-28 | advisory·75, creature·250, location·250, placement·250, regard·249 | house-tag | event-observed 1,074 |
 
 ## command-a  ·  1,072 texts
 

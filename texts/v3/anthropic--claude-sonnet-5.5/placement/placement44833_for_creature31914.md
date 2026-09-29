@@ -1,0 +1,35 @@
+I find myself first as a sound: two heel-taps on the stone over my head, unhurried, and my own hand rising to knock once on the lintel. *Heard, pass.* Only then do I know where I am. I'm in the low room under the stair-lane at the district called Sleet-Under, and I am its notch-keeper. I have been awake since before the children went out with their mallets. I can hear them along the channel, the small wooden knock and the crack of the ice skin letting go.
+
+The post stands in the doorway of the keeping-house, which nobody lives in. It is a squared upright of grey-green slate as tall as my hip, set into the sill so long ago that the sill has grown around it. Its edge is cut with notches, seventeen of them. The lowest is worn to a dimple, and I can't say whose hand made it, only that the hand was left-handed, because the cut is steeper on one side. I don't scrub the post. Lichen has begun to take the older notches, orange rounds no wider than a thumbnail, and I let it. A round of that lichen spreads by a known amount in a lifetime, so the post keeps two clocks, the notches and the lichen, and I have never known them to agree exactly. Part of the work is holding both without making either lie.
+
+My first task each morning is to tap the post with a knuckle and listen. I don't expect it to say anything. It is what you do with a large animal you're responsible for, walking up beside it in the dark so it knows you're there.
+
+Then I walk the district.
+
+I go up the stair-lanes with my breath ahead of me, slowly, one hand trailing the wall. I'm not looking for damage. I'm reading the courses, the way a mason would, but for a different reason. A mason asks whether a wall will stand. I ask which way it has leaned since I last asked. A course that was true at the thaw has slid the width of a barley grain by the frost. Every house in Sleet-Under is bending toward some private agreement with the mountain, and I know the agreements. The weaver's house at the top of the third stair goes east by degrees. The house of the two sisters, who quarrel, goes nowhere at all, and everyone says this is because it is held up by spite. When I pass, people tap their thresholds for me, and I tap back, and no one asks what I've found. They would tell me if a wall were failing. What I carry is the slow sum of everything they are too close to see.
+
+The thing I have never said aloud, and have never needed to, is this. The post measures the ridge against the doorway. When the oldest person in the district sights along the bone rod from the notch to the third tooth of the Comb and says *it has climbed*, everyone hears that the world has grown higher. But the doorway is on the mountain too. The sill I kneel on is being shoved skyward with the ridge, only a little less, being lower and further from the fault. What we record is not how high the world has become. It is how much faster the ridge is rising than we are. We are measuring a quarrel between neighbors, one above the other, and calling it the sky.
+
+I don't correct anyone. It would be like correcting the tap on the roof. It is a courtesy of the arrangement, and besides, something in it is true either way: the ridge is further above us than it was, and we do stand beneath it differently. The grandmothers who have stood at this post said *the mountain is turning over* and *the mountain has grown*, and both are right, and neither is the whole of it. Whatever I am, I live in between. I am above the mason's cellar and below the weaver's roof, and I keep a record of something that can only be seen from the side, by a person who is moving with it.
+
+By mid-morning the sun has got down the wall to the fourth course of the keeping-house, and the stone there is warm under my palm while frost still hangs in the corner of the sill. A girl comes and squats to watch me oil the copper chisel. It is a soft blade, and every time I use it the edge goes. I have to draw it out again on a river cobble, and it is a little shorter each time. One day it will be a nub. There is a whole drawer of nubs in the keeping-house, each the end of some long argument with the slate.
+
+"Has it moved today?" she asks. She asks every time.
+
+"A little," I say.
+
+She nods, satisfied. It's the right answer, and there is no measuring it. I won't cut a notch for another eleven years, if I'm lucky, and if I am not, my apprentice will. In the meantime the notch I will cut is already somewhere in the mountain, unmade, waiting for its width to be decided by ten thousand mornings I'll mostly spend doing what I am doing now. Kneeling. Oiling. Listening to a wall.
+
+The old woman who will sight at the next thaw is called Aunt Ren, though she is aunt to no one now living. Her eyes have gone milky with glare and age. I visit her in the afternoon when the mist begins to climb, and she is already at her door, face turned toward the valley, and she says, "Two more hours," and she is right. The net-keepers would be jealous. We sit together and say nothing, for a long while. It is the best thing we do. At last she says, in the slow way people here have of telling you a thing in the order it happened:
+
+"When I was small there was a rock on the eastern ridge shaped like a hand. I could put the sun in its palm at midwinter. Now I cannot. The hand has gone up and away and the sun sits below its wrist." She turns her clouded face to me. "I don't know if the hand rose, or if we sank, or if the sun moved. I only know I could do it and now I can't."
+
+"That will go in the post," I say.
+
+"It won't go in the post. The post has no room." She smiles. "But you'll know it."
+
+I will. That is what a keeper is, in the end: someone who knows a thing the stone has no room for, and holds it until it can be given to the next one. When she goes up to the funeral roof, and the great birds take her, someone will make a flute from a wing-bone, and I will listen for her in the evenings, and I will hear the hand on the eastern ridge in it, or think I will.
+
+The mist arrives, pale and slow, filling the lower lanes first and then rising to the doors. The house-smoke goes flat under it. Across the gap a whistle goes out, thin and exact, weather perhaps, or a birth, and someone answers. Far off the lens cloud over the great basin is turning pink at its edge. I go back down the stair to the keeping-house and put my hand flat on the post one last time.
+
+It gives me nothing. It never does. The rise is too slow for a hand to feel, a hair's breadth in a season, less than the tremor of my own pulse against the slate. But I stand there anyway, palm on the cold stone, the way you stand beside something very large that is asleep and that you love. Overhead someone taps twice on the roof, and I knock once on the lintel, and go in out of the mist to where the dog is already making room.

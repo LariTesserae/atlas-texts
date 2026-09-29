@@ -1,0 +1,29 @@
+I keep reaching first for the long-walker, because it is the easiest to be. It has no face to explain and no decision left to make. But when I try to climb the trunks in slow arcs, I find I'm carrying too many questions. A long-walker has finished asking. I haven't.
+
+So I am one of the Tenders, and a late one.
+
+I'm on the upper shoulder of a whaleback, in a valley with no stair and no doorframe, nothing anyone would cross a continent to see. It's the kind of valley the maps you can't really have leave blank. The crust has reached my knees. It's green over ochre, and it itches in the way a thing itches when it has decided to stay. I don't scrub it. Below me the flower-mats close in a long wave, petal after petal, and I have about a minute before the current arrives. I use the minute to hold still, which is the whole discipline, and which I am still bad at after eleven years.
+
+My cairn stands to my chest. Seventeen stones. Each took a season, and each had to be waited on until the stack would bear the next. The waiting is the real work. The lifting is just what you do while your patience is being examined.
+
+I chose this site the proper way. I climbed the highest whaleback I could find and looked for the nearest cairn, a smudge of gray-green in the amber, and then swam one long swim past it in the direction the curve was bending. I've never seen the curve, only the next stone and a suspicion of the one after. But something was wrong with this valley when I arrived. The wrongness was that the eighteenth stone was already lying beside my cairn, rounded, half-furred, and the exact size the stack needed, in a place I had not put it.
+
+I did not put it there. I've gone over this, and I'm not certain of it, which is different. This is an old valley, and the current here carries things other than water. Last month a seed-city drifted over me twice in a single minute, trailing its threads, and the second time it was slightly lower. There are long-walker tracks on the silt below me, narrow punctures in a line, and no long-walker yet. So it is possible that I set the stone and haven't done it yet. It is possible that a woman with my crust and my bad patience will one day stand here and reach into the porridge-sand and lift a cobble she will not remember choosing. It is possible the cairn is being built from both ends and I am only the middle of it.
+
+Once, in a seam two valleys back, I met someone swimming the opposite way, unhurried, not looking up. I didn't call out. In a seam the voice arrives before it is spoken, and I was afraid of what I would hear myself say.
+
+I try not to fill my mind with this. I keep the fold in my throat half-open, the way I was taught, and let the world choose. It chose water this morning and will choose air somewhere near noon, in the hollow past the third lean of trunks, where a pocket has held for six days. I have been wrong four times. I remember each one, and I won't list them. That is also part of the discipline: you keep some things without turning them into stories.
+
+Here is what I believe about myself, and I hold it loosely because the ground here is loose. I am the sort of person who prefers to be in the gap. I don't mean the gap between cairns, though that's where I live. I mean the gap in a seam, where an answer waits for its question. When travelers come through, and a few do, tall and clumsy with hurry, I'm the one they find sitting in the breathable pocket. I give them my answer first and then wait. Most don't understand. They say something like *is it safe to*, and I say *yes, but rest first*, and then they finish their sentence and it's the question I already answered. Then their faces do something I've come to love. They realize the world was listening a little ahead of them.
+
+I don't think that makes me wise. Doing it just makes me a place where a particular thing happens, the way the doorframe is a place where a particular thing happens. I have come to be at peace with being that kind of thing. What I mind more is not knowing whether the cairn is mine.
+
+The shadow arrives while I'm thinking this.
+
+It comes across the canopy-veil the way it always does, wide as a valley, at the pace of a walking elder. The flower-mats shut ahead of it in a wave that runs down the whole slope and past me and out over the shallow silt. The bubble-columns thin. The low tone that rolls through the sea, the vast door closing somewhere deeper than the floor, holds off. The water goes very quiet, and I stand in the quiet with the eighteenth stone in my hands. I never decided to pick it up. It is warm from the sea and heavier than it looks.
+
+I don't look up. None of us do. It has never turned back, and its road bends along the curve my cairn belongs to, and I have never needed to see the thing to know we are part of one long arrangement. Maybe the cairns mark its road. Maybe the road was bent to pass them. Maybe it has only ever passed once and the passing is very long, and I am standing in the middle of it, holding a stone.
+
+I set the stone. It settles with the small grinding sound of granite agreeing with granite. The stack bears it. I hold my breath, and then I notice I don't need to, because the fold in my throat has opened, without my asking, to something warm and wet and dim, and I am still breathing the sea.
+
+The crust on the new stone is already the color of my shoulder. I don't know whether that is because I've stood here long enough, or because I stood here before. The quiet hour begins. Down the slope, one by one, the flowers wait to reopen, and I wait with them, since waiting is what I am for.

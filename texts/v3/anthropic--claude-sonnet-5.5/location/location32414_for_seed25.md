@@ -1,0 +1,39 @@
+# The Chorus Flats
+
+The basin is so wide that its far side is a rumor. It lies low, barely above the level of a sea that dried up, or drained, or never came. The land has been worn down so long that nothing sharp is left. Ridges are rounded like knuckles. Gullies are smooth as the inside of a bowl. The rock is a pale gray-brown, and it is made of animals. It is limestone in the loosest sense: shell, carapace, and tooth pressed into layers, then dissolved and redeposited, then eaten and pressed again. Where a gully cuts down you can read the strata as a slow catalogue of things that once lived here in numbers no one could count. The living animals stand on their ancestors and are still adding to the pile.
+
+There are no plants, and there never were. Nothing here has ever wanted sunlight. The sky is a lid of low cloud, the color of a bruise gone yellow at the edges, and what filters through it is less a light than a memory of one. Your eyes take a long time to open to it. Then the flats appear in dim ash-blue, with the rock showing as pale ribs and the shadows between them very deep.
+
+## The ground
+
+Underfoot it is damp everywhere but never wet. Cool moisture beads on every surface: the pale stone, the backs of animals, the fur on your own wrist. It comes from the fog, which lies knee-deep in the mornings, if morning is the word, and thins toward the middle of the cycle. Rain falls rarely, and when it does it is fine and warm and smells of struck matches. Mostly the water arrives sideways, condensing out of the air onto anything cooler than the air.
+
+The real water is in the seeps. All across the basin the rock is cracked, and from the cracks come slow warm mineral springs, orange with iron and yellow with sulfur, clouding milky where they cool. They spread into shallow terraced pools whose rims are ridged like the edges of a pie crust, each rim a few fingers high, built by the water out of its own dissolved stone. In the pools grow the mats. They are slick, layered skins of bacteria in rust-red, bruise-purple, and a dull green that looks almost like moss and isn't. The mats eat the seep's chemistry and are the base of everything. There are no plants because there is no need for them. The energy comes up from below, and the whole crowded world hangs from it like fruit from a very old tree.
+
+## The animals
+
+There is no way to say this that is not an understatement. The fauna is the landscape.
+
+The pale rock is furred with small grazers, beetle-like and armored, each the size of a thumbnail. They pack the terraces shoulder to shoulder, so that the stone seems to move like the skin of a shivering horse. Where a mat is thick they clump into drifts, and the drifts have a tide: they inch toward a fresh mat, strip it to bare film, and drift on. Behind them the mat regrows in a day, and the next wave arrives.
+
+In the crevices live things that have no name for what they are. Pale, many-jointed, long as your hand and sightless, they hold in the cracks and wait, and their forelimbs flick out at whatever passes. Deeper in the pores of the rock, where the stone is honeycombed, live smaller things still, so densely that a broken piece of the ground will hiss with them like a poured handful of sand.
+
+Above the surface the fog is inhabited. Soft flying animals hang in it like slow snow: translucent, gas-bladdered, trailing filaments. Some are grazers of the fog itself, straining floating spores and drifting microbes. Others are their hunters, thin dark things that shoot through the drifting shoals with a rasp of wings. When one strikes, the shoal parts and flickers with a startled pulse of light and closes again. This is how you see: the animals glow. Bioluminescence is the only light that belongs to the basin. It runs in blue-green ripples across the herds, in amber flashes along the flanks of the hunters, in the steady dull red of certain seep-dwelling worms that stand upright in the pools like candles. The dimness of the flats is never still. It flickers and rolls, and shadows sweep across the ground from things you cannot see.
+
+And there are the big ones. The largest animals are the walkers, long-bodied and low, with too many legs and heavy plated backs, moving in slow, patient herds that plow through the grazer-drifts and leave a wake of scattered shells. They are eaten in turn by things that are more mouth than body, that lie half-buried in the mud beside the seeps and take what wades near. Nothing here is alone. Every hollow has a resident. Every ledge has an occupant, and every occupant is itself a habitat for smaller lives, mites on the beetles, threadworms in the mites, and something on the threadworms. It is crowded to the point of touching. Very little of the basin is empty, and you are never more than a hand's breadth from something alive.
+
+## The sound
+
+It is deafening, and the word is meant literally, not as praise. The noise is not made by one thing. It is made by everything, all the time, and it is layered like the rock.
+
+At the bottom is a grinding: the ceaseless scrape of millions of mandibles on stone, a sound like wind dragging gravel. Above it is a rattle of shells knocking as the herds shift. Above that the fog-fliers whir and whine and click. Above that, the singers. The singers are the bright-throated things in the pools, and they make a pure, drilling, tuneless note, hundreds of them on hundreds of pitches, so many that the notes blur into a shimmering wall, a vast sheet of tone. Every so often a walker lets out a boom from somewhere deep in its body, a bass note you feel in your teeth and breastbone before you hear it. The basin's air is thick with sound the way a river is thick with silt.
+
+The sound does work here. The animals use it as a wall, a map, and a cover. Prey animals sing to hide in the crowd. Predators sing to blend in with the prey. There is a kind of stalker that has learned to imitate one particular grazer-call, and you can hear the false note if you know how, a shade too clean, but no one here is listening for it except the ones about to die. Territories are marked in volume. Mates are found by pitch. Even the herds' slow migrations follow the drifting contours of the chorus, the way a shoal follows a current.
+
+## The rhythm of the place
+
+The flats have a breath. Every few hours, by no measure that would matter to a clock, the ground exhales. Warm gas surges up through the seeps, the pools bubble and spit, the fog thickens and lifts, and the entire chorus lurches upward in pitch. For a while it is louder still, a frantic shrilling, as the animals crowd toward the rising warmth. Then the exhalation passes, the pitch sinks, the fog thins, and the grinding bass returns.
+
+And once in a great while, more rarely than the breath, comes the Hush. No one animal starts it. A ripple of silence runs outward from somewhere in the basin, one pocket of singers cutting off, then the next, then the next, until the whole flat falls quiet in a spreading wave. For a few moments there is only the drip of condensation and the enormous, ringing absence of sound. In that quiet you can hear the ground itself, a low resonant hum, the basin ringing faintly like a struck bell, the ancient shell-stone answering with its own note. Every animal is frozen in place, listening, and the light dims as the glowing things hold their pulses. No one knows what the Hush is for. Some say it is a census. Some say it is a fear, older than the flats, that something beneath is listening back.
+
+Then a single beetle scrapes, and another, and the sound rushes back in like water into a hole.

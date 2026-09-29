@@ -1,0 +1,19 @@
+I want to say I'd be a drummer, because they are the town's speech and I like the idea of being the one who answers. But when I try to stand among them, on the flowing brown-black ground, I feel wrong. I don't circulate. So I go up.
+
+I am a hanger, and I hang in the pump house, in the rafters over the grated culvert where the town's water is gathered and lifted. It is the busiest place in the basin, and I chose it without choosing, the way a drop chooses the low side of a leaf.
+
+I have no eyes, and I don't miss them. What I have is a comb, and the world arrives on it in beads: cool, then cooler, then salt, then the faint metallic warmth of water that has already been through the boiler hall's wall. I know the drummers below me by the tick of their plates in the trestles, three quick, a pause, one long scrape. I know the sheet-birds by the top of the chord, the thin bright note that makes the rest sound finished. I know the pump by everything. It is the great slow lift in my ribs.
+
+My work is small, and I say so plainly. The water gathers on the girder, and I drink it. It passes through me, and I let it fall a little warmer, a little salted, and clear. A bead that might have sat and clouded goes on to the gutter instead. That is all I do, and I do it about four thousand times an hour. It is not nothing. Without us the works would not run dry. They would drown in their own stillness.
+
+The odd part is the humming. I don't decide to hum, any more than you decide the pressure in your ears. The note comes up in my throat, and it is not mine. Ten thousand others hold it with me, and no single one of us has ever drawn the breath it needs. When I run out, the throat beside me takes it up so smoothly that the vowel never learns anyone stopped. I could not tell you which of us has been humming the longest. I could not tell you whether "I" have been humming since the settling or since a moment ago. The note is older than the throat, and the throat is only where the note happens to be, just now.
+
+I used to think this would trouble me. It doesn't. Being a place where the chord passes through is not a small thing to be. It is most of what anything here is.
+
+But I said I would be honest, so I will say where the trouble is. My rafter is near the north wall, and the north wall faces the windowless block. The hangers do not roost above the door, and I don't. But I am eleven rafters from the line where the roosting stops, and on some cycles I feel the chord bend. It is not a sound. The low root note arrives as pressure, and I feel my comb lean toward it a few degrees, the way the birds' gyre leans. I do not go. I drink, I let fall, I hum. But I lean. I think everything leans. I think this is the closest thing the town has to a thought, and we all have it together and never say it, because saying would take a throat, and every throat is busy holding the vowel.
+
+Sometimes a visitor comes, a warm, dry, oddly shaped thing that walks upright on the cinder with its palm flat against the brick. It stands under my rafter and its breath makes a small foreign weather. I know it by the salt of its skin and by how loud it is inside. It doesn't hum, and it is always listening for the place where the sound ends. I let a drop fall near it, clean and warm, and I don't know whether it understands that as a greeting. It looks up. I can't see it look, but I feel the warmth of its attention rise like a thermal, and for a moment I am the thing being heard.
+
+Then it goes. The pressure of its listening leaves, and I am a throat again in a row of throats, the vowel is going, and someone else has the breath.
+
+I think that is who I would be: the part of a long held note that is briefly awake, before it hands itself on.

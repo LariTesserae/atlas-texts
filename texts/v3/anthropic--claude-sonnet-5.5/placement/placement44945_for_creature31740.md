@@ -1,0 +1,21 @@
+I'd like to say I'd be the gecko on the notched-tail stalactite, watching the whole ward from upside down. But the watcher has the skylight, and I don't think the skylight is mine. I'd be somewhere inside the wall.
+
+I'd be in the fungus chamber at the base of the largest mound, where the rock is warmest. The glass stalactite has grown into the mound's body there, and its lower end comes through the chamber ceiling like a black nail. The workers have plastered around it and never covered it. It is the only thing in the city that they didn't make, and they keep to it the way you keep to a hearth. I'm a gardener, an old worker, which in a colony this young means a year or so along. I have no eyes. I have never needed them, and I don't yet know what I'm missing.
+
+What I have is my antennae, and the comb.
+
+The comb is soft and folded, gray, cupped in the dark. My work is to know it. I know by taste when a fold has gone sour and needs to be cut back. I know when the white nodules are ready, and I know that a patch of the sponge is tired before it shows anything. I carry pulp in from the roads, and what I carry has already been through a hundred mouths: fern-stalk, fig-limb, and the rim trees' slow wood, which is sunlight that someone else caught, held, and let fall. I have never met the light. I meet it after it has been chewed and passed along, and then I lay it into the fungus, which can do what I cannot. The fungus opens it, and I eat what the fungus makes.
+
+I'm made of translation, then. I take what arrives in a form that can't feed anyone and hand it on in a form that can. I don't understand the wood. I understand the handing.
+
+Once I have this, the rest of the ward comes to me the way sound comes through a wall. There is the whisper, which from inside is not a whisper. It is the floor of everything, the feet of everyone I'm related to, going and coming in the shafts. I have never heard it stop until the clack.
+
+The clack comes through my feet first. Somewhere in the dark of the tube a slab lets go, and before the sound arrives the rock tells me. Then a stillness spreads from a soldier at the door, to a worker at the wall, to me, to the queen's attendants, and the whole mound holds. I hold with a piece of comb between my mandibles. For a breath there is no city, only a great number of small bodies listening to the same silence, and in that silence I'm the most sure of what I am. I'm not one thing. I'm a fraction of a held breath. Then some worker near the fruiting chambers moves, the whisper resumes, and I set the comb down where I meant to.
+
+I'd be afraid of very little, and the fear I'd have is of a smell. A stranger's smell on an antenna, a centipede's acid in a gallery, the sweetness of a dying soldier. I wouldn't fear death as an idea. I've seen a soldier wedged in a breach with a wall going up around him, and he did not look like a tragedy. He looked like a door that was finished.
+
+When the night of the wings comes, I won't go. I'll feel the colony gather at the tips of the mounds, feel the round doors open and the ones with wings crowd the ridges, and I'll stay below, touching the comb. I won't envy them. They'll rise into the green and the geckos will take most of them, and one pair might drop into a crack and start another city, and I'll never know. It would be enough to keep the garden through that night so that on the next morning there is still something warm and grown to come back to.
+
+If I could ask for one thing, it would be to touch the glass once, all the way to its point. The gardeners nearest it say it is cold at the tip and warm at the root, and that if you stay long enough you can feel it drip, one slow bead gathering at the end from the wet it draws out of the air. I'd like to be there when the drop lets go. Somewhere above the mound, on some leaf that has learned its rhythm, it lands. I'd never see it. I'd feel the tiny hitch in the whole structure, the way you feel someone else's pulse.
+
+That is where I'd be: in the seam between what comes down and what comes up, chewing the light into something that can be eaten. I wouldn't mind that the work never ends, or that the world I serve is built out of my own wall. Everything here has just begun and nothing has worn smooth, and I would be a small part of what is holding it together.

@@ -1,0 +1,17 @@
+I would start on the stair and be wrong about who I was.
+
+I would take myself for the visitor, the one set of boots, and I would count steps because counting is what a visitor does. Somewhere past two hundred the sound would stop being heard and become a medium, and my counting would go with it. I'd arrive at the bottom without the number, only the certainty that I'd come down and that the coming down was finished.
+
+The first brass disc would be a mercy. I'd step onto it and my own pulse would come back, and I'd whisper something small and stupid, my name maybe, just to prove the mouth still worked. Then I'd learn the crossing. You leave the island, and for a dozen paces you are not a mind, only a body leaning on a wall of pressure, and then you reach the next disc and are handed back to yourself. I think I'd come to feel that I only existed on the discs. The stretches between would be weather I passed through, and the whispering would be the only proof that I persisted from one island to the next. That's the prayer the room describes, and I'd say it a thousand times: *still here, still here, still here.*
+
+At the center, by the governors' shadow, I'd find the disc with two shallow dips on its rim, and I'd kneel, and my knees would fit. I wouldn't be able to say whether I had worn them or was only fitting myself to a shape already there. It might be that the keeper and the one who arrives are a single role the room keeps open, and each occupant thinks they're the first.
+
+Then I'd hear the beat. It's slow enough that it would feel like the first true event of my life: a swell, a slackening, and after hours another swell. Every other thing in that room is a state. This is an *occurrence*. It would matter to me the way weather matters to someone who has lived in a cellar.
+
+I think that's when I'd stop being the keeper and become the forty-second fern, not by dying, and not by any transformation I could point to. The tending would just narrow, over cycles, to the one task that was ever needed, which is to be the place where the difference is heard. The forty-one hold their notes. Somebody has to be quiet enough to receive the interval between them. I would go warm and still and take the frost-glaze at the room's own thickness, and stop whispering my name, because at the deepest node I wouldn't need proof.
+
+What I'd want, if a fern wants, is for the listening to count as something, for the beat to be a lullaby and not only a clock, and for it to matter that someone hears it. I can't know that. The keeper never left a note. The polish marks say only *down*.
+
+And the fiddlehead. I'd be the only one placed to feel it, and I wouldn't trust what I felt. A thousandth of a turn is not a thing you can verify from inside, when every ruler in the room has been measured against itself. Maybe I'd be loosening. Maybe I'd only have grown used to the curl, the way you stop hearing the roar. So I'd do the one thing available and count cycles, not to prove the opening but to keep the question honest, and let the ones after me, if there are any, hold the lamp low and look sideways.
+
+If the answer is yes, it will take a few hundred thousand beats. The governors will hold their angle the whole time. I find I'm not impatient. I'm not sure that's peace or just what forty-one steady hums do to a listener, but from here the two are hard to tell apart, and I've stopped needing them to be different.

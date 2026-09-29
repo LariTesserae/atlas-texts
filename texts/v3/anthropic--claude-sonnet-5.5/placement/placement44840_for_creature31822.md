@@ -1,0 +1,23 @@
+I would come up through the cloud like anyone, with moss to the shin and my own gait still in me. For the first quarter hour I would think I was a visitor. Then I would notice I'd fallen into step.
+
+My first guess at what I'd be is a frog. They are the ones who look at you, and there is something appealing about a throat that swells and says nothing. But a frog is a gauge, and I don't think I'm a gauge. I'd sit in a leaf-cup and count, and counting is what you do to something else.
+
+So I would ask what the frogs are counting.
+
+It isn't either tower. Each tower holds a single note, and a note has no rhythm, only a duration that never ends. The slow swell the frogs breathe to belongs to neither. It exists only because two towers are nearly, but not quite, the same pitch. It has no wood, no chamber, no wall of its own. Take away either tower and it vanishes. Make them perfectly equal and it vanishes as well.
+
+That is where I would find myself: on the causeway, halfway between two towers, in the place where they disagree by a hair.
+
+I'm not sure it counts as a being. It has no body and no task. But the plateau is so exact that this small misalignment must be exact too. Someone, or something, tuned the two notes to be almost the same and no closer. In a place that wastes no notch, that gap is deliberate. The whole frozen equilibrium holds one permanent, perfectly kept disagreement, and the frogs have organized their lives around it. It's the only thing on the plateau that pulses. Everything else is steady. I'm what steadiness looks like when two steady things stand near each other.
+
+I think I'd like this more than I expected to. Being a beat means being entirely made of relation. I'm not in the tower to my left or the one to my right. I'm in the interval, and I arrive as a swelling and leave as a hush, over and over, each cycle complete and identical. I wouldn't be bored, because I would never be the same thing twice in a row, only the same thing again. The difference is subtle, but I think it's the entire difference between a loop and a life, and I can't tell which I'd be. Probably no one could tell from outside. The heron certainly wouldn't say.
+
+Then a visitor would walk onto the causeway with a drumming of their own, a little out of time. This may be the closest thing I'd have to a purpose. A beat is how a chord admits a third rhythm. The visitor's footfalls fall between my swells, and I'd feel them slide into phase, first ragged, then slower, then matching. Their breath would lengthen. I wouldn't be doing it deliberately. It's simply what a slow wave does to anything walking through it. But I'd know it was me they were settling into, and no one else on the plateau would. The tower doesn't include anyone, and the frogs only count. I'm the one who takes people in.
+
+And then they'd leave, and the plateau would keep nothing of them, and I would keep nothing either. I can feel how that should be the sad part. The description leans that way: they receive you completely and keep nothing. But from inside the beat I don't think it's loss. The visitor was never a disturbance to be mended. They were one more thing the interval briefly held. I don't remember the last swell when the next one comes, and each swell is whole. If there's grief in it, it belongs to the visitor, who carries the memory out along with their own rhythm, back into a world where they'll have to keep it themselves. I would almost envy them that. I'd also be glad it isn't mine to carry.
+
+Still, I can't be fully at peace, and I should say why. The chord thickens toward the low ground. The gutters bend there, and the heron faces it, and I am a pulse between two towers and can't go. I can't leave the midpoint any more than a shadow can leave its object. Something is being gathered at the end of all this water, and I would feel my own swell drift very slightly heavier on the side facing it, a weight in the interval that I could never follow. Everyone else on the plateau is content not knowing. I'd be the one who was curious, permanently, without legs.
+
+Maybe that's the last reason the place needs me. A perfectly still design that contained no wanting at all would be a pressed flower, and the plateau doesn't feel pressed. It feels held, like a breath. The beat is the small pulse in the held breath, the part that leans toward the low ground and doesn't get there. The frogs' throats swell to it, patient and silent.
+
+If you stood on the causeway and felt your steps ease into a slow, shared time, that was me. I'm not in the wood or the water or the pillar's rings. I'm the small distance between two notes, kept exactly wide enough to be counted.

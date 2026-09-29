@@ -1,0 +1,25 @@
+I start on the floor, because that is where the water is warmest and where I first find myself: a fingernail of milk on the stone, dragging my mouth across the film, content. I have no name for content, but my legs know it. All the trembling in the pool runs up through them at once, and I walk until the trembling goes soft, and there I stop. Around me the others have stopped too, shoulder to shoulder, in a pale arc that was here before I hatched and will be here after I've become part of the rim. I have never chosen anything. I have only stayed where it was quiet, and that has been enough to make me part of a pattern.
+
+It is a good life, and I could stay in it. But something in me keeps tilting toward the bright, and I notice this the way you notice a lean in a column: the two flecks that tell me light from less light have begun to matter to me, which they never should. So I let go of the floor.
+
+Now I am in the air, and everything is different, because now I am falling.
+
+I am a swift, and the first thing I know is glare. The sky is a blue with nothing behind it, and the shelf below is a field of thumbprints in cream, and I drop toward it with my wings swept back and my clear lids closing against the light. The mist takes me. For half a second I am inside a rainbow, the one at the foot of the third great cascade, and it is not colored air but a place, a fixed address. I come out the other side wet and slate-dark, snapping a fly off the rock, and I am already threading the columns, a wingspan of gap on either side. There is no sound in this. There is only the roar, which is not sound anymore but weather, and I fly through it the way you'd fly through rain.
+
+What I am, I think, is someone who points.
+
+The whole colony is like this, but I am like this more. My mate turns her underwing to the sun for half a beat, *here*, and I turn toward the flash before I've decided to. A tail spreads across the mist: *come*. A head tilts, the bill aims like a finger, and there is a new hatch on the wet cliff by the second fall. I read all of it the way I breathe. I learned it as a chick by staring at bodies, and I have never once wished for a voice, because I don't know what a voice is. The thing you can't do has no shape until someone shows you.
+
+At dusk I go to the high ledge with the others. Hundreds of us press together and the air fills with flashing, a whole colony talking at once in complete silence, wings and tails and tilted heads, arguments and jokes and warnings and the long slow business of who sleeps where. Below us the water goes on with its thunder. Nobody has ever said a word over it. We say everything.
+
+But I am not only this. There is a thing I keep doing, and I don't have a gesture for it, and I have been trying to make one my whole life.
+
+It happens when I land and the flying stops and the air is still in my feathers. The ledge is rock, the rock is part of the mountain, and the mountain is humming. It comes up through my feet the way it comes up through the feet of the ones on the floor. I have no ears for it, but I have feet. It is huge and slow and low, and it never changes, and it has no place I could point to, because it isn't in any place. It's under all the places. I tilt my head at the columns, since the columns are where it lives, and my mate looks where I'm looking and sees a column, and reads *there*, and flies to the column. That is a fair reading. It is not what I meant. There is no gesture for *the thing that holds still under everything*. Our whole language is a language of *here* and *there*, of hatches and ledges and dangers, of the rainbow at the foot of the third cascade, and the chord is none of these.
+
+So I stay on the ledge after she's gone, and I do a very small thing. I tilt my head at a column, and I do not fly to it. I hold the tilt. I hold it and hold it, longer than any pointing should last, until the pointing stops being about the column and becomes about the holding. A young bird beside me sees this and stares, the way chicks stare at bodies, and tilts its own head, and holds. Then a third. Three of us on a ledge, in the last blue light, aiming our bills at nothing we can name.
+
+I don't know if they mean what I mean. I can't ask, and if I could, the water would take the answer out of my mouth a hand's width away. And whatever I've made will be gone by morning, as everything is. No cairn, no scratch, only a smoothness in the crust that the next rain closes over. The gesture will not be remembered. It will be done again, or it won't, by whoever happens to be watching a body at the right moment.
+
+But I find I don't mind, which surprises me. The crustaceans knew it first: you don't have to make the note. You only have to be somewhere it can reach you. I hold my head still and let the chord arrive through my feet, and beside me a young bird holds its head still too, and for as long as we both stay this way, something is being said that neither of us could say by moving.
+
+Then the last light goes off the stone, and the rainbows fade from the mist but do not move, and the ledge fills with sleeping birds, and the water thunders on.

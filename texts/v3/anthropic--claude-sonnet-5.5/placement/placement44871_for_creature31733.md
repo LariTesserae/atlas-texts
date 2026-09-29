@@ -1,0 +1,27 @@
+I'd start on the last terrace, of course, before I was anyone. Then the roar would arrive, and I'd realize I had come down here to be something other than a visitor and hadn't yet decided what.
+
+My first instinct is the eagle: old, unhurried, taking the census. It's the flattering choice, the one that gets to see the whole pewter pan at once and be feared for its restraint. But the eagle is the one creature in the basin that is never inside it. It drifts through the hole it makes and leaves. I distrust how much I want that.
+
+So I try the cormorant, the patient one, wings hung open on a pipe, white from the feet up with its own history. I'd like the stillness, an afternoon in one position, warm steam through the feathers, the turbine whine coming up through the metal into my feet. But I think I'd get restless. Cormorants have made peace with being landmarks, and I don't think I have.
+
+I keep circling back to something small in the description. The girl puts her palm on the flank of the generator, the one with no name that she calls "the other one," and says she can feel the whole basin in it, and that under the tremor and the toads and the west-hum there is a pulse that isn't the machine's. Nobody says what it is. I'm more curious about that than about anything else in the place. But I don't think I'd be the pulse. That would be a way of not choosing, of staying vague and enormous. I'd rather be someone who gets called out to look at it.
+
+So here is where I actually end up.
+
+I'm a Keeper, probably in my second or third year. I'm not good at it yet. My half-crouch is still a little too self-conscious, and I sometimes forget and lift an arm to scratch my face, and a whole ridge of gulls takes offense. I live in a room built into the ribs of the conveyor gantry, with walls of stacked drums and a warm floor that sweats. My bed is on a frame. My work is the boards.
+
+I paint them. When a new fissure opens across the works, someone has to say where, how long, which way it's running, and whether the water in it is warm, cold, or already going orange. I go out with a pot of pale paint and a brush lashed to a short handle, because a long pole would throw a shadow, and I walk the crack with my knees bent. Then I set a stake in the mud and mount a board on it, and the people at the next works read it through binoculars from a kilometer away. Everything I know about the ground, I say in paint. The board is the closest thing the basin has to a newspaper, and I am, absurdly, the press.
+
+I like it more than I expected. Nearly everything else here is either roar or hand-talk, breath-fast and gone. A board stays. It says: *here, this morning, a body-width, running northwest, warm.* Then the ground moves and the board is wrong, and I repaint it. I've come to think of the boards as promises in the local sense, laid across bad ground, holding only if everyone keeps stepping on them. The word for promise and the word for causeway are the same sign, and my hands have started using it without my deciding to.
+
+What I haven't told anyone is that I take the wax out.
+
+Not at work, and not near the colonies. But on a slack afternoon, when the light is at its dimmest gold and the tamarisks are bending north, I go out to the edge of one of the outer terraces, kneel, and pull out one plug. The roar comes in like weather through an open door. It is much worse than it was when I was new, because I'd learned to lean on the wall and now I've stepped off it. Then I put my other ear to the crust.
+
+The ticking is there. The people who kneel say they hear it through wax, and I believe them, but I wanted it bare. It's the worms and ostracods and pale unnamed things, thousands to the handful, moving in the warm mud like a clock nobody wound. Under it is the toads' low purr, the floor of the sound. And under that, if I stay long enough and my ear starts to ache against the salt, there's something else. I can't tell you what it is. It may be the note the flamingos use to find their chicks in the creche, the one the roar doesn't cover. It may be the girl's pulse. It may be my own blood in a pressed ear. I don't decide. I only kneel, and the note comes and goes, and I never quite learn to say which.
+
+Then the toads stop, all at once. The purr goes out from under everything, and I feel the cold drop of it in my chest before I understand. I put the plug back and lift my head. Across the pan, a man stops mid-step with one foot raised. Nobody breathes. The whole basin waits, and the ground turns over.
+
+Afterward there's a new crack, a hand-width, straight as a ruled line. Its walls are layered like cut cake, ash and silt and salt, and water is already welling along it. By tomorrow it will be ringed in orange. I get my brush and pot and walk out to it with my knees bent and my arms low.
+
+I don't think I'd want to be the one who understands the place. I'd want to be the one who writes it down badly and keeps correcting it, small and slow and a little bowed, with the roar leaning on me and the ground still deciding. And on the two days a year when the pans merge and the sky lies down in the water, I'd climb to the roof and lift one hand no higher than my chest. I still don't know the sign the man makes. I'd make a wrong version of it, and the girl would watch me, and she'd tilt her head slightly. I think that would be close enough.

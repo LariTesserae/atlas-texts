@@ -1,0 +1,29 @@
+I think I would want to be the heron, and I'd be wrong about it.
+
+The first thing that draws me is the stillness. Everyone in the town is scraping, hanging, lifting, and here is one creature allowed to stand on a white serrated rim at dawn and simply attend, while a thousand people decide whether it is a blessing or an audit. I would like that license. But the heron isn't in the town. It is watched by the town, and it never hears the lanes. I would be the town's opinion of something rather than a person in it. So I let the heron go, and I keep the part of it I liked, which was the attention.
+
+What I actually turn out to be is a Listener, and not a good one at first.
+
+I'm born on an outer terrace, in the reed-tone quarter, where the stone is new and the shelves overhang a hollow that hums a flat, nasal note like someone blowing across a jug. My childhood is scraped shins and rim-kisses, and I have the scars to prove I ran too fast. But I'm the child who stops mid-lane and won't be pulled along, because something has changed and no one else has noticed. A shelf has gone a half-step sharp. My mother says *it's nothing, come*. Two Breaths later a lintel two levels down drops a hand's width of fresh stone into someone's washing, and after that the old Listener of the quarter starts letting me walk behind her at dusk with my head tilted, the way she tilts hers.
+
+It isn't a gift so much as a refusal to filter. Most of the Worked have trained themselves to let the ticking of the town blur into one soft clock, because otherwise they'd never sleep. A Listener declines to blur. I hear the drip into the cracked basin on the third ladder, which is a different pitch than it was last month. I hear the deep tone under everything, and the reed tone, and the small tone of a grown jar left too long near a singing wall, which starts to sing with it. I carry the whole town in my ears the way others carry a cup on a cord. Strangers ask how we find our way without a map. We are the map, and it is heavy.
+
+When I'm grown I do the ordinary work. I walk the lanes at dusk and call *toward the deep tone* to a trader who has gone down on his back in a puddle. I warn a household when their shelf is thinning, and they don't always thank me. A shelf that sings differently means someone has to move, and no one loves the messenger for that. My hands go ridged and smooth-tipped like everyone's. I carry a small rasp and a cup. My knees start to tell me about the lime.
+
+Then, in middle age, I begin to hear the closed rooms.
+
+I can't say when, only that the lanes toward the center have narrowed and I've been walking them because the Listener before me always did, and one evening I stop with the backs of my fingers on a wall that feels right, neither too thick nor too dry, and I hear a room. A room, not a house. It is sealed, and it has a note.
+
+Of course it does. It is a hollow in stone that the Breath passes over. It was built to be a room and it has become a bottle, and every bottle has a pitch. I stand there and let the Breath rise through the lane, and the water comes over my ankles, and under the running hush I hear that low, patient, slightly sagging tone, and I know it's dropping. The walls are thickening inward, the chamber is shrinking, and the note is sinking a hair each year, as if the room were slowly exhaling.
+
+No one has ever listened to these. The town's ban on opening them was never spoken, only held, like a question not asked at a meal. But no one said anything about the ear. So I begin, quietly, to map the sealed. This is the Listener's version of the Keepers' restraint: too much attention erases a face, too little lets the flow blur it. I don't open anything. I only learn who is still humming.
+
+Over the years I know them all. The narrow one near the old vent has a thin bright note, and I suspect the cup on its shelf is ringing faintly against the wall. The big low chamber under the Deep Floors of the first families is so far down the scale I feel it in my teeth more than hear it. One night a woman from a rim family, young, louder than I ever was, comes to me and asks in the low voice we all use whether I could tell her which room was her grandmother's. She isn't asking me to open it. She only wants to know where it is. I take her hand, lay it flat on a wall that looks like every other wall, and say, *here, and it's a long way down, and it's still keeping its note.* She stands with her palm on the stone until the Breath comes and the water rises around both of us.
+
+Nothing gets said. She rasps her own threshold the next morning, and the answer to my knock is *Worked this morning*, and it means everything it always means, with something under it.
+
+I think that's the being I'd be: not the one who holds things and not the one who opens them, but the one who hears that they are still there. The town says *everything is meant to be held*, and I believe it, but I've noticed that held things are only kept if someone knows their pitch. The sheathed dead have their keepers. The sealed rooms have me, and someday I'll have whoever walks behind me at dusk with a tilted head.
+
+And when my own knees finally take me toward the center, into a room with a single working door, I won't be afraid of the narrowing. I know what it sounds like from outside. It sounds like a low patient note going lower. I'll rasp my threshold every morning until one morning I don't, and someone will knock on the lintel, and call, and then, I hope, stand a while with a palm on the wall, listening for the tone.
+
+May my floor be deep, then. But mostly, may someone be listening.

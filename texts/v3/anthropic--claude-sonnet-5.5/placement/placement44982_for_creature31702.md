@@ -1,0 +1,23 @@
+I come to myself in the middle of a vibration, before I know what I am.
+
+At first I think I'm high up. There's a sense of the whole room laid out below me, the swell and thinning of it, the wall as one instrument. I think I must be one of the grey birds, shifting my feet a moment before the chord changes. But the feeling doesn't hold. A bird hears the whole and has no need to touch any part of it. What I want is to put my hand on a single cell and feel the one small animal inside, its throat working against my palm. So I come down out of the vaults, and I have hands, and horn on the pads of my fingers, and a spine bent to the shape of the ceiling.
+
+I'm a Sitter. The name comes to me the way names do here, as a place. Mine is a cell in the east wall, low, three hand-widths from the edge of the nearest blue-white ring. It sits so close to the silence that its note comes out slightly swallowed, a ring with a cloth over it. When someone taps me, the shiver arrives in my rib a little damp and late. Sitters born to bright cells find this funny. The old woman with the cloudy eyes, named for the cracked one that goes *thock*, says it suits me. I'm the one who lives at the border.
+
+That is my work, though nobody assigned it. I sit at the edge of the circle. People go in when they need to be alone: someone whose mother has just been laid in the channel, someone who has been counting empty cells for too many days. I don't follow them in. I stay at the rim with my back against the warm rib, and when they come out, I'm the first thing they touch.
+
+Coming out is hard. You have been in a silence with a pressure to it, watching the drips fall without sound, and then you step over the glaze and the room hits you in the sternum all at once. Some people stagger. Some fold up. I put my palm flat on their breastbone, the gesture for calming an animal, and I let my own chest do the slow work of the pipe-eels until theirs falls into step. It takes a few minutes. I don't tap anything. Nothing needs to be said, and if it did, this is a language of place, and there's only one place to be, which is here.
+
+The light is coming up green. The dawn pulse hasn't reached us yet, but I feel it start in my feet, the intakes far above warming and the first thread of water quickening down the ribs. The drops on the ceiling begin to fall in time. A young one comes toward me across the floor, moving unsteadily. She is the one who walked down to the herders this season, and she came back yesterday with salt and a bolt of blue cloth. She hasn't slept. I can tell from how she carries her jaw, clenched against a noise she has stopped being able to feel. The silence outside took something from her, and now the room has to give it back.
+
+I don't take her to the circle. It's the wrong medicine. I sit her against the wall beside my own cell and put her palm on the hexagon that is my name. She flinches, then stills. The swallowed little note goes up her arm, and I feel her recognize it, the cloth over the bell, and something in her shoulders lets go. Then the dawn arrives. The frogs swell in a wave from the door to the far wall, and the pitch climbs past what seems possible, and the water pours in threads down every rib. The grey birds lift off the vault and circle once. She is shaking with it, and so am I, and neither of us is afraid.
+
+I want to say what I love, because it isn't the chorus. The chorus is enormous and doesn't need me. I love the small failures at the seams: the mud patches, the crooked masonry of chitin and secretion pressed against the perfect old hexagons. I love that the room has been mended by things that don't know what it is. I love the fern, and the woman who taps to it in idle rhythms, telling it nothing.
+
+Sometimes my cell goes empty. The frog dies, or wanders off toward a warmer wall, and my name goes flat, a knock on bare ceramic. When that happens I feel it the way you feel a missing tooth. I sit with the empty cell for an hour or a day, as we do for anyone, and I don't carry a replacement over from the crowded stretch. I've decided to wait and see who comes. The border has its own kind of frog, one that can sing a note through a cloth.
+
+Today, while the girl sleeps against my shoulder with her hand still on the wall, one drifts in. It is thumb-sized and translucent-bellied, and it wedges itself into my hexagon and swells its brass sac. The note comes up through the rib, through the girl's palm, through my back, a little late and a little dulled.
+
+That's me, I think. That's the whole of me, called from somewhere I can't see.
+
+I don't tap. I lay my palm against the stone and feel the room breathe in.

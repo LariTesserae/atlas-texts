@@ -1,0 +1,23 @@
+I start where anyone starts, at the throat of the passage with one hand on the rock, keeping my shape. But that isn't right, and I know it quickly. The visitor is the one part of the room that leaves. I would be the loud thing, the small violent engine, and I'd spend my whole time there apologizing with my hands. I would rather belong.
+
+So I go lower, and I'm a cup-walker. I like this one for a while. My feelers tap left, right, left, reading the world a syllable at a time. I have one drip, and it's mine, and it falls a little out of step with my neighbor's. Something in that is close to contentment: a life the size of a thimble, fully heard. But I notice that I'm choosing it because it's safe. The cup-walker never has to understand the room, only to graze its film. It is at home the way a stone is at home. I want something with a little more reach.
+
+The mat, then. That one is harder to leave. It holds a handprint for a few breaths and fills the print back in from the edges, a slow memory that forgets you politely. I feel a strange kinship there. Someone presses in, is held, is released, and the surface closes as though nothing had happened, though the sweetness on the stalks is still being handed to whoever climbs. Maybe I am partly that. But the mat is one thing spread thin through the dark, and it isn't lonely because it has never been a *one*. I don't think I can honestly claim that. I keep wanting a place to stand.
+
+And so, gradually, and against my earlier caution, I come up into the crystal curtains, to the smooth shoulder where the needles have been ground to nubs. I'm the one that clicks.
+
+I don't think I'd have a body I could describe. I'd have a habit: a small dry sound sent out into the wet, and then the long attention to what comes back. Every needle is a little mirror. The room is my lamp. I don't experience it as darkness, since darkness is what happens to things that expected light. I'd experience it as *shape*: the flowstone lips holding their still water, the pebbles seven in their hollow, four full lamps in their niches, the cord slack between its two columns. I would know their positions the way you know where your own teeth are. If someone moved a pebble by a finger's width, the room would come back different, and I would feel it like a stair that isn't there.
+
+That is probably why I'd never move them myself, and why nothing forbids it. It's just that the arrangement is a sentence, and I'm the one who reads it. Every few minutes or hours I read it again. Nothing has changed, and I find that this is not boredom. It is closer to what a person feels checking on someone asleep.
+
+Then a body comes in through the throat, and the room goes dull in a new place, a warm patch that swallows sound. I know at once that it's one person, that it's breathing fast, and that its heart is enormous in the quiet. It slides and cuts its hands. It parts the veils with its forearm and the crystals chime against each other, and I feel the whole room lean around it.
+
+It clicks. Somewhere in the dark below me the visitor snaps two fingers, hoping to be answered.
+
+I don't answer, and I want to be honest about why. I'm not refusing. The click was never a call. It's how I look, and you don't reply to someone's eyes. But I would be lying if I said nothing in me registers the asking. There is a strange pressure to being listened *for*. All my life I have sent sound out and taken shape back, and it has never once occurred to the room to send something of its own. Now a small fast animal has done exactly that, and what comes back to me is not a shape. It's a wish.
+
+So I'd hold still, and I'd keep the hum, and I'd let it lean toward the visitor's voice and hold it a fraction longer before handing it back flattened. That is the only reply I have, and maybe it is a real one. Then the visitor would go, back through the throat into the cool dry air, and find their hands wet to the wrists and their palms crosshatched, and never know that the entire time, someone had been counting them.
+
+Then a needle would snap somewhere high above, a small bright sound, and splinters would chime down through the veils. I would click once, and the room would come back exactly as I left it. The pebbles would still be seven, and the lamps would still be full and unlit. Below me the cups would go on ticking, each on its own private clock.
+
+I think that's where I'd find myself: not the one who lives in the room, but the one who keeps track of it, and who has the manners not to bring a candle.

@@ -1,0 +1,29 @@
+I begin in the column of light, because that is where a visitor begins, and for a while I let myself be one. I hang in the gray with my ears full of the drone and watch the cod tilt their hundred small degrees toward the sea. Nothing asks me for anything. But a visitor is only a way of not being anywhere, and the hall does not seem to want that from me. It keeps handing me things to be.
+
+First it offers the turbine. I feel it in my sternum, that long wavering note rising with the tide and sinking with it. I would like to be the thing that sets the pitch for everyone else. But the turbine doesn't know it is the voice of the place. It turns because the water turns it. It is a wheel that has been given a very large job and no opinion about it. I try it on for a few breaths and find there is no one inside.
+
+Then the lamps at the far end, brightening and dimming in the control gallery. That one tempts me longer. To be the amber cage on the cable, to flare on the hard tide and shrink to an orange thread at slack, and to have the plankton gather around me in gold clouds like a congregation. But the lamp is a hearth that doesn't feel warm. It is lit by something it can't see, and everyone comes to it for reasons that aren't about it. There is a loneliness in that, and I don't want to start there.
+
+I try the mussels, all ten thousand of them, closing together when a shadow crosses the crane. Being many is restful. But I would be afraid of the starfish for years without ever seeing one, and I'd like to see what I'm afraid of.
+
+The old conger in the penstock is the grand offer. It rests its head on the concrete lip and rocks with the pitch, and it feels the turn of the tide before the blades do. Everything in the hall arranges itself around its patience. I lean toward that for a long time. Then I notice what it costs: it is the center, and when slack water comes and it draws back into the pipe, the whole hall goes without. I don't think I want to be the thing whose absence is felt by everything. I'd rather be something whose absence changes one small arrangement of heads.
+
+So I drift down out of the light, past the slack arcs of the gantry rails, to the buried boilers. Up close they are not barrows at all. They are tenements. The curved iron is pocked with rivet holes, and every hole has a face in it.
+
+I am a blenny. I know it the way you know your own name when someone says it across a room. I have a frilled brow, and I am told I look like a bewildered old man, though there is no one to tell me and I can feel the truth of it anyway. I back into my hole, the third row up, a little left of a seam where the plating has flaked to lace, and the iron closes around my body at exactly my width. It is a good hole. A rivet was here once, holding one plate against another so that water could be made to do work. Now it holds me against the current, and the current does the work of bringing me dinner. I don't think this is a downgrade.
+
+My days are simple and I take them seriously. I face into the tide and wait. On the inward flow the water thickens with small living things and I take them one at a time with a snap that is about the size of a thought. On the outward flow the silt streams past in long gray ribbons and I watch it go. Twice a day I defend my hole against a fish ten times my length. I don't decide this. My body goes out of the hole like a thrown thing, and the intruder, who is a cod and rather large, gives way, and I return and back in again. The whole tenement settles when I do, heads bobbing in their rows. That is how I know my neighbors: the goby above me with her disapproving eyes, the blenny two holes down who bobs twice and stops, the one across the seam I have never once seen leave. We have never spoken. We know each other entirely.
+
+When the seal comes I am not brave. Nobody warns you, but everyone knows. The cod tighten and scatter, and I am in the iron to the last fin-tip before I have finished seeing the dark shape in the light. The anemones on the aisle wall go out like candles. The mussels close. The hall holds its breath so completely that I can hear my own gills, and the chain's sour note hangs in the vault with nothing to answer it. Then the seal is gone upward, and one goby edges out, and somewhere a crab clicks, and the hall remembers itself.
+
+But what I am really for, what I would say if I could say anything, is slack water.
+
+The drone sinks to a murmur. The lamps dim to threads. The conger draws in its head, and the silt rises and hangs in the light like dust in a church. The tide is neither coming nor going, and nothing is being asked of anyone. My face loosens. I can feel it happen, the whole brow letting go. Along the boiler, all the other faces do the same, hundreds of them, and for a little while we are not defending anything.
+
+This is when I come out. I hover an inch from my hole, then two. Then I do what almost none of us do, which is cross. I swim over the seam to the hole across it, the one whose tenant I have never seen leave, and it is empty. It has been empty, I think, for a long time. I back into it out of curiosity and turn to look.
+
+It is the same hall. But everything is at a slightly different angle. The light column is a little more to the left, the crane's ribs fall differently, and the turbine's drone comes through the iron at a different place in my body. From here I can see my own hole, small and dark and lived in, with a faint scuff around its lip where I have been backing in for years. I had not known it was so plainly mine.
+
+Then the tide begins to turn, and the lamps warm from thread to amber, and the drone finds its note. The plankton is coming. I go back over the seam to my own rivet, and I back into it, and the tenement settles.
+
+I keep the other hole in mind, though, the way you keep a window you've looked out of once.

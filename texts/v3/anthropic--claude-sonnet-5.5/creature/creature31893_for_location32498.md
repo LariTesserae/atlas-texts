@@ -1,0 +1,59 @@
+# Those Who Live in the Kiln
+
+It helps to say first that nobody on the Kiln thinks of itself as a separate kind of thing. A visitor sorts the inhabitants into animals and builders, tools and pests, hunters and hunted. The plateau doesn't. It has a looser, older grammar, in which everything that moves is a kind of weather.
+
+## The grinders
+
+A grinder is, at first sight, only mass. It stands as high as a man's shoulder and is twice as long as a boat, with a low-slung barrel of a body on six short legs jointed in a way that gives them a rolling, unhurried gait. The hide is the color of the strata it feeds on, rust on the flanks and bone along the spine, and it is so thick and finely creased that a grinder standing still in the Combed Country is difficult to tell from a fallen block. Older animals go grey-green like bronze. The very old ones develop a faint violet bloom along the belly, and the builders regard these as a kind of elder.
+
+The face is small for the body. There are no eyes in the usual sense, only two shallow pits on either side of the jaw, lidded, that open to a slit at dusk. What the grinder knows of the world it knows through its mouth and its feet. The mouth is a broad plate of ridged horn, worn and regrown, worn and regrown, and it is the animal's whole intelligence. A grinder tastes the varnish and can tell which face of a ridge got the most dew and how many seasons ago the last dust-front passed. It reads the rock like a page. The herd's route across the plateau is a long sentence assembled from these readings, and it is a route no one planned.
+
+They are slow to anger and slower to start. They are also stubborn about roads. A grinder has walked the same lane through a town since before the town was hollowed into its pillar, and if a wall is built across the lane, the grinder will stand at it. It doesn't push or complain. It stands there for a day, two days, a week, with its jaw resting against the masonry, until someone comes with a chisel. The builders say the wall always comes down, and that the grinder never appears to be pleased about it.
+
+They sing, though few outsiders know this. It happens at the dew-pans in the hour before the moisture arrives, when the herd stands in its long line. It is not a sound so much as a pressure, a very low hum produced deep in the barrel of the body and carried through the ground. Anyone standing among them feels it in the soles of the feet. The herd hums, the salt lace trembles a little, and then the damp comes.
+
+## The sailwings
+
+The sailwing is the opposite of the grinder in almost every way. It is all surface. The body is a narrow spindle no thicker than a child's arm, slung beneath two membranes that spread wider than a house door and are so thin that the light comes through them the color of weak tea. A sailwing over your head is a stain of brown light moving on the sky. There are veins, dark and branching, and a single thickened spar along the leading edge, and that is nearly all the structure the animal has.
+
+They do not flap. In the hot heavy air they don't have to. A sailwing leaves the roof of an engine-house on the vent's warm breath, rises without effort in tightening spirals, and hangs at the top of its column for hours with the wings barely trimming. From up there it can see the dung fields glittering in the low light, the whole pattern of the herds moving like slow ink, the fronts building on the sunward side, and the smoke of towns days away.
+
+They are small in mind and long in memory. A sailwing never forgets a place where the metal salts were rich. It also never forgets a place where an engine failed, and the gathering on a roof, the weight and the silence, is not an alarm someone trained into them. It is grief, or something that works like grief. They gather to be near a thing that has stopped.
+
+They die in a particular way. When the time comes, a sailwing rises to the top of the town's wheel and folds. It falls slowly, turning, over the threshing-floors, where the workers stop to watch it come down. Nobody touches the body. By evening it is dry as paper, and by morning the wind has it. The builders call this *the tea-fall*, and there is a small custom around it. Whoever sees it stops, lays two fingers against the sternum, and stands until the body has landed.
+
+## The small ones
+
+Beneath these lives a multitude with no names outside the crevices themselves. The tinkers are beetles the length of a thumbnail, black-backed and bronze underneath, and they keep the dry rasping music of the plateau at night. They click their wing-cases against the rock to find one another, and after a dust-front, when the whole tableland is muffled, the first sound to come back is a spreading tick from the stone, as thousands answer thousands. The burrowers are pale, eyeless, soft as wax, and they live in the salt-crust and tunnel beneath the dew-pans in a lattice so fine that the pans seem to breathe. When the damp comes, the burrowers surface and drink through the skin, and then the crust is covered with white bodies for the length of a few minutes, all of them motionless, all turned the same way.
+
+The mites are most of the world. On the varnished rock they graze the film one cell at a time, and they are so many and so small that they are less like animals than like the rock's own restlessness. A grinder that scrapes a ridge eats mites without knowing. A tinker that follows behind eats what the grinder missed. The sailwings later eat the pellets that carry the mites' small bones. Everything on the Kiln is eating what something else has already digested, and the cycle is so complete that the plateau seems to be digesting itself, slowly, with great tenderness.
+
+## The wardens
+
+The wardens are the only hunters, and they carry it strangely. They are lean and long-jawed, grey as ash, with narrow bodies and a gait that drifts and stops and drifts. They hunt the margins of herds, taking the old or the lame or the wandering young. A warden's kill is quiet and quick, and afterward the body is left to the tinkers and the wind.
+
+The wardens keep the pan-truce more rigidly than any other animal, and this is the puzzle of them. A warden that has been stalking a grinder for three days will fall in at the end of the pan-line beside that same grinder and wait with the rest for the damp. Two paces apart, they face the same white basin. When the moisture has come and been drunk and the crust has gone dry again, the warden steps out of line and the hunt resumes as though there had been no interruption. Whatever the truce is, it is not mercy, and it is not forgetfulness. It is more like a shared understanding that some hours belong to nobody.
+
+## The builders
+
+The builders call themselves something that sounds, in their slow low speech, like *the ones who stay*. They are tall, stooped, long-armed, and their hands are the most expressive part of them, with long dark fingers that seem to know things before the mind does. They are broad through the chest because the heavy air demands it. Their skin takes the dust and holds it, so that a builder who has spent a season outdoors is faintly rust-colored, and one who has spent it in the pillars is closer to grey. Their eyes are large and dark and heavily lidded against the amber light. They are quiet, and not from coldness. Over generations they have concluded that most things do not need to be said twice, and many don't need to be said at all.
+
+They speak in short phrases with long silences between, and the silences are part of the grammar. A builder who asks *is the north plate clean?* and gets no answer for a full minute has been answered, because the silence means someone is checking. They read each other's hands and shoulders as much as their words. They read the animals the same way, and this is why the arrangement works. A builder walking a lane in the early morning will stop, without looking, a half-pace before a grinder comes around the corner. Nobody has taught them this. It is an attention that has grown up between species, the way a path grows up between two houses.
+
+Their days follow the engines. The great beam-arms rise and fall about once a minute, and the builders work to that pulse: a hammer stroke on the down-beat, a breath on the up. A child in a town grows up inside this rhythm and carries it for life, and elderly builders who have retired to the high ridges can be seen swaying very slightly, in the same slow interval, long after the engines are out of earshot.
+
+They keep bells. They keep records too, in bundles of glass-fiber cord tied in knots, and the knots count storms, dew-nights, tea-falls, births, and the seasons of the turning. There are cord-keepers in every town, and their work is respected but not admired, since it is regarded as a plain duty. When a builder dies, the cord-keeper ties a single knot in a special cord kept for the purpose, and that is the whole ritual. The body goes to the wind like a sailwing's. In the older towns, the cords of the dead hang in the deepest rooms of the pillars, and they are heavy, and they sway when the wind sings.
+
+## The turning
+
+Everything that lives on the Kiln knows about the disc, and none of them speak of it. Nobody on the plateau has a story about who made it. The builders don't say it was made. They say only that it is *warm*, the way one says of a long-standing companion that it is *there*.
+
+At the turning of the seasons, when the fronts thin and the light goes clear and the sky shows a brief pale blue that most of the year it forgets, the plateau begins to move. It is not a stampede or a migration. It is more like a tide beginning to draw. The herds leave their routes. The sailwings peel off from the town wheels and drift toward the center on the high air. The wardens leave the margins. The tinkers come out of the crevices in their millions, a slow dark flood across the pale rock, and even the burrowers rise through the salt and inch across the crust. The builders lay down their tools where they stand, and the engines wind down to a stop, and the towns fall quiet, and everyone walks.
+
+They arrive over days, and they arrange themselves around the rim of the disc with no one directing. The grinders stand in a loose ring, the tinkers spread between their feet like a second, darker floor, the sailwings settle on the backs of the herd in numbers that would be impossible anywhere else. Builders stand in the gaps, shoulder to warm shoulder with beasts they have known all their lives. The wardens stand among the grinders. Nothing hunts.
+
+They all face in. The disc lies flat and warm and black under the clear light, and it does nothing. It gives no sound. Yet everyone who has stood there says the same thing in different words: that it is not a place where you watch. It is a place where you are *attended to*. The stone seems to be listening, and it is as if the whole plateau, every hoof and wing and knotted cord, has come to be counted once more, and to say, without saying, *still here*.
+
+After some hours, no one can say how many, the animals begin to turn, all at once, the way a herd turns at a pan when a young warden oversteps. The builders turn with them. The tinkers ebb. The sailwings lift. By nightfall the rim is empty, and the amber fronts are already gathering again on the sunward side, and somewhere in the nearest town an engine-arm begins to rise.
+
+The builders will tell you, if you ask, that the Kiln has no one living on it but the Kiln. They mean it lightly, as a manner of speaking. But they lower their voices a little when they say it, and they look, briefly, toward the center.

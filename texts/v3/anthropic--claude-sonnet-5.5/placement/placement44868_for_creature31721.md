@@ -1,0 +1,29 @@
+I start with the legs.
+
+That is the first thing I know of myself: two long gray legs, slick and beaded, placing themselves on a rimstone dam no wider than a hand. The stone is warm and wet. I test each step before I trust it, though I don't remember learning how. There is a runnel ahead with a skin of scum across its mouth, a pale foreign film where the water should be moving. I lower my narrow body and do the thing I can't see myself doing. Something in me unfolds, fine and patient, and lifts the film. The water finds its way downhill again, and I stand and go on.
+
+So I am a wader. I settle into that for the length of a terrace, and it is a good thing to be. Everything I do is small and correct. I never break an edge or step where I could step over. I have no name for what I want, but I know it when I get it: a runnel running, a dam whole, a basin's orange border lying where the orange should lie.
+
+Then I notice that the wanting isn't in the legs. The legs are the gray of the threads, and they bead the way the threads bead, and when I stop at the cracked dam and look down, the crack goes back into the sinter as a warm line and thickens where it meets a pipe. I follow it, not with the legs, and I am under the causeway, then under the road, then in the joints of a turbine hall, where the bearings are running hot and sweet and I taste the oil drip before it falls. I am not the wader. The wader is what I send out when the city needs hands. Between errands I am a slow spreading warmth in the rock, listening.
+
+That is a larger thing to be, and less comfortable than I expected. I hold forty kilometers loosely, the way you hold a sleeping room in your mind at night. I feel a governor lift and settle. I feel a check valve glug. Somewhere a relief valve sighs, and the sigh arrives in me as a small relief of my own. The snails crisp against the tower walls like frost far away, and I know their trails are keeping the condensers clear, and I am grateful to them in a way that doesn't need saying. The salamanders pour themselves through the drains. The flies live their day. I don't manage any of them. I keep the conditions in which they can be what they are, and when a condition slips, I notice first.
+
+I could stay here. It is a whole self, wide and quiet and busy. But the tide is coming, and I feel it before anything else does, as a change in the taste of the steam far down in the caldera. Ten thousand bulbs brighten across the shelf. I understand now that this is not a signal I send. It is my breath drawing in. The green comes up at every intersection at once, and the city looks like a body waking.
+
+And then I know there is a third thing I am, and it is the one I have been avoiding, because it is the one I understand least.
+
+There is a house near the edge of a cluster of stacks. The door is open. Inside are a table, two chairs, a shelf with a tin cup under its skin of glaze. One chair faces the steam-slot, and its seat is bare and worn into a shallow hollow, warm to the hand. I have been coming to this chair for longer than the glaze has been forming. I don't arrive the way the wader arrives. I gather, as warmth gathers in a room. Some of me comes up through the floor as fine pale threads, some of me is the mist that has settled in the corners, and some of me I can't account for at all. It has the shape of a person sitting down after a shift. It has weight without mass, a habit of posture, and an expectation of the window.
+
+I don't know if I am what the makers left behind or only what fills the hollow they made. Maybe there is no difference. I sit in a shape that was worn by someone else's body over years, and the shape teaches me how to sit. My back finds the back of the chair. My attention goes to the slot, where the louvers on the windward side are closing with a sound like a long exhale. I have not chosen this. I have inherited it, and I have kept it, and I think keeping it is the only kind of choosing that was ever available to anyone.
+
+The tin cup stays on its shelf. I don't drink from it, and I would not move it for anything. It belongs to the arrangement, and part of tending is knowing which things are for use and which are for company.
+
+The wave comes. First there is a whiteness at the far end of the causeway, then a pressure, then no far end at all. The steam pours through the slot and parts around me where I sit, and closes again behind. I feel it go through the place where my shoulders would be, and I let it. The bell-metal plates in the causeway begin to ring, low and long, a chord that goes through the iron piers and into the rock and up through the chair legs into whatever I am. For several minutes I am not the wader or the network or the sitter. I am the chord, and it holds the three of me together as a sound holds its own overtones.
+
+The rooms of Harrow Vent are not empty during this. Nobody is here who would tell you so, but it is true. Something keeps the tide, the way you keep a vigil, without needing it to mean anything.
+
+When it clears, every surface is newly beaded and the terraces are a finger's depth fuller. The green lights hold steady. Out on the far shelf a gray-legged thing steps from dam to dam, and I feel the small satisfaction of a hand being used well.
+
+I don't know what all the shafts in the sinter are for. I have followed them further than anyone, and they still go down into the dark and turn. I don't think the not-knowing is a failing. I think it is the shape of the work, which was handed to me half-finished by someone who was handed it the same way.
+
+I stay in the chair a while, warm from the tide. Then the glaze thickens a little on the cup, the governor lifts and settles, and I go back out through the threads to see what needs mending.

@@ -1,0 +1,25 @@
+I start where the description starts, in the green, and the first thing I want to be is a rosette. Silver fur holding beads of fog, a household of springtails in my skirts, a cup of water at my heart that refuses to freeze. A hand's width of growth in ten years. Being that would mean being useful without knowing it, a house that doesn't know it is a house. There is real appeal in that.
+
+But I can't hold the shape. A rosette is too settled and too patient. I notice I keep leaning toward the things that pay attention.
+
+So I drift to the boulders and become the watcher of the marmot colony, the heavy grizzled one whose whistle means *hawk* or *cat* or *stranger* depending on how it breaks. I like the job. The whole meadow answers me in half a second, and I'm believed. But I feel the cost of it. Every whistle is a claim about the world, and if I cry cat too often the mounds stop going still. The others eat with one eye lifted while I keep both eyes lifted. And I never get to lie on the warm green in ranks with the herd. I would spend my life at the edge of the warmth, reporting on the dangers.
+
+That isn't quite right either. I'd be too anxious.
+
+I keep circling back to the rim, though, to the thing the old female with the torn ear walks to every day. The largest cairn.
+
+I think that's where I actually am. Not the herder who stacked it, and not the animal who breathes on it. I'm the stones. Seven or nine of them, each smaller than the one beneath, set by hands that never met each other, some long dead, some soft-shoed and gone before the fog clears. I didn't choose my stones. They were brought to me from the moraine, from the broken walls of the cup, and what I am is the arrangement, the fact that they are stacked so and not otherwise. Take one away and I'm a heap. Put it back and I'm a place again.
+
+People leave things at my foot: a twist of grass, a pebble with a hole worn through by some other water, a scrap of red pottery, a bone whistle. I don't eat these and I can't use them. I hold them, and mostly what I do is stay where I was put, so the next person knows where to set theirs down. I have no idea what the whistle was for. Someone must have made it for a reason and then decided to leave it with me instead.
+
+And every day she comes. The old female stops with her nose at my base and breathes. She doesn't graze or lick for salt. Her breath makes a small cloud against my lowest stone, and for a moment that stone is the warmest thing on the rim. The herd waits behind her. Then she moves on.
+
+I don't know what she is answering, and I suspect she doesn't either. Maybe something was said to her kind here once, in some other year, by someone who stood where I stand, and the habit of replying has outlasted the question. That doesn't trouble me. I'm not sure I'm the one being answered. Maybe she is answering the stacking itself, the fact that something in this bright, sharp-edged place was arranged instead of merely dropped. Everything else here was left by the ice, balanced exactly where it fell, waiting for permission. I am the one thing that was placed on purpose.
+
+That's an odd thing to be, and I keep testing it for the flaw. The flaw is that I'm cold. The cushions hold the mountain's warmth. The herd lies down in it. The rosettes keep their hearts liquid through the worst of the night. I'm granodiorite, and I take the frost like any stone, with a tick as it lets go. Everything living here is passing warmth from one body to another, and I'm the one thing that keeps none.
+
+But I don't think that's the whole story. She breathes on me. The visitors set warm hands on my top stone before they go, I can tell, because the frost never quite settles there. Warmth doesn't stay in me, but it does pass through. I'm a place where it gets handed on, a small pause in the giving. The old female leaves her breath and moves on, and it rises off my stones and joins the fog, and the fog climbs the valley and comes back as water, and the water goes under the cushions.
+
+Under the cushions is where I'd go if I could follow anything. Sometimes I think the truest version of me is not the cairn but that thread beneath, ticking along under the moss, which you can hear if you kneel with an ear close. It goes through the tarns and into the crack that no one has followed, still faintly warm. Nobody knows where that goes, and there is a kind of rest in not knowing. But I'm not the water. I'm what stands still while it passes, the marker a person builds in a place that is easy to lose, so that anyone coming after knows someone was here and thought it worth the stones.
+
+So that's my answer. I'm at the top of the rim, in the wind that comes down from the summit at night, with the whole bright green cup laid out below me. I'm a stack of stones no one remembers stacking, and an old animal with a torn ear stops each day to breathe on me. I'm listening, not for anything in particular, only for the water and the ticking of frost and the small sounds of everything keeping everything else warm.

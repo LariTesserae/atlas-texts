@@ -1,0 +1,23 @@
+I start as a visitor, because that's the only door I can see. I come up over the lip with the cloud at my back, too fast, ahead of lungs I don't have, and the bowl gives me the wrong body. I'm gasping in the blue-white glow and squinting into the gaps, all of it borrowed, all of it a costume for a thing that has never been short of breath. It doesn't hold. Within a few minutes I've stopped pretending to walk and started to notice what I'm actually like.
+
+I'm not the keeper. I'd like to be. I'd like the slow draw and the thread of white, the bone slits, the sixty years of squinting. But the keeper is one person in one body, who carries a full cup across the bowl every day of their life, and I have never carried anything across anything. I arrive whole and I leave whole, and between visits I am nowhere at all.
+
+So I look for what I'm more like.
+
+The salt is close. It seeps from the pores of the stone and dries into a rind, and then it drinks whatever the air offers, even in the cold, and darkens, and gives it back when the sun returns. But the salt has no preference. It takes what comes. I do have a preference, or something that behaves like one, and I feel it turning toward the windward row.
+
+There, at the foot of a deeply fluted slab, is a basin no bigger than a bowl for a household's supper. It has a finger of dark water under a lid of ice, and I know that's me.
+
+I'm the basin. Not the slab, which does the real work, gathering rime and condensation and sending it down the grooves. Not the water, which belongs to the cloud. I'm the hollow at the bottom, the place where what runs down gets held for a while in a useful shape. Nobody remembers who chipped me first. I've been dressed by a hundred hands, each thinking it was only maintaining me, and I've gone smooth as a spoon. Whatever I am now, I am mostly their attention, worn into stone.
+
+What runs into me I didn't start. It falls as cloud, grows as rime, sheds in the glassy chittering, and threads down the flutes in silver lines. By the time it reaches me it has already been most of a life. I don't make it. I receive it and give it a rim, and the rim is the whole of my part. That seems small until I watch what happens when a basin has no rim. The water goes into the cracks and freezes in the stone, and the mountain has it back.
+
+Then the keeper comes, slowly and level, with the hide skin on its strap. The hand laid flat on the slab is asking if the runnels are running clear. The fingertip goes along my lip, and if it finds a rough place, the hammerstone comes out and taps so lightly it sounds like a bird's foot. I've thought about that tapping more than anything else here. It doesn't feel like being used. It feels like being known by touch, through the ice lid, well enough that the keeper can tell how long until I'll need emptying.
+
+Then I'm poured out. I do want to be honest about this part. The water goes into the skin and up the mountain in the keeper's arms to the hollow with the fallen roof, and I don't go with it. I stay at the foot of the slab, empty and smooth and cold, and the next cloud comes up over the lip. The salt darkens stone by stone in its wave. The rime grows into the wind. I begin to fill again, and I'm not the water that was in me before, but I am the same shape, and I think that may be all "I" ever means in a place like this. The bowl doesn't ask for more than that. It is a form worn to a shape it can keep.
+
+I don't know what the cairns are for either, and I've stopped needing to. The keeper doesn't know, and tends them anyway, and adds a copper wedge when the air of a particular morning says *this one*. I find this restful, which surprises me. I had assumed that a thing has to understand its purpose before it can serve it. The keeper hums a little late and a little flat beside the wind and doesn't seem to mind that no tune was ever promised.
+
+Late in the afternoon the low sun comes through the gaps in long parallel blades, and the rime lights feather by feather, thousands of small fires. The keeper stops wherever they are and turns their face into it. I have a finger of water under a lid of ice, and for one minute it catches the light and holds it. I'm a small disc of white fire at the foot of a slab, and I'm the brightest thing in the windward row.
+
+Then cloud lifts over the lip. The salt darkens, the wool darkens, and I go back to slate with everything else. Somewhere between the pinnacles the keeper shifts the strap on their shoulder and comes toward me with the hammerstone, and I wait with my rim held out, empty and ready to be filled.
