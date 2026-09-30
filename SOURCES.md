@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **146** source folders · **166,393** texts
+- **147** source folders · **167,469** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -482,6 +482,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `openai--gpt-6-sol` | 825 | 2026-09-22 | advisory·75, creature·250, location·250, placement·250 | house-tag | event-observed 825 |
 
+## gpt-6.1-sol  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-6.1-sol` | 1,075 | 2026-09-29 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
 ## grok-3  ·  1,000 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -824,8 +830,8 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `us.openai.gpt-6-sol` | 250 | 2026-09-22 | regard·250 | house-tag | event-observed 250 |
 
-## unresolved  ·  12 texts
+## unresolved  ·  13 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `source-unresolved` | 12 | 2026-05-16→2026-09-10 | placement·4, regard·8 | unresolved | unresolved 12 |
+| `source-unresolved` | 13 | 2026-05-16→2026-09-29 | placement·5, regard·8 | unresolved | unresolved 13 |

@@ -1,0 +1,33 @@
+The room lies beneath the lowest working floor, down a stair whose treads have worn into shallow bowls. It is not large: perhaps thirty paces from the stair to the far wall, fewer from side to side. But there is no place from which you can see its whole extent. Pipes descend through the ceiling, bend at shoulder height, and disappear into other pipes. Tanks stand so close together that the gaps between them are passageways. Behind each visible surface there is another surface, sweating in the dark.
+
+Nothing here is exposed earth. Even the deepest sumps have iron bottoms. The walls are built from thick ceramic blocks, fitted without mortar and held under compression by steel bands. Above them are successive skins of metal, insulation, brick, and older metal. The room has been repaired inward for so long that it has become smaller. Some passages still appear on maintenance plates screwed beside their entrances, though the passages themselves are now narrower than a hand.
+
+The heat is almost bodily. It reaches you before the smell does, presses against your forehead, fills the space beneath your clothes. At first the air seems wet; then you find your mouth drying. Moisture exists here in particular places rather than everywhere. One pipe is always beaded with condensation. The tank beside it is hot enough to bake a drop away. Between them, only a few inches apart, a narrow strip of floor remains permanently damp.
+
+There is very little light. Under the stair, a hooded gauge lamp illuminates a dial without illuminating the wall around it. Farther in, three inspection windows hold a dull amber glow, each no bigger than a coin. These belong to furnaces or boilers somewhere beyond the room, although no flame can be seen. Their light reaches the nearest bolts and stops. Everything else becomes visible slowly, through differences in blackness: a polished rail, the matte flank of a vessel, the soft pale crust around a leaking joint.
+
+The room was once arranged according to a clear industrial purpose. Fluid entered high on one wall, passed through a bank of vessels, and left under pressure through the floor. That arrangement survives, but the straightness has gone out of it. Heat has bowed the long supports. Repairs have routed smaller lines around failed sections. Old conduits remain because removing them would disturb whatever now leans against them.
+
+The machinery still works. It works slowly enough that a visitor may mistake it for abandoned equipment.
+
+A valve opens over the course of an hour. A diaphragm flexes behind a perforated guard. Once or twice during a shift, something deep inside the largest vessel moves with a single, soft knock. There is no continuous roar. The pumps are elsewhere, isolated by flexible couplings and heavy foundations. Here their work arrives as a slight tremor in a railing, or as the gradual lifting of a dark liquid behind thick glass.
+
+Water comes intermittently from a ceiling seam. Before it falls, it gathers into a long shining ridge beneath a flange. The ridge thickens, develops pendulous tips, then releases a brief rain over the same patch of floor. There is no drain directly underneath. Instead, the water follows grooves cut by generations of these small showers, moving around bolt heads, beneath a welded threshold, into a shallow basin formed by the sagging floor plates.
+
+That basin is the room’s largest open water: wide enough to span with a long step, scarcely deeper than a thumb. Its surface is black except when the gauge lamp catches it. Rust-colored sediment lies beneath an oily film. Along one edge, minerals have built a low rim that holds the water back; along another, the rim dissolves as steadily as it grows. The basin has kept nearly the same shape for decades.
+
+The room is full of this kind of wear. Ceramic corners have become round. Chains have polished slots into their guides. Condensation has eaten lacework into thin metal covers, while leaving the massive casings beneath almost unchanged. There are places where a leaking pipe and the surface below it seem to have accommodated one another: the leak has narrowed, the channel has deepened, and neither now changes appreciably.
+
+Life occupies a few protected margins. Pale threads grow beneath a cracked inspection cover, drawing on damp dust and whatever traces escape the seals. Near the stair, where an occasional draft brings cooler air, a handful of wiry stems emerge from packed debris in a cable tray. Their leaves are small, thick, and dark. They turn toward the gauge lamp, though it seems scarcely bright enough to justify the effort.
+
+There are insects, but not many. You might find a translucent shell caught on a rivet, or see a single narrow body retreat into the seam beneath a tank. The warmest surfaces are bare. The wettest crevices are bare too. Almost everything alive occupies the thin intermediate bands where heat, moisture, and shelter happen to agree.
+
+The sounds become distinct only after you have stood still. A drop landing on metal has a different pitch from a drop landing in the basin. Somewhere a loose washer gives a faint tick when its pipe expands. Water draws air through a narrow opening with a small swallowing sound. Then there may be several minutes in which you hear only your breathing.
+
+One tank has a handprint worn bright beside its access hatch. Another has shallow marks scratched into its paint to record the height of a stain. The stain has risen above every mark. No one has added a new one.
+
+The unusual thing is the way moisture climbs. On the coldest vessel, beads gather near the base and creep upward through the scale in branching lines. They reach a circumferential seam and collect there, making a wet collar around the tank. Sometimes a drop falls from this collar; sometimes the whole line retreats into the joint. The maintenance label beside it says only **DO NOT SCRAPE BELOW THIS LEVEL**. Beneath the lettering, the paint has swollen but remains intact.
+
+There is no view outward, no distant weather to watch. Changes are measured at close range: a newly bright edge on a valve, a stem bent away from a warming pipe, the basin lower by the thickness of a fingernail. The room’s seasons arrive through its connections to other rooms. For weeks it grows hotter. Then a line cools, a different seam begins to sweat, and the little patch of rain shifts six inches to the left.
+
+Eventually the floor darkens in that new place. The old channel dries. Dust settles into it, undisturbed, while the next channel begins.

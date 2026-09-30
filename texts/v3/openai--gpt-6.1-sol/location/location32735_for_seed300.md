@@ -1,0 +1,35 @@
+The place lies behind a low embankment, in the space between an abandoned pumping station and the river it used to serve. It is no larger than a few house plots. From the road, there is almost nothing to see: a strip of pale reeds, two concrete posts, the roof of a brick building sunk so low that its gutters appear to rest on the ground. You have to descend six worn steps to discover how much is gathered below.
+
+Water occupies the basin without making a single pond. It lies in channels, in shallow pans, beneath shelves of mud, inside broken pipes. Some of it is clear enough to show the grain of a submerged brick. Some carries a gray suspension that obscures your fingers an inch below the surface. Thin streams run between these different waters, connecting them and then breaking the connections, so that the basin seems to be continually revising its own drainage.
+
+The ground is crowded with things that have been there a long time. Stone blocks lean against concrete foundations. Curved sections of iron emerge from clay. There are bricks rounded almost to pebbles, lengths of cable stiff with mineral deposits, a ladder lying flat under two inches of water. All are packed close together, but little rises above waist height. The density is at your feet: ledges over cavities, channels under slabs, objects fitted inside the outlines of other objects. A square yard can contain three separate depths of water and a dry place large enough for one shoe.
+
+It is cool here even when the road above is warm. The basin catches little wind. Damp air rests against the skin, and the shaded faces of the concrete sweat steadily. Along some walls, droplets gather on the undersides of small projections before falling into water that looks too still to receive them. The smell is of soaked stone, old iron, and the faint sourness of sediment exposed after a long submersion.
+
+There are hardly any plants. A few clumps of sedge occupy the highest margins. Their roots hold little islands together, and their leaves are bent and polished by repeated flooding. Green films darken certain bricks, but most surfaces are bare. The occasional willow seedling gets as far as four or five leaves before the patch supporting it moves, collapses, or disappears underwater. Last year’s stems remain caught in the outlet grating, bleached nearly white.
+
+At first the place seems quiet and settled.
+
+Then a pool beside the steps empties.
+
+It does not drain with a whirlpool. Its surface simply lowers, revealing a rusted washer, then a ridge of clay, then a hole no wider than a thumb. At the same moment, water rises through the joints of a slab several yards away. Within a minute that slab is surrounded by a shining margin. A piece of mud breaks from beneath it, lifts, turns over, and exposes a pale underside that has perhaps not seen daylight for years.
+
+These changes continue everywhere, but rarely together. A channel fills while the channel beside it drains. A long crack closes under soft sediment, and pressure opens another route under the pumping station. Small islands tilt. A submerged sheet of metal flexes slowly enough that you first mistake the movement for a distortion in the water. Then its edge clears the surface, sheds a row of droplets, and settles back with no more noise than a wet cloth being laid down.
+
+The machinery responsible is partly inside the building and partly below the basin. There is still electricity in the station; a white ceramic insulator shines above the door, and behind a wired-glass window a small amber lamp burns throughout the day. The pumps are not loud. You feel them through the soles of your shoes when you stand on the right piece of concrete: a low vibration, intermittent, with a second pulse that never quite falls into step with the first.
+
+No one seems to have come here recently to repair anything. The door is locked with a modern padlock, but the lock hangs from a hasp so corroded that it could probably be pulled away by hand. Someone has marked water levels on the jamb in blue paint. Most marks are faded. One, close to the bottom, is bright enough to suggest a visit within the last year.
+
+The basin’s turbulence is largely concealed. Beneath its quiet surface, water is being forced through old culverts, gravel beds, crushed masonry, chambers whose roofs have fallen in. Pressure collects behind obstructions and escapes wherever the material gives. A patch that looks solid can loosen from below. A narrow gutter can briefly carry the volume of a much larger stream. You notice movement by its consequences: a brick newly exposed, a dark stain spreading, bubbles arranged along a line where there was no line before.
+
+Yet the broad shapes hardly change. The central mound remains. The trough beside the station stays a trough. Every collapse seems to be balanced by a deposit somewhere nearby. The basin has had decades to acquire this arrangement, and its worn materials accommodate the disturbance with very little drama. Nothing has a sharp edge except the occasional newly broken shell.
+
+There are a few living creatures. Tiny pale crustaceans flick through the clear water in the ladder’s rungs. A beetle follows the retreating edge of a pool, keeping just ahead of the wetness. Once, a gray wagtail arrives on a concrete post. It watches the ground with quick, precise turns of its head, flies down to take something from the mud, and leaves. Its departure makes the enclosure feel more enclosed.
+
+The light is ordinary daylight. Clouds pass overhead, and their shadows cross the brick roof and the embankment grass. In sunshine, the wet surfaces brighten enough to be difficult to look at. You can see the whole place clearly, which does not make it easier to understand. The most reliable path is not the driest one. A pale slab near the entrance rocks under a single foot, while a dark, flooded ledge bears weight without moving.
+
+There is one other peculiarity. Water entering the narrow eastern channel sometimes arrives warm. Only slightly warm, but unmistakably so against your hand. It comes in a short pulse, followed by cold water, with no visible change in color or speed. The pumping station has no chimney, and the river beyond the bank is cold. On damp mornings, this little channel produces a low strip of vapor that travels a few feet and disappears.
+
+You can stay for an hour without hearing anything louder than a drip, a faint electrical hum, or the soft release of air through mud. During that hour, almost every patch of exposed ground will alter. The route you took down to the station may still be there, but a channel will cross it now. The washer will be submerged again. A clean crescent of concrete will have appeared beneath the central mound.
+
+When you climb the steps, you leave water rising through a seam beside your last footprint. Above the embankment, the road is dry. Looking back, you see the same low roof, the same posts, the same few reeds. Nothing from that height suggests how carefully you had to place your feet.

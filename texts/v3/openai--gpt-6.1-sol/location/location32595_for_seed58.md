@@ -1,0 +1,33 @@
+The district lies one level below the street, in an excavation that was never quite finished. It is small enough that, from the upper landing, you can see most of its far wall between the buildings. Getting there takes longer than the distance suggests. Staircases meet at mismatched heights; passages narrow around newly installed pipes; a service lift occupies what used to be the shortest route.
+
+Above, the city continues across a roof of concrete slabs. Their joints admit thin lines of daylight. At noon these brighten without reaching much farther down, and the district remains the color of an unlit workshop: gray-green walls, dark copper, pale ceramic, a little amber glass. A rectangular opening above the central court has been covered with overlapping metal louvers. Through them you can see a strip of sky, usually white with heat.
+
+The heat is the first thing that feels structurally important here. It comes through the floor, out of cable boxes, from the backs of buildings. Handrails are warm. A dropped washer stays hot long after you pick it up. Along the lowest passage, the paving is raised on short legs above a bed of pipes, and the soles of your shoes soften slightly if you stand still.
+
+Most of the excavation is dry. Dust lies in the corners of stairs and collects on the shoulders of valves. Yet dampness keeps appearing in particular places. Water condenses around one chilled supply line, darkening its insulation until a bead drops from the seam. There is a wet patch beneath the same elbow every day, though its edges vary. Rain reaches the district through the overhead joints in brief, dirty threads. The gutters fill quickly, clatter for a minute, then return to carrying only an occasional drop.
+
+Nothing has had time to become rounded. The cut rock behind the buildings still carries parallel tooth marks. Concrete is pale where it has recently cured. Broken corners show sharp aggregate, and the steel stairs have burrs that catch cloth. Even the mineral deposits are new: slender white ridges along a leaking joint, small translucent cups growing around drain holes. Old-looking stains stop abruptly at fresh surfaces. This is a place being weathered for the first time.
+
+The buildings crowd together in three uneven rows. Some are little more than cabinets large enough to enter; others rise for two stories and almost touch the roof slabs. Their outer walls are tiled or sheathed in metal, with inspection hatches set among windows. A narrow room might contain a table, a sink, and a bed folded against the wall. Beside it, behind an equally narrow door, a pump supplies half the district.
+
+Everything shares something with its neighbors. A stair serves three entrances. A cooling duct crosses one room to reach another. Roofs carry tanks too large for the buildings beneath them, supported by frames whose legs descend through courtyards and occasionally through occupied space. The construction is organized, but the organization has been revised many times over a short period. Fresh numbers have been stenciled beside crossed-out numbers. Brackets await equipment that has been moved elsewhere.
+
+The central court is scarcely wider than a street. Its floor slopes toward a long grate, and nearly every route passes through it. Here the walls step back enough to reveal the excavation itself: a face of dark stone threaded with a thin reddish layer, abruptly cut away at the bottom. The builders have bolted a steel retaining mesh over it. Behind the mesh, flakes loosen in the heat and remain caught where they fall.
+
+There are plants, mostly beside the drains.
+
+They grow in shallow trays made from discarded covers, filled with grit and a small amount of black soil. Their leaves are stiff, narrow, and dull with dust. A few trail into the shadows below the paving, following moisture no one can conveniently collect. Beneath the chilled pipe, a patch of green film covers the wall. Its upper edge expands when the machinery runs hard and contracts when the supply is shut off. Someone has marked both limits in pencil.
+
+A vine occupies the corner of the court where rain falls through a roof joint. It has climbed only as high as the last reliably wet bolt. Above that are several dry tendrils, still hooked to the mesh. The lower leaves remain alive. During a shower, they turn under the falling drops, exposing clean undersides for a few minutes before the dusty water coats them again.
+
+There is no animal life in the district. No insects gather at the lamps; nothing rustles beneath the walkways. The drains need screens for flakes of concrete and scraps of insulation, not for anything that might enter them. When a small sound comes from behind a wall, it belongs to the wall or to the equipment within it.
+
+Despite all the machinery, the place is mostly quiet. Motors sit on heavy pads, enclosed in thick housings. The lifts move slowly and almost silently on broad guide rails. You hear a relay click, then feel the floor begin to tremble. Somewhere a valve turns with a short scraping sound. A tank makes one deep note as its contents warm.
+
+Activity is easiest to see in the gauges. Their needles travel steadily, pause, and travel back. A translucent hose fills with a line of bubbles. Condensation forms on one pipe while drying from another. Every few minutes, a row of small shutters opens along the lowest wall, releasing hot air into a passage that is already hot. The shutters close again before the air has stopped moving.
+
+At the far end, behind the last row of rooms, the unfinished excavation continues for several meters. Work lamps illuminate a raw face of stone and a neat pile of fragments. The cutting machine has withdrawn onto its track, leaving its broad head suspended just clear of the wall. A cable reel turns slowly beside it. Coolant drips into a pan.
+
+This space will become another room. You can tell from the bolts already set in the floor, the capped water connection, the doorway outlined in chalk. For now it is the coolest place available, though still warm, and people have brought stools there. The dust shows where they drag them back each day to keep clear of the work.
+
+Late in the afternoon, the daylight overhead weakens. Lamps come on individually along the passages. Their light catches the wet grate in the court, the new mineral ridges, the polished places on the handrails. Heat continues moving upward through the district. Deep below the paving, another pump starts, too quietly to hear, and the little green patch under the chilled pipe begins to darken at its edges.

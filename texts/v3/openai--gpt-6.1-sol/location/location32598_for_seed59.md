@@ -1,0 +1,41 @@
+The town occupies a fold in the mountain where three streams come together, though from above you would see mostly leaves. Roofs show through in narrow strips: dark thatch, pale split bamboo, the green of fresh repairs. Here and there a smoke hole exposes a little of the settlement beneath. The whole place could fit inside a few turns of a larger town’s streets. It has no room to spread. Behind it, the slope rises almost upright into cloud forest; in front, the ground falls away so sharply that the lowest houses seem to have been built at the edge of the air.
+
+Water enters from every side.
+
+It slips under the uphill doors, beads on the undersides of handrails, and runs down the long stems of plants whose roots are hidden somewhere overhead. Stone walls weep through their joints. A person leaning against one comes away with a damp shoulder and a few flattened fern fronds. There are channels for the water, and channels beside those for when the first ones overflow, and old channels beneath the newer floors that are heard but seldom seen. Even after two days without rain, the town continues to drain.
+
+The main street is a passage between living things. Bamboo clumps rise through it at intervals, their lower stems polished by hands and baskets. Houses have been fitted around them. A kitchen wall bows outward to accommodate a trunk; a sleeping platform is notched around another; a public stair divides at a great bundle of culms and comes together again above it. Cut bamboo makes the floors, rafters, shutters, gutters, cages, baskets, and most of the bridges. Living bamboo holds the slope.
+
+Nothing here stays bare for long. Moss settles into the grooves of a newly laid beam before its bright cut ends have darkened. Ferns grow from the damp seam between a roof and its support. Fine roots hang behind the shutters like loosened stitching. On the retaining walls, small round leaves overlap so closely that the stone is visible only where someone has recently scraped a foothold.
+
+Yet this is unmistakably a town. The paths have destinations. There is a place where grain is measured, a place where disputes are heard, a covered washing platform, three competing cookshops, and a bridge broad enough for two loaded people to pass if both turn sideways. The houses stand shoulder to shoulder, with upper galleries crossing the alleys beneath them. Doors open almost into other doors. Laundry hangs under the eaves rather than out in the rain, and the laundry of one household shades the window of the next.
+
+The largest open space is no larger than a generous room. A fig tree occupies its uphill corner. Its roots have descended over a stone retaining face, enclosing some blocks and prising others out of line. For generations, people have packed smaller stones into the widening gaps. Now the tree and the wall share the work of holding up the square. Stalls lean against both.
+
+At midday, the square is full of bodies and movement. Women squat behind heaps of wet greens. A boy carries cups of broth through a gap that keeps closing in front of him. Two men pull a basket of tubers up from the lower terraces by rope, pausing whenever someone steps onto the landing. A knife sharpener works beneath a palm-leaf awning, his foot turning a treadle, the little stone wheel whispering under the louder noise.
+
+The animals leave very few intervals between themselves.
+
+Swallows enter through one end of the market shelter and leave through the other, low enough to stir hanging leaves. Their nests cling beneath the rafters, where mud has dried against old smoke. Chickens scratch in the peelings by the cookshops. Ducks stand squarely in the drains, forcing the water around their feet. A tethered goat reaches over a stall to strip a string of bean pods, while its owner argues about something else entirely.
+
+Above this ordinary traffic, macaques travel along the roof ridges. Their fingers find purchase in the thatch without hesitation. A mother settles on a crossbeam to inspect a stolen fruit while her young one climbs down toward a hanging basket. Someone strikes the beam with a pole. They retreat a short distance, offended but unafraid, and wait.
+
+There are birds in every layer of the forest: small ones making quick, thin noises inside the shrubs, larger ones flapping heavily between fruiting crowns. The town’s food scraps and planted trees keep them close. Beetles knock against shutters at dusk. Moths settle in overlapping rows beneath lamps. Leeches gather on the vegetation beside the upper path, lifting their narrow bodies when footsteps pass. In the coldest pools, frog eggs tremble in clear masses along the edges; after dark, the adults begin calling from drains, leaf cups, and the flooded hollows between stones.
+
+The air is cool enough that people wrap cloth around their shoulders before sunrise. Smoke stays low under the roofs. Wet sleeves feel colder than the weather ought to allow. But when the cloud lifts, daylight reaches the town plainly. It catches the pale undersides of leaves and reveals the far slope across the ravine: forest broken by little terraces, a footpath cutting diagonally upward, one waterfall dropping from a ledge into foliage. For an hour or two the place feels open, exposed to a much larger country.
+
+Then mist comes through the gap below the bridge, and the far slope disappears.
+
+The ravine is always audible. In dry weather it has a steady, rounded rush beneath the nearer sounds of chopping, bargaining, wings, and voices. During rain it grows harsh. Water strikes rock somewhere out of sight with a repeated booming impact, and people begin speaking louder without noticing. Small falls spring from the banks. The drainage channels fill with leaves and grit. Someone goes uphill with a hooked stick to clear the intake; someone else shifts a plank over the lowest threshold.
+
+The town does not stop. It changes routes.
+
+A stair becomes a stream, so baskets travel through a neighbor’s gallery. A bridge flexes under a sudden weight of water and is closed with a pole laid across its entrance. Children are sent to carry messages along the higher walk. Market goods are lifted from the floor to shelves, then from shelves into roof slings. Chickens appear indoors. Goats object noisily to being dragged up steps. Rain pounds the broad leaves so hard that individual drops can no longer be distinguished.
+
+Much of the work here is repair, performed in the middle of other work. A rotten floor strip is lifted, a fresh one pegged into place, and traffic resumes before the tools are put away. A gutter is tipped a little farther downhill. A lashing is tightened with a wooden toggle. The tools are few and well used: knives, adzes, augers, mallets, narrow hoes, a small stock of iron blades traded up from the warmer valleys. Their handles are dark with handling. The builders know which bamboo can be bent green, which must be dried under cover, and which thick culms will split badly if cut at the wrong joint.
+
+The mountain shows a slower kind of wear. Beyond the last house, rounded stones lie deep in moss. Old gullies have softened into fern-filled troughs. The streambeds are fitted around enormous boulders that have not shifted within anyone’s memory, though the water changes its course around them season by season. The busiest parts of town rest among these settled forms. A new stair follows the curve of an old root. A rebuilt wall returns to the same outcrop. The paths remain because each leads through the least difficult ground.
+
+By evening, water is running off the market awnings in continuous cords. The stalls have closed, but the square is still crowded: people collecting borrowed baskets, ducks nosing through the cleared ground, monkeys coming down to inspect what was left behind. From the houses comes the knocking of bowls and the smell of broth, damp fuel, and crushed herbs.
+
+A last patch of daylight lies on the bridge. Beneath it the torrent moves fast through the darkening cleft, carrying leaves from somewhere higher on the mountain. Above it, the bamboo crowns bend and rub together. Their movement passes through the grove in irregular waves, while lamps are being lit in the small rooms fitted among their stems.

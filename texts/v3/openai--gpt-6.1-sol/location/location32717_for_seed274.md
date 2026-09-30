@@ -1,0 +1,25 @@
+The hollow is scarcely wider than a courtyard. You could walk around it in a few minutes if there were a continuous place to put your feet, but there is not. Low shelves of stone crowd the water, and water fills every interval between them. Some pools are only thumb-deep; others lie dark beneath the edges of the shelves, their bottoms hidden by the angle of the rock. There is no central pond, no clear bank. The whole place is an interlocking arrangement of basins, ledges, submerged steps, and narrow openings.
+
+It lies at the foot of a limestone bluff, under an overhang broad enough to keep out direct sunlight. Beyond the mouth of the hollow, a strip of pale sky shows between the bluff and a tumble of fallen stone. That is where most of the light comes from. Inside, brightness is something the water lends to nearby surfaces: a dull silver beneath a ledge, a pale green reflection on the underside of a projecting rock. The recesses remain brown.
+
+The air is warm and thoroughly damp. It settles on the face and forearms without much difference between the temperature of skin, stone, and shallow water. A hand laid against the wall comes away wet. Even the surfaces above the pools carry a thin film, gathered into larger beads along their lower edges.
+
+Water enters through seams too small to see. It spreads down the back wall rather than falling in streams, darkening the limestone in broad overlapping patches. Near the floor, these patches merge into a continuous sheen. The spring has a faint mineral smell, with a trace of something like a struck match. Its warmth is mild, sufficient to make the shaded hollow comfortable but not sufficient to raise clouds of steam.
+
+Nothing green grows here. There is no moss along the waterline, no grass in the cracks, no soft fringe hanging from the roof. The spring salts and the deep shade leave the stone bare. On the few higher ledges where a seed might lodge, the surface has sealed beneath a hard cream-colored crust.
+
+In place of vegetation, there are layers. Pale deposits lie over older gray rock, broken here and there to expose a yellowish layer underneath. Small rounded bosses press close together on the walls. Along the rims of the pools, mineral ridges overlap like the edges of thick plates. Some are smooth enough to rest a palm on; others have a fine, abrasive texture that catches the skin. Below the water, every edge looks softer.
+
+The forms are old and settled. The spring has found its passages, the overflow its channels. There are no sharp scars of recent collapse. The fallen blocks at the entrance have rounded corners and sit deeply in their beds. Between two of them, the outgoing water slips through a groove barely wider than a finger. It is difficult to see that it moves at all until a small reflection passes along it.
+
+At the left side of the hollow, three broad stones make a rough stair. They do not lead far—only from the lowest pool to a dry shelf under the wall—but their upper faces have been leveled with tools. The marks remain where the mineral coating is thin: shallow, repeated blows, made patiently.
+
+Someone also fitted a flat stone across a narrow basin, making a seat or a work surface. Beneath it stands a squat earthenware vessel with one handle missing. Its unglazed body is dark with moisture, and its rim has acquired the same pale crust as the surrounding rock. Nearby, a shallow bowl has been cut directly into a ledge. Water fills it to a small notch and then escapes without spilling elsewhere. These are modest works, adapted to the spring rather than imposed on it.
+
+There is very little sound. Close to the rear wall, one seep makes a soft ticking as droplets strike a submerged stone. Elsewhere the water merely touches and passes. Speech would be conspicuous here; even the scrape of a sandal would reach every recess.
+
+Occasionally a small pale moth rests near the entrance, where the stone is dry enough to offer purchase. Farther inside, there is little for an animal to eat and nowhere useful to hide that is not already occupied by water.
+
+The hollow feels full despite this absence. Every surface has its coating, every gap its depth, every slight depression its pool. There is barely a handspan of neutral ground. Yet nothing presses forward or asks for attention. The dimness, the warmth, and the close-set stone remain much the same from morning to evening. Rain outside may be visible as a brighter trembling beyond the fallen blocks, but under the overhang the spring keeps its ordinary level.
+
+You can sit on the fitted slab with your feet in the water. From there the whole place is within reach of the eye, though never quite visible at once. A ledge conceals a basin; a reflection obscures a bottom; a low stone hides the little channel beside it. After a while, these separate pieces become familiar: the smooth place for a hand, the dark opening under the shelf, the steady wet wall. There is no larger view to find. This is the extent of it.

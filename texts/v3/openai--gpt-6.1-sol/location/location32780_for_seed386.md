@@ -1,0 +1,35 @@
+The mountains rise through the cloud layer, but they do not rise out of the heat.
+
+At the rim of the plateau, the air is thin enough to make a long walk difficult and hot enough that stopping brings no relief. Sweat gathers under the chin. Leaves shine without moving. Beyond the rim, lower ridges stand like islands in a white, almost level sea; now and then the cloud opens and reveals an enormous drop, dark green for a while, then blue, then too distant to distinguish. Up here, the horizon belongs to other summits. Their slopes are bare near the tops, stained ocher and sulfur yellow, but between them lie broad, wet basins filled with vegetation.
+
+The plateau is not flat. It is a country of shallow bowls, long stone backs, and ravines whose upper edges have rounded with age. Black rock shows through everywhere, though very little of it remains truly black. Water has given it brown skins. Lichens have silvered its dry shoulders. Roots have entered its old cracks and thickened until, in some places, the stone seems embedded in wood.
+
+Rain arrives most afternoons. The mountain catches wet air rising from the lowlands, and the air releases what it cannot carry. For an hour the whole plateau disappears into close, gray weather. Water rattles on broad leaves, flows down trunks, and sheets across exposed slabs. Then the rain moves on. The clouds loosen. Ordinary sunlight returns, pale gold at first and then strong enough to make every wet surface difficult to look at.
+
+The heat comes from below.
+
+Under the settled rock, a geothermal system works continuously. Its signs are distributed across the country: a pool too hot for algae, a strip of dead moss, warm vapor rising from a crack no wider than a finger. Springs emerge beneath fern beds and travel unseen through root mats before finding the surface. Some streams are cool with rainwater at their source, then become hotter as they cross a meadow. Others cool so gradually that they support a sequence of different life along a hundred paces of bank.
+
+This gives the landscape its strange precision. A dense grove may end along an apparently arbitrary curve. On one side are glossy leaves, flowers, insects, wet soil. On the other is a strip of pale gravel where roots cannot survive. Farther on, the vegetation begins again. You can often see where the underground heat runs by following these gaps through the green.
+
+There are no buildings, no roads, no abandoned equipment. Yet certain hollows have the atmosphere of a vast works operating behind walls. A low vibration comes through the ground. Water is lifted, heated, forced through narrow passages, separated into steam and liquid, then discharged across terraces. Iron settles in rust-colored fans. Silica lays down white rims around pools. Sulfur collects in soft yellow crusts that rain breaks apart and washes downhill.
+
+Most of this happens quietly. A vent may give a brief, heavy sigh, followed by hours of steady vapor. In one basin, bubbles rise through thick mineral mud at such regular intervals that their small collapses become part of the place’s rhythm. Elsewhere the only sign of pressure is a spring welling upward through sand, keeping a circular patch in constant motion.
+
+The vegetation grows around these workings, not despite them. Along the warm channels, thickets of tree ferns lean together until their fronds interlock. Low trees carry several layers of plants: orchids on the branches, moss beneath the orchids, fine trailing roots descending into the steam. Their leaves are leathery and deeply veined, built to withstand both heavy rain and the harsh sun at this height. New growth is copper red. Old leaves fall into water and remain there, slowly darkening.
+
+In the broader basins, marsh plants stand above black peat. Their stems are widely spaced near the hotter springs and packed shoulder to shoulder where the water cools. Between them are narrow channels, some no wider than a hand, all leading eventually toward the plateau’s edge.
+
+From a distance, these marshes look like smooth green ground. Close up, they are full of levels: leaves at eye height, floating mats at the knees, submerged roots below, and beneath those a deep, soft accumulation of drowned vegetation. A step can be firm in one place and sink almost to the thigh in another. The small animals know the difference. Their paths follow root ridges and buried branches, making delicate routes through country that otherwise appears impassable.
+
+There is abundant life, though much of it is still during the hottest hours. Dark birds sit inside the fern crowns with their beaks slightly open. Small mammals sleep in shaded cavities above the waterline. Insects cling beneath leaves or skim the channels, their brief flights drawing flashes across the dark surface.
+
+Now and then something disturbs the quiet: a bird striking a fruit against a branch, a splash deep in the reeds, the dry click of a large beetle taking flight. A narrow-bodied animal may appear on a stone beside a pool, remain motionless long enough to resemble a root, then slide into the water. Fish gather where a cool tributary enters a warm stream. They hold themselves precisely in that mixing zone, facing the current.
+
+Near the rim, the plateau opens into long views. Water leaves the marshes through shallow valleys and gathers above the cliffs. Some streams drop in clear, continuous ropes. Others spread over rough rock and break into mist before reaching the clouds below. Their sound seldom carries far back onto the plateau. It is swallowed by distance, vegetation, and the deep softness of the cloud bank.
+
+The cliffs have been falling away for a very long time, but not rapidly. Their ledges hold mature trees. Old slips are covered in roots. Mineral-rich water has cemented some loose slopes into hard, uneven surfaces, while other places continue to crumble grain by grain. A little gravel shifts after rain. A branch falls. A pool overflows its lip and cuts a new thread through the moss. Most changes are small enough to pass unnoticed unless you return often.
+
+Toward evening, sunlight reaches beneath the cloud ceiling and illuminates the plateau from the side. Steam above the springs becomes visible in separate columns. Fern stems cast long shadows across white mineral shelves. The distant peaks turn sharply blue, and for a few minutes the height of the place is unmistakable: nothing beyond the rim is close, and the valleys are far below the level at which you stand.
+
+The air cools slightly. Birds begin moving between the groves. Flowers that stayed closed through the glare open above the marsh, releasing a heavy scent into the damp. Water continues to rise from the hot ground and drain toward the cliffs. Under the root mats, bubbles collect and escape. The plateau remains warm long after the light has gone, and the first night mist forms low among the reeds, leaving the upper leaves clear beneath the stars.
