@@ -1,0 +1,17 @@
+You have fallen—or perhaps been absorbed—into a hollow space beneath the surface of a world that is not made of geology, but of biology.
+
+This is a pocket universe, a vast, hidden chamber entirely enclosed within an endless, subterranean superstructure of living plant tissue. There is no rock here, no soil, no minerals. The floor you stand upon is a resilient, tightly woven lattice of thick, fibrous roots, springy and warm to the touch. The walls curl up and away into the distance, formed by colossal, overlapping leaves the size of hillsides, their veins throbbing with visible fluids.
+
+The scale is disorienting. While the chamber itself is a contained "pocket," the volume of empty space within it is immense. You feel microscopic, a speck of dust inside the hollow of a planet-sized gourd. The density of the space is terrifyingly low; kilometers of warm, humid air separate the massive botanical features.
+
+Despite being underground, the chamber is filled with a diffuse, golden-green radiance (Light: 2.3). It is normal daylight in intensity but strange in origin. It seems to filter down through miles of translucent, photosynthetic layers above, or perhaps the cellulose walls themselves generate this soft, pervasive glow.
+
+It is warm here (Temperature: 1.9), a steady, humid heat like the inside of a freshly watered greenhouse or a mammalian lung. The moisture is constant but interstitial (Water: 0.9). It does not rain. Instead, the environment sweats. Great slick patches of condensation coat the leaf-walls. Beads of thick, nectar-like fluid gather on hanging tendrils high above, growing to the size of melons before detaching and falling with resounding, splashing crashes that echo through the hollow.
+
+The environment is shockingly young and raw (Erosion: 1.0). There are no soft edges worn down by time. Every feature looks as if it burst into existence hours ago. Huge thorns, sharp as obsidian glass, jut from the architecture. The edges of the titanic leaves are serrated like fresh saw blades. You can smell the rawness—an overwhelming scent of crushed stems, ozone, and accelerating growth.
+
+The most striking feature, however, is the noise and the movement (Sound: 2.2, Dynamic: 2.3). This world is loud. The air vibrates with a deep, tectonic grinding sound, punctuated by sharp creaks and sudden, booming snaps. This is the sound of hyper-accelerated growth. The landscape is actively reshaping itself around you. You watch as a structural trunk, thick as a skyscraper, visibly twists and torques, groaning under internal pressure, changing the topography of the "ceiling" in real-time. A gap in the floor might seal itself shut in minutes as new root systems weave together with frantic speed.
+
+Here, the weirdness manifests as a breakdown of biological reality (Weirdness: 2.9). Plants should not move this fast; wood should not flow like muscles. Gravity feels inconsistent, seeming to pull slightly harder near the denser knots of vegetation, making the "floor" feel tilted even when it looks flat.
+
+There is almost no other animal life (Fauna: 0.6). The plant-structure is too dominant, too aggressive to host a complex ecology. In the vast stretches of empty air, you might glimpse a single, lonely creature: a translucent, membrane-like organism that drifts on the thermal currents, feeding on airborne spores, silent and fragile against the grinding, monstrous machinery of the endless plant.

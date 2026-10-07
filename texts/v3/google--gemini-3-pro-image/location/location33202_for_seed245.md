@@ -1,0 +1,13 @@
+The air here is thick, a scalding blanket of moisture that clings to the skin and lungs. It is a basin of infinite width, a low place in the universe where heat and heavy gases have settled. The light is a permanent, bruised twilight, filtered through miles of atmospheric haze that glows with a faint, sullen redness from below.
+
+There is no ground, in the natural sense. Every surface, stretching to the blurred, distant horizon, is constructed. You stand upon a limitless expanse of crude, titanic masonry—slabs of rough-cast iron the size of city blocks, fused with cyclopean basalt blocks that show the brutal marks of colossal chisels. The "primitive" nature of the technology is evident in the sheer, brute-force scale of the assembly; there are no rivets, no welds, only the massive friction of gravity and rough interlocking joints, as if piled by the hands of simplistic giants.
+
+It is a wet world, but not with rain. The heat forces sweat from the iron itself. Rivulets of condensation run down the slanted flanks of black pyramids that rise sullenly from the haze. In the vast, empty spaces between these scattered structures, shallow lakes of oily, simmering water have collected in the depressions of the metal floor. They steam constantly, contributing to the oppressive humidity.
+
+The landscape is not finished. It is in a state of violent, slow-motion emergence. The turbulence here is deep and geological in its pacing. The floor beneath your feet groans with a sound felt in the bone more than heard by the ear—a deep, tectonic grinding.
+
+Without warning, a square mile of the iron flooring will buckle upward, white-hot along the seams, pushing up a new, embryonic structure of cooling slag. Elsewhere, a towering monolith of crude stone might suddenly "forget" how to stand, slowly yielding to a localized shift in gravity, bending like soft wax before collapsing into a steaming heap of rubble that immediately begins to fuse back together.
+
+This is the reality breakdown at play: the materials are primitive, solid, and heavy, yet they behave with the unstable fluidity of a dream. Perspective is unreliable; distant towers seem to lean at impossible angles, and the simmering pools of water sometimes reflect a sky that doesn't match the gloom overhead—a flash of impossible geometry, or a void filled with silent, grinding gears.
+
+It is mostly quiet, save for the omnipresent hiss of steam escaping fissures and the deep, sub-bass groaning of the forming world. There is no biological life. No moss clings to the wet iron, no insects skitter across the hot stone. It is a sterile, gargantuan foundry operating on cryptic instructions, endlessly building, collapsing, and rebuilding itself in the sweltering dark.

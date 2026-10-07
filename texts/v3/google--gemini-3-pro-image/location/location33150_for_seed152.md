@@ -1,0 +1,15 @@
+This is a place hidden away, a geological pocket dimension sunk deep below the surrounding terrain. To find it, you must descend through narrow fissures in conventional rock until the ground opens up into an unexpected, intimate cavity. It feels like stepping into a warm mouth.
+
+The immediate impression is heat and stillness. The air is tropical, heavy, and incredibly humid, hovering just below the point of saturation. There is no standing water—no pools or streams—but everything is drenched. Moisture beads on every surface, slicking the walls and condensing into heavy, gelatinous drops that fall with agonizing slowness.
+
+The geology here is unique; it is entirely "emerging." There are no signs of erosion, no weathered stones or sedimentary layers. The environment is actively being constructed. The walls, the floor, and the towering structures filling the space are made of a pale, cream-colored substance that resembles fresh bone or high-quality ceramic. It is smooth, bulbous, and in many places, still tacky to the touch.
+
+This is a biological city in the process of being born. The "built" environment is a complex, organized lattice of spires, rounded arches, and connecting bridges that mimic an urban center, but on an instinctive, insectoid scale. These structures are arranged with sparse, deliberate spacing, leaving generous avenues of smooth, unoccupied floor between them.
+
+The architects and laborers of this silent metropolis are everywhere. They are pale, soft-bodied arthropods, ranging from the size of a thumb to a dinner plate. They move with deliberate slowness, secreting the calcium-rich paste from specialized glands, meticulously adding layer upon infinitesimally thin layer to the growing towers. The dynamism of the place is intense but slow-motion; the landscape is visibly growing, rising millimeters a day.
+
+Despite the rawness of the mineral structures, vegetation is lush and established, taking advantage of the extreme humidity. Because of the sparse arrangement of the "buildings," the plant life doesn't form a tangled canopy but rather exists as massive, singular specimen plantings. Enormous ferns with fronds the length of a small car droop from high ledges, shining wetly in the gloom. Thick, velvety pads of moss, glowing with a faint, natural iridescence, carpet the "intersections" between the bone-towers.
+
+The light is very dim, filtering down from the distant slot-canyon opening high above, arriving as a bruised, greenish twilight that never truly brightens.
+
+It is profoundly quiet. The acoustic environment is muffled by the dense air and soft moss. The only sounds are the occasional wet *plip* of a heavy condensation droplet hitting a fern leaf, the faint, slick friction of a builder-creature sliding over a new wall, and the soft, rhythmic exhale of the earth itself. The abundance of life—the builders, huge slow snails with translucent shells, and camouflaged stick insects mimicking wet calcium deposits—moves in near-total silence.

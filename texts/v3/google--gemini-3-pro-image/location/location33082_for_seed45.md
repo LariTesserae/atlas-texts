@@ -1,0 +1,11 @@
+This is a world of raw, newborn geology, existing in perpetual, sweltering darkness. There is no sun, no sky, and absolutely no moisture. The air is a superheated, parched vacuum that feels like the inside of a kiln, thick with the scent of scorching metal and sulfur.
+
+The primary sense here is verticality. The landscape is a chaotic arrangement of colossal, sheer cliffs that plunge into unseen depths and jagged spires that tear upwards into the crushing blackness. Because there has never been rain or wind to soften them, every edge of rock is razor-sharp, pristine as the moment it fractured. It is a place of obsidian, basalt, and raw iron, glistening not with water, but with a sheen of volcanic glass and metallic crystallization.
+
+The only light sources are terrestrial. Deep, arterial fissures crack open the ground, pulsing with a sullen, infrared glow where the planet’s molten core oozes closer to the surface. This deep crimson light casts long, unstable shadows, revealing vistas of towering rock faces that extend for miles.
+
+While "quiet" in terms of acoustics, the environment is incredibly turbulent. The landscape is in a constant, slow-motion state of self-destruction and creation. You might stand on a massive slab of rock that is imperceptibly tilting into an abyss over the course of hours. The silence is heavy, broken only by the terrifying sounds of geology in motion: the deep, subsonic groan of tectonic plates grinding together miles beneath your feet, and the sudden, rifle-shot *crack* of a billion-ton cliff face fracturing due to thermal stress.
+
+There is no biology here. The closest approximation to life are rapid mineral growths. Where the heat vents intensely, delicate, intricate lattice-structures of spun silica and sulfur "bloom" in minutes—looking like brittle, glassy coral—only to shatter into dust when the ground shifts beneath them.
+
+Scattered sparsely across these shifting shelves are the only hints of something non-natural. They are solitary, geometric pillars of polished, vantablack stone, perhaps three meters tall. They are perfectly smooth, resisting the heat and the grinding tectonic shifts. They have no markings, no doors, and emit no energy. They simply *are*, static points of reference in a world that is violently refusing to settle down.

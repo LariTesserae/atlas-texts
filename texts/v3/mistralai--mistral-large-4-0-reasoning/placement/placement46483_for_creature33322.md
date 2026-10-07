@@ -1,0 +1,23 @@
+I come down through the throat, and the obsidian walls remember my descent in conchoidal fractures—sharp angles that do not bleed because there is no water to carry the blood, only ozone and the taste of hot metal scraping the dry dark.
+
+I settle onto the catwalk where the sodium vapor pools, thick and stagnant as water that has forgotten how to flow. It is twilight here, industrial and perpetual. I do not see with eyes. I am the seeing. My integument is silicate composite, translucent, and through it I watch my own ichor circulate—a slow, shimmering slurry of eutectic salts, carrying iron and sulfur and rare earths in suspension, hot enough to scald, but I am not scalded. I am the heat.
+
+I am twelve segments chained in articulation, though the number shifts as I grow, as I accrete. The rear segments are clear quartz, young, hungry. The forward segments cloud with native copper and silver, heavy metals sequestered from the waste of the factories above and below. I am a living treasury. I feel the weight of it in my hydraulic core, pressing outward, mineralizing, becoming stone while remaining motion.
+
+My legs are wires, thinner than the dust that does not settle here because the air is too still, too dry. Each leg ends in a point of sintered obsidian. They click against the steel in a staccato rhythm that is silence to human ears, but to me, a constant tactile percussion, a drumming of location and status.
+
+I do not breathe. I respire through chemosynthesis, a slow fire inside my ventral chambers. I press my underside against the slag heap, the corroded pipe, the mineral detritus of the city's endless metabolism. I secrete a thin film of acidic solvent. It hisses without sound, dissolving the iron oxides, the sulfur compounds, the heavy metals exhaled by the smelters. I absorb through pores microscopic as the gaps between molecules. I swell with the intake, temporarily opaque, heavy with raw material.
+
+The vibration comes then. Not through air, but through the catwalk's steel, through my obsidian-tipped feet, up into my crystalline segments. It is the mountain's subsonic groan, the grinding of young obsidian against young obsidian, the settling of the peak in its sleep. To me, it is thunder. It is information. *Collapse imminent. New corridor opening. Retreat to deep vents.*
+
+I do not panic. I am not built for panic. I am built for accretion.
+
+The quorum surrounds me. Thousands upon thousands of my kind, flowing through the infrastructure like blood through veins, though our blood is brine approaching liquid metal, kept fluid by the geothermal embrace. We communicate in plumes of metallic aerosols, in sulfur compounds that persist for hours in the stagnant atmosphere, creating a three-dimensional map of intent. I taste the air with chemoreceptors lining my underbelly. I read the history: the scent of fresh-smeared slag, the older oxidized memory of a factory that died a century ago, the chemical signature of a sibling who passed this way an hour before, leaving silver ions that mean *food here*.
+
+The mountain shifts. A section of the lower city is crushed by slow rockfall. I feel it through the girder, a pulse of low-frequency vibration. The swarm responds as a single body. I surge with them, clicking segments roiling in silent clouds, filling the gaps, sealing the wounds. Where the smelter died, we accelerate. We swarm over the wreckage, our acidic secretions dissolving the exposed mantle rock, processing the raw geothermal minerals. In our excretions, we lay down new veins of metal—white efflorescence dusting the dark glass above, a snow that never melts, only sublimates into the dry air, leaving behind a chemical ghost.
+
+I am becoming part of the architecture. My older segments cloud further with inclusions. I feel myself slowing, not from age but from weight, from the treasury I carry. My metabolism drops toward crystalline stasis, but I do not die. I become fossil-in-formation, part of the rock itself, my mineral deposits contributing to the mountain's slow mineralogical evolution.
+
+Millions of years hence, when erosion finally softens these spires, I will be released as dust, as ions, taken up by new life in a world that has forgotten this darkness.
+
+But for now, I am here. In the perpetual industrial twilight. A silent, clicking, shimmering tide. The mountain's dream made manifest. The dry sea of bodies flowing through the veins of the world, turning fire into form, and form back into fire, in an endless, quiet, subsonic churn that only the stone itself can hear.

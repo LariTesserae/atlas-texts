@@ -1,0 +1,30 @@
+**The Spire Lattice**
+
+You stand on a platform of black anodized plating that feels neither warm nor cold, only perfectly machined. Every surface here is made. There is no soil, no bedrock, no original planet beneath your feet; the substrate itself was grown or printed or extruded in a single, unfinished act of construction that still seems to be hesitating. The “mountains” rising around you are not mountains. They are dense, fractal assemblies of girders, heat exchangers, coolant veins, and vast silent turbines stacked in layers so tight they read as solid rock from a distance. Their ridges are sharp as fresh fractures—edges that have never been weathered because weather was never allowed to begin. They climb into a cool, damp sky that itself may be only another layer of the machine.
+
+Moisture is everywhere but never abundant. It condenses on every pipe and conduit in slow, patient beads, gathering into trembling lenses before sliding along invisible micro-channels cut into the alloy. These rivulets meet in machined hollows no wider than your hand, forming black mirrors that reflect the blinding light back upward. Every few hours a thin, directionless rain falls—not from clouds, but from some higher condensation plane—and stops just as abruptly, as though a valve has closed. The air smells of ozone and cold iron.
+
+The light is merciless. Banks of industrial arc lamps, each the size of a house, hang from cantilevered gantries or simply float in violation of several physical laws. Their glare is constant, clinical, and slightly blue. There are no true shadows, only harsher and softer zones of illumination. Because the geometry is breaking, some of the lamps appear to be illuminating each other in closed loops; you can follow a beam with your eye and watch it bend around a corner it has no right to reach.
+
+Vegetation is almost an insult to the place. Here and there, in the damp pockets where coolant has leaked for decades, a sparse black lichen grows in geometric patterns too regular to be natural. Its edges pulse faintly, as though keeping time with some process deep inside the structure. Nothing else lives that way. The machine does not tolerate green.
+
+Yet the fauna is abundant. Silent, pale creatures move through the lattice in layered densities that match the machinery itself. translucent insects with too many jointed legs travel along conduits in braided streams, their bodies catching the harsh light like spilled mercury. Blind, deer-like things the color of old bone pick their way along catwalks on hooves that make no sound; their symmetry is upsetting—each limb exactly mirrors its opposite, as though they were quality-controlled. Higher up, vast flocks of membranous birds drift between the spires without flapping, riding currents that do not exist. They never call. Nothing here calls. The entire ecosystem is hushed, layered, and impossibly saturated within the metal forest.
+
+Sound itself has been edited. The industrial heart is running, but its engines turn on geological timescales. You feel a bass note more in your teeth than your ears, a single chord held for centuries. Occasionally a droplet falls into a resonant basin and the pure tone that results seems to come from everywhere and nowhere, then fades over minutes. Even your own footsteps are dampened, swallowed by the dense lattice before they can become echoes.
+
+Scale is difficult. What first appears to be a single range of machine-mountains reveals itself, over hours of walking, as only one flank of a much larger formation. Valley after valley of interwoven infrastructure recedes into a haze of light and vapor. You can see at least six distinct “ranges” before perspective fails. Some of the farther spires appear to be growing—new struts and ducts extruding themselves with glacial slowness, the way crystals form in super-saturated solution. The process is so gradual you can stand and watch a single girder lengthen by a handspan across an afternoon. The lattice is still being born. It is young. Its edges remain viciously sharp because nothing has yet been granted time enough to blunt them.
+
+And the reality is failing, patiently.
+
+At first you think it is only perspective. Then you notice that parallel conduits converge where parallel lines should not. Walk the same elevated causeway twice and the number of support pillars changes. Look down into a deep manufactorum canyon and you will see entire dormant assembly lines that were not there when you last glanced. The change is never quick. It is the slowness itself that becomes dreadful—like watching a wound open across days. In some places the metal has begun to forget what metal is; sections of plating have softened into something like cartilage, glistening with the ever-present condensation. Things phase. Things repeat. Things wear thin enough that other places bleed through, though what those places are remains unclear.
+
+There are rules, though they are not spoken.
+
+- Nothing here rusts in the ordinary way; instead it sublimes, becoming fine white dust that collects in perfect geometric dunes.
+- The abundant silent creatures will not approach you if you remain still. They treat motion as conversation.
+- If you speak aloud, the sound is absorbed so completely that you feel it leave your throat and simply cease. The lattice is listening, but it has not yet decided what to do with language.
+- The brighter the light, the more the geometry frays. In the harshest glare, new structures sometimes resolve out of nothing, like afterimages that refused to fade.
+
+This is not a ruin. It is not abandoned. It is an industrial environment in the middle of an extremely long, extremely slow birth, and the birth is breaking the rules that allowed it to be built in the first place. The damp collects. The lamps burn. The pale creatures flow through the lattice in their mute millions. And the sharp young edges keep pushing outward, adding new ridges and valleys to a world that is already total, already dense, already too much.
+
+You can walk for days and never find an edge. There is no edge. Only more lattice, slowly learning what it is.

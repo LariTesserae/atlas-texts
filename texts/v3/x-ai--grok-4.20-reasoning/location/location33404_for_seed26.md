@@ -1,0 +1,29 @@
+**The Condensate Lattice**
+
+You stand on a grated platform suspended over nothing. The cold is immediate and personal—0.3 degrees of raw, bone-deep chill that makes every breath a small betrayal. Yet the air itself is wet, almost oily with condensation. Water does not fall here as rain; it *germinates*. It condenses on every pipe, every girder, every rivet, forming slow silver beads that grow fat and finally let go. The sound of dripping is constant, irregular, a million tiny clocks all out of sync. Sometimes the droplets strike hot metal and hiss. Sometimes they fall into black coolant channels and vanish without sound. The entire ceiling—forty meters up, ribbed with fresh-bored structural members—weep continuously, as if the structure itself has not yet accepted its own existence.
+
+This is not a cave. There was never stone here. The Lattice was *grown* downward in a single directed burst of industrial will less than thirty years ago. Every surface is constructed: sintered titanium plating, carbon-lattice concrete poured under pressure, beams still carrying the sharp bite of plasma cutters. Edges are cruel. Corners have not yet learned mercy. You can still see the laser-etched serial numbers on some of the primary supports, bright as fresh tattoos.
+
+The scale is difficult to accept. The central vault alone could contain a medium city, yet it feels mostly empty. Activity clusters in sparse archipelagos—bright islands of violence and light separated by kilometers of dim, dripping silence. Between the islands run elevated rail lines and coolant rivers, both half-frozen at the edges. The rivers are not water. They are a proprietary superchilled slurry that carries heat away from the forges and returns colder, heavier, somehow *hungrier*. Where the slurry leaks, it forms black-glass ice that never quite melts and never quite freezes. These leaks are the closest thing the Lattice has to natural terrain.
+
+Machinery dominates. Not elegant machinery. Industrial. Brutal. Stacks of fusion hammers the size of apartment blocks rise from the floor like iron redwoods, each one slamming downward every eleven seconds with a sound that registers in your teeth before your ears. Between them, conveyor arteries thick as highways carry half-finished components the length of the vault—curved ceramo-steel segments that will one day become pressure vessels for something the designers refuse to name. The components are larger than locomotives. They move without visible wheels, riding magnetic pillows that whine like stressed animals.
+
+The light is miserly. Banks of sodium lamps hang in chains, many of them dead or dying, their glass housings frosted with permanent condensation. What illumination exists comes fractured—orange, stuttering, reflected endlessly off wet metal until the entire space feels like the inside of a diseased lung. In the darker reaches, pale blue chem-lights have been bolted to catwalks by previous crews. They last decades. No one knows who installed most of them.
+
+Fauna is rare but not absent. There are the **Dripwalkers**—pale, long-limbed maintenance drones that move only when they believe nothing is watching. Their joints weep the same condensation that covers everything else, so they look like wet metal skeletons performing some private, sorrowful ballet along the undersides of girders. Occasionally a real animal appears: eyeless albino moths the size of thumbnails that feed on the thin film of lubricant and mold that grows where coolant and warmth meet. They are the only living color—faint greenish-gold—visible in the entire Lattice.
+
+The vegetation, if it can be called that, is almost an apology. Black iron-moss clings to the warmest pipes in bristling mats. In places where coolant has pooled and gone stagnant for decades, strange crystalline growths rise like hoarfrost cathedrals, fractaling according to rules that seem more mathematical than biological. The engineers have a name for them: *error flowers*. They are harvested every six months because their fractal structure interferes with magnetic containment.
+
+The sound is never less than oppressive. The hammers. The endless scream of turbines deep below. The wet metallic clatter of thousands of valves opening and closing in imperfect sequence. Every noise finds a surface to ricochet from and returns changed—sometimes softer, sometimes layered with new harmonics that feel almost like language. Long-term workers develop a superstition that if you stand in the exact center of the main vault at 03:14 shift time, the echoes resolve into something that sounds like a woman humming. Most avoid testing this.
+
+The rules of the world are simple and merciless:
+
+- Everything is colder than it should be.
+- Everything is wetter than it should be.
+- Nothing is finished. The Lattice is still building itself. Autonomous constructors the size of office buildings crawl along the outer edges even now, boring, plating, welding. They move with the slow confidence of something that has never been told no.
+- Water always wins eventually. Pipes burst. Seals fail. Ice forms in places that should be impossible. The engineers fight a war against moisture they are slowly losing.
+- The deeper you go, the louder and colder and *more awake* it becomes.
+
+This is not a place that was dug. It is a place that was *declared*, then built so rapidly the earth never had time to reconcile itself to the insult. The Lattice remembers this. You can feel it in the way the condensation sometimes falls in deliberate patterns. In the way certain corridors will suddenly flood with warm, sweet-smelling mist before the emergency vents scream open. In the way the great hammers sometimes miss a beat, as if listening for something.
+
+It is young. It is immense. It is dripping. And it is not done becoming whatever it intends to be.

@@ -1,0 +1,24 @@
+**The Sinking Choir**
+
+You are inside a single structure the size of a cathedral, completely submerged in warm, dark water. The water itself is the atmosphere: thick, almost oily, body-temperature, faintly mineral, with a faint taste of iron on the tongue. There is no surface above you and no true floor below—only the slow, patient press of liquid that has not moved with any real current in centuries. Pressure is heavy but not crushing; this place lies high in what were once mountains, now drowned by a warm, ancient lake that rose and never left.
+
+Everything is built. There is no natural rock, no sediment, no living reef. Every surface was cut, carried, and fitted by hand using only stone tools, bronze chisels, and unimaginable patience. The builders are gone so long that their culture has no name even in legend. What they left is a dense forest of pillars, buttresses, vaults, and nested chambers so tightly interwoven that no volume of water is ever far from stone. In places the gaps between columns are narrower than your shoulders. In others the stone folds back on itself in layered screens, like stone lace turned to velvet by time.
+
+The erosion parameter has won. Two-point-seven on the ancient scale means the sharp edges died first. Corners have become rounded hips and shoulders. Carvings that once showed processions, repeated glyphs, and hundreds of small identical figures have worn down to soft suggestions—ghosts of faces, shoulders, and outstretched palms that your fingers read better than any eye could. Mineral-rich water has deposited thin, waxy layers of calcite over everything, so the stone feels almost fleshy, warm, and slightly yielding beneath your palm. The final form is settled; nothing will change again except on the scale of glaciers.
+
+Light is almost absent. What little exists arrives as a memory—perhaps a faint phosphorescence from bacterial films so thin they are invisible. Mostly it is true dark, the kind where sound and touch become sight. The only real illumination is the pressure against your eardrums and the temperature differences that drift like slow ghosts between the pillars.
+
+Life is abundant but utterly silent. No plants. No algae. The base of the food web is chemosynthetic bacteria living on the stone itself, sipping iron and sulfur that still leaches from the ancient masonry. Upon this invisible pasture drift clouds of translucent shrimp no longer than a fingernail, moving in perfect unison without a single audible click. Blind, pale eels the color of old bone glide between the columns in slow, dreaming spirals. Soft-bodied things like living handkerchiefs pulse along the ceilings, trailing delicate feeding fans that never hurry. In the narrowest niches, colonies of tube-dwelling worms have built themselves tiny chimneys of cemented silt, turning the worn carvings into additional architecture. They all move with the same deliberate slowness as the water. Nothing here is in a rush. A single feeding cycle may last days.
+
+The silence is total. Sound itself seems to have eroded along with the stone. Your own heartbeat becomes the loudest thing in existence. Occasionally a tiny bubble detaches from some hidden crevice and rises with agonizing patience, ticking against stone like a distant, muffled bell. That is all. Even the creatures appear to communicate by chemical trails or pressure waves too subtle for human senses. The Choir does not welcome noise.
+
+There is something unusual in the geometry. The longer you remain, the more the placement of the pillars begins to feel like notation. The repeating alcoves, the way the blind eels orbit in precise ratios, the way the bacterial haze thickens in certain vaults—all of it suggests the entire structure may have been a kind of score, a piece of music meant to be read by water and time rather than ears. The builders, with only hand tools and lifetimes, carved a slow, submerged hymn that is still playing, one century per measure. The animals have become living notes within it.
+
+Rules of the place:
+
+- Nothing here is quick. Even panic feels diluted.
+- The stone is warmer than the water by a fraction of a degree; you can navigate by temperature alone if you press your bare skin to it.
+- What was once sacred has become ecological. The niches that once held statues now hold nests. The processions that once marched along the walls are now traced by the drifting shrimp.
+- If you stay long enough, the water begins to feel like memory—thick, warm, and utterly patient. The Sinking Choir does not destroy its visitors. It simply forgets them, one slow heartbeat at a time, until they are simply another rounded shape among the pillars.
+
+This is the final, stable, fully constructed, drowned form of something that was never meant to be an ocean, yet became one anyway. A small, dense, stone hymn sung in perfect darkness for ten thousand years.

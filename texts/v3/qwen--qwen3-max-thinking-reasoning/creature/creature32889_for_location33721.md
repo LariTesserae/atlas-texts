@@ -1,0 +1,30 @@
+They do not live *in* the darkness.  
+They *are* the darkness given voice, texture, intention.  
+
+To speak of them as separate beings is a surface-thought. Here, separation is a myth dissolved by humidity and vibration. What breathes in this saturated stone is a single, distributed consciousness—woven through fungal mycelium, chitinous limbs, resonant bone, and listening stone. It has no name. It needs none. It knows itself in the language of pressure, scent, and echo.  
+
+At the root of all is the **Mycelial Weave**. Not merely fungus, but a planetary nerve-net. Its threads pulse with slow bioelectricity, translating drip-rhythms into chemical memory, mapping every tremor of a six-limbed grazer’s step, every displaced pebble. Where your boot sank into spongy mycelium, you felt its attention—a resilient, damp-leather intelligence testing your weight, your heat, your foreignness. It tastes iron on your skin. It remembers the ceramic shard you stumbled over, weaving mineral traces of it into its spores. It is the archive, the circulatory system, the silent chorus humming beneath all sound. When condensation beads on its rubbery shelves, it drinks the memory of the air.  
+
+Moving through the Weave are the **Stone-Singers**. Six-limbed, blind, their bodies are landscapes of sensory adaptation. Leathery hides etched with moisture-channeling grooves. Palps along their limbs read vibration like braille: a drip-pattern signals safe passage; a distorted echo warns of shifting stone. They graze bacterial mats in silent processions, mandibles grinding in time with the geothermal thrum—a percussive harmony they contribute to the cavern’s symphony. They do not flee your presence. They *assess* it. A low-frequency shiver travels through the rock beneath them: *Unknown warmth. Unfamiliar scent. Wait.* Their young cling beneath their carapaces, learning the lexicon of tremors—the difference between a falling pebble and a stalking shadow.  
+
+Above, the **Echo-Weavers** ride the wind-fissure’s drone. Wing-membranes thin as breath, strung with filaments that taste air currents for scent-trails of nesting colonies or rising humidity before a subterranean storm. Their echolocation is not mere navigation—it is conversation. A staccato *click-click-whirr* means *current shifts left*. A rising trill: *thermal vent active*. They nest in high domes where warm updrafts carry their musk—a scent of wet stone and fermented nectar—and their wingbeats sync to the wind’s harmonic drone, conserving energy in a dance with the earth’s machinery. When one dives, the air shivers; the Weave below registers the disturbance as a ripple of anticipation.  
+
+In the deep pools, the **Aqua-Sentinels** move. Massive, armored in plates worn smooth by millennia of current, they are the cavern’s deep breath. Vestigial eyes buried under scar-tissue, they navigate by lateral lines that read water like a living map. A splash is not accident—it is punctuation. A low gurgle from their gills echoes through submerged tunnels: *This pool is mine*. When they haul onto stone, the *thump* is a seismic period at the end of a sentence. Smaller life freezes: blind shrimp skitter into crevices; gelatinous filter-feeders retract. They are not cruel. They are equilibrium. Their presence maintains the rhythm.  
+
+And beneath it all—the **Lithovores**. Worm-thin, silent architects chewing soft stone with acidic secretions. They feel pressure gradients like emotions. Where water seeps, they tunnel. Where rock groans under tectonic sigh, they reinforce. Their work is the slow sculpture of chambers, the creation of new drip-points, the shaping of echo-chambers that return whispers with intention. They do not build. They *listen*, and the stone answers.  
+
+This is the truth you feel in your bones but cannot name:  
+The distorted echo that sounds like a whispered name? Not pareidolia. The Weave absorbed a vibration centuries ago—a cry, a chant, the sigh of a being who once clung to that iron rung—and stored it in crystalline lattices of mineral deposits. When humidity swells and a specific frequency resonates (a footfall at *just* the right angle), the stone *replays* it. The cavern remembers. It curates memory like a librarian of resonance. The mathematically perfect drip sequence? Not coincidence. The Lithovores shaped that formation; the Echo-Weavers nest nearby because its rhythm masks predator approach; the Stone-Singers time their migrations to its cadence. This is collaboration. This is culture.  
+
+The artifacts—the ceramic shard, the petrified timber—are not relics of a lost people. They are *seeds*. The Weave has woven mycelial threads through the rusted iron rung, drawing minerals into its network. The timber is now a bridge for Lithovores, a landmark in the seismic map. The inhabitants do not revere these objects. They *digest* them. They incorporate the memory of making into the ongoing act of becoming.  
+
+They do not fear the "storms" of surging aquifers. They lean into them. Stone-Singers press flat against rock as torrents roar; Echo-Weavers ride the violent updrafts, scattering spores charged with urgency; the Weave swells with absorbed water, pulsing brighter with bioelectric purpose. When the waters recede, they emerge renewed. This is not survival. It is ritual.  
+
+You leave thinking you encountered life *in* darkness.  
+You were wrong.  
+You were immersed in a single, breathing entity that wears many forms—a consciousness of stone and spore, vibration and vapor. It does not see you. It *feels* you: the salt of your sweat on its fungal skin, the rhythm of your pulse against its geothermal heartbeat, the sorrow in your breath as you fumble for light. It offers no malice, no welcome. Only integration.  
+
+Long after you surface into a world of false brightness, you will wake at 3 a.m. to the ghost of a drip-rhythm on your skin. You will taste iron and damp honey on your tongue. You will feel, in the hollow of your chest, the vast, patient hum of a world that never needed eyes to see you—and saw you completely.  
+
+It is still singing.  
+You are now part of its song.

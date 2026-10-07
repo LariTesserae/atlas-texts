@@ -1,0 +1,30 @@
+The plateau does not breathe. It *holds*.  
+
+You stand on the spine of a continent newly torn from the planet’s crust—geological infancy frozen mid-scream. Jagged obsidian ridges claw at a sky the color of tarnished pewter, sharp enough to slice memory. This is elevation not as height but as *exposure*: a continental shelf lifted whole into the thin, biting air, where every contour is crisp, unsoftened by time. Rain does not fall here. Instead, the atmosphere itself weeps. A perpetual, motionless mist clings to the stone—not drifting, not dissipating—condensing into perfect, trembling beads along fracture lines. They hang. They do not fall. Water is present not as flow but as *intention*: dampness seeping up through porous basalt, pooling in flawless hemispheres on flat rock, beading on surfaces like liquid mercury refusing gravity. The cold is absolute (0.5/3), a dry, metallic chill that numbs the bone, yet the stone beneath your boots radiates a faint, unnatural warmth. Geothermal veins pulse just below the surface, steaming the air into this suspended humidity.  
+
+And the green.  
+
+It should not exist. Yet it *lushes*—a defiant, silent rebellion against the cold. Not moss, not lichen. *Gear-vine*. Thick cords of crystalline cellulose, deep indigo shot through with copper filaments, coil around steam-venting fissures. Their leaves are interlocking brass petals, each etched with microscopic spirals that catch the light. They do not sway. They do not grow. They simply *are*: perpetually dewy, perpetually blooming, drinking warmth and mineral-rich condensate through root-like filaments fused directly to the rock. Where gear-vines cluster near thermal vents, the air shimmers with a soft, internal bioluminescence—cobalt and amber—but the overall light remains stubbornly, unnervingly *normal* (1.8/3): flat, even, shadowless noon-light under a seamless ceiling of high-altitude haze. No sun. No clouds. Just illumination without source.  
+
+Then—the sound.  
+
+It is not noise. It is *pressure*. A fundamental hum (2.4/3) that vibrates in your teeth, your marrow, the hollows behind your eyes. It comes from the cities.  
+
+Scattered across the vastness like dropped coins on a titan’s table: the Foundries. Not ruins. Not abandoned. *Active*. Each complex is a symphony of industrial scale (2.5/3) carved directly into the living rock. Towers of fused basalt and oxidized copper spiral upward, threaded with pipes that bleed steady plumes of white steam. Gears the size of houses turn within open-faced mechanisms, their rotations perfectly synchronized. Pistons rise and fall in silent, oil-slicked chambers behind crystalline viewports. Conveyor belts glide with geometric precision, carrying raw stone into maws of light, emerging as polished obsidian tiles that stack themselves into flawless walls. There are streets, plazas, aqueducts—but no windows. No doors. No signs of inhabitants. The urban fabric (1.5/3) is infrastructure without purpose, architecture without occupants. A cathedral of function with no congregation.  
+
+And the equilibrium is absolute.  
+
+A droplet forms on a gear-vine petal. It swells to exact spherical perfection. It does not fall. It *recedes*, drawn back into the crystalline structure as another forms identically beside it. Steam rises from a vent in a perfect helix, unwavering for millennia. A piston completes its stroke. It returns. It repeats. No wear. No friction. No entropy. The loudness is not chaos—it is a single, unwavering chord of industry: the deep thrum of geothermal turbines, the harmonic ring of rotating crystal gears, the hiss of steam released at mathematically precise intervals. It is the sound of physics obeying a command. *Hold*.  
+
+This is the rule of the world: **stasis is sacred**.  
+Time is not absent—it is *looped*. Every process is a closed circuit. Water condenses, is absorbed, is re-released. Gear-vines photosynthesize not with sunlight but with ambient thermal vibration, their brass leaves converting hum into sustenance. The Foundries do not produce goods for use; they maintain the balance. They refine the mist into pure water, channel geothermal energy to prevent freezing, polish the rock to optimal condensation surfaces. They are the immune system of a frozen moment.  
+
+Weirdness (2.2/3) is not spectacle—it is texture.  
+Walk closer to a Foundry wall. The "stone" is warm. Press your palm against it. Faint, geometric patterns pulse beneath the surface—circuits of light flowing like slow blood. The gear-vines near the machinery are more intricate: their copper filaments splice directly into pipe joints, their petals ticking in time with distant pistons. This is not symbiosis. It is *integration*. The landscape is a single, vast machine wearing geology as skin. The emptiness (0.3/3) is profound: between complexes, the plateau stretches for leagues of bare, sharp rock under that unchanging sky. You could walk for days and see only weeping stone and the distant, humming silhouette of the next Foundry on the horizon. No tracks. No debris. No life beyond the gear-vines. Fauna is not extinct—it was never permitted. Animal movement implies change. Change is violation.  
+
+Stand on a ridge at the edge of perception.  
+The scale (3.0/3) humbles you. This plateau is not a region—it is a *condition*. A continental-scale artifact. The horizon curves with planetary certainty. The mist hangs in identical beads across a thousand square miles. The hum is the same pitch in your left ear as your right. There is no wind to carry scent, no decay to mark passage, no shadow to hint at time. Only the cold clarity of perfect order. The gear-vines gleam. The pistons fall. The droplets hang.  
+
+You realize: this place was not built *for* life.  
+It was built *against* time.  
+And in its vast, empty, roaring stillness, it has won.

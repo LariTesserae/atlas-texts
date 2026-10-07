@@ -1,0 +1,24 @@
+To live upon the Spire of Aet is to exist in a state of perpetual, frantic attachment. Evolution here has discarded the concept of the limb in favor of the hook, the barb, and the suction pad. Nothing that lives on the Spire possesses the luxury of letting go.
+
+### The Frost-Weavers (The Arachnids)
+The white-furred arachnids, or **Frost-Weavers**, are the architects of the Spire’s vertical economy. They are not predators in the traditional sense; there is too little biomass to waste energy on hunting. Instead, they are collectors of state-changes. Their fur is not hair, but a dense forest of piezoelectric cilia that vibrate in the presence of the rising thermal plumes. 
+
+When the moisture hits, the Weavers move in a synchronized blur, casting webs of "cold-silk"—a substance that does not catch prey, but provides a high-surface-area lattice for ice to form. They eat the minerals trapped in the frost and drink the distilled purity of the upper atmosphere. Their bodies are translucent, save for a central, pulsing core of pressurized violet hemolymph that keeps them from imploding in the near-vacuum. When a Weaver dies, it does not fall; its many hooked feet lock into the basalt in a post-mortem rigor, becoming a permanent part of the Spire’s geography, a tiny white monument to grip.
+
+### The Glass-Winged Aeronauts
+The **Aeronauts** are the Spire’s heartbeat. They are creatures of pure metabolism, their hearts beating at thousands of cycles per minute to maintain body heat in the bruising chill. Their wings are not feathers or skin, but rigid, semi-conductive membranes—panes of biological glass that act as solar sails. 
+
+They do not fly so much as they *tack* against the solar wind and the thin updrafts. They spend their lives in a state of high-speed vibration, their beaks needle-thin to probe the deep, wet hearts of the glass-frond ferns. They are the pollinators of the blood-moss, carrying spores in the oily sheen of their bellies. Because there is no sound, they communicate through strobe-like flashes of their iridescent thoraxes—a silent, frantic language of light that mirrors the violent sun above.
+
+### The Gardener of the Void (The Resident)
+But the bench and the tripod belong to the **Spiresworn**, a creature—or perhaps a lineage—that has transcended the need for the world below. 
+
+The Spiresworn is a figure of elongated, harrowing geometry. Their skin is the color of the basalt, a matte charcoal-grey, textured like fine-grit sandpaper to provide maximum friction against the rock. They are "Thin-Blooded," possessing a circulatory system that functions more like a refrigeration cycle than a heating one. They do not breathe in the way creatures of the heavy air do; instead, their ribcage is a series of bellows that move slowly, once every few minutes, timed to the arrival of the thermal plumes. They "inhale" the moisture through porous skin, filtering oxygen directly from the flash-frost.
+
+The Spiresworn is the Spire’s solitary monk, its custodian. They move with a terrifying, liquid slowness that contrasts with the frantic buzzing of the Aeronauts. Every movement is calculated. To move a hand from the bench to the tripod is a three-minute ritual of ensuring three points of contact at all times. Their fingers end in obsidian-hard nails, curved like climbing pitons, which they use to prune the blood-moss, ensuring it does not overgrow the vents that release the Spire’s internal heat.
+
+They are a creature of sight. Their eyes are oversized and shielded by secondary, nictitating membranes of dark gold, acting as natural sunglasses against the shadowless white light. They sit on the circular bench, not for rest—for there is no rest in a place where gravity is a constant threat—but for *observation*. 
+
+The obsidian slab on the tripod is their primary tool. They use it to catch the sun, not to signal the world below—which they have long since forgotten—but to boil the moisture collected in the basalt depression. They drink a concentrated tea of blood-moss spores, a hallucinogenic brew that allows them to perceive the subtle shifts in the planet's magnetic field. To the Spiresworn, the sky is not empty; it is a roiling ocean of colorful currents, and the Spire is a mast at the center of a celestial sea.
+
+They live in the "Long Wait." They are waiting for the Spire to grow, or perhaps for the atmosphere to finally burn away, leaving them alone with the stars. They represent the ultimate triumph of life: a being that has climbed until the world ran out, and then decided to stay, clinging to a needle in the dark, watching the clouds churn like marble, miles below their feet.

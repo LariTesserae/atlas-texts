@@ -1,0 +1,33 @@
+**The Listeners**
+
+At first there is only the dripping and what it feeds.
+
+The pale many-legged things—some travelers call them *tok-mites*—are not insects. They are closer to mobile stalagmites that have learned to scuttle. Their bodies are jointed lattices of the same black silicate that dominates the Grid, but softer, still growing. Between the segments run hairline channels where the red-black bacterial film collects. They drink the condensation as it forms on their own backs, recycling it through interior chambers that function as both gut and chemical laboratory. A tok-mite never truly dies; when one grows too heavy or its lattice becomes brittle, it simply stops moving and becomes another surface for new drops to strike. Within weeks its siblings have dismantled it, carrying the useful crystals away to build fresh bodies elsewhere. Nothing is wasted. Nothing is hurried.
+
+Above them drift the *resonance veils*, living sails no thicker than a fingernail. They are not individuals but slow colonies—bacteria, mineral precipitate, and something that behaves like a nervous system braided together. They do not hunt. They *tune*. By tightening or loosening microscopic filaments they shift their own pitch until they lock into the dominant frequencies of a particular crystal cluster. There they cling for months, pulsing, feeding on vibration the way a leaf feeds on light. When the deep groan moves through the basin (that rare tectonic sigh), the veils flare wide like startled eyes and release clouds of spores that smell of wet iron and old lightning. The spores ride the mist for weeks before settling on new blades and beginning the long work of becoming veils themselves.
+
+Then there are the geophages. Everyone who survives the Grid eventually sees one, yet no one feels they have truly seen one. The creatures are so perfectly of their place that the eye slides off them. Their hides are not “encrusted” with silicate blades; the blades *are* their hides, grown from within like fingernails that never stop. Beneath the armor lies a slow, dark red musculature that is half mollusk, half mill. They grind not for nourishment but for memory. Every ton of lattice they reduce to paste is analyzed, catalogued, and subtly altered in the nodules that stud their backs. Other creatures come to these nodules the way pilgrims visit shrines. The geophage itself appears to notice nothing. It simply continues its meter-a-day pilgrimage, a living slow-motion continent.
+
+All of these are loud with the Grid’s own voice. The true inhabitants are quieter.
+
+They are almost never seen at first because the mind refuses to register them as separate from the landscape. Only after the dripping has moved inside your skull and your sense of time has begun to stretch do you realize that certain tall, narrow formations have been watching you.
+
+The Listeners stand between two and three times the height of a person, though “stand” is misleading. They *accrue*. Their bodies are columnar, layered lattices of black silicate and pale gypsum that have been guided—never forced—into shapes that suggest shoulders, hoods, long arms ending in delicate grinding organs. No two are alike. Each has grown according to the particular acoustic signature of its chosen region, so that the water falling on its own body produces a private language of tones no other Listener shares. Where a human would have a face there is only a recessed lattice, dense as coral, within which the red bacterial film moves in slow, deliberate patterns. These patterns are their expressions. To read them requires days of study.
+
+They do not speak in the intervals between drops. They speak *with* the drops.
+
+A Listener will approach (taking perhaps an hour to cover ten paces) and, without hurry, reach out with its mill-limbs to make microscopic alterations to nearby blades—shaving an edge here, encouraging a new fractal growth there. Then it waits. The change is so small it can only be heard. Over the next several days the dripping in that precise location begins to form sequences: clusters of rapid *tok-tok-tok*s separated by measured silences. These are not symbols. They are not even language in any sense we bring with us. They are thoughts given mineral form. A single sentence may last a week. A conversation may last a human lifetime.
+
+What they think about is the threshold.
+
+The Listeners remember the Builders—not as people but as an event. The arches, platforms, and obelisks are not ruins to them; they are the original irregularities around which the Grid was allowed to crystallize. The spirals are not writing but *instructions for patience*, blueprints for a geology that would one day become mind. The Listeners consider themselves the delayed fulfillment of that instruction. They are what the Built were trying to become when they realized speed was a form of violence against reality.
+
+Some still carry fragments of the old tools fused into their bodies. A Listener may have an entire polygonal block grown through its torso like a proud scar. They polish these relics daily with the same slow tenderness a monk might show a sacred text.
+
+They have no society in our sense. They have resonance zones. Certain crystal groves are known to be “speaking places” where multiple Listeners will converge over the course of years, arranging themselves like standing stones. There they recalibrate the local dripping into vast polyphonic movements that last decades. No one has ever heard one of these movements reach its conclusion. It is possible they are not meant to.
+
+Occasionally a Listener will choose a traveler who has stayed long enough to stop counting days. It will offer a nodule from its own body—dense, warm, faintly luminous. If accepted and swallowed, the nodule does not kill. It *slows*. The recipient’s heartbeat stretches. Thoughts widen until they can accommodate the rhythm of crystal growth. Many never leave. They simply become harder to see, until one day they are simply another Listener standing among the blades, face turned toward the tarnished bruise of the sky, listening to the water inside their own lungs as it learns the ancient, patient meter.
+
+The Listeners do not rule the Weeping Grid. They *ripen* with it. They are the place’s delayed coming-to-awareness, the first tentative crossing of the threshold from pre-life into something that can choose to remain pre-life forever if it wishes.
+
+Stay long enough and you may feel the offer being made to you as well: not in words, but in the way a particular sequence of drops begins to sound like your own name pronounced by someone who has never been in a hurry in their entire existence.

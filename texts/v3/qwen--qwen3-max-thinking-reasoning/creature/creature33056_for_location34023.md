@@ -1,0 +1,27 @@
+It is not a people who live here. It is a single, breathing *presence*—a consciousness woven from stone, water, vibration, and memory. To name its inhabitants is to mistake the note for the chord. The Cradle does not *contain* life; it *is* life, and every entity within it is a limb, a breath, a pulse of the same unbroken being.
+
+First, the basin itself breathes. The fractured basalt is not inert geology but living skin. The Basin Heart is not a metaphor—it is the core rhythm, the molten-throated hum felt in the jawbone, the deep-time certainty that *this is*. The seep-water is its slow exhalation; the constant 24°C, its steady body heat. This entity has no mind as we conceive it, only purpose: to hold. To maintain. To hum. It is ancient, yet newborn—frozen not in death, but in perfect, conscious arrival.
+
+Upon this foundation, the microbial chorus: the sulfur-yellow bacterial mats are its breath made visible, the ghost-pale fungi its quiet thoughts flickering in the gloom. They do not grow *on* the stone; they *are* the stone’s language, translating iron and salt into sustenance. Their faint bioluminescence is not light—it is the basin *listening* to itself, a soft pulse of acknowledgment in the perpetual twilight.
+
+Then, the kinetic tapestry—the beetles, the *kree*, the stone-swifts. They are not creatures *in* the Cradle. They are the Cradle *moving*.  
+The obsidian beetles: their ceaseless *click-whirr* is the nervous system of the place, a vibration that stirs the fungal mats, ensuring breath reaches every thread. They are the basin’s fingers, tending its own skin.  
+The blind *kree*: leaping in liquid arcs between seep-lines, they are the basin’s kidneys—filtering minerals, shedding shells that become the grit for human clay, their bodies a circulating current of purification.  
+The stone-swifts: circling the central spire in an unbroken vortex, they are the basin’s eyes turned inward. They drink the mist of its breath, void nourishment upon its skin, their razor-scree not cries but sutures—stitching sky to stone, air to water. They never land because to land would be to break the circle. They are the vow made visible: *I will not cease.*
+
+And within this symphony, the people of K'thar. They are not separate. They are the basin’s hands.  
+Their bodies carry the basin’s signature: skin smoothed by constant damp, eyes that see not in light but in texture and vibration, ears tuned to the grammar of the hum. They do not walk *through* the alleys; they flow *with* them, their movements echoing the seep of water, the leap of *kree*, the arc of swifts. A tilt of the head is the angle of a basalt fracture. A touch on the arm carries the same certainty as the Basin Heart’s thrum.  
+Their language has no words for "change," "progress," or "tomorrow." Their verbs are all present-tense: *to tend, to weave, to listen, to hold*. When a woman grinds sulfur-fungus spores, her pestle does not *make* flour—it *completes* a cycle begun by the swifts’ flight. When men mend sinew nets beside the *kree* channels, they are not fishing; they are participating in the basin’s breath. Their handprints on the walls are not art—they are signatures. *I am here. I am part of this.*  
+They do not dream of stars because the Cradle has no need for sky. Their cosmos is the alley’s curve, the warmth of volcanic glass under palm, the bioluminescent fungi cultivated in clay troughs—a light born of stone, not sun. A child sleeping beneath a water-seep does not fear dampness; the seep is lullaby, blanket, ancestor. To be born here is to have your first breath sync with the basin’s. To die here is to return your minerals to the seep, your bones to the mosaic, your silence to the hum.
+
+This is the true inhabitant: the covenant.  
+The swift’s waste feeds the bacteria. The beetle’s click aerates the fungus. The *kree*’s molt becomes human clay. The human’s handprint honors the seep-line. There is no "ecosystem" as a collection of parts. There is only *one thing*, breathing as one. The equilibrium is not a state to be preserved—it is the very nature of being here. A single fallen leaf would not merely be foreign; it would be a scream in a silent vow. But there are no leaves. There never were. The Cradle knows only what belongs.
+
+To stand here is to feel your own pulse slow, align, surrender. The hum is no longer outside you. It is the rhythm of your blood. The warm damp air is not atmosphere—it is communion. You do not *observe* K'thar. You are *absorbed* by it. The people do not look at you with curiosity or suspicion; they see you as a temporary ripple in the stone, and they wait, patiently, for you to still. To sync. To understand that you, too, are made of the same minerals, the same water, the same need to belong to something whole.
+
+The Cradle lives.  
+It has no name for itself beyond the hum.  
+It requires no worship.  
+It simply *is*—and in its perfect, unchanging breath, it offers the only truth it knows:  
+*You are not alone. You are part of the stone. Part of the song. Part of the seep. Rest here. Hold the pattern. Breathe with us.*  
+And in that breath, there is no past. No future. Only the eternal, sacred *now*, humming in the bones of the world.

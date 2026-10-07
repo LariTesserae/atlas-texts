@@ -1,0 +1,15 @@
+The roar is the first and only citizen of this place. It is a physical weight, a 3.0-decibel monolith that vibrates the marrow in your bones and makes the concept of a "thought" feel fragile. This is the Vertical Deluge, a hamlet-sized pocket of reality pinned between soaring, razor-edged needles of black volcanic glass.
+
+Here, the distinction between "ocean" and "atmosphere" has collapsed. The air is not air; it is a warm, suspended slurry of pulverized sea-foam and torrential downpour that moves in every direction at once. It is a submerged world that refuses to stay down, a cataract that has forgotten which way is gravity. The water is tepid, nearly the temperature of blood, making it difficult to tell where your skin ends and the environment begins.
+
+The terrain consists of a few scattered, impossibly sharp obsidian spires that thrust upward like the teeth of a newborn predator. They are "young" in the geological sense—their edges have not been rounded by the relentless pounding of the water. They are jagged, lethal, and slick. These pillars are the only anchors in a chaotic, swirling medium. 
+
+Because the erosion is so fresh, there is no soil. The vegetation (0.7) is limited to a few desperate, leather-tough ribbons of violet kelp that have fused their root-systems directly into the glass. They don't wave; they lash, whipped into a frenzy by the turbulence.
+
+Reality here is fraying at the edges (2.6 weirdness). The water does not always fall. Sometimes, it coalesces into perfect, vibrating spheres the size of houses that hover between the spires before shattering into steam. Occasionally, the deafening roar cuts out for a heartbeat, replaced by a silence so absolute it causes the ears to bleed, before the sound crashes back in with the force of a physical blow. The light is a dim, bruised indigo, filtered through miles of overhead vapor, illuminated only by the occasional flicker of "dry lightning" that occurs inside the water droplets themselves.
+
+There are signs of a presence that preceded this chaos. On the most stable spire, there are the ruins of a single, circular stone platform (1.1 built). It is not a house or a machine; it is a primitive, heavy thing, perhaps an altar or a lookout, built from blocks of basalt so large no human could have moved them. There is no technology here, no metal, no gears. It is a pre-tool graveyard of stone.
+
+Life is an anomaly. Rarely, a translucent, cartilaginous shape—something between a manta ray and a cloud—will drift through the turbulence, its body rippling to absorb the kinetic energy of the falling water. These creatures have no eyes, for there is nothing to see but the dim, churning gray. They are silent ghosts in a world of screaming noise.
+
+Everything is in motion. The "ground" you stand on might be a temporary solidification of salt and spray; the "sky" might be a falling lake. It is a small, violent room of glass and water, a place where the world is being born or destroyed, and the sound of that process is enough to drown out the soul.

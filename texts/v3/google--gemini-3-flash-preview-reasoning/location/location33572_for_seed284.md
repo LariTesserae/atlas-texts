@@ -1,0 +1,17 @@
+The world is a vertical wound. 
+
+It exists entirely within a singular, microscopic fissure—a crack in a slab of cooling basalt no wider than a human thumb, yet extending downward for what feels like leagues. Here, the scale is inverted: a millimeter is a city block; a meter is a continent. The walls are sheer, matte-black, and terrifyingly smooth, rising in a 3.0-elevation sprawl that defies the horizon. There is no sky, only the distant, dim glimmer of the world above, filtered through a haze of dry, suspended particulate.
+
+There is no water here. The environment is aggressively arid, smelling of ozone and pulverized flint. In place of liquid, there is a pervasive, fine-grained mineral dust that flows like silk over the sharp-edged ledges. Nothing grows in the traditional sense; there are no leaves, no stalks, no soft tissues. Instead, the "vegetation" consists of jagged, crystalline extrusions—brittle, needle-like formations that pulse with a faint, internal rhythm, behaving more like a slow-motion geological clock than a biological entity.
+
+The city—if one can call this dense, industrial hive a city—is built directly into the faces of the rift. It is a masterpiece of frantic, vertical urbanism. Scaffolding made of hyper-thin metallic filaments webs the gap between the two walls, creating a dizzying, three-dimensional grid of transit lines and suspended habitats. Everything is young and sharp; the structures haven't had time to settle or weather. The architecture is all hard angles, freshly cut facets, and raw, unoxidized surfaces. 
+
+This is a world of engines. Small, piston-driven complexes are bolted into the stone, their rhythmic chugging providing a subterranean heartbeat to the silence. Tiny, cold-burning furnaces glow with a dim, violet light, powering a network of magnetic lifts that scream silently as they carry loads up and down the Great Vertical. The density of construction is stifling; every available square millimeter of the rock face has been claimed, bored into, or built upon.
+
+Despite the industrial frenzy, the sound is muted, suppressed by the sheer weight of the surrounding stone. It is a landscape of low-frequency vibrations—a dull thrum felt in the marrow rather than heard in the ear.
+
+The fauna are the most restless element of this pocket-world. They are abundant, scuttling over the scaffolding in vast, shimmering numbers. They are not flesh, but something closer to articulated clockwork—chitinous, multi-legged scavengers with bodies of burnished copper and eyes like camera lenses. They move with a hyperactive, anthill-energy, constantly dismantling and rebuilding the city around them. One moment a bridge exists; the next, a swarm has unmade it to facilitate the construction of a new cooling vent. 
+
+The air is cool, almost biting, circulated by the constant, turbulent motion of the machines and the creatures. It is a place of permanent, frantic change. A building might be erected, occupied, and demolished within a single cycle of the dim violet lights. The instability is not a flaw, but a rule; the rift is settling, the pressure of the mountain above is shifting, and the inhabitants must rebuild faster than the stone can crush them. 
+
+Everything is intimate, layered, and terrifyingly close. To look "out" is merely to see the opposite wall, a mere few inches away, teeming with the same desperate, mechanized life. It is a cathedral of the small, a frantic industrial epic played out in the dark, dry silence of a stone’s heart.

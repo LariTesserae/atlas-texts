@@ -1,0 +1,21 @@
+The location is high, an eagle’s view remnant of a world long since worn smooth. Outside this pocket, the landscape is a testament to geological senility—an endless expanse of sandstone mountains eroded not into peaks, but into slumped, rounded shoulders resembling loaves of dusty red bread. The wind howls over these silent, ancient domes, carrying only abrasive grit. There is no rain. There are no rivers. The water table, if it exists, is miles beneath the solidified crust.
+
+But here, tucked away in a massive, fractured alcove on the leeward face of one of these high stone monoliths, life has established a stubborn, frantic enclave.
+
+It is a hidden world, invisible from the valley floors below and shielded from the sky above by the overhang of the cliff. Entering the cleft, the immediate sensation is a shift in atmospheric pressure and temperature. The dry, thin mountain air is instantly replaced by a thick, warm humidity that smells intensely of musk, fermentation, and crushed herbs.
+
+Despite the absolute lack of external water sources, the alcove is riotously lush. This is not a greenery of flowing leaves and delicate flowers, but a vegetation of desperate conservation. The plant life here is succulent, waxy, and bulbous. Great clusters of plants resembling oversized lithops (living stones) and barrel cacti crowd every available surface. They are colored in deep aubergines, burnt oranges, and necrotic browns, designed to absorb the dim light that filters into the cave mouth. Their skin is thick and leathery, glistening with a precious, oily sheen of trapped moisture. They don't reach for the sun; they huddle together, hoarding humidity in their bloated tissues.
+
+This botanical density is matched, and perhaps surpassed, by the architecture. This is an urban space, tightly packed and furiously busy, constructed with clever, primitive ingenuity. The "buildings" are a cross between Pueblo cliff dwellings and an enormous wasp nest. Structures are built directly onto and into the sandstone walls, utilizing a mortar made from chewed fiber, clay dust, and insect saliva that dries to a ceramic hardness.
+
+Little ovular chambers are stacked upon one another, connected by narrow, tube-like tunnels and precarious walkways made of woven root fibers. There are no straight lines, only organic curves that follow the dictates of the rock and the precious plants that grow right through the living spaces. A thick, succulent vine might serve as a structural beam for a ceiling; a hollowed-out gourd the size of a barrel might serve as a water cistern, collecting the condensation from the breathing walls.
+
+The density of life is overwhelming. The air is never still, vibrating with a constant, loud thrumming sound—the collective noise of millions of insect wings, the chittering of small, six-legged reptilian creatures that scuttle along the walls, and the soft, bustling movements of the city’s primary inhabitants.
+
+These inhabitants are small, nimble humanoids, dwarfed by the ancient rock they occupy. They move with frantic energy through the dim, amber twilight of their home. Their technology is entirely pre-metal. They carry tools made of polished chitin harvested from giant beetles, baskets woven from tough plant fibers, and hammers of smoothed river stones brought up from ancient, dried beds aeons ago.
+
+The fauna is integrated into the city's very function. Large, docile insects the size of tortoises are used as beasts of burden, hauling loads of excavated clay along the narrow paths. Centipedes as long as an arm keep the fungal blooms in check in the lower compost chambers. The air is thick with midges that seem to act as pollinators for the strange, enclosed flowers of the succulents.
+
+It is a closed-loop ecosystem operating at a furious pace. The warmth comes from the sheer metabolic output of thousands of bodies crammed into the stone pocket. The water is recycled with obsessive efficiency—every breath exhaled is captured by the hanging roots of the ceiling plants; every bit of waste is composted by the insect legions to feed the waxy gardens.
+
+It is a loud, smelly, crowded, and incredibly active womb of life, clinging precariously to the high, dry bones of a dead world.

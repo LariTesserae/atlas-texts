@@ -1,0 +1,21 @@
+You find the fissure by accident—a hairline crack in the world’s skin, no wider than a handspan, hidden in the lee of a wind-smoothed hummock of fused grey silt. The air that breathes from it is cool and carries the scent of ozone and cold iron. You press close. The rock yields not with a break, but a sigh—a seam of ancient ceramic composite parting just enough to let you slide through.
+
+Inside: silence ends.
+
+The chamber is no larger than a gardener’s shed. Walls, floor, ceiling—all are the same seamless, gunmetal-grey material, worn to a liquid smoothness by epochs of patient abrasion. No seams, no corners. Light falls evenly from a diffuse source within the material itself: the soft, shadowless glow of a cloudy noon. Coolness settles deep in your bones. This is a pocket. A capsule. A single breath held for ten thousand years.
+
+And it is *full*.
+
+They are not insects. Not animals. Not in any way you were taught. They are automata the size of your thumbnail: six-legged, carapaces of brushed steel and tarnished copper, joints clicking with microscopic precision. Millions of them. *Billions*. They coat every surface in a living, shifting tapestry. They flow in rivulets down the walls, surge across the floor in coordinated tides, cluster in pulsing constellations on the ceiling. Density is not a measure here—it is a condition of existence. To stand here is to be surrounded by motion so total it feels like immersion. A single automaton detached would seem quaint. Together, they are a single breathing entity of purpose.
+
+*Click-whirr-scritch. Click-whirr-scritch.*
+
+The sound is a physical pressure—a rhythmic, industrial heartbeat layered with the whisper of countless limbs on polished stone. Loud, but not chaotic. There is cadence. Pattern. Near the center of the floor, a vortex of them dismantles a relic: the skeletal remains of a gear assembly, no larger than a fist, its teeth worn smooth. Others carry infinitesimal filings toward a hairline seam in the floor. Another cohort polishes a section of wall with obsessive, circular motions, leaving a fleeting mirror-bright patch before the swarm moves on. They repair each other. A damaged leg is swapped in three seconds. A dulled sensor-lens is buffed to clarity by a dozen tiny abrasives. They are maintaining a museum of nothing. Performing rituals for a god that forgot its name.
+
+Scattered through the swarm, half-swallowed by the tide: fragments of their origin. A curved shard of control panel, glass dark. A single brass screw, gleaming like a fossil. A frayed coil of copper wire, green with verdigris. Industrial ghosts. The tech is not advanced—it is *stubborn*. Crude gears, wound springs, simple levers. This was never a cathedral of computation. It was a utility closet. A maintenance node. And these are its janitors, its archivists, its last believers.
+
+They do not react to you. Your heat, your breath, your presence—they are irrelevant data. Their world is the chamber. Their purpose is the chamber. They harvest no energy you can perceive. They consume no water. They leave no waste. They simply *are*, in endless, cool, dry motion. The overwhelming fauna is not biological. It is procedural. A behavior so deeply encoded it has outlasted stars. They are the erosion made active. The ancient made urgent.
+
+Watch closer. In the swarm’s flow, faint glyphs emerge and vanish—a ripple of aligned bodies spelling coordinates no longer valid. A wave of synchronized limb-lifts mimicking a long-dead factory shift change. This is their ecology: memory as metabolism. History as habitat. The weirdness is subtle, almost gentle—the profound unease of witnessing devotion with no object, labor with no outcome. It is unusual not because it is alien, but because it is heartbreakingly familiar: the echo of a hand wiping a counter clean, again and again, long after the kitchen has turned to dust.
+
+The light does not fade. The clicking does not cease. The cool air holds the scent of metal and time. You are standing inside the final, perfect sentence of a story no one remembers how to read. And the sentence is still being written. One tiny, deliberate click at a time.

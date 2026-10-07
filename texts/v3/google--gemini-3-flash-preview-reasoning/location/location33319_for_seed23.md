@@ -1,0 +1,19 @@
+At this altitude, the air is no longer a gas but a shimmering, saturated suspension. You are standing on the **Glass-Reach Plateau**, a jagged shelf of black basalt caught in a permanent state of blinding, white-out brilliance. 
+
+The light here is absolute. It does not come from a singular sun, but seems to be trapped within the very moisture of the air, refracted a billion times by suspended ice crystals and the constant, heavy weeping of the rocks. Everything glitters with a cold, violent intensity that forces the eyes to squint until the world becomes a series of high-contrast silhouettes.
+
+Despite the frigid temperature—a cold that feels like a physical weight against the skin—the landscape is profoundly wet. Water does not fall as rain; it emerges from the stones themselves. The basalt is porous and ancient, worn into smooth, organ-like curves by eons of internal pressure. Every surface is slick, covered in a thin, moving film of melt-water that never quite freezes, kept liquid perhaps by the sheer kinetic frenzy of the place.
+
+You are standing in the center of a "Casket-Town." It is a settlement the size of a cathedral, densely packed into a narrow mountain crease. The architecture is a marvel of primitive, hyper-active desperation. There is no wood here, and very little soil. The "buildings" are thousands of small, pod-like chambers woven from the silk of mountain-spiders and reinforced with thin, hand-knapped flakes of slate. They are piled one on top of the other, forming a vertical labyrinth that clings to the weeping cliffs. 
+
+The technology is rudimentary—bone needles, stone weights, braided hair—but the *density* of the construction is urban. Thousands of these pods are interconnected by swaying bridges of translucent gut-string. It is a city of nests, built with the frantic energy of a hive, yet it is ancient. The lower layers of the town have been absorbed back into the rock, smoothed over by centuries of water-wear until the distinction between "built" and "natural" has dissolved.
+
+The most striking feature is the silence. It is a heavy, pressurized quiet, broken only by the rhythmic *thrum-thrum* of water pulsing through rock. But the silence is a mask for a terrifying level of activity. 
+
+The plateau is crawling with life. Pale, multi-limbed fauna—somewhere between a crustacean and a primate—scuttle across the silk bridges with blurred speed. They are the builders. They do not speak. They move in a state of hyper-dynamic flux, constantly tearing down pods and weaving new ones. The city is never the same for more than an hour. A wall you lean against may be dismantled and repurposed as a roof before you have finished your transit of the square. It is an "anthill-bazaar" of biological motion, a silent riot of construction and destruction.
+
+Vegetation is almost non-existent, reduced to a few patches of iron-grey lichen that glow faintly purple under the intense light, and long, ropey strands of "water-hair" that hang from the high ledges, soaking up the mist.
+
+There is a deep weirdness to the physics here. Because of the saturation and the light, shadows do not behave correctly; they seem to lag behind the objects that cast them, or detach entirely to hover in the mist. The water on the ground doesn't always flow downhill; sometimes it climbs the walls in rhythmic, capillary pulses, drawn upward by the frantic weaving of the inhabitants.
+
+It is a place of exhausted equilibrium. The mountain wants to wash the city away; the cold wants to freeze it solid; the inhabitants want to rebuild it faster than it can die. You stand in the middle of this blinding, frozen, dripping hive, listening to the sound of a thousand soft hands working silk in a world that never sleeps and never speaks.

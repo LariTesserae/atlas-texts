@@ -1,0 +1,15 @@
+This is the Abyssal Sink, a place far removed from the light and air of the surface world. It lies kilometers deep, at the bottom of a trench that has existed since the oceans first formed.
+
+The defining feature here is the water itself. It is not clear liquid, but a hyper-dense, freezing slurry choked with suspended particulate matter—rock flour ground to micron-fine dust over geological eons. This creates an environment of "packed density," where the medium feels thicker than water, almost a gelatinous solid that resists movement. Visibility is zero; the darkness is absolute, a crushing, physical weight.
+
+The terrain is a testament to the parameter of "ancient erosion." There are no mountains, no valleys, no jagged rocks. The floor of the sink is a boundless expanse of basement rock, polished to a mirror-smooth finish by the ceaseless abrasion of the silt-laden water. It is a landscape settled into its final form, a flat, featureless plain of obsidian-hard stone extending for hundreds of kilometers in every direction.
+
+Despite the profound stillness suggested by the polished floor, the environment is intensely "turbulent." Deep, powerful convection currents, driven by geothermal heat leaking slowly from the planet's core, churn the heavy water. These aren't crashing waves, but massive, silent shearing forces—entire cubic kilometers of dense slurry sliding past one another in slow, chaotic motion. This constant churning prevents any sediment from ever settling, maintaining the perpetual abrasion of the bedrock.
+
+The temperature is a uniform few degrees above freezing, a cold that seeps through everything. The pressure is immense, enough to crush the hull of a conventional submarine instantly.
+
+Life is exceedingly "sparse" and "rare." There is no sunlight, so there is no photosynthesis. The base of the ecosystem, such as it is, consists of thin, grayish mats of chemosynthetic bacteria that cling precariously to faint fissures in the polished floor, harvesting the meager chemical energy released by the grinding tectonic plates below. Grazing on these mats are perhaps the only fauna: small, heavily calcified creatures, blind and slow-moving, shaped like flattened disks to resist the current and the crushing weight. To encounter one would be a once-in-a-lifetime event.
+
+The "sound" of the Abyssal Sink is a paradox. The turbulence is silent; the dense water muffles all high-frequency noise. There is only an oppressive, crushing silence, underlined by an ultra-low-frequency vibration that is felt in the bones rather than heard—the grinding drone of the planetary crust itself, echoing through the deep, dense water.
+
+It is a world of primordial simplicity, a place of cold, dark, turbulent homogeneity, where the forces of erosion have won, and everything has been ground down to its most basic, enduring state. There is nothing built, nothing changed by a thinking hand; it is a wilderness of absolute finality.

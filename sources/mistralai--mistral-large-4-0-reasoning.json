@@ -1,0 +1,15 @@
+{
+  "source_id": "mistralai--mistral-large-4-0-reasoning",
+  "requested_endpoint": "mistralai/mistral-large-4-0:reasoning",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-10-07",
+  "date_last": "2026-10-07",
+  "texts": 373,
+  "by_type": {
+    "creature": 123,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 373
+  }
+}

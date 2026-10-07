@@ -1,0 +1,17 @@
+This place exists within a fracture. It is a vertical canyon, no wider than a hand-span at its broadest point, tucked into the jagged, wind-scoured spine of a nameless peak. At this elevation, the air is thin and bitterly cold, yet the interior of the fissure is perpetually slick. It is a landscape of weeping glass and sweating mineral.
+
+The terrain is composed of obsidian-like shards and raw, unweathered silica. Because the site is young—a recent tectonic snap in the mountain’s history—the edges are lethal. Every shelf and overhang is a razor; there is no soft sediment, no grit, only the clean, sharp geometry of broken stone.
+
+There is no green here. No moss clings to the wet walls, and no lichen maps the surface. Instead, the "ecology" is strictly mineral and synthetic. 
+
+Inhabiting the narrow ledges of the fissure is a settlement of impossible density and miniaturized scale. It is a city of needles. Thousands of translucent spires, each no thicker than a sewing pin, rise from the dark rock. They are connected by filaments of shivering silver—bridges that defy gravity, held in place by localized fields that hum at a frequency just above the threshold of hearing. This is urbanism at a molecular, post-physics level. The architecture does not seem built so much as precipitated out of the cold, wet air.
+
+The city is active. Though the scale is hidden, the movement is constant. Pulses of light—cool blues and sharp violets—travel along the silver filaments like data packets or biological impulses. The "buildings" themselves are dynamic; they telescope upward to catch the condensing mist, then retract, shivering to shed excess ice. 
+
+Water is the primary actor here. It doesn't fall as rain but arrives as a heavy, clinging condensation that turns the black walls into mirrors. It collects in tiny, perfectly still basins where the surface tension creates convex lenses, magnifying the intricate clockwork of the city beneath. Every few minutes, a drop grows too heavy and slides down a glass facet with a sound like a crystal bell being struck once, echoing up and down the silent crevice.
+
+The temperature is low enough that the water should be solid ice, yet the city generates a subtle, vibrating warmth—an entropic byproduct of whatever calculations or energy-transfers are happening within the spires. This creates a micro-climate of "perpetual thaw." The air smells of ozone and wet flint.
+
+Fauna is nearly non-existent, save for the "gliders." They are flat, triangular shards of something resembling mica, barely a centimeter across, that drift on the thermal updrafts created by the city’s heat. They are not biological; they are autonomous maintenance units or perhaps the residents themselves, moving with a stiff, geometric grace from one needle-spire to the next.
+
+The rules of this world are dictated by surface tension and electromagnetism. In this pocket-scale metropolis, gravity is a secondary concern compared to the grip of a water droplet or the pull of a static field. It is a place of immense, quiet industry, hidden away in a freezing crack at the top of the world, where a complex, post-material civilization builds itself anew every hour, washed clean by the constant weeping of the stones.

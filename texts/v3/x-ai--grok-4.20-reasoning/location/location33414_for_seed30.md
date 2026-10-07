@@ -1,0 +1,23 @@
+**The Embryonic Grotto of Veyr-Keth**
+
+You stand inside a space no larger than a modest cathedral, yet it feels older than continents. The ceiling arches perhaps forty meters overhead, but the walls press close enough that every sound returns to you thickened and personal. This is high country—thin air should bite, yet the temperature is a steady, damp warmth, like breath against the back of your neck. The warmth does not come from sunlight. There is no sun here.
+
+The rock itself is still being born. Black and rust-red basaltic glass rises in raw, glassy ribs that have never known a true rainstorm; the erosion parameter is almost zero. Instead of being worn, the stone appears to be *extruding*, slow as thought. Fresh extrusions push upward in glossy polyps and branching lattices, their surfaces still soft enough to take the print of a finger for a few hours before they anneal into permanent stone. Weeping fissures seam the new rock everywhere. Water does not fall so much as *emerge*—beading from microscopic pores, sliding in mercury-bright sheets, gathering into trembling lenses that hang in mid-air before they decide to drop. The atmosphere itself is supersaturated; you can watch moisture nucleate on your eyelashes.
+
+Vegetation is almost absent. A few pale, waxy bromeliad-like things cling to ledges, their leaves edged with silica teeth, but they are less plants than condensation harvesters. The real ecology is animal.
+
+And it is loud.
+
+The sound is constant, layered, almost orchestral. A deep subsonic *glottal* pulse—half tectonic, half machine—underlies everything. Over that rides a metallic canopy of shrieks, clicks, wet pops, and ringing chimes. Thousands of creatures the size of thumbs to small dogs move through the dimness. Most are pseudo-arthropods with carapaces of living glass and polymer; others look like translucent geckos whose bones glow soft amber. A flock of what might be bats or living kites wheels in tight formation near the ceiling, their wing membranes patterned with shifting QR-like codes that hurt to stare at directly. They are not simply biological. Many possess components that obey different physics—segments that phase slightly out of local reality, leaving faint after-images like phosphor burn.
+
+Predator and prey here are not separate species but oscillating states. A creature will hunt for six minutes, then freeze, shudder, and become prey as its own exoskeleton reconfigures according to some schedule only the grotto understands. The air smells of ozone, hot stone, and something sweet like crushed almonds.
+
+Scattered among the embryonic geology are the Built remnants. They look like afterthoughts, or perhaps seeds. A single obsidian needle no thicker than a wrist rises from the floor and pierces the ceiling; inside its translucent length, galaxies of nanoscale machines swarm in slow motion. Three meters away, a cluster of perfect chrome spheres the size of oranges hovers in a slow, silent orbit, bleeding faint violet light. One of them is cracked. From the crack leaks a thread of liquid starlight that drips *upward* into a hole in spacetime no larger than a coin. These artifacts are clearly beyond any engineering whose rules you were taught. They do not seem to be ruins. They seem to be *instructions* the landscape is still trying to obey.
+
+Light is both dim and multiple. A cold, directionless phosphorescence leaks from the freshest rock. The hovering spheres add their violet. Certain animals flash bioluminescent glyphs across their bodies in rapid conversation. The total effect is twilight filtered through stained water—everything appears both intimate and infinitely deep.
+
+The rules of this place are still being written. Gravity forgets itself in certain pockets; you can feel your weight shift by a few percent as you walk. Sound occasionally lags behind its source. If you remain still long enough, you may notice the walls breathing—slow, geological inhalations that draw condensation inward, followed by exhalations that birth new glassy ribs and new animals at the same time.
+
+This is not a finished world. It is a small, loud, wet womb at high altitude where something is deciding what physics it will eventually settle on. The abundant life, the impossible machines, the constant dripping and shrieking and humming—all of it feels like the noise a mind makes while it is thinking itself into existence.
+
+Stay long enough and you begin to feel it thinking about *you*, too.

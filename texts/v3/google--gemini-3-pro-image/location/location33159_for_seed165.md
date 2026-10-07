@@ -1,0 +1,15 @@
+This is a place at the roof of the world, an immense glacial amphitheater gouged out of bedrock so old it feels dead. You stand at a dizzying altitude, far above a sea of curdled, bruised-purple clouds that hide the earth below. Here, the sky is not blue, but a heavy, oxidized iron-grey that never brightens beyond twilight.
+
+The scale is tremendous, a landscape of sheer drops and jagged pinnacles extending to a warped horizon. The density of matter is low; it is mostly terrifying volumes of empty, freezing air framed by colossal walls of stone. The rock is dark—slate, basalt, and ancient granite—polished to a greasy sheen by aeons of ice that have long since retreated. This erosion is finished; the land has settled into its final, brutal form.
+
+It is brutally cold, the air thin and biting, tasting of minerals and frost. Yet, everything is damp. A pervasive, slick moisture clings to every surface. It is not raining, but the air is supersaturated, hovering just below freezing. Droplets hang suspended on the undersides of overhangs, refusing to fall. A massive waterfall spills over a distant cliff face, but it is frozen in time—a glittering, motionless curtain of white water and ice, arrested mid-cascade, silent and still.
+
+Despite the visual stillness, the world is deafeningly loud. A constant, resonant roar fills the void, a sound like a jet engine firing endlessly just beyond the ridge line, or the grinding of tectonic plates deep beneath your feet. It is a physical pressure against the eardrums, a vibration felt in the bone. There is no wind to explain this noise; the air is perfectly stagnant. The sound is an inherent property of the place, a standing wave of noise that never fluctuates in pitch or volume.
+
+Vegetation is almost non-existent. Only the hardiest black crustose lichens cling to the sheltered sides of boulders, looking more like geological stains than life. They are brittle and frozen, perhaps dead for centuries.
+
+The weirdness of the place manifests in the static nature of reality. The laws of physics feel gummy and unreliable here. Gravity doesn't pull straight down; it has a subtle, nauseating tug toward the nearest large vertical rock face, making walking a constant fight against falling sideways.
+
+Scattered across this high-altitude wasteland are the only signs that anything else has ever been here. They are crude structures: immense cairns and pillars of stacked, unworked stone. They are solitary things, separated by miles of empty rock. Their construction defies the natural order; massive boulders are balanced precariously on small, pointed pivot stones, arrangements that should collapse instantly under normal gravity. They stand perfectly still, vibrating slightly with the ubiquitous roar of the landscape.
+
+Rarely, across a vast gulf of empty air, you might spot movement that isn't movement. A shaggy, goat-like creature, immense and hunched, stands perched on a needle-thin spire. It does not breathe. It does not twitch. Like the waterfall, it seems caught in a shutter-speed freeze, trapped in the eternal, deafening present of this high, cold hell.

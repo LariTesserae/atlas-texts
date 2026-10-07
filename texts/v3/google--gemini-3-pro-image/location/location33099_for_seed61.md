@@ -1,0 +1,19 @@
+You must descend a significant distance through tight, natural fissures in the bedrock before the air changes. It becomes uncomfortably cool, a clammy chill that settles on the skin. Simultaneously, the silence of deep earth is replaced by a noise that grows rapidly from a hum to a deafening, resonant roar.
+
+You emerge into a pocket-world, a geode-like cavity completely hidden beneath the surface. It is not a large cavern, perhaps only the size of a cathedral nave, but the use of space is maniacally intense.
+
+This is a city carved from the inside out. The dominant impression is one of overwhelming density and wetness. Every available surface of the enclosing rock has been worked, hewn by hand using tools harder than the native stone. It is an urban hive compressed into a geological fault.
+
+There is no plant life. Not a spore of moss, not a strand of fungi. It is a purely mineral existence. The structures are carved directly from the dark, basalt-like matrix, or built up from a mortarless, stacked pale stone that looks like calcified bone. These dwellings are small, cell-like, stacked dozens deep, sharing walls, ceilings, and floors in a chaotic, dizzying honeycomb. Narrow bridges, mere slivers of stone just wide enough for a foot, span the gaps between these clusters, forming a dense lattice of transit overhead and underneath. You have to squeeze sideways to navigate the "streets."
+
+Everything weeps. The air is so saturated with moisture at this cool temperature that the stone surfaces are perpetually coated in a slick, shivering film of water. It drips constantly from the stalactite-like undersides of the bridges and the lintels of the tiny doorways. Below, the floor of the cavity is a churning, black soup of mud and water, fed by unseen fissures and draining into others, a localized hydrological cycle that never ceases.
+
+The light is terrible. There is no sky, no fire. The illumination comes from the rock itself—veins of a quartz-like mineral that emit a weak, sickly greenish phosphorescence when wet. Because everything is always wet, the city glows faintly, the light catching the slick surfaces and throwing deep, confusing shadows that make the dense architecture seem to shudder.
+
+The noise is unbelievable. It is the sound of water amplified a thousandfold by the acoustics of the enclosed stone chamber. Rushing cataracts are hidden behind walls, dripping echoes bounce endlessly between the tight structures, and beneath it all is a low, grinding vibration—the sound of the earth shifting infinitesimally, amplified into a perpetual groan. It is a wall of sound so thick it feels physical.
+
+This place feels incredibly old. The carvings on the doorways—spirals and angular, non-representational patterns—are worn almost smooth by aeons of moisture and touch. The stone stairwells have deep depressions worn into the treads.
+
+Despite the noise and the water, there is a sense of profound stasis. Nothing is being built here; nothing is crumbling away. The water flows in a perfect, unchanging volume. The temperature never fluctuates. The dim light never wavers. It is a finished world, a primitive urban organism caught in a permanent, roaring equilibrium.
+
+Only rarely do you catch sight of the inhabitants. In the deep shadows of a lower level, a pale, segmented shape, perhaps the size of a human forearm, might scuttle across a wet bridge. They are blind, chitinous things, moving with mechanical precision, performing some obscure maintenance on the stone that has been their entire universe for geological ages. They are few, vanishingly rare amidst the density of their empty dwellings, ghosts in a loud, wet, stone machine.

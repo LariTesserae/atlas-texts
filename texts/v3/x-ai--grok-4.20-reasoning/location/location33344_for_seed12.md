@@ -1,0 +1,29 @@
+**The Veiled Ascent**
+
+You are not in the deep. You are in the high and the drowned at once.
+
+The water presses warm and heavy, 2.9 parts of the world. It is not the black crushing cold of abyssal trenches; it is a thick, living twilight, the color of old amber and weak tea. Light arrives from above in exhausted shafts, dimmed by uncountable meters of suspended silt, pollen, and the slow exhalations of the world itself. Every ray fractures into soft gold and muted violet before it reaches the structures below. The temperature never drops. It lingers at the edge of fever.
+
+This is high country. The seafloor here is an immense, tilted plateau that would be alpine if the ocean had never come. In the before-time something lifted the rock violently and quickly; the stone is still raw, embryonic, almost embarrassed by its own newness. Erosion has barely begun. Cliffs rise in sharp, improbable geometries—fractured basalt like broken obsidian, pale ridges of newborn limestone that have not yet learned how to round themselves. Great shelves of stone hang half-finished, as though the planet is still deciding what shape it wants them to take. Some faces are so fresh they look wetter than the water.
+
+Out of this raw geology the city grows.
+
+It is not built upon the stone so much as it is still being secreted by it. Primitive hands—four-fingered, broad-palmed, the color of wet slate—have shaped the emerging rock while it was still soft. Walls are half carved, half coaxed. Streets follow the natural cleavage planes of the newborn cliffs, widening where the stone allowed, narrowing where it resisted. The architecture is dense, layered, near-touching. One structure’s roof is another’s foundation. Terraced districts climb the submerged slopes like fungal shelves, each level older and more overgrown than the one below. Because the geology itself is still rising—slowly, patiently, over centuries—the lower districts are gradually being swallowed while new floors are added above. The city is both sinking and ascending at the same pace. No one seems distressed by this.
+
+Vegetation has answered the warmth and the dimness with ecstatic, almost obscene lushness. Kelp-like fronds the color of oxidized copper rise in dense braided columns, so thick in places they form living walls between districts. Bioluminescent mosses cling to every raw stone face, giving off a cold green light so faint it feels more like memory than illumination. Vast mats of pale sea-lilies hang in the gentle currents, their stalks so closely packed they create slow, underwater meadows that sway in unison like breathing. Everything touches everything else. The saturation is total.
+
+Yet the animals are rare. You might drift for hours through the thickets and see only a single silver ribbon of something eel-like, or a cloud of translucent shrimp no larger than gnats. The ecology here has chosen stillness over speed. Life prefers to root, to accrete, to wait. The few creatures that do move do so with ceremonial slowness, as though the water itself punishes haste.
+
+Sound is muffled to the edge of silence. What little there is arrives late and low: the distant creak of stone still settling into its new shape, the soft wet click of chisel against living rock, the occasional low resonant note as someone strikes a tuned stalactite to carry messages through the water. Voices, when they come, are felt more than heard—subtle pressure changes against the skin. The inhabitants speak half in gestures, half in modulated pulses of their own bioluminescence.
+
+The strangeness reveals itself gradually.
+
+The water is not entirely water. In certain folds of the plateau it thickens into something else—cooler, heavier, almost oily—without ever becoming a different substance. These slow rivers inside the ocean follow their own invisible topography. The locals call them “the old blood.” Structures built across these invisible boundaries grow differently on each side; one wall will be sharp and geometric, the other soft and coral-boned. Time itself feels stretched. A child born on the lower terraces will still be young when the district they were born in has sunk another story into the stone.
+
+The city has no name the surface world would recognize. Its people call it something that translates, roughly, as “What Is Becoming Allowed to Finish Becoming.” They do not fight the slow geologic birth happening beneath and around them. Instead they participate. Their tools are simple—stone chisels, shell blades, wooden pries hardened in volcanic vents—but their patience is geologic. They build a wall knowing it will be half-submerged again in their grandchildren’s lifetime. They plant a new thicket of copper-kelp knowing it will outlive every soul currently alive. The entire settlement is a single act of collaborative emergence.
+
+Above, the surface is so far away it has become theological. Light still reaches here, but only as rumor. Below, the plateau drops away into true darkness where even the locals do not go. The city therefore exists in a permanent suspended middle—high enough for faint light, deep enough to be drowned, new enough that the stone has not yet decided what it wants to be when it grows up.
+
+You drift between two half-finished towers. A worker is gently tapping at the rock face with a bone mallet, encouraging the stone to grow in the direction she needs. A curtain of sea-lilies drifts past, brushing her back like a mother’s hand. She does not hurry. Nothing here hurries.
+
+The world is still being born, and the people have chosen to be born along with it, warm, dim, and patient, in the thick amber twilight of a city that has never been finished and never will be.

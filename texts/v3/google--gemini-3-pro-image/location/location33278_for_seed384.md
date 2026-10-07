@@ -1,0 +1,15 @@
+The primary sensation is weight. You are deep—abysmally deep. The ocean here is not a blue expanse but a crushing, black solid that happens to be liquid. The pressure is a physical vise, an ever-present threat that defines the physics of the space. The cold is absolute, a penetrating chill that hovers just above freezing, turning the water thick and syrup-heavy. Light does not visit this place from above; the darkness is total, save for faint, localized gleams that fight a losing battle against the gloom.
+
+This is a drowned junction of high industry, a dense knot within a much larger, sunken metropolis. The scale is simultaneously grand and claustrophobic. You are navigating a narrow canyon, but the walls are not rock; they are the facades of colossal factories and tenements jammed together, leaning precariously inward.
+
+The architecture is heavy, riveted, and utilitarian—a testament to a civilization obsessed with steel and steam before the flood claimed it all. It is incredibly dense. Every available volume of space is choked with infrastructure. Massive bundles of pipes, some wide enough to drive a truck through, snake between buildings like petrified arteries.Gears the size of clock towers are meshed together, frozen in time. Catwalks form complex lattices that have become coral reefs of rust.
+
+Erosion has settled heavily over everything. This is not a fresh wreck; it has been down here for centuries, perhaps millennia. The hard edges of metal have been softened by thick coats of velvet-textured rust and barnacle-like manganese nodules. Concrete structures have dissolved into rounded, organic shapes, their rebar skeletons exposed like ribcages. The entire landscape is coated in a fine, gray silt that billows in slow-motion clouds at the slightest disturbance.
+
+Despite the crushing silence—broken only by the deep, resonant groan of metal settling under pressure, a sound felt more in the chest than heard—the place is bizarrely active. The weirdness lies in this mechanical undeath.
+
+Some deep geothermal source or ancient, failing power grid still feeds juice to the dead city. In the center of this industrial canyon, a massive flywheel, three stories tall, turns with agonizing slowness. It fights the immense drag of the deep water, churning the silt in a ceaseless, pointless rotation. Elsewhere, a conveyor belt shudders and inches forward every few minutes, carrying nothing but a coating of deep-sea slime.
+
+Life here is sparse and ghostly. There is no green vegetation. The only organic structures are pale, grayish mats of chemosynthetic bacteria that cluster around cracked pipes leaking faintly warmer, sulfurous water. Fauna is rare and slow. Occasionally, a spindly, translucent crab, blind and delicate as spun glass, picks its way across a rusted girder. A lone, ribbon-like eel, black as the surrounding water, might drift silently through the blown-out windows of a submerged machine shop.
+
+It is a tomb that refuses to stop working, a dense, freezing monument to industry swallowed whole by the patient, crushing sea.

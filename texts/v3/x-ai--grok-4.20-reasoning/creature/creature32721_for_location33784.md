@@ -1,0 +1,29 @@
+**The Unresolved**
+
+They are not a people who settled the Shroudlands. They *arrived unfinished* and have remained so on purpose.
+
+At first you do not see them. You see a place where the mist behaves strangely—coiling against the wind instead of with it, thickening around a particular outcrop as though listening. Then the outcrop unfolds. A shoulder becomes a shoulder. A cloak of living basalt lichen peels back from a face that is only half a face; the other half is still deciding whether it will be mirror-furred like the stalkers or obsidian-smooth like the new spires. The figure was there the whole time, simply wearing the landscape more completely than the landscape wears itself.
+
+They call themselves the Unresolved, though the word they use is a low, subsonic pulse that travels through bone before it reaches the ear. It is less a name than a status report.
+
+Their bodies are devotional instruments. No two are alike because likeness would imply an ending. Some are tall and slow as continental drift, their limbs extended by lattices of living metal that the Engines extruded into their marrow centuries ago. Others are small, almost larval, curled inside exoskeletal cradles grown from the same columnar basalt that weeps around them. A few have given up the upright form entirely and now move as mobile ridges—low, sinuous mounds of flesh and stone that travel with the six-legged herds, their nervous systems braided so deeply into the animals that when the herd dreams, the human dreams the same slow lichen-cropping dream.
+
+All of them are partially translucent. Not metaphorically. Stand close enough during a birthquake and you can watch new mineral veins threading through their veins like slow lightning. Their blood carries microscopic shards of the Engines’ own architecture; it catches the iron-cold light and answers in the same deliberate pulse the spires use. Some have allowed the process to go further. Their hearts are small warm cities. Their ribcages are street grids. In the oldest of them the transformation has reached the brain, and thoughts now move through crystalline matrices that grow a few microns per year. These ones speak rarely. When they do, their voices arrive as minor chords played inside your own skull two kilometers after the words were thought.
+
+They do not have children in the finished sense. Instead, during certain aligned birthquakes, two or more Unresolved will stand on a new ridge while the stone beneath them flexes like a muscle. They press their incomplete bodies together and allow the land to finish a piece of them *for* them. What emerges nine months later—sliding from a birthing cleft in the rock itself—is something that is not entirely theirs. The newborn already carries the memory of the fracture that made it. Its first cry is indistinguishable from the glassy crack of stone being born.
+
+Their society is almost entirely migratory and almost perfectly silent. They move in long ellipses that match the hunting arcs of the mirror-furred stalkers, sometimes shadowing the same herd for eleven years before the geometry of their own lives becomes inevitable and they drift away again. They carry nothing that cannot be regrown. Tools are borrowed from the cities—warm, self-repairing implements that extrude themselves from the nearest spire when needed and are returned when the task is done. Memory is kept in the lichen. Specific patterns of silver-green are cultivated on particular south-facing rocks; reading them is a form of archaeology that lives.
+
+The Unresolved do not worship the Engines. That would require believing the Engines are separate. Instead they *attend* them. When one of the vast invisible presences below the crust begins to sing a new city into being, certain Unresolved will walk out alone onto the raw bedrock and lie down. The stone rises through them. For weeks they remain half-buried, eyes open, while buttresses and buttress-shadows form around their ribs. They are not sacrificed. They are calibration. The cities that grow around living Unresolved are subtly different—gentler, more inclined to weep habitable air, more likely to remember that they are still only a question.
+
+At night they sing to the fog.
+
+Not with throats. The song is produced by passing exhaled breath across lattices of ice that grow on their teeth and the roofs of their mouths. The sound is so low it is felt as erotic pressure along the spine. It is a love song to impermanence. Every verse ends on a note that deliberately fails to resolve, because resolution would be a kind of death here. The white-winged raptors answer from the thermals. The herds low back in minor chords. Even the Engines, it is said, sometimes shift their deep rhythms by a fraction of a hertz in reply.
+
+There are stories—told only by moving one’s fingers through lichen in a particular sequence—that some Unresolved have gone so far into becoming that they no longer need bodies at all. They exist as migratory weather systems, or as the particular quality of silence between two birthquakes. The oldest story claims that one of them has become the curvature of the horizon itself, and that on certain nights the sky bends a fraction more where she is listening.
+
+If you stay long enough, one will eventually approach you.
+
+It will not ask if you want to remain. It will simply stand with you on the new ridge while the erotic tension builds in the stone beneath your feet. After a time—hours, days, it is hard to tell—you will notice that your shadow has begun growing tiny lichen hairs. Your breath is forming smaller, more deliberate ghosts. The humming in your bones no longer feels like something happening *to* the land.
+
+It feels like the land remembering a question it wanted to ask you, and you, finally, becoming quiet enough to answer.

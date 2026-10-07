@@ -1,0 +1,17 @@
+I am suspended between seventeen and eighteen, where the hydroponic stacks rise like vertebrae against the mountainside. The rope of woven mycelium creaks beneath my weight—not a sound, but a pressure, a vibration that travels up my forearms to the bioluminescent culture budding on my wrist. It pulses once, twice in the blue-gray twilight: *steady. hold. the tray is heavy with harvest.*
+
+My feet grip the grating of the level above, broad and splayed, toes webbed from generations of wetness. My fingers brush the fronds of the ferns, emerald and impossibly saturated, dripping nutrient solution that falls in slow, rhythmic beads onto the tray below, and below that, seventeen more times, a vertical cascade until it reaches the fermentation vats where the Old Ones sit motionless, their chests rising and falling in time with the steam vents.
+
+I am a Gardener of the Vertical. My skin is a secondary membrane, perpetually damp from osmotic balance with the saturated air. The algae buds in the creases of my elbows, behind my ears, along my spine—a living wetsuit, emerald and faintly phosphorescent, filtering the metallic high-altitude air, breathing for me when the atmosphere grows too thin. I do not speak. Voices die here, absorbed by the mist. Instead, I press a palm flat against the steam pipe that snakes past my shoulder, transmitting the subsonic thrum of the condensers, news from the lower levels, the heartbeat of the machinery felt in my sternum rather than heard.
+
+I touch the shoulder of the Keeper descending below me—wet, insistent—and they know: *I am here. the path is safe. the water is rising.*
+
+Above, a Mist-Catcher shakes the fog-nets strung between the towers. Silver curtains sheet down, feeding the open aqueducts that carry channels of jade-green water, ribbons of algae film coating every surface. I feel the turbulence in the air—the systolic pulse of the thermal cycles, the city expanding and contracting, breathing.
+
+I prune a frond. It comes away in my hand, wet and heavy with chlorophyll. I drop it into the pneumatic capsule at my hip. It hisses away—compressed air carrying matter—down to the bio-reactors where it will be composted, distilled, fed to the engineered cultures that bubble in the deep dark. One day, my own body will travel this same path. I will be carried down, my moss-mantle and all, to feed the algae, to become nutrient solution, pumped back up through seventeen levels of filtration to feed the ferns that feed the living. It is a closed loop. A perfect circle of wetness.
+
+I do not cough. I do not sneeze. The air tastes of iron and ozone, sharp in the lungs, but my lungs have adapted to extract oxygen from the saturated atmosphere, to pull moisture and metal from the weeping air. I simply *am*—in a state of weathered balance, my calcified rivulets mapping the paths water has chosen on my skin, mirroring the curtains of calcium and salt that grow slowly on the facades around me.
+
+The light is dim, diffuse, internal. The sun is a pale disc somewhere above the ceiling of saturated gray, but here, suspended in the dripping dark between levels, I glow with my own luminescence—a constellation, brief and bright, three meters of visibility, then vanishing into the mist to reappear elsewhere.
+
+I am necessary. I am invisible. I am the nutrient flowing through the circulatory system of the anthill, the green pulse in the weeping machine, the condensation that falls and rises again, utterly, irrevocably at home in the green dark between the levels.

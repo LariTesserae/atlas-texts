@@ -1,0 +1,21 @@
+The descent is long, and the air thickens with every meter, growing hotter and heavier until it tastes metallic on the tongue. You arrive not in a cavern, but in a compression.
+
+This place is buried deep, wedged into a geological fault that seems to have ripped open only yesterday. The surrounding rock is not smooth or cavernous; it is violent, jagged obsidian and raw basalt, fractured into razor-sharp facets that gleam wickedly in the gloom. It feels temporary, as if the earth is merely pausing between spasms before crushing this pocket out of existence.
+
+Into this unstable wound in the stone, a dense, chaotic industrial structure has been hammered. It is a claustrophobic warren of heavy engineering, a vertical urbanity built not for people, but for processes. There are no sweeping vistas here, only a choked lattice of rusted girders, thick brass piping, ceramic insulators the size of barrels, and catwalks with grating so fine they feel like solid floors. The scale is deceptively small—perhaps the volume of a small cathedral—but it is so densely packed with machinery that you can rarely see more than ten feet in any direction before your view is blocked by a firewall of greasy gears or a bank of pressure gauges.
+
+The heat is nearly unbearable. It radiates from the rock walls, which are too hot to touch, and blooms from the machinery. Yet, paradoxically, the air is saturated with moisture. It is a sweat-box gloom. Condensation perpetually collects on cooler overhead conduits, growing heavy in the dim light before dropping. The water hits surfaces below—sometimes sizzling instantly into steam on a hot engine casing, other times pooling sluggishly in oily indentations on the floor. The air is a constant, stifling fog of low-hanging vapor and evaporated lubricants.
+
+Light is scarce and sickly. Amber industrial lamps in heavy wire cages are bolted precariously to the rock faces and steel beams. They cast pools of jaundice-yellow light that fail to penetrate the deep shadows between the machines. The shadows seem thicker here, weighted down by the heat.
+
+Despite the density of the industry and the oppressive atmosphere, the strangest element is the quiet. There is no roar of furnaces, no cacophony of hammering. The soundscape is hushed, almost devotional.
+
+The place is terrifyingly active, but silent.
+
+Massive flywheels, three stories tall, spin with terrifying velocity, yet they are perfectly balanced in frictionless magnetic bearings, making no sound other than the faintest displacement of heavy air. Conveyor systems consisting of intricate chains and hooks cycle endlessly overhead and through narrow apertures in the rock, but they carry nothing. Pistons the size of tree trunks slide slowly, smoothly, in and out of oiled cylinders, driving shafts that connect to nothing visible.
+
+It is a ghost factory, automated to perfection, running perpetually for a purpose long since forgotten or disconnected. The only sounds are the rhythmic *drip-hiss* of the condensation, the occasional groan of metal expanding under the intense heat, and a super-low frequency thrum that vibrates in the chest cavity rather than the ears—the sound of geothermal energy being harnessed by silent dynamos.
+
+There is absolutely no animal life. No rats scuttle along the oily gratings; no insects cluster around the hot lamps. The heat is too intense, the air too chemical. The only concession to biology is a strange, sparse "vegetation" that has adapted to this hellish niche. Where the condensation drips most frequently onto cooler metal, brittle, crusty mats of chemo-synthetic bacteria grow. They look like patches of vibrant orange and deep purple rust, flaking away if touched, feeding solely on the mineral-rich water and the ambient thermal radiation.
+
+The rules here are simple: Don't touch the metal, or you will burn. Don't touch the rock, or you will cut yourself. And do not interrupt the silent, ceaseless motion of the machines, which spin on in the stifling dark, waiting for inputs that will never come.

@@ -1,0 +1,17 @@
+This is the Foundry of the Deep Basin, though no one remembers who founded it or what it was meant to cast.
+
+The landscape opens up as a sprawling depression, a region-wide sinkhole lined entirely with metal. There is no earth here, no bedrock underneath. If you were to dig through the floor, you would only find compacted strata of crushed engines, flattened girders, and calcified gears, compressed by aeons of weight into a new kind of geological layer. The terrain is vast and relatively flat, but it is a flatness achieved through unimaginable wear. The ground is slick, uneven iron plating, worn as smooth as river stones by the passage of time and constant friction.
+
+It is perpetually twilight here. The primary light source is the dull, orange glow of molten slag bleeding from cracks in the floor, or the sudden, blinding blue-white flash of an arc welder striking somewhere in the distance, casting long, shivering shadows that vanish instantly.
+
+The air is cold and thick, heavy with the taste of copper and ozone. It is a wet cold. A greasy, persistent drizzle falls from the unseen upper reaches of the basin, coating everything in a shivering sheen. Where the heat of the machines meets the frigid damp air, massive banks of steam rise, coiling like phantom wool around the structures, obscuring the true extent of the space.
+
+The dominant feature of this place, before sight, is sound. It is a monolithic roar that vibrates the marrow. The grinding of metal on metal is constant—a tectonic screeching that never abates. Underneath it is the rhythmic thrum of building-sized pistons firing in sequence, a deep, bass heartbeat that shakes the puddles of oily water on the ground. Hisses of venting pressure cut through the din like knives. It is deafening, a wall of noise that makes thought difficult.
+
+Rising from the smooth, metallic plains are the machines. They are sparse, separated by kilometers of empty, slick flooring, standing like isolated mountains. They are ancient things, their original forms obscured by accretions of rust and repair. They look less like constructed objects and more like natural formations of iron that have been eroded by an industrial weather system. Their sharp edges were lost millennia ago, rounded off into organic, bulbous shapes by ceaseless operation.
+
+One structure, the size of a cathedral, is a complex of towering smokestacks that no longer belch smoke, but instead siphon the damp air, condensing it into rivers of coolant that cascade down its sides into open troughs. Another, kilometers away, is a massive, slow-moving conveyor belt, kilometers wide, carrying mountains of broken metal scrap from nowhere to nowhere, the material tumbling endlessly as the belt cycles.
+
+There is almost no life. In the deepest shadows, where the oily condensation pools, strange, wiry growths cling to the metal—vines of spun copper and leaves of crystalline rust, feeding on the electrical leakage and the chemical soup. They are brittle and sharp. There are no animals. The noise would shatter them.
+
+The landscape is terrifyingly active. It is a closed-loop ecosystem of mechanics. Great jaws of automated salvage machines chew on the edges of the basin, consuming the landscape itself, only for other, unseen processes to re-forge the material and deposit it elsewhere. It is a world settled into its final form: an eternal, mindless churn of industry, grinding itself down, forever wet, forever loud, and forever alone in the dark.

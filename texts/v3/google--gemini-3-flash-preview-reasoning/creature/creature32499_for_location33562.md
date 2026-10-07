@@ -1,0 +1,25 @@
+The inhabitants of this vertical empire do not possess a word for "falling." To them, the air is not an empty void, but a viscous medium of updrafts, steam-rivers, and magnetic currents. Life here is defined by the **Grip**.
+
+### The Latch-Folk
+The dominant humanoid presence is a culture of rhythmic climbers known as the Latch-Folk. Their physiology has drifted far from the blueprints of their ancestors. Their fingers are long, tipped with calloused pads and reinforced nails that have the tensile strength of spring-steel, allowing them to hang from a rusted rivet for hours without fatigue. Their skin is the color of a bruised sunset—a mottled palette of deep ochre and hematite-grey, often stained with the vivid emerald of the copper-algae they brush against.
+
+They move with a slow, three-point-contact grace, treating the sheer faces of the geothermal processors as a horizontal plain. To a Latch-Walker, a vertical wall is a wide road, and a transit tube is a bridge. They wear garments of "woven steam"—fine, translucent membranes harvested from the filter-sacs of the ventilation turbines, which trap the heat of the sun while shedding the constant, oily rain. 
+
+### The Harmonic Listeners
+Deep within the recessed valleys, where the sun is a mere golden thread a mile above, live the Listeners. They are pale, almost translucent, their eyes widened into huge, lidless orbs to catch the stray photons reflecting off the verdigris. They do not communicate with speech; instead, they hum in resonance with the world’s industrial heartbeat. By pressing their chests against the thrumming polymer walls, they can sense a structural failure three tiers away or the approach of a heavy elevator ten miles above. They are the doctors of the machine, plugging leaks with waxy vine-resin and guiding the "green insurrection" to reinforce weakening struts with woody growth.
+
+### The Aurelian Gliders
+In the upper atmosphere, where the air is a golden soup of heat and metallic dust, the inhabitants are lighter, more avian. These are the descendants of those who never left the sun-shades. They possess hollow bones and wide, skin-membrane capes that catch the thermal plumes rising from the exhaust ports. They rarely touch the metal, spending their lives circling the towers like sparks caught in a chimney. They hunt the **Shimmer-Flies**—tiny, winged automatons that have gone feral, their circuits long ago replaced by bio-luminescent fungi that feed on the sun’s radiation.
+
+### The Scavenger-Beetles and the Iron-Mites
+The "fauna" of this world is a blur between the biological and the mechanical. 
+*   **The Bolt-Mimics:** The iridescent beetles mentioned in the blueprints have evolved into something more complex. They don't just look like rusted bolts; they consume the rust, processing the iron oxide into a high-density shell. They are the primary recyclers, crawling in slow, methodical grids across the cantilevered terraces, cleaning the surfaces for the next layer of moss.
+*   **The Cable-Weavers:** Small, multi-limbed mammals with fur like spun copper wire. They live in the "canyons" between the residential monoliths. They carry the seeds of the waxy vines in their cheek pouches, deliberately planting them along the tension cables to create soft, organic walkways that dampen the shriek of the wind.
+
+### The Great-Wings
+The birds of this realm are not creatures of feathers, but of stiff, rectangular membranes that vibrate with a low, metallic chime as they bank against the wind. They are the apex predators of the chasms. Their talons are specialized—not for piercing flesh, but for locking onto the edges of the ventilation blades. They nest in the "dead zones," the silent pockets of the structure where the gears have seized. Here, they raise their young in beds of shredded insulation and dried fern-fronds, feeding them the protein-rich grubs that grow in the damp, warm shadows of the steam pipes.
+
+### The Spirit of the Place
+There is a profound patience in everything that lives here. Because the elevators are slow and the distances are monumental, the inhabitants have a different relationship with time. A conversation between two Latch-Folk on opposite sides of a chasm might take a week, conducted via slow-motion semaphore or the release of scented spores that drift across the gap. 
+
+They do not fight the machines, nor do they worship them as gods. They view the great, staggering towers as a coral reef—a massive, calcified skeleton that provides the framework for their existence. They are the soft tissue of a metal giant, the living green velvet that grows in the wrinkles of an ancient, iron skin. They live in the "Eternal Afternoon," a state of being where the sun never truly sets, the rain never truly stops, and the heart of the world never misses a beat.

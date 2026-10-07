@@ -1,0 +1,30 @@
+**The Hollow Lattice**
+
+You stand on a surface that is not ground. It is skin. A resilient, living membrane—dense moss interwoven with hair-fine rootlets and microscopic ferns—covers everything in every direction. Step and it gives a fraction, then springs back, as though the planet itself is breathing. This carpet is only a few hand-spans thick. Beneath it lies cold, porous matter that is half rock, half ancient plant tissue compressed into something that behaves like bone. The whole world is an organism that has not yet decided what it wants to become.
+
+The air is thin and mercilessly cold. At this elevation the sky should be close enough to scrape your scalp, yet the true sky is lost somewhere far above a permanent lid of iron-gray cloud and upper canopy. What light reaches here is stolen: a miserly, dusty twilight the color of old pewter. The only reliable illumination comes from within—colonies of bioluminescent lichen that bloom in slow pulses along the great structures, breathing out soft greens and corpse blues that never quite add up to vision. You see shapes the way a blind man sees afterimages.
+
+Distance is the first horror.
+
+The scale is wrong. Between the living landmarks lie hundreds of kilometers of almost nothing. The carpet stretches away until it fades into black mist. Wind travels these empty reaches unchecked and arrives at the far side still carrying the low, endless roar it learned on its journey. That roar is the dominant sound—deep, organ-like, never silent. When it drops for a moment you can hear the secondary chorus: the wet creak of sap moving under pressure inside trunks thicker than cathedrals, the thunderous pop of ice splitting new growth, and the voices of the fauna, tuned to carry across void.
+
+The vegetation has solved emptiness by becoming architecture. Every few hundred kilometers a Colossus rises. They are not trees. They are closer to continents that learned how to stand upright. Each one is a single genetic individual, a lattice of fused trunks, buttresses, vaults, and hanging curtains of aerial root that together form a mountain made of plant. Their edges are viciously young—raw spears and serrated plates of fresh cellulose that have not yet been rounded by wind or time. Some of these new growths are still lengthening visibly over days, splitting the air with sharp wooden cracks that echo for an hour.
+
+Condensation is the only rain most of the lattice ever receives. The upper vaults of the Colossi are cold enough to wring water from the thin air; it beads, runs, gathers into silver threads that race down living channels, sometimes plunging hundreds of meters in shining ropes before exploding into mist. Where the water touches the carpet it forms temporary black mirrors that last a day or two before the moss drinks them. There are no true rivers. Only these intermittent, wandering veins that appear and vanish according to the breathing cycle of the plants.
+
+Life clusters around the Colossi like pilgrims at the feet of indifferent gods. The fauna is abundant but localized; the empty spaces between are almost sterile. Around each living mountain you find herds of shaggy, six-legged browsers whose hides are themselves mossy. Swarms of membranous insects the size of hawks ride the updrafts between the vaults, flashing silver when they catch the meager light. Predators move in low, patient packs that howl in layered harmonics so the sound wraps around the buttresses and returns from unexpected directions. Some of the larger creatures have developed plant-like symbionts—green veining across their flanks, slow photosynthetic patches that let them survive the long treks between Colossi.
+
+There is something wrong with the growth itself.
+
+Portions of the lattice twitch when they think no one is looking. Vast sheets of bark will suddenly ripple as though a shiver ran the length of the continent. At unpredictable intervals a Colossus will “sing”—a subsonic thrum that vibrates every bone in your body and makes the carpet stiffen like frightened skin. The native inhabitants—pale, elongated humanoids with eyes adapted to the perpetual dusk—call this the Long Conversation and will not speak during it. They build their scattered settlements inside natural cavities where two trunks have fused, carving simple post-and-lintel structures from the living wood itself. Their technology is limited to stone, bone, sinew, and the occasional blade of meteoric iron they treat like sacred teeth. They move when the plant tells them to move. Their entire culture is a form of negotiation with something that barely notices them.
+
+The rules of the world are still being written.
+
+Because the lattice is young, it is restless. New Colossi occasionally erupt from the carpet in slow, seismic birth, punching upward over decades with sounds like continents tearing. Old ones collapse in cascades of rotting fiber that become new carpet. Weather belongs to the plants: each Colossus generates its own pocket climate—mist belts, localized sleet, sudden downdrafts that smell of sap and ozone. The predator-prey cycles run at terrifying speed; generations live and die while a single new shoot hardens. Nothing is permanent except the cold, the dark, and the sense that you are standing inside something that has not finished becoming itself.
+
+Walk long enough across the living skin between the titans and the emptiness begins to feel sacred. The wind never stops preaching. The distant Colossi float in the gloom like half-remembered cathedrals built by a god that only understands verticality. Occasionally you pass a faint mark—charcoal handprints on a root wall, a circle of standing stones no higher than your knee, a primitive rope bridge abandoned when the gap it crossed closed itself like a closing mouth.
+
+This is not a forest.  
+This is not a mountain range.  
+
+This is a single creature in the early stages of learning how to be a world, and you are an irrelevant mote crawling across its damp, loud, freezing hide while it dreams in the dark.

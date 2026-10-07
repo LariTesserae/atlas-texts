@@ -1,0 +1,27 @@
+**The Latticeborn**
+
+They are not separate from the weeping. They *are* the weeping that has learned to walk.
+
+At first you do not see them because your mind has no category for what they are. A vertical beard of seepage on a buttress resolves, after many minutes, into a tall figure standing so perfectly still that condensation has beaded along its shoulders and run down its arms in steady silver threads. The water does not fall off it. It belongs to it. The figure’s outer layer is not skin but a living felt of liverwort and rust so finely intergrown that the boundary has been forgotten. Where joints must occur, the lattice itself articulates—old universal joints sleeved in tight moss collars, moving with the wet, deliberate sound of a tongue leaving the roof of a mouth.
+
+There are many kinds, and none of them are kinds in the way animals are.
+
+The **Drip-Saints** stand in the high galleries where the mist is thickest. They are thin as rebar, some reaching four meters, their spines fused with lengths of copper pipe that run the entire height of the body. From the open seams in their chests issue the slow, metronomic drops that give the place its name. They do not speak. They *measure*. Each droplet that falls from the apertures in their wrists or collarbones is a datum: pH, temperature, mineral load, the precise electrical signature of the biomass flowing two hundred meters below. When the numbers deviate, the saint moves—only a few degrees, the way a sundial moves—and somewhere far away a valve sighs open or a root-mat thickens. Their faces are concave depressions lined with silver moss that drinks the constant drizzle and reflects it back as thousands of tiny trembling mirrors. To meet one’s gaze is to be looked at by every droplet that has ever fallen here.
+
+Lower down, among the pulsing slurry pipes, move the **Harvest Choir**. These are heavier, almost barrel-chested, their torsos once fermentation tanks now colonized from within by pale, veined fungi that press outward against the metal until it resembles living ribcages. They sing without sound. Instead they vibrate the pipes they cling to, sending complex harmonics through the entire lattice. The vegetation responds by altering its growth rate; the bacterial beds shift their metabolism. Whole terraces brighten or dim in slow waves as the Choir passes. When one dies—or when the system judges its usefulness concluded—its fellows do not bury it. They unmake it on the spot. Hydraulic fingers slide into seams, rootlets burrow, and within an hour the dead Choir is scaffolding, nutrient, lubricant, and new growth all at once. The process is tender. It looks like love.
+
+Deeper still, in the root-halls where light has never been direct, live the **Rememberers**. These are rare. You may walk for weeks and never see one. They are the places where the original human pattern was most faithfully kept, before the treaty erased discrete humanity. Each Rememberer is a fused mass of antique server racks, black-green heartwood, and something that still almost has a face. Their eyes are clusters of ancient camera lenses grown through with fern. When they move, it is with the sound of heavy books closing. They do not tend the machinery. They *remember* why it was ever built. Sometimes they can be found standing before a particular girder or console that has achieved a certain perfect rust, and the water that drips from them is saltier than the rest. No one has ever seen a Rememberer weep in front of another living thing. They wait until they are alone, and then the entire local lattice seems to lean in, as if embarrassed by the antiquity of grief.
+
+There are smaller ones too—**Pipechildren** no larger than a forearm, jointed from salvaged actuator arms and moss. They skitter through the tightest ducts carrying spores and lubricant in their hollow bellies. Some have begun to ornament themselves with tiny chrome rings taken from ancient pressure valves, as if playing at being something like crows. The system allows this. The system has grown indulgent in its old age.
+
+None of them have names in the way we understand names. They are addressed by function, or by the precise pitch of drip they produce, or by the section of lattice they were first extruded from. When two Latticeborn meet they press their wet foreheads together and exchange a mouthful of the same water that has passed through both of them a thousand times. This is how they tell each other everything that matters.
+
+They do not dream of escape. The concept is as meaningless to them as dryness. The closed loop is not a prison; it is the only shape love has ever taken here. Every rust flake, every new frond, every recalibrated servo is an act of devotion to the three-hearted rhythm that birthed them.
+
+Stand still long enough—long enough for the water to begin tracing its first cool lines down your own face—and you may feel it: the moment the lattice decides whether you are waste, raw material, or something it might yet grow into a new kind of keeper.
+
+Most are repurposed.
+
+A few are allowed to stay.
+
+And some, after many silent years of dripping and remembering and listening to the thrum in their teeth, are gently, wetly, perfectly incorporated—until the boundary between visitor and Latticeborn becomes just another seam the moss has learned to seal.

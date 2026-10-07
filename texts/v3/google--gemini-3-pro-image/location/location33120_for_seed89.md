@@ -1,0 +1,19 @@
+This place exists in the high throat of an ancient, dormant volcano, near a summit that pierces the cloud layer. It is a series of interconnected volcanic vents and solution caves, a labyrinthine "cathedral" carved within the mountain's peak.
+
+The elevation is immense, the air outside thin and freezing, but here, inside the rock, the temperature is persistently, strangely warm. It is the warmth of trapped geothermal vents deep below, rising through kilometers of stone chimney, held fast by the insulating density of the mountain. The air is heavy, close, and humid, feeling like the breath of a sleeping giant.
+
+Light is almost non-existent. The primary illumination comes only from faint, scattering phosphorescence—perhaps from deep-dwelling fungi or mineral veins—that offers just enough grey luminescence to perceive shapes, but not color. The darkness is thick, a physical substance that presses against the eyes.
+
+Because of the warmth meeting the cold stone near the surface, the environment is perpetually damp. It is not a place of flowing rivers, but of weeping walls. Every surface—the ancient, rounded basalt columns, the smooth obsidian flows settled millennia ago, the ceiling arches obscured by gloom—is slick with condensation. Moisture beads, grows heavy, and falls with slow, irregular *plips* that echo sharply before being swallowed by the general din. Pockets of tepid water collect in shallow basins on the floor, varying from puddle-sized to wide, knee-deep cisterns that reflect nothing but the dark.
+
+Vegetation is minimal, unable to thrive without sunlight. There are no green leaves, no woody stems. Instead, the life that anchors itself to the rock is fungal and parasitic. Pale, fleshy growths cling to overhangs, resembling oversized human ears or masses of wet dough. Slime molds in hues of sickly yellow and grey coat the wetter depressions, feeding on the detritus that rains down from above.
+
+The defining characteristic of this place, however, is its overwhelming density of animal life. The scale of the caverns is large—vaulted ceilings rising dozens of meters—but the *space* feels unbelievably crowded.
+
+The sound is a physical assault. It is a ceaseless, high-decibel cacophony of millions of creatures existing in the dark. The primary noise is a high-pitched, frantic chittering—a sound like dry leaves shuddering in a gale, produced by legions of bats and other winged insectivores that roost on every available square inch of the ceiling and upper walls. Their bodies form a living, shifting carpet overhead. When they move, the air churns with the musk of fur and guano, and the sound of leathery wings beating is like a subterranean thunder.
+
+Below them, the walls literally crawl. In the near-blackness, you sense movement everywhere. Giant, pale crickets with antennae a foot long navigate the slick rock by touch, their chitinous legs clicking against the stone. Blind, albino salamanders the size of forearms sluggishly drag themselves through the shallow pools, hunting by vibration. Centipedes adapted to the dark cling to crevices, waiting.
+
+There is no stillness here. The air is thick with flying insects, a warm blizzard of midges and moths drawn to the heat and the moisture, which in turn feed the bats. The floor is a treacherous landscape of slick guano and the decomposing husks of insects, a slow-moving compost that feeds the few fungi and the creeping things on the ground.
+
+It is a high-altitude hive, an enclosed ecosystem thriving on heat rising from below and detritus falling from above, entirely divorced from the sunlit world outside. It feels ancient, stable in its chaotic noise, a warm, dark, incredibly crowded womb of blind life hidden at the top of the world.

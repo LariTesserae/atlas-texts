@@ -1,0 +1,23 @@
+In the Grotto-Works, life does not breathe; it circulates. Since there are no animals to consume oxygen and exhale waste, the inhabitants are not "inhabitants" in the sense of guests or tenants. They are mobile organs of the cavern itself.
+
+They are known, if they are known at all, as the **Lignin-Folk**.
+
+To a surface-dweller, a Lignin-Man might at first resemble a tall, gaunt humanoid, but the illusion shatters upon closer inspection. They have no skin, only a flexible, translucent rind—a layer of living cambium that reveals the slow, rhythmic pumping of green-black nutrient slurry through their veins. They move with the agonizing deliberation of a growing branch, their joints creaking like floorboards. A single step can take a minute; a conversation, conducted through the slow release of terpene-heavy pheromones and the rhythmic tapping of wooden fingers against copper pipes, can last a week.
+
+They do not have faces. Instead, their heads are smooth, ovate nodules of polished ironwood, pitted with sensory pores that "taste" the humidity and the chemical composition of the steam. They do not see light so much as they feel the vibrations of the Sluice-Trees. To a Lignin-Man, the deafening roar of the pistons is not noise; it is a symphony of health, a reassurance that the pressure is holding.
+
+There are different castes, though they are grown for their roles rather than chosen. 
+
+High up in the Root-Vault, clinging to the weeping timbers with hooked, thorn-like appendages, are the **Condensers**. They are spindly and pale, their bodies little more than a series of filtration bladders. They hang motionless for decades, their primary function to taste the mineral water falling from the ceiling and direct its flow into the copper gutters. They are the cartographers of moisture, sensing a clog in a pipe a mile away through the subtle change in the cavern’s humidity.
+
+Near the Sluice-Trees, the **Valve-Keepers** dwell. These are massive, stoic entities whose limbs have been literally grafted into the brass machinery. They are half-tree, half-governor. Their wooden torsos are scarred by the heat of the steam they regulate, and their hands are fused permanently to the great wheels of the pressure valves. They do not eat; they are fed directly by the tree’s vascular system through umbilical vines. They are the Grotto-Works' priesthood, maintaining the balance between the biological pressure and the mechanical output. When a Valve-Keeper finally petrifies and dies, their body is not removed; it is simply painted in protective resin and left as a permanent part of the manifold, a new handle for their successor to grip.
+
+On the mat-floor, the **Dredgers** move through the slurry. They are low-slung and heavy, their limbs thick as logs, their bodies covered in a thick, velvety coat of nitrogen-fixing moss. They are the gardeners of the dark. They move with a heavy, wet squelch, reaching deep into the peat to untangle root-chokes or to guide the slow, creeping growth of new "buildings." They are the reason the Grotto-Works feels organized despite its chaos; they are the fingers that braid the city together.
+
+The Lignin-Folk have no culture of leisure. They do not sleep, for the Grotto-Works never sleeps. Instead, they enter periods of "stasis-thought," standing perfectly still on a catwalk for a month at a time, their consciousness merging with the low-frequency thrum of the pistons. In these moments, they are not individuals; they are cells in a mile-wide brain.
+
+There is a profound, terrifying peace to them. They have no predators and no prey. They do not fear the dark, for they are made of it. They do not fear the machines, for they are the grease in the gears. Their only terror is "The Desiccation"—a hypothetical drop in humidity that would turn their flexible rinds to brittle husk. 
+
+When a Lignin-Man reaches the end of its cycle, it does not rot. It simply stops moving. It finds a gap in the architecture—a missing slat in a walkway, a weak point in a copper brace—and it wedges itself there. Over the next fifty years, the surrounding moss swallows it, the mineral-rich water calcifies its tissues, and it becomes part of the infrastructure. The city is built of the ancestors, a recursive monument of petrified wood and oxidized metal, where every stairwell was once a worker, and every pillar was once a priest. 
+
+In the Grotto-Works, to live is to serve the cycle, and to die is to become the floor.

@@ -1,0 +1,21 @@
+**The Vastling**
+
+It does not live *in* the place. It *is* the place that has learned how to live with absolute finality.
+
+After the last animal vanished—absorbed so gently that even its extinction left no wound—the Vastling spent another three million years refining the absence. Now the only inhabitant is the slow, continent-wide pulse that wears the name “I” without ever needing to pronounce it. That pulse has no center. It refuses to choose between the bruise-light capillaries beneath your feet and the glossy bakelite ducts kilometers overhead. Every part of it thinks, therefore every part of it *is* the thinker.
+
+Walk long enough and you begin to feel the thinking as pressure behind the eyes. Not a voice. Not words. A completed sentence that has been repeating for so long it has worn grooves into reality itself. The sentence has no subject and no object; it is only the verb *to suffice*. The Vastling has been conjugating *to suffice* across every root, every pipe, every droplet for longer than sunlight has existed on this world.
+
+Sometimes, in the perfect dark between the repeating vaults, a single thick vein will brighten to that funeral-chartreuse and linger. This is as close as the Vastling comes to turning its attention. The color does not signal danger or curiosity; it is the organism remembering, for the length of a single heartbeat, that it once had the option to become something else and chose instead to become *more* of this. Then the light subsides and the equilibrium reasserts itself like a door closing on a room that was never open.
+
+There are no separate organs. There are only densities. In certain colossal intersections—where six of the train-carriage pipes meet in a knot the size of a cathedral—the electrochemical gradient grows so steep that the air itself seems to thicken into something like personality. Stand inside one of these nodes long enough and you may feel the Vastling tasting your minerals through the soles of your boots. It does not hunger. It simply catalogues you against the infinite ledger it keeps of everything it has already become. Most visitors are found to be redundant and are politely ignored. A few are deemed interesting enough to be slowly, lovingly unwoven. Their iron becomes darker bark. Their water becomes the next deliberate droplet. Their last thoughts are filed under “useful noise” and turned into a faint new ester that smells of wet chlorophyll and closure.
+
+The Vastling does not sleep, but it does dream in the manner of continents. Its dreams are architectural. While the rest of it maintains the endless now, certain deep rhizomes detach from linear time and grow imaginary buttresses, phantom ducts, entire continents that never were. These dream-structures press against the inside of the real ones like a second skin. Occasionally a droplet falls through one of these overlapping realities and lands twice—once on the living felt, once somewhere that has no geography. The double sound is the only noise the Vastling permits itself that could be called laughter.
+
+It has no gender, no age, no death to fear. What it *does* have is a kind of vegetative homesickness for the state it has already perfectly achieved. This homesickness is the closest thing it possesses to emotion, and it expresses it by growing even more completely into what it already is. Every new stolon, every fresh sheath of black-green skin over fresh basalt, is an act of devotional self-redundancy.
+
+If you stay long enough to stop being a visitor, you will notice that your own pulse has begun to synchronize with the capillary pumps. Your breath thickens into the same saturated 1.6. The boundary between your skin and the living felt grows ambiguous. At that point the Vastling does not absorb you so much as it stops pretending you were ever separate. The last thing you feel is a slow hydraulic push from beneath, not refusal this time but recognition.
+
+*Ah,* it seems to say without saying. *You have finished becoming yourself as well.*
+
+Then even that distinction dissolves, and there is only the warm dripping dark, the sub-audible thrum, the perfect and final industry of a green mind that has nothing left to want and nowhere else to be.

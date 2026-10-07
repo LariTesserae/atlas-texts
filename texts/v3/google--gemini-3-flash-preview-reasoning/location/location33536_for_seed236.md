@@ -1,0 +1,17 @@
+Here, at the summit of the Sharp Peaks, the air is thin, warm, and utterly devoid of moisture. This is a landscape of jagged, adolescent stone—an obsidian cradle thrust upward by a recent tectonic spasm, its edges still keen enough to draw blood from a passing breeze. The elevation is dizzying, looking down upon a sea of clouds that never rise high enough to touch these sun-drenched spires.
+
+There is no water. In its place is a chemistry of dry resins and calcified dust. Yet, the environment is undeniably lush.
+
+Occupying the sheltered amphitheater of a high-altitude caldera is a settlement that defies the traditional boundary between biology and architecture. It is a city of "Litho-Coral"—a dense, vertical forest of calcified structures that grow in perfect, recursive geometries. From a distance, it looks like a cluster of ivory cathedrals or a forest of petrified lace. Up close, it is an urban hive, a city grown rather than built, where every wall is a living membrane and every street is a tiered gallery of translucent, mica-like leaves.
+
+The density is overwhelming. The structures—tubular, fluted, and honeycombed—press against one another, creating a labyrinth of narrow, sun-lit canyons. There are no tools here, no metal, no machines. The "infrastructure" consists of biological conduits: massive, hollowed vines that transport warm, nutrient-rich gases between the spires, and broad, flat shelves of fungi-like growth that serve as plazas. Everything is layered. To move through the city is to climb through a three-dimensional grid of balconies and bridge-roots.
+
+The temperature is a constant, radiating warmth. The dark volcanic glass of the surrounding peaks drinks the sun’s energy and breathes it back out, keeping the city in a state of perpetual, dry incubation. 
+
+The silence is the most profound feature of this place. It is a heavy, velvet quiet. There is no wind in the sheltered cleft, no rustle of leaves (as the litho-flora is rigid and stony), and no vocalizations from the residents. The fauna is abundant but ghostly in its discretion. Thousands of "Glass-Striders"—creatures with segmented, translucent exoskeletons and padded, multi-jointed limbs—navigate the vertical city. They move with an agonizing, meditative slowness, their movements choreographed to a rhythm that spans days rather than seconds. They do not chirp or growl; they communicate through the slow shifting of colors beneath their carapaces, a silent language of chromatic pulses.
+
+The ecology is a closed loop of dry minerals. The plants do not drink; they filter the heavy, warm air for volcanic particulates and solar radiation. Their "leaves" are thin sheets of crystalline lattice that hum almost imperceptibly as they vibrate with heat, a sound so low it is felt in the chest rather than heard in the ear.
+
+Nothing happens quickly here. The growth of a new residential spire is a process measured in decades of slow mineral deposition. The city feels permanent, yet it is technically a single, massive, slow-moving organism. The erosion is minimal; the wind has not yet had time to round the corners of the obsidian cliffs, and the lack of rain means there is no water to carve gullies or wear down the sharp-toothed horizon.
+
+It is a place of vibrant, parched beauty—a high-altitude metropolis of stone and spirit, where the only movement is the slow crawl of shadows across the white towers and the gradual, silent expansion of a living city toward the sun. In this breathless height, life has traded agility for permanence, and sound for light.

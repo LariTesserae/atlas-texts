@@ -1,0 +1,17 @@
+This is the **Brass Sump**, a pressurized industrial pocket situated miles beneath the surface of a heavy, warm ocean. Here, the water is not a medium you travel through; it is a weight you wear. It is mineral-thick, tasting of salt and copper, warmed to a constant, lethargic blood-heat by volcanic vents that lie just beneath the silt floor.
+
+The space is small—no larger than a cathedral or a cluster of tight city blocks—but it is packed to the point of suffocation. There is no empty volume. Every cubic inch is occupied by either the rusted geometry of industry or the aggressive, silent persistence of life.
+
+The architecture is a dense thicket of copper piping, bronze pressure-valves, and massive, slow-turning turbines. These are not relics of a fallen civilization, but the active, grinding organs of a settled society. The metal is weathered, smoothed by centuries of brine-flow into shapes that look almost organic. Thick glass portholes, greened by algae, look out from pressurized living-spheres that are wedged between the machinery like barnacles on a whale. 
+
+Everything is overgrown. The "lushness" here is a heavy, drowning green. Thick, rubbery kelp-vines wrap themselves around steam-pipes, feeding off the radiant heat. Fern-like structures with translucent, gelatinous fronds sprout from the seams of the turbines, their slow-moving spores drifting like dust in the dim light. The vegetation doesn't just decorate the machines; it reinforces them. The moss is a sealant; the vines are structural cables.
+
+The light is a bruised, oceanic twilight. It comes from two sources: the faint, flickering orange of chemical lanterns behind thick portholes, and the soft, bioluminescent pulse of the flora. The plants emit a rhythmic, low-frequency glow—a pale violet or sickly gold—that illuminates the suspended silt and micro-bubbles, making the very water look like it is filled with slow-moving smoke.
+
+Sound behaves differently here. The density of the water and the metal creates a world of subsonic vibrations. There is no sharp noise. The grinding of a massive gear sounds like a distant, hollow groan. The hiss of a high-pressure valve is a soft, melodic sigh. It is a quiet place, characterized by the rhythmic thumping of a slow-motion heart—the primary pump-works at the center of the hamlet, which moves with a glacial, patient cycle. 
+
+Fauna is nearly non-existent, or perhaps just indistinguishable from the environment. Occasionally, a pale, blind eel might thread itself through the mesh of pipes, or a colony of translucent shrimp might skitter across a pressure gauge, but for the most part, the Sump is a landscape of metal and marrow, machine and moss.
+
+The rules of this world are dictated by pressure and stasis. Nothing happens quickly. A door takes several minutes to cycle through its hydraulic locks. The growth of the vines is measured in decades. The inhabitants, if they are seen at all, move with the calculated, heavy grace of deep-sea divers, their silhouettes blurring into the background of pipes and fronds. 
+
+It is a place of "balanced erosion." The rust does not destroy the machine; it creates a protective patina. The plants do not choke the pipes; they insulate them. The Sump exists in a state of eternal, humid industrial decay that never quite reaches its end—a warm, wet, crowded womb of copper and chlorophyl, humming at the bottom of the world.

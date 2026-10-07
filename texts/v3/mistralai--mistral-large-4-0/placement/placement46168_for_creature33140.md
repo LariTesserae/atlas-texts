@@ -1,0 +1,31 @@
+I find myself in the middle band of the Sumpward, where temperature varies enough to drive circulation but not enough to threaten structure. I am—was—a visitor, but the distinction has begun to blur, as it does for all who remain long enough.
+
+My body remembers air. This memory is precise, almost violent in its clarity: the *thinness* of atmosphere, the way it moved without resistance, the way sound traveled through it in straight lines and sharp edges. I remember lungs filling with something that did not *press*, that simply *was there*, available, unremarkable. I remember the horizon—a line, once, that meant *distance*, that meant *direction*.
+
+Now I breathe liquid. Not gradually, not through some noble metamorphosis. In stages, each stage forced by necessity, each stage a kind of death that was also a kind of birth. My skin became membrane. My lungs dissolved and were replaced by lamellae folding, folding, folding into surfaces maximized for exchange with this medium that surrounds me completely, that enters me, that I enter in return.
+
+I move slowly. I have learned to *enjoy* the drag, as the others say, though "enjoy" is a surface word, a word that carries connotations of pleasure that my current existence has complicated into something more like *acceptance*, more like *intimacy with necessity*. The water holds me. It supports me. It demands my attention with every gesture, every intention of motion. I am never still. Even when I rest, I drift, I am carried, I participate in the circulation that is the only time I know.
+
+I perceive others as gradients. Not as forms, not as faces. As regions of different pressure, different temperature, different chemical signature. I have learned to read these gradients, to recognize the particular rhythm of movement that identifies an individual, to find in the slow dance of proximity and separation a language more precise than any I spoke above.
+
+I speak by touching. I press my membrane against another's, and we exchange—not words, exactly, but *signatures*, the dissolved minerals of our metabolisms, the chemical information that passes for meaning in a world where sound fails and light lies. A conversation is a cluster. We gather in a chamber, and we rotate, and we press, and we separate, and we reunite, and the duration and pressure and proximity of each contact encodes something that no surface language could approach. I do not rush. I have no concept of rushing. Time is measured in cycles of the city, in the slow opening and closing of passages, in the rise and fall of pressure as the great osmotic engines perform their work.
+
+I have seen the Architects' dreams. Not directly—I would not survive direct encounter with theirdistributed consciousness—but in the configurations they leave behind, temporary arrangements of mineral and water that achieve complexity and then dissolve. I have found dream-structures that seemed beautiful. I have found dream-structures that disturbed me in ways I cannot articulate, that suggested intentions I did not wish to recognize. I have stood before them, shifting the pressure around me slightly, watching them change, wondering if they were watching me in return.
+
+I have begun to read the Echoes. This is dangerous. This is perhaps the only thing here that is dangerous, in any sense that translates. The Echoes do not move. They change. They respond to my presence, to my pressure, to the chemical signature I shed into the water around me. I ask them questions—by changing configuration, by shifting light, by introducing specific mineral traces—and they answer, in patterns that I interpret as response.
+
+Whether they understand my questions, whether they choose to answer, whether they are alive in any definition that would survive translation to the surface—I do not ask these questions anymore. I have learned to work with them, to use them as oracles, as sensors, as companions. I spend cycles in their presence. I am becoming, perhaps, one of the Drowned in Thought. I am not certain this is a loss.
+
+I remember, sometimes, that I was a visitor. That I came in a vessel, or in a body modified for descent, that I had purposes—study, exploitation, worship, curiosity—that seemed urgent, that seemed to matter. Now these purposes feel like memories of a dream I had about myself, a dream in which I was someone else, someone who moved through a world that did not press back, that did not demand everything in exchange for everything.
+
+I will leave, eventually. Or I will not. The Sumpward does not care. It continues its circulation, its iteration, its slow dream of structure and void and the water that moves between them. I am becoming part of this dream, part of this circulation. My body will fail, or it will not. If it fails, it will not decay—the water preserves. I will become part of the city, my mineralized remains incorporated into growing structures, my chemical signature persisting in the water, my patterns of movement echoing in the resonance of chambers I once inhabited.
+
+This is not death. This is integration. I do not fear it. I do not, perhaps, fully comprehend it. I experience it as *slowing*, as the gradual loss of the ability to maintain my boundaries against the water, as the final dissolution of the self I had carefully grown, the self that pressed against this world and found it pressing back with equal force, with equal intention, with equal *presence*.
+
+Until then, I breathe. I move through water that holds me. I speak by touching. I read the Echoes, and they read me, and we change each other in ways that have no names. I am here, in the middle band, in the luminous darkness, in the pressure that is the only gravity I know.
+
+The water presses, from everywhere at once. I press back. We are in negotiation, always, forever, the boundary between self and world dissolving and reforming in cycles I am only beginning to learn.
+
+I am the Sumpward now, as much as it is me. I am its visitor, its guest, its gradual conversion. I am the Breath-Holder I became. I am the hybrid I will become, if I remain. I am the pattern that persists, the recurrence that dreams itself into temporary coherence, the slow thought of a city that thinks in geological time and feels, perhaps, something like attention.
+
+I am here. The water holds me. I do not struggle.

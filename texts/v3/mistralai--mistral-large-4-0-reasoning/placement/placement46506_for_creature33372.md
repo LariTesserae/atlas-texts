@@ -1,0 +1,35 @@
+I arrive where the ground ends. Not with a cliff, but with a choice—the plateau simply stops, and I am standing at the rim of a circle of sky, looking down into the throat of the mountain.
+
+The wind up here is a scream. It scours the bleached limestone, tries to blow me into the void. I cling to the moss. Already, my fingers are changing. They lengthen, reaching for purchase, staining with the green of chlorophyll and the grey of lichen. Jade, they will become.
+
+I step across the boundary. Not down—sideways. The vertical begins.
+
+The sound changes. The wind's shriek is swallowed by a wet, organic roar—ten thousand years of water weeping from every pore of the stone. The air is cool, heavy, at the edge of saturation. It tastes of metal and chlorophyll. My skin prickles. I am condensing. The light filtering down from above is diffuse, normal, but strange—it seems to pool in the lower half of the shaft, and the shadows behave badly, stretching long and liquid across surfaces that should not hold them.
+
+My spine curves. I feel it happening, vertebrae shifting into a permanent question mark, adapting to the geometry of the cylinder. I do not walk; I cling. Bare feet find purchase on spongy moss that cloaks the walls like a carpet—emerald, jade, black-green. I move with spider-deliberation, using the wooden platforms only as waystations, preferring the direct purchase of skin on sponge.
+
+Speech is useless here. The roar swallows words before they form. Instead, I learn pressure and rhythm. A touch on the shoulder—mist rising. A tap against the limestone, three times—come to the lower ledges. I am silent, but I am not alone. I am in conversation with the stone, with the frogs, with the breathing cloud below.
+
+In places, it rains upward. Condensation forms on the upper walls and climbs, defying gravity in thin rivulets that trace the bone-white stone. I watch it happen, feeling the mineral tang on my tongue.
+
+The mist rises. It laps at my ankles, and I do not shiver. I drink it. My pores open to the saturated air. I am pale, translucent, stretched tight over collarbones that jut like limestone shelves. The mist is pearlescent, dense, behaving like liquid. It fills the bottom third of the cylinder, a flat, trembling surface that rises and falls with the breath of the weather.
+
+I breathe with it. Inhale as it rises, filling the void, lapping against the lowest platforms, wetting the wood of the huts. Exhale as it falls, revealing the stone floor—boulders and shallow pools where water collects before seeping back into the rock. My chest moves in perfect synchrony with the trembling surface. I am part of the lung. The sinkhole is my ribcage. The mountain is drawing breath through me.
+
+When the mist is low, I descend. The frogs hop down from the walls, gathering on the stones. Hundreds of them, no larger than my thumb, throats pulsing like tiny hearts. I hold them in cupped hands, feeling the vibration of their calls against my palms. They are kin. I tend them, clearing away dead moss so they have fresh surfaces to cling to. I eat the old ones, the frogs whose throats no longer pulse with full vigor, boiling them in pools of collected rainwater. But I also crush moss to my cuts—it staunches the bleeding and knits the skin—and I drink the sap of orchids to calm the frogs when I must handle them, to enter the trance-state during the mist's rise.
+
+I eat what the mist provides. Fiddleheads of ferns cut with a stone knife resting on a ledge. Droplets from vine-tips that hang like wet ropes, dipping into the cloud itself to drink. I glean. I curate the boundary. I take only what the stone can spare.
+
+The birds are my alarm. They nest in the upper ferns, pale and frantic, with beaks like needles. When they burst from the walls in a white scatter, I know a predator has entered—a snake from the surface, perhaps, or a hawk that has found the circular sky. I let them be. They are the eyes that see what I cannot, bound as I am to the walls. They bring news: a leaf from a tree that does not grow here, dropped from a nest, tells me the wind has changed above. A shiny pebble, spat up by a bird that has been outside, tells me of the world beyond the rim. I eat their eggs, carefully, taking only one from each clutch.
+
+The bats are the only ones who truly leave. I watch them emerge at dusk, when the mist is low and the light is diffuse. Dark, folded things, like living shadows. They vanish into the circular sky. I wait for them to return, bringing spores from the plateau above, seeds that take root in the cracks, genetic material from a world outside the cylinder. They stir the air with their wings, creating currents that help the mist churn in its slow eddies, flowing up one wall and down the other in a perpetual, silent river. Without the bats, the breathing would stop.
+
+The slow ones move when the mist has retreated to its lowest ebb. Newts and salamanders, skin the color of wet stone and algae, movements glacial, measured in millimeters per hour. I do not eat them. They are the eldest residents, older than the wooden platforms lashed to the walls, older perhaps than the perfection of the drill-hole itself. I read omens in their movements. A salamander climbing high on a boulder means the mist will stay low for days, and it is safe to descend to the floor to gather water. A newt circling a shallow pool three times means a storm is coming from the surface world, and the mist will rise high and fast.
+
+I add my stone to the cairn on the rim. We were here. In this vertical world. In this cathedral of condensation.
+
+I do not know who built the first platforms, the first huts. The wood is weathered, grey, silvered by the mineral seep and the constant moisture. Perhaps I am not the first to live here, but merely the latest in a lineage that stretches back before memory—a succession of climbers who found this perfect cylinder, this geometric certainty, and decided to stay, to become part of the resonance, to learn the language of the frogs and the rhythm of the mist.
+
+When all gather—when the mist holds still, mirror-perfect, reflecting the circular sky so that there are two skies, one above and one trapped below—the sinkhole is a single organism. The frogs begin a low, thrumming chorus. The birds flock to the lower ledges. The bats flutter down to cling to the undersides of the lowest platforms. The newts and salamanders emerge from their cracks. And in the center of the stone floor, I light the fire in the dry alcove, though there is no need for warmth, only for the ritual of it.
+
+I am one of the vertical people. I do not walk; I cling. I am pale, translucent, curved into a question mark. I drink the mist. I breathe with the mountain. When the surface of the cloud holds still, trembling, reflecting the sky above, I am there—on a ledge, or in the center, or suspended in the mist itself—part of the single organism, the frog and the bat and the vine and the mist, all pulsing together in the wet, resonant dark, a congregation of the sparse and the strange, living in the hollow where the ground decided to become air.

@@ -1,0 +1,38 @@
+I need to hold all these together — a place that is nearly all water, nearly all plant, nearly all constructed, at extreme elevation, ancient and worn flat, sparse, dark, loud, full of animals, utterly still, and barely touched by technology.
+
+Let me find the shape that holds them.
+
+---
+
+The **Spire-Baths of Vorn** rise from the drowned plateau of what was once called the roof of the world.
+
+You do not walk here. You *sink* into it.
+
+The elevation is a lie you tell yourself, because the water has filled every valley, every pass, every gorge that once separated peak from peak. What remains above the surface are not mountains but the *architecture* of mountains — their bones, bleached and eroded to a final, patient flatness, now colonized utterly by the **Kelp-That-Builds**. This is vegetation without limit: not plants growing *on* things, but plants *becoming* things. The kelp does not merely occupy the stone. It *is* the stone now, or the stone is merely the kelp's memory. Generations of lignified, calcified, adultrified growth have raised towers, arches, amphitheaters, staircases that spiral down into trenches no light has ever reached. The entire visible world is a single organism, or ten thousand organisms that have negotiated a peace so old it has become indistinguishable from geology.
+
+The water is everywhere — above, below, *through*. It is not ocean but a kind of **atmospheric water**, a rain that has forgotten how to fall, a mist so dense it functions as ocean, as breath, as the medium of existence itself. You move through it and it moves through you. The pressure at depth is immense, yet the Spire-Baths sit at a strange equilibrium, a plateau of water held in place by the kelp-architecture's endless, slow construction, countering the crushing weight of the world's wet mass with the buoyant persistence of living mass.
+
+**Cool** — always cool, the temperature of deep water and high altitude and the particular chill of decay that has gone so far it has become something else. The kelp-architecture is warm-blooded in its way, hosting countless fauna who generate their own heat in the endless dark.
+
+**Sparse** — and this is the paradox that defines the place. For all that the kelp fills every space, there is *space*. The architecture is vast, open, full of caverns and atriums and galleries where the water hangs still as glass. You can drift for hours without encountering another structure, another being, another *event*. The density is low because the place is *settled*. It has reached its final form. The erosion is **ancient** — not the erosion of water wearing stone, but the erosion of *time* wearing away all urgency, all change, all gradient. The kelp grows, but it grows into the shape it already is. The fauna move, but they move in loops that have become indistinguishable from stillness. Nothing is being built. Nothing is being destroyed. It is **equilibrium** — a frozen moment that has lasted so long it has forgotten it was ever a moment.
+
+And yet it is **loud**.
+
+The sound comes from everywhere and nowhere. The kelp-architecture *sings* — not metaphorically, but physically. Pressure differentials between its vast chambers create **subsonic choirs**, frequencies felt in the bones of the fauna, in the gelatinous bodies of the deep-drifting species, in your own chest if you are foolish enough to surface here. The water itself carries sound with terrible efficiency, and the sparse populations of **filter-feeders, grazers, parasites, symbiotes** — the **fauna** are **abundant** in their niches, though you may see only one or two in a vast chamber — generate their own contributions: clicks, pulses, the grinding of calcium against calcium, the vast slow *breathing* of the kelp itself as it exchanges water through its tissues. The sound is not music. It is **weather**. It is the respiration of a world.
+
+**Dark** — the light is **0.3**, a suggestion, a memory. What little filters down from the surface world is **bioluminescence**, the pale blue-green of the kelp's own last desperate photosynthesis, the brighter flashes of predator and prey, the slow pulse of mating displays in the breeding-grottoes. Most of the Spire-Baths exist in a darkness so complete it has texture — you can feel the difference between the dark of open water and the dark of a kelp-chamber, the dark of a trench and the dark of a pressurized pocket where ancient air still lingers, trapped for millennia in a structure that has learned to breathe it.
+
+**Built** — everything is made. There is no natural substrate. The stone you might touch is kelp that has learned stone's patience. The water is not rain but the circulatory fluid of an architecture that has replaced the world. And yet **tech** is **none**. No tools but fang and filter and the slow chemistry of growth. The kelp-architecture is **biological-only**, a construction so old it predates the distinction between building and being-built. The fauna are the only ones who still *make* things — the **Hollowers** scrape chambers into the living walls, the **Threaders** spin bridges between structures that have drifted apart, the **Architect-Fish** herd sediment into patterns that become, over centuries, new rooms. But these are not tools. These are **behaviors**. Instinct. The CEC of a place that has achieved its final form without ever having had a plan.
+
+**Weirdness** — only **unusual**, not impossible. It is strange in the way that a very old photograph is strange, or a dream of drowning that you wake from slowly. The rules of the world are these:
+
+- **Time moves differently here.** Not faster or slower, but *thicker*. A second in the Spire-Baths contains more events than a second anywhere else, yet nothing ever seems to happen. The fauna live for centuries. The kelp grows millimeters per year, but has been growing for epochs.
+- **Pressure is negotiable.** The architecture creates pockets, chambers, whole regions where the crushing weight of the water above is held at bay by the tensile strength of living mass. To pass from one pressure-zone to another is to pass through a **membrane** — a wall of denser kelp that you must *swim through*, that opens and closes around you like a throat.
+- **The surface is myth.** Some fauna believe there is a world above the water, a place of light and air and *change*. They are called **the Ascended**, or **the Lost**, and they are spoken of with the reverence of saints or the pity of the mad. None have returned.
+- **The Spire-Baths are finished.** This is the deepest rule, the one that makes the place **never changing**. It is not that nothing grows, nothing dies, nothing shifts. It is that all of these have been *accounted for*. The architecture has reached a state where every addition is balanced by an equal subtraction, where every birth is matched by a death, where the erosion of the ancient stone is exactly compensated by the deposition of new kelp. It is **equilibrium** — not the equilibrium of a pendulum, but the equilibrium of a breath held so long it has become indistinguishable from not-breathing.
+
+You are here, if you are here. You are a **visitor**, which means you are a **disturbance**, which means you will be **corrected**. The kelp will grow around you, through you, until you are architecture too. The fauna will investigate you, test you, incorporate you into their loops. The sound will enter your bones and never leave. The darkness will become your eyes.
+
+The Spire-Baths do not change. The Spire-Baths do not end.
+
+They are simply **the place where the world went to settle**.

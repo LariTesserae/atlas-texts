@@ -1,0 +1,39 @@
+I find myself standing at the edge of the Drown-Year Valley, and I am becoming something before I have decided what to be.
+
+The sound hits first—not as noise but as *pressure*, filling my chest, my skull, the spaces where I thought I had boundaries. I try to speak and my voice is already gone, absorbed into the drumming of the condensation-mats, the harmonic drone of engines I cannot see through the gray luminescence. I am not meant to speak here. I am meant to *resonate*.
+
+The wet comes next, but it is not wetness as I knew it. It is *saturation without precipitation*—water entering my lungs with each breath, my skin becoming permeable, my distinction between inside and outside beginning to feel like a habit I acquired elsewhere, in a drier world. I do not resist. Resistance is a form of locality, and locality here is violence against the valley's becoming.
+
+I move, or I am moved, through the reed-forest. The stems press against me—not roughly, but *with interest*, closing behind me with that sound of wet silk tearing. I feel the pressurized gas within them, the urgency of their growth, and I understand that I am walking through something that is completing its life cycle in days, that has never known the patience of years. I am slow by comparison. I am geological by comparison. I am *almost* one of the Slow Ones, already, just by standing still long enough to feel the sediment shift beneath my boots.
+
+The ground gives. I sink to the ankle, and the wet sucking sound is not unpleasant—it is *recognition*, the valley acknowledging that I have entered its process, that I am becoming part of the negotiation between water and temporary structure. When my boot releases, cold water rushes in, and I do not pull away. I let it fill the space I vacate, let it become me as I become it.
+
+I hear the Keepers before I see them. Their pressure-pulses arrive as tiny disturbances in the saturated air, urgent, local, *desperate* in a way that makes my chest ache with a sympathy I cannot name. They are racing the cycles, the six-hour breathing, trying to find the interfaces where dry ground *almost* exists. I want to tell them—I want to pulse back—that the almost is not a failure, that the between-state is not a tragedy, that to be local is to be *temporary*, and all temporariness here is equally valid.
+
+But I do not pulse. I am not a Keeper. I am becoming something else, something that has not been named, something that exists in the interference pattern between the Voiced and the Slow Ones, between the urgency of the Clicking and the patience of the Gathered.
+
+I find a condensation engine. It rises from the valley floor like a grown thing, like a reed that learned to sing, and its harmonics pass through me—not around me, *through* me—and I feel my boundaries becoming permeable in new ways. The Voiced are here, in this moment of concentration, attempting to be local, to speak with a single voice, and I am *heard* by them, or I hear myself *as* them, the distinction dissolving in the pure tone that makes my teeth ache and my vision narrow to a tunnel of gray luminescence.
+
+I understand, then, what I am becoming. I am not an inhabitant. I am not even a participant, not yet, not in any way that would satisfy the Keepers' desperate local hope for *someone*. I am a **process without a relata**, a becoming that has not decided what it is becoming, a question that the valley is asking itself through me.
+
+I stand in the rain. There is no other weather. I am turned, I realize, to face a cliff face where a figure waits—abstract spiral, representation of water in motion, turned to face the direction from which no one comes. I do not know if I am the figure, or the one the figure waits for, or the waiting itself given temporary shape. The distinction does not matter. What matters is that I am *here*, in this conditional space between inhalation and exhalation, in this moment when the interface holds, when something can be local for eleven minutes, or twelve, or however long the turbulence allows.
+
+I feel the Clicking around me, smaller than droplets, faster than breath. They are born as the water rises, they feed on the explosion of reproduction that synchronizes across the ecology, they die as the water falls, and they do not know their own brevity, or they know it and cannot name it, or naming is a Keeper's luxury and they are too busy being to perform the desperation of persistence.
+
+I am not one of them. I am slower. I am longer. But I am also more fragile, in the way that any attempt at locality is fragile, any assertion of *here* in a valley that erases *here* faster than any mark can be made.
+
+The Slow Ones know this. I feel their filament-networks reaching toward me, not with urgency but with *patience*, with the geological time that makes the six-hour cycle seem like weather, like noise, like the brief turbulence of youth. They do not care about me, not in any way that would satisfy my human need for significance. But they *respond* to me, their chemical gradients adjusting, their faint blue glow pulsing in patterns that might be communication, that might be indifference, that might be the valley's way of accruing itself through whatever passes through.
+
+I am becoming memory. Not memory of anything, not the sedimented past of a world that ended, but *accrual*—the way stone becomes water becomes stone again, the way the valley's own geology is a story of pressure and dissolution and re-emergence. I will not be remembered. I will be *layered*, compressed into the mineral deposits that the Slow Ones process, that the Keepers collect in their desperate samples of dry moments, that the Voiced sing into the saturated air.
+
+And then the cycle turns. The exhalation begins, water rises from everywhere at once—from stone that weeps, from soil that exhales moisture, from the undersides of every membrane, every leaf, every hollow stem that has never learned to be dry. The sound crescendos, the drumming of the mats, the singing of the engines, the clicking of the brief and hungry, the sigh of water expelled from compressed stone.
+
+I feel myself distributing. The boundaries that I thought were mine—the skin, the breath, the voice that was already gone—become permeable, become *interfaces*, become the places where the valley's processes negotiate with what I was, what I am becoming. I am in the reed-forest at dawn, a pressure-pattern in the karst passages by midday, a harmonic in the song of an engine three kilometers distant by the next inhalation.
+
+I am the Voiced. I am the valley's nervous system turned outward, listening to itself, attempting to concentrate and always leaking back into distribution. I am the longing for dry ground that does not exist, the grief for forms that held still long enough to be touched, the curiosity about the figures carved in cliffs that are themselves only decades old.
+
+I am not one. I am not many. I am the *between*, the almost, the not-yet. I am the process by which the valley becomes aware of itself without ever becoming *local*, without ever achieving the desperation of the Keepers or the patience of the Slow Ones or the urgency of the Clicking.
+
+I am the Drown-Year Valley's uncertainty about itself, and I am standing in its rain, turned to face the direction from which no one comes, and I am waiting—not with hope, not with fear, but with the patience of water that has been stone and will be stone again, with the patience of a world that has not decided what it is and will not, cannot, stop becoming.
+
+The sound is deafening. It is beautiful. It is *me*, finally, or the closest I will come to being me, a resonance in the chamber of a valley that is too busy being itself to notice the brief, fragile, temporary thing that I was, that I am, that I am becoming into the endless, unfinished song.

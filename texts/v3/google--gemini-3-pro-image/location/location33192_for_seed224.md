@@ -1,0 +1,19 @@
+This is not a place found on a map; it is a place found between the coordinates of reality. It is a pocket-scale anomaly, an infinitesimal wrinkle tucked away at the absolute apex of a dead world’s highest, unnamed mountain range—a place so high the atmosphere thinned to vacuum epochs ago.
+
+You are inside a geode of folded space, a hidden atrium no larger than a cathedral nave, embedded within the towering needle-peak of rock outside. Yet, "rock" is the wrong word for the surrounding material. The walls of this pocket environment are composed of compressed cosmic dust and foundational bosons frozen into a lattice so dense it mimics polished obsidian. It is an ancient, settled form of matter, smoothed not by wind or rain—for there is neither—but by the sheer, crushing weight of gravitational stillness over billions of years. The erosion here is the slow smoothing down of reality’s rough edges.
+
+It is profoundly cold. The temperature hovers fractions of a degree above absolute zero. It is a preserving cold, a stillness so deep it feels like the cessation of atomic vibration. There is no water in any phase; chemistry as biology understands it is impossible here. The air is nonexistent; this is a vacuum chamber, yet there is a sensation of immense pressure, as if the space itself is pushing inward.
+
+The light is dim and confusing. It filters through the semi-translucent walls of the pocket, a bruised, violet twilight derived from distant, distorted stars visible through the warped lens of the anomaly's boundary. Shadows do not behave correctly; they detach from objects and pool in the shallow depressions of the floor, or stretch toward light sources instead of away from them.
+
+The space is sparse, dominated by the smooth, dark curvature of the floor and walls. Yet, scattered across this arena of frozen emptiness are artifacts of a technology so advanced it registers only as impossibility.
+
+There are three of them. Let’s call them "Anchor-Spindles." They rise from the floor, slender needles of pearlescent material that twist in ways the human eye cannot follow without inducing vertigo. They seem simultaneously solid and permeable, occupying space yet suggesting depths within themselves that shouldn't exist. They are not built of atoms, but appear to be solidified mathematics, materialized equations holding this fragile bubble of non-space open against the crushing pressure of the normal universe outside.
+
+They are immensely old. Though the technology is god-like, time has found purchase on them. They are coated in a faint, grayish patina—not rust or oxidation, but a residue of accumulated temporal stress. They are silent monuments to a forgotten purpose.
+
+The weirdness of the place lies in its fundamental instability. The laws of physics are suggestions here. If you take five steps toward one of the Spindles, you might find yourself further away than when you started. Depth perception is a casualty of the environment; the far wall might be ten feet away, or ten light-years.
+
+The silence is absolute. It is not merely a lack of sound; it is a heavy, pressurized substance that fills your ears and dampens thought. If you were to chip a piece of the floor (an impossible task), the sound would not travel; it would be instantly swallowed by the vacuum. The only change is glacial. Perhaps, once every ten thousand years, a single mote of frozen time dust drifts from the ceiling to the floor, a trajectory that takes centuries to complete.
+
+There is no life. No ghosts. Just the cold, the warped dark, and the three ancient machines holding their breath in a hidden room at the top of the world.

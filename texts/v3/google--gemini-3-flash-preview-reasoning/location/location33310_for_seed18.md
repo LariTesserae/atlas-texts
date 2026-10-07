@@ -1,0 +1,21 @@
+The air here is not air so much as a pressurized, warm suspension of vapor and sound. 
+
+You stand upon the **Apex of the Fourteenth Strut**, a solitary industrial outcrop suspended in a literal void. To look outward is to witness the parameter of "Empty" in its most terrifying purity: there is no horizon, no ground, and no sky—only a vast, hollow grey-white expanse that stretches infinitely in every direction. The only thing that exists is this singular, cathedral-sized assembly of iron, brass, and bioluminescence.
+
+Everything here is **Built**. There is no stone that was not cast, no soil that was not synthesized from the compost of a thousand years of mechanical friction. The terrain is a vertical labyrinth of colossal, slow-moving gears, rusted gantries, and copper cooling-fins the size of ship hulls. The "ground" is a series of perforated steel plates, slick with a constant, oily condensation. 
+
+The **Sound** is the dominant predator of this landscape. It is a deafening, sub-harmonic thrum—the heartbeat of a machine so large it has no perceptible edges. It is the sound of a million tons of pressurized steam being forced through narrow apertures, a rhythmic, bone-shaking *thrum-hiss* that makes the marrow in your teeth ache. It never stops. It is the atmosphere itself.
+
+Despite the mechanical brutality, the environment is **Lush**. Because the machine is **Warm** and the moisture is **Damp** and constant, life has colonized every rivet. Thick, waxy ferns with leaves the color of oxidized copper erupt from the joints of massive pistons. Heavy, pendulous mosses—drenched in the intermittent spray of coolant leaks—hang from the undersides of walkways like emerald beards. This is not a wild jungle, but a parasitic one; the vegetation feeds on the heat of the engines and the mineral-rich runoff of the rusting iron. 
+
+The **Water** here is a creature of habit. It does not fall as rain; instead, it manifests as "The Weeping." Every hour, as the massive central drive-shaft completes a single, glacial rotation, the temperature fluctuations cause a sudden, heavy condensation. For ten minutes, the industrial grove is shrouded in a thick, warm fog, and every surface drips with heavy, tea-colored droplets. Small, localized "rivers" flow along the grooves of giant screws, pooling in the basins of dormant turbines before evaporating back into the humid air.
+
+The **Fauna** is abundant and evolved for a world of vibration and verticality. You see "Gear-Moths" with wings made of translucent, iridescent membranes that vibrate in sympathy with the machine's hum, allowing them to levitate without flapping. Heavy-shelled "Clinker-Crabs" scuttle along the red-hot steam pipes, their ceramic carapaces glowing dull orange as they scrape away the calcified mineral deposits. There are birds—thin, wire-legged things—that nest in the teeth of the gears, timed so perfectly to the slow rotation that their hatchlings never touch a moving part until they can fly.
+
+The **Dynamics** are agonizingly slow. The machine is in an **Established** state of erosion; it has been grinding against itself for eons. The wear patterns on the brass railings are millimeters deep, polished to a mirror finish by the passage of uncountable hands or paws. Nothing changes quickly here. The growth of a single fern takes decades; the rust creeps across a plate with the patience of a glacier. 
+
+It is a small, claustrophobic world of immense detail. You are trapped in a single "room" of a universe-sized factory, a place where the scale of the machinery is "Extreme" but the livable space is a mere hamlet of walkways and hanging gardens. 
+
+You find yourself standing on a balcony overlooking the central shaft. Below you, the Strut plunges into the white void, a vertical spine of moss-covered tech. Above, it vanishes into the same haze. There is no sun, only the "Normal Light" of glowing lichen and the steady, orange pulse of heated filaments buried deep within the walls. 
+
+It is a place of profound loneliness and mechanical intimacy. The machine breathes, the plants drink its sweat, and the sound ensures you can never hear your own thoughts, leaving you as nothing more than another vibrating component in a garden that was never meant to be green.

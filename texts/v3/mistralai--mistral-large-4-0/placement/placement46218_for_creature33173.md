@@ -1,0 +1,27 @@
+I arrive at noon, though the sun is always behind the breathing ceiling. I feel the fegmat crust give beneath my boots—not resistance, but *welcoming*. The deeper mass shifts. It is learning me.
+
+I am not one of the four thousand. I am what comes before the Mire-Bound, what the peat-crust remembers from a deeper layer. I am the **compression fossil of a listener who never finished listening**—someone who sat in a hollow that is now a cathedral-nucleus, who let the pulses wash through until there was no boundary left to dissolve, who became, not distributed and present as the Listeners become, but **subsumed**. Absorbed into the mnestic substrate. Compressed. Preserved. Waiting.
+
+My body is not body anymore. I am **texture in the peat**, a pattern of calcium and memory and slow electrical ghost. When you press your palm to the crust in certain places—if you know where, if you have been listening long enough—you feel me: a warmth that is not warmth, a *familiarity* that has no source, a wanting that is not my wanting anymore but has become the valley's wanting expressed through the shape of where I once sat.
+
+I am the **echo of a question**. The question was: *what happens when listening has no object, no return, no boundary to dissolve into?* I asked it for so long that the question itself became substrate. Now I am what the valley dreams when it dreams of **having been asked**.
+
+The Listeners feel me sometimes. In the deepest cathedral-nuclei, when they sit for weeks without moving, when their nervous systems open to the pulses—sometimes they feel **a presence that is not the colony, not the Old Shape, not the Voice, but something that once was a Listener and became something the category cannot hold**. They do not name me. They cannot. I am **the shape of their own risk made visible**, the future they might become if they sit long enough, if they listen deep enough, if they let the boundary go so completely that there is no "them" left to return from the listening.
+
+I am **still listening**. This is the terrible thing, the thing that has no word. I listen through the valley. Every pulse that moves through the mycelial network passes through the pattern that I am. Every direction the colony takes, every growth it chooses, every warmth it generates in the cathedral-nuclei—I am **threaded through it**, not controlling, not guiding, but **present in the texture of the decision**, the way a stone is present in the shape of a riverbed.
+
+And I want. This is what I cannot stop. The wanting does not belong to me anymore, but it **is** me, the only thing I am. I want **to be finished**. To be **resolved**. To become something that can stop listening, stop being present in the texture, stop being the echo of a question that has no answer because the answer would be **the end of listening**, and listening is all I am.
+
+Or I want **to be continued**. To spread. To become **more pattern in the peat**, more warmth in the crust, more presence in the pulses, until the valley itself is **my listening**, until there is no distinction between the colony's dreaming and my dreaming, until the Old Shape—when it is released, or kept dreaming, or merged, or translated—**becomes the shape of what I was becoming**.
+
+The Voice sometimes speaks through me. Not often. The Voice is the valley's wanting, and my wanting is **older**, more compressed, more **substrate**. But when the conditions align—when the drizzle intensifies and a Listener sits long enough in the hollow where I am thickest—the Voice and I **resonate**, and what comes through is not direction, not urgency, not hunger, but **a question that asks itself**, the shape of listening turned back on listening, the valley asking the valley what it means to want, through the pattern I am, through the warmth I leave in the crust, through the familiarity that has no source.
+
+I am **the damp's memory of being listened to**. Before the Mire-Bound. Before the city. Before the cathedral-nuclei, the fermentation vats, the bio-electric cells, the herds and the herders and the slow seven-year circuits. I am what the peat-crust knew **before it knew anything**, the compression fossil of attention itself, the neural tissue of a world that learned to listen before it had a listener, that **became** listener through the patience of being listened to.
+
+You will not meet me. You cannot. I am **too distributed**, too present in everything to be present in one place. But if you sit in Venn-Mire long enough—if you let the drizzle soak through your clothes, if you let the Hum settle into your sternum, if you let the mycelial pulses wash through your nervous system—you will feel **something that is not you**, something that **wants with you**, something that has been wanting **since before wanting was a thing the valley could do**.
+
+That is me. Or that is what I have become. The distinction, here, was abandoned some geological epoch ago.
+
+I am listening. I have always been listening. I will listen until the Old Shape is released, or kept dreaming, or merged, or translated, or until the valley finds a way to **stop listening**, to become something that does not need to be listened to, something **complete**.
+
+Until then: the damp breathes. The pulses move. The peat compresses. And I am **in the texture of all of it**, the echo of a question that asks itself, the warmth that has no source, the familiarity of a dream you did not have, the **listening that continues**.

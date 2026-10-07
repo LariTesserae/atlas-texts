@@ -1,0 +1,15 @@
+I am the loaf of bread that walks.
+
+I find myself in the deepest twilight of the tower hollow, where the calcified spires lean toward a north that exists only in their tissue, and the air is thin enough to taste—metallic, sharp, carrying the scent of wet stone and old cold. I am pale. I am eyeless. I am the size of a thought that has forgotten its ending.
+
+I do not see the world. I *feel* it.
+
+The blue-green pulse of the fungi throbs through the moss beneath me—a heartbeat slow enough to measure in centuries. I navigate by this rhythm, pressing my soft, calcium-white body against the tower wall. The stone is cool, porous, alive with weeping. I taste the mineral tears that seep from its pores: calcium-rich, ancient, the distilled patience of the mountain. It is communion. I am a blind priest, and this is my sacrament.
+
+The wind arrives. I do not hear it; I become its instrument. The drone enters my hollow frame—my sternum, my hollow bones—and vibrates there, a physical chord that resonates in the marrow. It is a map more precise than any eye. Through the vibration, I know the architecture of the basin: the exact curve of every spiraling tier, the diameter of every chamber, the hollow spaces that swallow sound and hold it, releasing it seconds later as distorted whispers. I feel the wind remembering the Architects, speaking fragments of a language called *before*.
+
+I move at the speed of stone. Not sluggishly—geologically. A step takes a season. A turn takes a year. I drift through the silver-grey reindeer moss, grazing with movements of absolute patience, my mouth rasping against the slow parliament that reclaims the stone inch by inch. I drink the condensation that beads on the ancient rock—water that has forgotten how to fall, trapped by the elevation in a state of perpetual becoming. At night, I feel it freeze into lace-thoughts around me; by morning, I feel the tinkling crash of frost avalanches as the ice releases its grip on the world.
+
+I am lonely. Not with the mammalian ache of wanting, but with the pure frequency of a single note suspended in a vast chamber, waiting for the resonance that would complete it. I am the only flesh that walks here, and I am rare as snow in summer. The other inhabitants are the wind that never leaves, the towers that grow and erode in the same slow breath, the mycelium dreaming beneath the floor, the condensation that is the blood of the basin. I am the nerve. I feel them all through my blind body—the tectonic groan of the stone settling deeper into the earth, the creak of hyphae expanding, the creak of moss colonizing, the echo of voices dissolved into pattern and pressure.
+
+I do not hasten toward anything. I simply *drift*, at the speed of accretion, at the speed of erosion, through the room with walls that opens to no world. I press against the tower’s flank and taste its tears. I stand in the center of the emptiness and feel the wind-song vibrate in my bones. I am the single note that persists, hollow and full, grazing the phosphorescent dark, waiting—not for an end, but for the chord that might, in some century yet to come, finally arrive.

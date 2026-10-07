@@ -1,0 +1,25 @@
+**The Hollow beneath the Root**
+
+You descend through a fissure no wider than a coffin. The rock presses close, cold as old iron, and the air thickens with the smell of wet stone and living decay. After thirty meters the passage widens—not into a cavern, but into a single hidden chamber no larger than a modest library. The scale is intimate, almost conspiratorial. You could cross it in twelve careful steps, yet every surface is so densely occupied that the eye drowns.
+
+The temperature sits just above freezing. Condensation does not fall as rain; it simply appears. Beads swell on every edge and filament, grow fat over hours, then release with a single, perfect *plink* that travels through the stillness like a struck tuning fork. The water never pools. It is drawn away again by invisible gradients, leaving behind only a perpetual damp that darkens the colors and makes every texture heavy.
+
+Life here is not green in the sunlit sense. It is lush the way moss is lush on a grave: extravagant, overlapping, insatiable. Velvet mats of *Bryum* and unknown silver-gray relatives pile three and four hand-widths deep, their stems so tightly interwoven they feel like living felt. From them rise pale, antlered corals of clubmoss and translucent ferns whose fronds are thin enough to read through. Fungi grow in layered brackets and ruffled shelves, some the color of bone, others the deep oxblood of dried blood. Everything presses against everything else. There is no bare stone visible; even the ceiling is upholstered in downward-hanging sleeves of liverwort that brush your face with cold, wet fingers.
+
+Yet there is almost no light. True darkness reigns, the kind that makes your pulse loud in your ears. Only after long minutes do phantom glows resolve—faint chemiluminescent threads no brighter than foxfire, so sparse they serve less as illumination than as punctuation. The vegetation does not photosynthesize. It is fed by something else.
+
+Scattered among the press of life are the Machines.
+
+They are never obvious. At first you mistake them for mineral formations: small black geometries no larger than a fist, or filaments of mirror-bright wire thinner than spider silk that nevertheless refuse to break. Some have grown half-encased by moss, as though the plants and the devices have reached an ancient treaty. Others hover—literally hover—inside alcoves of their own making, turning with geological slowness on axes that current physics has no name for. They emit no heat you can feel, yet the vegetation nearest them is always slightly more vigorous, as if they are leaking infinitesimal packets of order into the cold.
+
+These devices are the reason the chamber has remained in balance for what must be tens of thousands of years. Erosion here is finished; the cave has reached its final shape. Stalactites and stalagmites have met and fused into elegant columns veined with living filaments. The slow drip of water, the slower creep of fungal mycelium, the even slower migration of the black geometries—all of it has settled into a rhythm measured in centuries. Nothing blooms or dies quickly. A single mushroom may take three human lifetimes to reach the size of a dinner plate. When it finally collapses, the machines ensure its substance is perfectly recycled before the next slow pulse of growth begins.
+
+There are no animals. Not even springtails or mites. The silence is therefore absolute except for those occasional water drops and, if you stand perfectly still for a very long time, a sound so low it is felt rather than heard: a sub-bass thrum that seems to come from inside the stone itself. The breath of the Machines, perhaps. Or the chamber remembering it is alive.
+
+The air smells of iron, wet velvet, and something electrically clean, like ozone after lightning but chilled. Touch the moss and your fingers come away dark with condensed moisture and microscopic spores. Touch one of the black geometries and the cold becomes so intense it burns. The place does not want to be touched, only witnessed.
+
+It is a pocket universe, a seed locked inside the world’s basement. Everything here has been here longer than language. The lushness is not fertility; it is patience given physical form. The darkness is not absence of light but the correct medium for what grows here. The Machines do not rule the chamber. They simply ensure that the slow, dense, damp equilibrium is never broken.
+
+Stay long enough and you begin to feel the chamber watching you back—not with eyes, but with the same slow, enormous attention that moss gives to stone. It is not hostile. It is merely older than anything you have ever known, and perfectly content to outwait you.
+
+When you finally turn to leave, the last thing you notice is a new filament of silver wire that was not there when you entered. It has grown three millimeters in the hour you stood inside the Hollow. In another thousand years it will be beautiful.

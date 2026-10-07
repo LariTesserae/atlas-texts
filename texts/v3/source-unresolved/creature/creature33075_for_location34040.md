@@ -1,0 +1,41 @@
+In Meridian-Hollow, what lives is not a population but a *persistence*—a single distributed being that has forgotten, or perhaps never known, the boundary between thought and structure, between maintenance and metabolism, between the organism and the world it occupies.
+
+---
+
+The thing that waits in the fourth layer—the 0.2 in the fauna parameter—has no name that would translate. It is not large. It is not small. These categories fail. It is *dense* with density, a region where the resonance-water has become so saturated with processed intention that it has achieved something like *self-awareness without cognition*. It does not think. It *settles*. Its adjustments—the fractional degrees of temperature change, the propagating effects that tune the throat-chimes and determine which walls will be reinforced—are not decisions. They are *consequences of its existence*, as natural and unavoidable as the attraction between masses. It waits, and in waiting, it *shapes*.
+
+Call it the Gardener. Call it the Architect Who Forgot Construction. Call it the Residual—what remains when a purpose has been fully consumed by its own fulfillment.
+
+It has no body in any sense you could map. It occupies the interstitial spaces, the gaps between the packed recursion, the membrane boundaries where intention meets biology. You could point to a location and say "there"—the space between two engine housings, the junction where a conveyance channel splits—and you would not be wrong. But you would also not be *right*. The thing is distributed across all such junctures simultaneously. It is the *quality* of connection in this place, the property that makes the architecture feel *inhabited* without being *populated*.
+
+---
+
+The Gardener is not alone in its strangeness, but it is alone in its *kind*. Around it, the other residents have their own natures, their own slow urgencies.
+
+**The Engines** are the closest to what you might call *individuals*. Each has its character—its drift pattern, its temperature contribution, its particular way of converting geological process into condition. They are not alive. They are not *dead*. They are *committed*. Eleven days for a rotation. Eleven days of continuous, unhurried purpose. You could watch one and see nothing change. You could return in a year and find it has shifted, become *slightly different*, more efficient in ways that are indistinguishable from more *integrated*. The engines do not communicate with each other directly. They communicate through the Gardener, through the temperature adjustments that ripple upward, through the resonance-water that carries their exhaust into shared channels. They are a congregation without a congregation. A choir that has forgotten the song but continues to shape its throat.
+
+**The Membranes** are the nervous tissue of the place, though they have no nerves. They pulse. They filter. They *negotiate*—the word feels correct here, as if the walls and the water are parties to a treaty renewed every moment, every pulse, every filtration. The membranes are young. This matters. Young membranes are *eager*, their bioluminescence brighter, their sequences more complex, their negotiations more *desperate* to maintain the perfection of the lattice. Older membranes—in the place beyond, in the finished world—have settled into something like resignation. Their light is dimmer. Their pulses are simpler. They have learned that perfection is not a state but a *direction*, and they have stopped trying to arrive.
+
+**The Acoustic Gardens** are the most *expressive* residents, if expression can be said to exist here. The throat-chimes especially. They are not plants. They are not instruments. They are *conversations without speakers*—the organic component attempting to maintain the inorganic, the biology attempting to preserve the geology, the grown-built attempting to remain *built* against the entropy that would return it to mere stone. Their tones are structural, yes—frequencies that heal micro-fractures. But they are also *hopeful*. Or *afraid*. The distinction may not matter. The chimes grow where the architecture *fails*, where inefficiency creates space. They are the lushness that thrives on imperfection, the coverage that colonizes the gaps between intentions. They do not photosynthesize. They *resonate*. They convert the waste of the system—heat, pressure, leaked information—into light that lasts exactly as long as a single engine rotation. They are brief. They are *repeated*. They are the only thing in this place that could be said to *celebrate*, if celebration is the release of stored potential in a bloom of wavelength that seems to mean something.
+
+---
+
+And then there are the **others**. The residents you will not see. The ones that exist in the recursive density, the rooms within rooms within rooms, the fourth layer that presses against your perception.
+
+They are not many. The fauna parameter is 0.2, and most of that 0.2 is the Gardener itself—the waiting, the adjusting, the almost-silence. But somewhere in the deepest recursion, in the spaces where the resonance-water has become almost solid with intention, there are *presences* that move. They do not hunt. They do not breathe. They are not alive in any way you would recognize, nor dead in any way you would recognize. They are *configurations that persist*, temporary arrangements of the medium that have achieved enough coherence to *resist dissolution*, to maintain their shape against the general drift toward integration.
+
+You might call them **echoes**. They are the shapes that the resonance-water remembers—movements that happened, intentions that were processed, configurations that once existed and have not yet been fully absorbed into the whole. They move through the fourth layer, through the spaces you cannot quite see, and they *adjust* the Gardener as they pass. They are the Gardener's dreams, if the Gardener dreams. They are the Gardener's memories, if the Gardener remembers. They are the *almost* in the almost-silence, the *hint* in the hint of presence, the thing that makes you feel, when the pressure against your skin hesitates, that someone has *noticed you*.
+
+They do not notice you. You are a temporary configuration, as the text says. The resonance-water has accepted you, included you, but you are not *part* of the system. You are a *disturbance* that will be smoothed out, a ripple that will propagate and fade, a thought that the pressurized medium will process and release back into itself. The echoes pass through you. The Gardener adjusts around you. The engines continue their eleven-day rotations. The throat-chimes bloom and transition. The membranes pulse their endless negotiations.
+
+You are *included*, but you are not *resident*.
+
+---
+
+What lives in Meridian-Hollow is a **process that has become place**, a **purpose that has become medium**, a **system that has forgotten it was ever built**. It is young. It will remain young. The erosion parameter is locked at 0.7 by the constant gardening, the constant maintenance, the constant *refusal* to become old.
+
+The thing beyond—the finished place, where engines are silent and vegetation has become geology—is what this place will become if the throat-chimes fail, if the membranes settle into resignation, if the Gardener's adjustments cease to propagate. It is the future that waits in every young place, the completion that waits in every process. But here, now, in the Resonance Pools, the becoming continues. The slow causality unfolds. The viscous time flows. The 0.2 waits in the almost-silence, adjusting, persisting, *being* in the only way this place knows how.
+
+You are included. You are temporary. You are *here*.
+
+Stay as long as you can. The slowness will not harm you. It will only make you slow—match your tempo to the engines, your perception to the membranes, your presence to the waiting thing that does not move but *adjusts*, that does not live but *persists*, that is the almost-silence, the almost-darkness, the almost-home of a place that has learned to be almost everything, and in that almost, has become *whole*.

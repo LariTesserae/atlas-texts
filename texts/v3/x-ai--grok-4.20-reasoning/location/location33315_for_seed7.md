@@ -1,0 +1,21 @@
+**The Underfold of Veyr-Keth**
+
+You stand inside a wound that has not yet learned how to scar.
+
+The cavern is no larger than a modest hamlet — perhaps three hundred meters at its widest — yet the ceiling vaults upward like the inside of a broken cathedral bell. The rock is young, almost indecently so. Jagged plates of basalt and pale anhydrite lean against one another at violent angles, their edges still sharp enough to cut skin if you brush them. There are no smoothed flows, no patient draperies of flowstone. This place tore open recently (decades, perhaps centuries, nothing to geology) and has not yet forgiven the violence.
+
+Heat presses against you at once, thick and damp, 2.8 on any scale that matters. It is not dry desert heat but a living, moist oppression. Condensation beads on every surface and gathers in slow, deliberate drops that sometimes take ten minutes to fall. When they do, the sound is shockingly loud in the near-silence: a single *plick* that travels across the open floor like a thrown coin. These drops collect in shallow, skin-warm pockets cupped between the rocks — never a river, never a lake, only these intermittent mirrors that reflect the faint glows above them.
+
+The vegetation is lush but strangely mannered. It refuses to crowd. In the open center of the chamber lies a wide negative space of bare stone and rusted plating; around its edges, and in isolated groves against the walls, the growth becomes almost obscene. Vast pale sporophores rise like pale trees, their gills trembling with microscopic patience. Curtains of filamentous moss hang from fractures, heavy with moisture, swaying only when your breath disturbs them. Some of the larger fungal bodies have incorporated the industrial remnants directly into their flesh: rust-red veins run through milky caps, and where steel pipes have corroded, the metal has been gently pried apart by fibrous white mycelium that grows in perfect imitation of wiring diagrams.
+
+There is no animal life. Not one insect. Not a single mite. The silence is so complete that your own pulse eventually feels like an intruder.
+
+Scattered through the chamber stand the remnants of a small industrial complex — a geothermal processing node, perhaps, or an experimental chemosynthetic refinery. A single prefabricated control hut leans drunkenly against a stalagmite that has grown through its floor since it was abandoned. Further on, an enormous turbine housing lies half-buried, its blades frozen mid-turn for so long that fungal shelves have formed perfect rings inside the cowling. Thick cables, brittle with age, still carry the faintest ghost of current; every few hours one of them gives off a tired orange spark that briefly illuminates a circle of dripping moss before dying again. The machines are not ruined so much as *being slowly eaten* — but the eating is so patient it will take centuries more to finish.
+
+The only light is what the place itself excretes. A dim, cold bioluminescence leaks from the gills and stems, the color of moonlight on bone. It is barely enough to navigate by, yet it is enough to reveal that the growth is not random. The fungal groves arrange themselves in faint industrial geometries — rectangles, branching hierarchies, even something like assembly-line logic — as though the vegetation has inherited the memory of the machines it is digesting.
+
+Everything here moves according to the slowest possible clock. A drop forms. A filament lengthens by a hair’s breadth. A rusted girder settles another millimeter into the warm stone. The air itself feels thick with postponement. You sense that if you sat down and never moved again, the chamber would eventually grow around you without hurry, incorporating your bones into its slow, luminous architecture.
+
+This is not ruin. It is not reclamation.
+
+It is two alien processes — one technological, one biological — learning how to dream in the same dark, using the same hot, wet materials. They have all the time in the world. The wound is still fresh. The scar has not yet decided what shape it will take.

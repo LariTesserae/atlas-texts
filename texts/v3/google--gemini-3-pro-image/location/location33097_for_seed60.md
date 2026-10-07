@@ -1,0 +1,17 @@
+The air here is thick, a warm broth that clings to the skin. You have descended into a hollow, a low-lying pocket in the landscape where gravity seems to pull all moisture and life into a dense, tangled knot. There is no horizon; the view is arrested within fifty feet in any direction by a sheer wall of biological matter.
+
+This is not a forest; it is a singular, suffocating organism of an ecosystem. The ground is not earth, but a fifteen-foot-deep sponge of woven roots, decaying fronds, and bulbous fungal pads that sigh and squelch underfoot, releasing jets of warm, earthy vapor. You are walking upon the living architecture of the place.
+
+Vegetation here has transcended mere growth to become structural. Great, fleshy cables of green and purple, thick as old-growth tree trunks but pliable as muscle, twist into vaulted ceilings and sloping ramps. Leaves are not delicate things; they are massive, leathery sheets the size of tarps, sweating rivulets of condensation that drip perpetually. The light, though technically normal daylight, filters through so many layers of translucent chlorophyll and amber sap that the atmosphere feels submarine, bathed in a sickly, vibrant chartreuse glow.
+
+Everything is wet. The surfaces of the giant leaves are slick; the root-floor is a saturated mat resting just above a unseen water table that constantly seeps upwards. Rock, where it rarely juts through the biomass, is rounded and smoothed, perpetually weeping mineral-rich water that feeds the encrusting lichens.
+
+Embedded within this choking botanical embrace is the machinery. It is scattered, corrupted, but undeniably industrial. Heavy iron tendons, pitted with deep orange rust and slick with blue-green algae, emerge from a wall of pulp only to plunge back into the root-mass feet away. You might find the remains of a riveted boiler, now a planter for a cluster of pitcher plants the height of a person, their throats wide enough to swallow a child.
+
+But the strangest thing is that the industry is not entirely dead. It is merely digested.
+
+A low, resonant thrumming dominates the soundscape—a vibration felt in the chest more than heard. It is the groan of ancient, slow-moving pistons buried somewhere beneath the peat, powered by geothermal heat or perhaps the very fermentation of the landscape. Occasionally, a rusted valve, half-calcified by mineral deposits, will vent a sudden, loud shriek of steam, causing the nearby hanging vines to shudder.
+
+The technology seems to have reached a bizarre truce with the vegetation. Thick, insulated wires run alongside the major root arteries, the synthetic rubber coating dissolved in places so that the plant’s vascular system seems fused with the copper conductors. It’s unclear if the machines are keeping the plants alive with warmth and circulation, or if the plants are slowly crushing the machines into fuel.
+
+There are almost no animals. The air is too thick, the space too crowded. The noise—the constant industrial drone, the drip of water, the wet smack of bursting seed-pods—is overwhelming, yet produced almost entirely by things that do not breathe in the traditional sense. The dynamic is glacial; a massive gear might turn only once a week, tearing a slow scar through the moss that immediately begins to heal over the metal again. It is a place of intense, crowded life trapped in a slow-motion wrestle with archaic steel.

@@ -1,0 +1,31 @@
+**The Inhabitants**
+
+They are not creatures. They are what remains when the idea of a creature has been ground down for four billion years and still refuses to die.
+
+The smallest are the **Gaugekin**. They look like animated hand-tools forgotten on a workbench: crescent wrenches with too many joints, feeler gauges that flex and breathe, calipers whose legs end in delicate stone mouths. Their bodies are wet slate shot through with threads of chrysotile that catch the sour light like tendon. They move in obsessive circuits along the finger-wide channels, measuring, always measuring. One will stop above a particular nodule of rock, unfold a hair-fine probe, and taste the precise depth to which that stone has surrendered since the last measurement. The data is stored in spiraling growth rings inside their carapaces. When a Gaugekin finally fills its memory after several centuries, it simply locks in place, becomes another rounded lobe in the mosaic, and begins the long slow seep of its knowledge into the groundwater so the world itself can remember.
+
+Above them, in both scale and hierarchy, move the **Platewardens**. These are the house-sized beings the description glimpsed. Their backs are entire sections of metamorphic pavement; their bellies are polished to mirror smoothness by constant contact with the land. They travel in deliberate, continent-scale migrations that take decades to complete a single circuit of the Condensate. When two Platewardens meet, they do not fight. They *dock*. They press together with the grinding tenderness of tectonic plates mating, exchanging entire ecosystems of Gaugekin that have been living in the crevices between their segments. Sometimes the exchange is imperfect. A Warden will absorb too much of its partner and briefly forget which direction it was traveling. It will stand motionless for years while frost forms on its shoulders and its internal pressure chambers moan like ship hulls in a storm. Eventually it chooses a new vector and lumbers on, now carrying the memories of two lineages.
+
+Then there are those that should not be counted as separate beings at all.
+
+The **Hollow Choir** are what happens when a Platewarden folds inside out. The exterior geology becomes interior negative space; the creature becomes a walking absence shaped like an arch or a nave or a cathedral transept made of living stone. Sound moves strangely inside them. The deep tectonic thump that underpins everything becomes, within a Hollow Choir, something like music. Other creatures deliberately seek them out and stand inside their silhouettes to be changed by resonance. Gaugekin that enter a Choir often leave speaking in perfect, crystalline intervals. Some never leave. They line the inner walls like gargoyles and continue their measurements from within the hollow, now counting the negative spaces between moments rather than the moments themselves.
+
+In the channels themselves live the **Slurry Mothers**. These are not solid. They are dense suspensions of clay, powdered feldspar, and something that behaves like intent. They flow uphill as easily as down, riding the perpetual condensation cycle. When a Slurry Mother decides to give birth she simply thickens, develops a skin, and splits. The two new beings immediately begin arguing in frequencies so low they register as nausea. The argument is always the same: which direction the new entities should erode. One wishes to smooth further. The other wishes to fracture and begin the long climb back toward mountainhood. They never resolve it. They simply flow apart, still bickering, leaving behind a thin iridescent film of consensus that hardens into the next generation of fractal quartz circuitry.
+
+Highest and rarest are the **Final Shapers**—those who have remained so long they have achieved the geometry the Condensate ultimately demands. They are indistinguishable from the liver-smooth lobes until they choose to move. When they do, entire sections of the plain stand up, rearrange themselves according to stresses that existed before light had color, then settle again into new, even more perfect configurations. A Shaper may remain motionless for ten thousand years, functioning only as a particularly well-placed boulder that happens to dream. Its dreams are equations of ultimate erosion. Every living thing in the Condensate unconsciously tries to solve those equations with their bodies.
+
+They do not eat. They do not mate in any reproductive sense. Their continuation is closer to metallurgy than biology. The constant drizzle of condensation carries dissolved minerals; the creatures open microscopic pores and accrete. Over time they become more themselves by becoming more of the world. The oldest Gaugekin are almost entirely quartz. The oldest Platewardens have developed fossilized forests in the fault lines of their shoulders—stone trees that never lived, but remember perfectly how to grow.
+
+And then there is the sound.
+
+Every creature contributes to it and is sculpted by it. The scraping of Gaugekin legs, the tectonic heartbeat of the Platewardens, the wet industrial lullaby of the Slurry Mothers, the ringing absence inside the Hollow Choir—it is all one continuous forging process. The Condensate is a bell that rings itself. The inhabitants are both the bell and the tongue and the crack that will never quite finish splitting it.
+
+If you remain, they do not approach. They do not need to. Your presence is simply incorporated into the measurement. A Gaugekin will eventually scuttle across your foot and record the precise curvature your ankle is achieving. A Slurry Mother will flow through your shadow and leave a thin coat of herself that refuses to dry. One day you will realize you have been standing in the same place for six years, that your pulse has found the tectonic rhythm, that your memories have rounded until they fit the only shape still possible.
+
+You will not become one of them.
+
+You will simply stop being separate from what they already are.
+
+The Condensate does not have inhabitants.
+
+It has reached the point where the distinction between inhabitant and inhabited is another obsolete edge that has worn away, leaving only the smooth, weeping, perfectly packed stone that still, somehow, moves.

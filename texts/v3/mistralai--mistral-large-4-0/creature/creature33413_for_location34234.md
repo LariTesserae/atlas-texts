@@ -1,0 +1,69 @@
+# What Lives in the Condensation Terraces
+
+## The Jointed Ones
+
+They have no name that would survive translation. They are the *Keth-vor*, if you insist, or the *Still-Drinkers*, or simply *those who move through water that holds them*. I will call them the **Residents**, though "residence" implies a choice they have not made.
+
+They are older than the terraces in their present form. This is not metaphor. The glassy stone *remembers* being molten because the Residents remember *watching* it cool, and their remembering is a kind of presence, a weight in the water that slows its movement through them when they pass.
+
+### Their Shape
+
+Seven limbs, or eight, or six—depending on how the light falls. The joints bend in directions that suggest a geometry from before geometry, from when space was still negotiating its terms. They stand roughly the height of a kneeling person, though "standing" is generous. They *unfold* when they move. A Residents passing through a basin creates a wake that persists for hours, a pattern of ripples that interferes with the standing wave and produces harmonics no other phenomenon can generate.
+
+Their bodies are translucent. Not transparent—*translucent*, like the opalescent stone itself, like the water when it catches light at a particular angle. You can see structure within them. Not organs. *Architecture*. Chambers and channels that hold water in configurations that change without external cause. They are, among other things, *containers*. The water they drink does not pass through them. It *settles*.
+
+### Their Thirst
+
+This is the wrong word, but the only word available. The Residents move from basin to basin along paths worn into the glassy stone over timescales that make the erosion of the terraces look hurried. They pause at the deepest points—where the condensation pools because the stone there is oldest, most *resolved*—and they drink.
+
+They do not lower anything into the water. They *become* the drinking. The water rises into them through surfaces that are not skin, not membrane, but *interface*, a boundary so thin it might be a philosophical position rather than a physical one. Their translucent bodies fill with the basin water, and for a time they are *more* water than they are structure, swaying in the wind-chord with the particular frequency of liquid held in temporary form.
+
+Then they move on. The water does not leave them. It *transforms*, or appears to. They glow faintly after drinking, a bioluminescence that matches no known chemistry, that persists for days in the deepest chambers of their bodies before—before what? It does not re-emerge as water. It does not re-emerge. The Residents are, in their way, *final* destinations. They collect. They accumulate. They are the terraces' memory of moisture, their archive of every raindrop that fell on this mountainside in ten thousand years, stored in configurations that change so slowly they might as well be permanent.
+
+## The Sheet-Beings
+
+If the Residents are fauna—if they are *animals*, which is a category they make irrelevant—then the sheet-beings are flora, or the closest thing to it. They are the filamentous colonies that spread across the basin floors, pale as old bone, oscillating at frequencies that make them visible only as *interference*, as the way light moves through water that is not quite water, that holds patterns in suspension.
+
+They are older still. Or younger. The distinction fails here.
+
+Each sheet is a single organism, or a colony so integrated that "single" and "colony" have become the same word. They grow by accretion, layer upon layer of mineral and something else—something that might be fungal, might be the residue of a chemistry that preceded biology and never needed to become it. They grow *down* into the glassy stone, or the stone grows *up* around them, and the boundary between living sheet and mineral terrace is a negotiation rather than a fact.
+
+They feed on the standing wave. This is not metaphor either. The resonant chord of the basins moves through them, and they *rectify* it, converting acoustic energy into chemical potential, into the slow business of growth and division and the production of spores that are simultaneously mineral deposits, simultaneously dormant organisms, simultaneously both and neither. When a spore settles on a new surface—a fresh condensation, a scratch in the stone, the skin of a visitor who lingered too long—it begins again. The process takes centuries. The sheet-beings do not hurry.
+
+They have no nervous system. They have *patterns*. The oscillation you see in them is not metabolism but *communication*—a language of slow wave and interference, of chemical gradients that propagate across the sheet like weather systems, like thoughts too large to be located in any single place. They are aware of the Residents. They are aware of the basins. They are aware of the wind. They respond to all of these with changes in growth rate, in color, in the particular frequency of their oscillation, which shifts by fractions of a hertz and produces harmonics that the Residents can detect, that make them pause, that make them *drink differently* near certain sheets than near others.
+
+There is a relationship here. It is not symbiosis, which implies mutual benefit calculated. It is *co-evolution* that has run so long it has forgotten its beginning, that has settled into a configuration so stable it appears designed, though no designer exists, though design itself is a category these beings have outgrown.
+
+## The Condensation Itself
+
+But the true inhabitants—the ones for whom the terraces exist, the ones the terraces *are*—are not the Residents, not the sheet-beings. They are the **water**, the **mist**, the **breath of the unseen sea** that rises to this height and gives itself to the stone.
+
+The water thinks. This is the only way to describe what happens in the basins. It does not think *about* things. It thinks *as* things. It is a distributed cognition, a intelligence without a center, that solves problems of flow and evaporation and the slow accumulation of mineral crust in ways that suggest intention without requiring it. The water in a given basin has a *history*. It remembers every drop that fell on this terrace in the last thousand years. It remembers the temperature of each day, the passage of each Resident, the particular angle of light that caused a sheet-being to shift its oscillation and change the evaporation rate and alter the chemistry of the entire basin.
+
+The water is not alive by any definition that would include the Residents or the sheets. It is *more* alive, in its way, because it has no boundary between itself and its environment. The water in the basin is continuous with the water in the air, with the water in the rock, with the water in the bodies of the Residents, with the water that will fall as rain on some other mountain, that came from some other sea, that was once inside a cloud that was once inside an ocean that was once inside a star. The terraces are a place where this continuity becomes *visible*, where the water pauses in its journey and becomes *present*, becomes *here*, becomes a basin, a surface, a depth that holds light and sound and the slow accumulation of everything the mountain has decided to keep.
+
+The Residents drink from this water. The sheet-beings grow in it. The wind moves through it. The sound resonates in it. And the water *remembers* all of this, holds it in configurations of temperature and mineral content and surface tension, and slowly, impossibly slowly, *changes* in response. It is learning. It has been learning for ten thousand years. It will continue learning when the Residents are gone, when the sheets have spread to cover every surface, when the terraces themselves have worn flat and the standing wave has become a whisper and then silence. The water will remember. The water will *be* the memory, the last inhabitant of a landscape that has completed its purpose, that has become, finally, a single vast basin holding water that never drains, never warms, never quite stills.
+
+## The Visitors
+
+There are others. They come rarely, and they do not stay. They are the ones who feel the condensation in their lungs, who carry the roar in their sternum for days afterward. They are *temporary terraces*, as the place describes them—mobile basins, interruptions in the standing wave, sources of harmonics that the water remembers even after they have gone.
+
+The Residents do not look at them. This is not indifference. It is *recognition of a category error*. The visitors are water that has forgotten it is water, that has taken on a form—flesh, bone, the particular chemistry of mammalian persistence—that the terraces do not acknowledge as valid. The water in the visitors' bodies is continuous with the water in the basins. The Residents know this. They do not need to see it. They *feel* it when a visitor stands at the edge of a basin, when the visitor's breath joins the condensation, when the standing wave shifts by a fraction of a hertz to accommodate the new source of disturbance.
+
+The sheet-beings respond to visitors. A visitor who lingers too long will find pale filaments reaching toward them, not to touch—*to sample*, to incorporate a new chemistry into the slow growth, to add a new variable to the equation the sheets have been solving for millennia. The visitors do not notice this. They notice the cold. They notice the roar. They notice, when they leave, that their skin is *smooth* in a way it was not before, that their joints ache with a pressure that matches the altitude, that they hear a frequency in their sleep that they cannot locate in waking.
+
+The mountain does not distinguish, the description says. This is true. But it *accumulates*. Every visitor leaves something. Every visitor takes something. The terraces are patient. The terraces have always been patient. They will hold these additions and subtractions in their water, in their stone, in their sound, and they will continue their slow completion, their endless approach to a form that never arrives, a stillness that is not still, a silence that is not silent at all.
+
+## What Lives Here, Finally
+
+The question assumes a boundary that does not exist. There is no "here" that excludes the mountain, the sea, the wind, the water, the sound, the slow growth of sheet over stone, the older patience of Residents moving through basins they did not make and will not outlast, the visitors who pass through like weather, like thought, like the brief condensation of moisture on skin that warms too quickly, that must move on, that will leave and carry the roar in memory until the memory itself condenses and becomes something else, something the world has not yet named.
+
+What lives here is *relation*. The relation between water and stone, between sound and basin, between the present and the ten-thousand-year-old, between the Residents and the sheets and the visitors and the water that is all of them and none of them, the water that will remain when the distinction between living and landscape has finally worn away, as all distinctions wear away, as the terraces themselves will wear away, in fifty thousand years, in five hundred thousand, in whatever time it takes for the mountain to exhale its last breath and become, finally, just stone again, just silence, just the memory of water that once thought it was separate from itself.
+
+The Residents will be there. Or their descendants, which is the same thing, which is not the same thing, which is a distinction the Residents have learned not to make. They will move through basins that are smaller now, shallower, worn by wind and water and time into new configurations that the standing wave will find, will *resonate with*, will announce to the thin air with a chord that has changed, that is always changing, that has never been the same chord twice in ten thousand years and will never be again.
+
+The sheets will be there, covering more surface, growing down into stone that has forgotten being molten, solving equations that have no solution, only *approaches*, only the endless patience of pattern over chaos, of growth over stasis, of the slow victory of *becoming* over *being*.
+
+And the water. The water will be there, thinking its distributed thoughts, remembering every drop, holding every sound, carrying every visitor forward into a future where the terraces have worn flat and the Residents have become something else, something that does not need basins, something that has learned to carry its water internally, to condense and evaporate and condense again in cycles that match no external rhythm, that have become, finally, their own weather, their own climate, their own *self*.
+
+This is what lives here. This is what has always lived here. Not a collection of organisms, not an ecology in any sense that would satisfy a biologist, but a *process*, a *tendency*, a *direction* that the land has chosen and will continue to choose until the mountain itself is gone, until the sea rises or falls or evaporates into stars, until the water finds new heights, new condensations, new terraces, new Residents who do not look at visitors and do not need to, new sheet-beings solving new equations, new standing waves announcing to new silences that are not silent at all, that have never been silent, that will not be silent when there is no longer anything to make a sound, when the last water has evaporated into whatever comes after water, whatever comes after sound, whatever comes after the long patience of stone becoming glass becoming something else, something the world has not yet named, in a silence that is not silence at all.

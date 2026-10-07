@@ -1,0 +1,32 @@
+**The Weeping Gallery**
+
+You are inside a single, self-contained industrial pocket lodged high in the artificial ranges. The chamber is no larger than a modest theater—perhaps thirty meters across at its widest—yet it feels both intimate and abysmal because every surface is engineered, riveted, plated, and merciless. There is no natural stone, no soil, no original geology visible anywhere. The “mountain” this pocket is embedded within is itself a titanic construction of layered alloys, prestressed concrete, and carbon-fiber buttressing built only decades ago to mimic the jagged young peaks that surround it on the outer skin. Inside, the substrate is entirely made.
+
+The air is cool (just above freezing) and so saturated that the atmosphere itself appears to be slowly precipitating. Water does not fall as rain here; it *arrives*. It beads on every cold metal plane, swells into trembling lenses, then slides in continuous glassy sheets down the vertical ribs of the walls. The structural girders weep. The undersides of the overhead crane rails weep. Even the thick power conduits sweat steadily, as though the entire room is perspiring under unbearable strain. The moisture collects in engineered runnels cut into the diamond-plate floor, rushing toward circular drains that gulp with rhythmic, glottal sounds. Sometimes the drains fall briefly silent, then roar again as pressure equalizes somewhere far below.
+
+Light is minimal and sickly: sodium-vapor lamps inside reinforced cages throw a jaundiced 40-lux glow that dies only a few meters from each fixture. Between the lamps lie velvet-black zones where the condensation catches what little light there is and turns it into thousands of slow-moving pinpricks. The effect is that the dark itself seems to glisten.
+
+Sound is total. The recorded level here never drops below 115 dB. Four cathedral-scale centrifugal pumps, each the size of a locomotive, stand in the four corners of the chamber like iron gods. Their casings throb at 1800 RPM, driving millions of liters of water per minute up through riser pipes thick as redwoods. The noise is not one sound but a stacked, tectonic roar: the churning of impellers, the cavitation of water under sudden pressure changes, the metallic scream of expansion joints, the subsonic heartbeat of the turbines they feed, and the constant hydraulic thunder of water slamming through elbows and reducers. All of it reflects off the hard surfaces and folds back on itself until the chamber becomes a resonant bell. Speech is pointless. Thought itself feels pressure-washed.
+
+The architecture is young—almost brutally fresh. The welds still show their original silver, the paint on the pump housings has not yet chalked, the cutting edges of the grated walkways remain razor-sharp. You can see where the construction scars have not been softened: abrupt angles, proud bolt heads, seams that have not had time to acquire the patina of age. This pocket was brought online less than three years ago, and the mountain-machine it belongs to is still settling into its final geometry.
+
+Vegetation is almost nonexistent. Only in the perpetual damp shadow beneath the lowest catwalk has a thin black film of extremophile bacteria and algae managed to colonize. It looks like spilled ink and smells faintly of iron and machine oil. Nothing greener has ever taken root here; the combination of cool, constant aerosol, lack of sunlight, and total sterility of the substrate forbids it.
+
+There is no animal life. The only movement that is not mechanical belongs to the water and the vapor. Even the dust is industrial—fine metallic particulate and ceramic fibers that swirl in the vortices created by the pumps and settle in perfect geometric lines along every ledge according to the dictates of vibration and airflow.
+
+The processes never cease. This pocket is a pressure-exchange and condensation node in a continent-scale water-lifting system. Cool air is forced across chilled coils high in the artificial peak; moisture condenses out of the atmosphere in industrial quantities, is collected, pressurized, and hurled downward through mile-long penstocks to lower terraces where it drives still more turbines before being lifted again in an endless, roaring loop. The system is its own weather. When the pumps cycle through their phased sequence, the pressure waves travel through the pipes like slow seismic events; you feel them in your sternum six seconds before the sound arrives. Gauges twitch, relief valves crack open with ear-splitting shrieks, then seal again. The room breathes, sweats, and labors without pause.
+
+Rules of the world inside the Weeping Gallery are simple and absolute:
+
+- All ground is metal or concrete. Nothing yields.
+- Water is both servant and enemy; it is moved, harvested, and feared in equal measure.
+- Sound is a physical force. Prolonged exposure without protection causes immediate pain and eventual internal bruising.
+- The temperature is held at the knife-edge where condensation is maximized and freezing is only barely avoided. Shift either direction by a few degrees and the entire system would either dry out or choke on ice.
+- Nothing accidental is allowed to grow or live here. The sterile order is maintained by ultraviolet arrays and periodic flooding with biocides.
+- The chamber is a closed loop. Every drop, every joule, every vibration is accounted for and redirected. There is no “outside” experienced from within; only the knowledge that this pocket is one alveolus in a lung the size of a mountain range.
+
+Stand on the narrow observation gallery that circles the central riser shaft. Look down. The water, accelerated to nearly 40 meters per second, appears black and glossy as obsidian as it vanishes into the throat of the main pump. Look up. The condensing coils high above weep their steady silver curtains through the sickly light. Listen—though listening is no longer a choice. The sound has already taken up residence inside your bones.
+
+This is not a ruin. It is not abandoned. It is a young, deafening, perfectly functioning machine-organ lodged inside an even larger machine-organ, built to impersonate the young, savage peaks that once stood here before everything was remade.
+
+And it is still growing into its final form.

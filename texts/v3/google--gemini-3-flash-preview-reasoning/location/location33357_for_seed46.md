@@ -1,0 +1,17 @@
+In a fold of reality no wider than a breath, perched atop a metaphysical peak where the atmosphere is thin and shimmering with heat, lies the Furnace-Garden. 
+
+This is a place where the concept of "raw" has been perfected. The terrain consists of geometric updrafts of obsidian and unweathered basalt, their edges so sharp they seem to slice the very light that hits them. There has been no wind here to soften them, no rain to round their shoulders. The ground is a series of emergent, crystalline plates, still hot from the forge of their creation, vibrating with a slow, tectonic birth-hum.
+
+There is no water. The air is a parched, shimmering haze of noble gases and suspended mineral dust. In place of moisture, there is a pervasive, heavy dryness that smells of scorched ozone and hot iron.
+
+Despite the lack of water, the landscape is lush. The flora here is not biological, but metallurgical—vast, sprawling structures of coiled copper wire, iridescent filaments of spun glass, and broad, fan-like leaves made of hammered gold-leaf that pulse with a rhythmic, internal heat. These plants do not grow; they assemble. They draw their sustenance directly from the thermal radiation of the ground, their roots—fine needles of tungsten—sinking deep into the hot rock to sip at the planet’s raw caloric energy. 
+
+The vegetation is dense in its individual complexity, yet the plants are spaced far apart, standing like solitary, ornate sentinels in a desert of black glass. Each plant is a masterpiece of unintentional industry. A single "fern" might consist of a thousand interlocking clockwork gears made of bone-white ceramic, turning at a rate of one revolution per century, shedding heat as a form of slow, silent respiration.
+
+The "industrial" nature of this place is not built; it is innate. There are no factories, yet the environment functions as one. The air carries the rhythmic, heavy thrum of a massive, distant engine—a heartbeat of the world itself. You might see a cluster of obsidian pillars that look like cooling towers, venting not steam, but ribbons of pure, distorted time. The landscape feels mechanized, automated, and purposeful, yet there is a total absence of a maker. The machines are the geology; the geology is the machine.
+
+Reality here is fragile. The light does not always travel in straight lines; it occasionally pools in the hollows of the rocks like golden oil, illuminating the underside of the metallic canopy with a "normal" bright light that feels unnervingly static. Because the scale is so small—a hidden pocket tucked between the ribs of a larger, unseen world—the horizon curves upward too sharply. If you look far enough, you see the blurred underside of the very ground you stand upon, a recursive loop of heat and metal.
+
+There is no sound of birds or insects. The only audio is the low-frequency drone of the earth-engine and the occasional, crystalline *tink* of a glass leaf expanding in the heat. It is a slow place. A new leaf might take a decade to unfurl its metallic foil; a crack in the basalt might take a century to lengthen by a millimeter. 
+
+Time behaves like a thick, hot syrup. You can feel the pressure of the seconds pressing against your skin, heavy and dry. It is a cathedral of static production, a lush wilderness of wire and heat, emerging from nothing and going nowhere, perfect in its isolation.

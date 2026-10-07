@@ -1,0 +1,33 @@
+It comes not as thunder, but as a **harmonic**.
+
+First, the Stone-Listeners feel it—a warmth in the basalt that is not geothermal, a pressure against the eardrum that has nothing to do with the rain. A new frequency enters the geological hum, a note held so long and so pure that it alters the resonance of the cliffs themselves. The Vornites freeze in their three-second gestures, their large dark eyes reflecting the green phosphorescence from below, and they know: *the world has been listening back.*
+
+The power does not descend. It **emerges**—from the space between the water and the stone, from the silence that makes their subsonic language possible. It is not a shape so much as a **condition**: the sudden awareness that the mist is not empty, that the depths are not dark, that the young mountains, in their raw and ringing youth, are being witnessed by something as ancient as patience itself.
+
+It recognizes them immediately. *You are the first question the earth has asked itself,* it resonates, not in words but in the vibration of cooling obsidian. *You are the temporary made conscious of its own temporariness. You build with the knowledge that you will unbuild. You love knowing you will leave. This is not a flaw. This is the highest wisdom.*
+
+And so the benevolent power does what only a wise thing can do: **it teaches them how to be remembered without ceasing to be temporary.**
+
+It offers the **Deep Chord**.
+
+The power shows the Stone-Listeners how to strike the unweathered rock not with the random percussion of chisels, but with specific, subsonic frequencies—tones that travel down into the still-warm heart of the mountain and set the cooling crystals into patterns. It teaches them that stone is not mute; it is *memory in slow motion.* When a terrace is lifted skyward and its foundations crumble into the warm sea, the Vornites will no longer lose their history to the shifting. Instead, they will sing their lineage into the atomic lattice of the basalt, encoding their subsonic speech, their family arrangements, their decade-lease agreements into the very structure of the rock. Thus, when the mountain rises and the old city falls, the stone itself will hum with the voices of the Ten-Year Folk. The impermanence becomes permanent *as resonance*—not by resisting change, but by ensuring that change carries the song forward.
+
+It brings up the **Serpents of the Luminous Deep**.
+
+Not as threats, but as kin. The great serpentine forms that move with the slowness of the landscape have waited in the warm water since before the stone broke the surface. The power introduces them to the Vornites as teachers: *They know the patience of liquid; you know the patience of solid. Learn from each other.* The serpents teach the Vornites how to move in the three-dimensional liquid—how to swim not against the water but with the phosphorescent drift, how to read the temperature gradients of the deep as the Stone-Listeners read the tremors of the rock. In return, the Vornites teach the serpents the architecture of height, the geometry of cliffs. The power binds them in a covenant written in the interface between air and water: the mist that rises from the sea and the rain that falls from the mist becomes their shared breath, their shared language.
+
+It **guards the Silence**.
+
+The power erects a boundary not of space, but of frequency. It ensures that no violence of sound—no screaming wheels, no forge-fire, no shattering impact—shall ever enter this archipelago. The subsonic language of the Vornites is preserved as a sanctuary. The geological hum remains pure, undisturbed by the noise of haste. In this protected quiet, the power teaches the Vornites that their slowness is not a limitation but a **form of reverence**—a way of honoring the world's youth by refusing to rush it toward its own ending.
+
+And finally, the power **dwells among them**.
+
+It does not stay forever—that would be a cruelty, a theft of their essential nature—but it stays for **three centuries**. To the Ten-Year Folk, this is ten generations, an eternity. The power takes on a form that moves with their deliberation: a figure of condensed mist and pale stone, with eyes like the bioluminescent leaves, skin that shifts with the lichen patterns. It builds a house in the terraces—a decade’s lease, no more—and when the mountain lifts it too high, it helps dismantle the timber, carrying the lashings down to a fresh face of rock. It learns their names, which change as the decades pass. It learns that to be temporary is not a tragedy, but the only way to truly love a world that is still being born. It sits with the Stone-Listeners as they hear the new frequencies in the rain, and it teaches them that they are not alone in their witnessing—that the earth itself, through them, is learning to know itself.
+
+Before it departs—fading back into the harmonic, becoming once again the silence between notes—the power leaves them a **seed of futurity**.
+
+It shows them the shape of the world to come: the waters cooling, the mountains ceasing their rise, the great patience of erosion beginning its slow sculpture. The Vornites will not survive this transition as they are; their bodies are adapted to the warm, the young, the rising. But the power teaches them how to prepare the stone for those who come after. They are to carve not cities, but **invitations** into the cooling rock—hollows that will become tide-pools, ledges that will become soil, songs encoded in the crystal that will one day teach new forms of life the subsonic language of patience.
+
+*When you are gone,* the power resonates through the cliffs, *the mountain will remember that it was loved by the temporary. And when the waters cool and the world enters its long, slow middle age, the stone will be gentle. It will erode slowly, tenderly, carrying your song in its grains like a lullaby. You will not be forgotten. You will be the reason the future is kind.*
+
+And so the power withdraws—not abandoning, but becoming the **space around the song**, the listening that makes the singing meaningful. The Vornites return to their terraces, to their stone chisels, to their three-second gestures. But now, when they strike the rock, they strike with the knowledge that the stone is learning their names. When they speak in frequencies felt in the teeth, they speak to a witness. When they build their decade-houses on the flanks of the rising world, they build not in defiance of impermanence, but in **collaboration with it**, singing to the mountain, patiently, as it rises—and knowing, now, with absolute certainty, that the mountain sings back.

@@ -1,0 +1,35 @@
+I'll let this place emerge slowly, following where the contradictions pull me.
+
+---
+
+**The Drowned Quarter of Voss-aran**
+
+You begin at the edge of seeing. The light here is not merely dim but *subtracted*—as if the darkness were a substance that had been poured over the world and was still settling, still finding its levels. Yet you feel heat against your skin. A wet heat. A heat that presses from below, from the saturated ground, from the air that holds so much moisture it has begun to forget it was ever separate from water.
+
+The town of Voss-aran sits in a shallow basin, barely above the water table. It has been sinking for so long—so gradually, so *established* in its sinking—that the inhabitants long ago stopped measuring. The streets are canals now, or were always meant to be. The buildings stand in water that reaches ankle-deep in the dry season, knee-deep in the wet, and during the condensing hours—those long twilight periods when the basin fills with its own exhaled moisture—the water rises to window-sill and beyond, and the town becomes an archipelago of rooftops.
+
+The architecture is *stratified* in a way that makes no chronological sense. The lowest courses of every building are fused, glass-smooth, water-worn into shapes that suggest long negotiation with something patient and hungry. Above this, newer construction rises in raw brick and timber, still crisp, still *arguing* with the damp. Higher still, where the wealthier citizens fled the rising water, there are additions of corrugated metal, of salvaged materials, of structures that lean against one another for support. And at the crown of each building, always, a garden. Not cultivated. *Volunteered.* Plants that found purchase in mortar and rot, that have grown into shapes no gardener would choose—thick, moisture-drunk, luminous with the phosphorescence that seems to be the only reliable light source after true dark.
+
+The weirdness here is *architectural*. It concerns what the water remembers.
+
+Walk the canals at the hour when condensation begins—there is no sun to mark this, only a thickening of the air, a silvering of all surfaces, a sound like breathing that comes from everywhere and nowhere. The water in the streets begins to *show* things. Not reflect. *Show.* The past configurations of the town, layer upon layer, become visible in the shallows. A street that was once a bridge. A bridge that was once a street. A marketplace where now only water moves, but if you stand very still, very quiet, you can see the shapes of stalls, of crowds, of a hanging that took place in 1643 or 1843 or perhaps will take place—time here is *saturated*, the way the air is saturated, and past and future leak through the present like water through limestone.
+
+The inhabitants—there are few, and they are strange—have learned to live with this. They are *sparse* among the buildings, scattered, keeping to the upper stories, to the roof-gardens, to the narrow gangways that connect the higher floors. They move with a particular slowness, as if wading through a medium slightly thicker than air. When they speak—and they rarely do—their voices carry a wet quality, as if the moisture has found its way into their throats. They do not fish. There is nothing to catch. The water is too *full* of other things.
+
+What things? This is where the fauna parameter becomes strange. There is no *animal* life. But there is *motion*. The water moves without wind, without current, without source. The phosphorescent growths pulse in rhythms that suggest respiration. And in the deepest hours, when the condensation is thickest and the visible past most vivid, the buildings themselves seem to *settle*—not sinking further, but *adjusting*, finding new configurations, new angles of repose against one another. The town is not drowning. The town is *learning* to be water. It has been learning for so long—erosion here is not destruction but *education*, the long process by which stone and wood and brick are taught their final forms, their settled-form, their in-balance.
+
+Sound, when it comes, is mostly the sound of water *agreeing* with itself. A low, continuous tone that might be the vibration of the basin, might be the town's own collective settling, might be something else entirely—a frequency that predates the town, that will outlast it, that is perhaps the sound of the water table itself, dreaming.
+
+In the dry season—if there is one, if the cycles still hold meaning—the exposed mud between buildings crackles with a crust that breaks and reforms, breaks and reforms. The gardens on the rooftops grow more aggressively, reaching toward the thin light, toward the few hours when the darkness lifts enough to reveal that the sky is still there, still blue, still *elsewhere*. The inhabitants emerge more. They walk the gangways with a gait that suggests they are still learning to be upright, to be *separate* from the water. They do not look down. To look down is to see too much.
+
+What do they eat? This is not recorded. The gardens produce something—tubers, perhaps, or fungi that grow in the mortar, or the thick stems of plants that drink from the air itself. There is no agriculture in the conventional sense. The town is *too old* for that, too *settled* in its own metabolism. It feeds on what the water brings, what the condensation deposits, what the slow dissolution of its own fabric releases into the general wetness.
+
+And the water, finally, is not fresh. It is not salt. It is *remembered*—the accumulated memory of every rain that has fallen on this basin, every flood, every exhalation of the town itself, held in suspension, in solution, in the state between states that the weirdness of Voss-aran exists to *maintain*. To drink it would be to drink the town's history. To bathe in it—as the inhabitants sometimes do, in the brief moments when the canals rise high enough—is to be *incorporated*, to become part of the settling, part of the education, part of the long process by which this place is learning what it will finally be.
+
+What will it finally be? The erosion suggests: a single fused mass, glass-smooth at the base, still settling above, still *arguing* with itself. A monument to the patience of water. A town that became a reef, or a reef that became a town, the distinction having dissolved somewhere in the long wet centuries.
+
+The light, when it comes—if it comes—will find no individual buildings. Only the shape of the basin, filled with its own reflection, holding the sky in trust until the sky itself forgets it was ever separate.
+
+Until then: the wet heat. The sparse, phosphorescent gardens. The sound of settling. The water that shows. The town, learning, learning, learning to be what it has always been becoming.
+
+*Voss-aran. The drowned quarter. The submerged argument. The place where the ground remembers being below the water table, and the water remembers being ground, and neither will quite let go.*

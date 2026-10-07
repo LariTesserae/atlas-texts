@@ -1,0 +1,17 @@
+The peaks do not come to points; they come to edges, sharp as freshly snapped obsidian. At an elevation where the air should be thin and desiccated, it is instead a heavy, saturating shroud. This is the High Maw, a vertical expanse of raw, black basalt and weeping shale that has only recently—in geologic terms—been thrust into the sky. The rock is jagged, unweathered, and cruel, showing none of the softening influence of wind or time. It is a landscape under construction, a planetary skeleton still slick with the fluids of its own birth.
+
+The atmosphere is a permanent, cold dimness. A thick, grey mist clings to the rock faces, condensing so rapidly that the mountains seem to be breathing out water. It doesn't fall as rain; it bleeds down the vertical surfaces in constant, shimmering sheets. Where the inclines level out into narrow, high-altitude shelves, the water pools into "hanging bogs"—shallow, frigid mires of black silt and crushed stone.
+
+There is no wood here. Vegetation is a desperate, sparse afterthought: a few tufts of grey-blue lichen that feel like rusted wire, and a translucent, rubbery moss that grows only in the seams where the tectonic pressure is greatest.
+
+Yet, the silence of this empty, vertical desert is punctuated by the rhythmic, industrial heartbeat of the autonomous harvesters.
+
+Vast, mobile refineries—machines the size of cathedrals—crawl the vertical faces on multi-jointed, hydraulic limbs. They are not "built" in the sense of architecture; they are transient, functional entities of iron and grease, lacking windows, doors, or any accommodation for a living occupant. They move with a slow, agonizing precision, their massive grinding maws pressed against the raw rock. They are here to harvest the virgin minerals of the emerging crust. One might see a single refinery perched on a cliffside, a mile above the cloud layer, its cooling vents puffing out white steam that vanishes into the grey mist. Then, for twenty miles in every direction, there is nothing but the void and the weeping stone.
+
+The density of the world is skewed toward the vacuum. The space between these industrial titans is immense, a hollow theater of cold air.
+
+Despite the harshness, the fauna is prolific and strangely adapted to the presence of the machines. Great, leathery-winged kites, white as bone, wheel through the updrafts created by the refineries' heat exhaust. They nest in the cooling fins and the oily crevices of the unmoving joints. Below them, clinging to the wet rock with suction-cup vitals, are swarms of lithophagic insects—heavy, armored things that feed on the mineral-rich slurry produced by the machines’ grinding teeth. The ecosystem has grafted itself onto the industrial process; the creatures follow the hum of the engines like gulls following a plow.
+
+The sound is a low, subsonic thrum—the vibration of planetary-scale gears and the hiss of high-pressure steam. It is a quiet world, but it is not a still one. The landscape is a cycle of grinding production: the rock is crushed, the water is filtered, the steam is released, and the mountains continue their slow, jagged ascent.
+
+It is a place of profound cold and perpetual dampness, where the smell of wet stone mixes with the sharp, ozone tang of heavy electricity. There are no paths, no ruins, and no shelters. There is only the vertical climb, the weeping dark, and the patient, mechanical consumption of the world’s newest bones.

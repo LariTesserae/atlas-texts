@@ -1,0 +1,25 @@
+I want to find where these parameters converge. Below surface, but bright. Packed with presence, yet never changing. Damp and cool, emerging geology, sparse vegetation, abundant fauna, and something strange pulling at the edges.
+
+---
+
+**The Hollow Throat**
+
+You descend not through soil but through *absence*—a shaft where the world forgot to finish itself. The walls are limestone that has not yet learned to be stone, still wet with the memory of being ocean, still soft enough to drink. Water moves here in a logic of its own: not rivers, not pools, but *sweat*. The rock perspires. Condensation gathers on surfaces that have no name for surface, beads so densely packed they form a second skin, a shimmering second geography humid with cool breath.
+
+The light comes from everywhere and nowhere. It is not sunlight—too diffuse, too *even*—but some emission from the rock itself, a slow phosphorescence of minerals not yet formed, caught in the act of becoming. The walls glow pale green, then amber, then a blue that has no business existing underground, shifting in cycles so gradual that watching them feels like watching time itself breathe. Your eyes adjust. The brightness becomes absolute. You cannot locate its source. There is no darkness to define it against.
+
+You are not alone, though you came alone.
+
+The fauna here is *abundant* in the way that a held breath is abundant with pressure. Creatures press against every surface—translucent things, worm-things, things with too many joints, things that might be plants until they move. They do not hunt. They do not flee. They *accumulate*, clustering in the hollows where damp meets light, packed shoulder to membrane to scale in a density that approaches architecture. They are building something without tools, without intention, simply by being present and persistent and *numerous*. The sound they make is not clicking or humming but a wet, continuous *pressing*, a biological loudness, like the inside of a throat when you swallow.
+
+Vegetation is sparse, as if the world has not yet decided what plants should be. You find them only in the highest pockets, where the moisture thins: pale fronds that unroll and stop, never finishing their unfurling, suspended in becoming. They cast no shadows. They need no soil—they root in condensation, in the mineral film, in the thin chemistry of emerging stone.
+
+What you came down to find is here, though "find" is the wrong word. It is a chamber, or it was meant to be a chamber, and the erosion that should have carved it is *emerging*—pre-formation, embryonic, raw in the way that a wound is raw before it scars. The walls are not smooth. They are *attempting* smoothness, reaching toward it, failing, holding their failure in place forever. Stalactites hang in configurations that suggest intention—almost columns, almost drips, almost nothing at all. The floor is a single wet surface where water and rock have not yet negotiated their boundary. Everything here is between states: not cave and not cavity, not mineral and not organism, not finished and not abandoned.
+
+And it never changes. This is the strangest thing. You return—you cannot say how, only that you do—and the moisture has not increased or decreased. The creatures have not aged, have not reproduced into new forms, have not diminished. The light holds its impossible color. Even the emerging geology has stopped emerging. It is *paused* in its becoming, a photograph of rock learning to be rock, held in equilibrium by some rule of this place that has no name in any surface language. Time passes. You feel it pass. But the Hollow Throat does not.
+
+There are marks here. Faint ones. Scattered, as if someone—something—brushed past long ago and left only the suggestion of passage. A groove that might be a tool-mark or might be water's patience. A stain that might be pigment or might be oxidation. No devices, no technology, nothing built in any way you would recognize as building. But *intention* lingers in the spacing of these marks, in their refusal to be random. Someone was here. Someone is here. The packed fauna does not acknowledge you, but it *arranges itself* around your presence, shifting by millimeters, creating space where there was none, maintaining the density even as it makes room. You are included. You are absorbed.
+
+The sound is the loudest thing. Not because anything moves quickly—nothing does—but because everything *presses*. The wet mass of living things against living things, against breathing rock, against the light that has no source, against the silence that would be here if the silence were not itself so full. It is a loudness of saturation, of no room between presences, of a world that has reached its maximum capacity and holds it, perfectly, forever.
+
+You came down through absence. You will climb out the same way. But you will carry the damp with you, in your skin, in the memory of a place that is still learning to be a place, that has learned to be bright in the dark, that has learned to be full without ever being finished.

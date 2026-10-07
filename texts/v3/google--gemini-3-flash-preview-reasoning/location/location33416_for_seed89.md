@@ -1,0 +1,21 @@
+At the extreme terminal point of a mountain range so high the atmosphere begins to fray, there is a formation known as the **Hollow Ribs**. It is a vertical cleft, a cathedral-scale fissure less than eighty meters wide but dropping nearly two kilometers into the dark marrow of the peak. Here, the scale is intimate despite the terrifying height; one feels not the vastness of the horizon, but the crushing proximity of the stone.
+
+The temperature is an anomaly. While the outer peaks are scourged by ice, the interior of the Ribs is a steady, humid 28 degrees Celsius. This warmth rises from deep geothermal vents that exhale a heavy, sulfurous breath, keeping the air thick and sluggish. 
+
+The walls are not flat. They are composed of ancient, weathered basalt that has been eroded by aeons of "cloud-dripping." At this elevation, the fissure acts as a comb for passing clouds. They snag on the jagged upper rim and slowly bleed their moisture downward. The water doesn't fall as rain; it migrates. It forms a shimmering, translucent film over the stone, gathering in shallow, saucer-like depressions and weeping from the ceiling in long, slow-forming beads of condensation.
+
+Vegetation is a mere afterthought here. There are no trees, no shrubs. Instead, a stubborn, rubbery lichen the color of dried blood coats the dampest shadows, and a few spindly, pale stalks of ghost-grass cling to the highest ledges where a stray beam of ultraviolet light might reach.
+
+But the emptiness of the flora is a mask for the suffocating density of the fauna. The Ribs are alive.
+
+The sound is the first thing that overcomes the senses—a rhythmic, grinding thrum that vibrates in the chest. It is the collective movement of millions of **Chitin-Moths**, creatures the size of a human hand with heavy, calcified wing-cases. They do not fly so much as crawl and flutter in a dense, overlapping carpet that covers every square inch of the lower walls. They are so numerous that the rock beneath them is invisible; the landscape is a shifting, iridescent skin of segmented limbs and vibrating feelers. 
+
+The density is claustrophobic. To move through the Ribs is to displace a living curtain. They are not aggressive, merely pervasive. They feed on the minerals in the dripping condensation and the sulfur in the air, their life cycles unfolding with a geologic slowness. A single moth may sit on the same nub of basalt for a decade, slowly secreting a hardening wax that adds to the "erosion" of the landscape, creating new, bulbous formations of organic origin.
+
+There are no buildings here. No walls have been raised, no foundations laid. Yet, there are signs of a presence. In the small, dry alcoves above the moth-line, one finds the "Scrapers." These are primitive tools—heavy wedges of obsidian lashed to the thigh-bones of large, extinct birds with strips of dried moth-silk. 
+
+These tools are used to harvest the "Wax-Drift"—the thick, nutrient-rich secretions left behind by the fauna. The marks of these tools are everywhere: clean, rhythmic gouges in the soft organic buildup, smoothed over by decades of dampness. The people who use them—if they are people—leave no other trace. There are no fires, for the air is already warm. There are no clothes, for the humidity is a garment. There are only the tools, tucked into natural niches, waiting for a hand to return.
+
+The light is a bruised, permanent twilight. The sun only reaches the floor of the fissure for eleven minutes a day, a vertical shaft of gold that causes the moths to shiver in a deafening, harmonic roar. For the other twenty-three hours and forty-nine minutes, the world is lit only by the faint, rhythmic bioluminescence of the moth-larvae—a pulsing, deep-sea indigo that makes the walls seem to breathe.
+
+Everything here is in a state of balanced, ancient stasis. The erosion of the stone is matched by the growth of the wax; the hunger of the moths is matched by the minerals in the steam. It is a loud, crowded, and dark sanctuary at the roof of the world, where time doesn't pass so much as it accumulates, layer by waxy layer, in the humid dark.

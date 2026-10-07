@@ -1,0 +1,19 @@
+This is Node 7-Kappa, a forgotten junction point within the World-Ocean Circulator Substructure.
+
+You are deep underwater. The pressure here is immense, a physical weight that would crush unshielded life, yet the environment is surprisingly warm, heated by the ceaseless friction of ancient machinery.
+
+There is no natural ground here, no seabed rock or sand. Every surface is manufactured. You float within a immense, spherical chamber, perhaps a hundred meters across—a tiny pocket hidden within a planetary-scale lattice of infrastructure. The boundaries of this space are defined by curving walls of pitted bronze and polymer-concrete, worn completely smooth by millennia of currents. The erosion here is absolute; there are no sharp edges left, only soft, organic curves where metal has surrendered to time and water.
+
+Despite the total artificiality, the chamber is a riot of life. It is lush in a suffocating, aquatic way. Thick mats of violet and deep-green algae coat the bronze surfaces like velvet, slick to the touch. Where enormous pipes intersect, massive kelp-analogs with broad, oily fronds anchor themselves to the rivets, swaying lazily in the thermal currents. These plants don't need sunlight; they thrive on the radiant heat of the machinery and the chemical soup leaching from the joints.
+
+The lighting is bizarrely normal. Every thirty meters or so, heavy-duty industrial lumen-pods are bolted to the structure. Encased in thick quartz glass, they cast a steady, warm yellow light, illuminating the water with the banal clarity of a warehouse aisle, utterly incongruous with the crushing depth. The water itself is clear but filled with drifting particulate matter—rust flakes, shed algal cells, and tiny, spiraling crustaceans.
+
+The space is sparse. Huge spans of open water separate the major features. You might drift for minutes past a blank, algae-slicked wall before encountering a cluster of pipes the size of redwood trunks, crossing the void like a derelict highway interchange.
+
+It is loud here. The primary sound is a deep, resonant thrum that vibrates through the water and into your bones—the sound of colossal pumps working somewhere far below, pushing gigatons of water through the system. Layered over that is the clank of massive check-valves opening and closing in slow rhythm, the hiss of pressure equalization vents, and the grinding of gears worn loose over eons.
+
+This noise attracts the fauna. The place is crawling with life adapted to the warm, noisy, metal environment. Schools of sleek, silver fish with reinforced cranial plating dart between the turning gears of massive flow-regulators, feeding on the bio-films that accumulate there. Crustaceans the size of hubcaps, with asymmetrical claws resembling hydraulic pincers, scuttle along the pipes, cleaning rust and parasites from the infrastructure. You see long, eel-like creatures with bioluminescent stripes winding their way inside open conduits, nesting in the warmth of the engine cores.
+
+The ecosystem is active and strange. You watch as a maintenance drone, ancient and barnacle-encrusted but still functioning on some forgotten programming, lumbers past. It uses a rotary brush to clear a patch of algae from a sensor array. Within seconds of its passing, a swarm of small grazers descends on the dislodged plant matter, a frenzy of feeding in the warm yellow light. A larger predator, something like a bloated barracuda with armored scales, lunges from the shadows of a pipe-cluster, snatching a grazer with a metallic snap of its jaws before retreating to the dark side of a manifold.
+
+It is a closed loop, a perfect machine-ecology buried in the crushing dark, running endlessly on geothermal heat and the stubborn inertia of ancient engineering.

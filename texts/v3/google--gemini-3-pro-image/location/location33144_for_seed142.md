@@ -1,0 +1,17 @@
+This place sits at the apex of a world long since settled into its final configuration. It is an immense, high-altitude plateau where the distinction between geology and architecture ceased to exist eons ago.
+
+There is no water here, nor has there been for geological ages. The very concept of moisture feels alien; the air is so surpassingly dry that it feels brittle in the lungs, a vacuum of parched thinness. Without water, there is no life as conventional biology understands it. No cell divides, no leaf turns. The landscape is entirely mineral and metallic, a vast expanse of constructed matter.
+
+It is an industrial city-state that has achieved a terrified equilibrium. The scale is monumental, a sprawling vista of cyclopean structures stretching into the permanent gloom. Yet, it is sparse. Between the towering edifices lie immense, dead plazas of smoothed iron and obsidian pavement, distances so vast they dwarf the traveler.
+
+Everything is incredibly, unfathomably old. Erosion here is not the work of wind or rain, but of micrometeorite impacts and the slow, heavy settling of cosmic dust over billions of years. All sharp edges have been ground away. The great cogwheels jutting from canyon walls are rounded lumps of bronze; the girders that span the overhead voids are smoothed like river stones. It is an industrial landscape softened into organic curves by the sheer pressure of time.
+
+It is always dark. The sky above is a bruised violet-black, perhaps obscured by a high, permanent nebular haze or simply facing a void between stars. The only illumination comes from the city itself, and it is faint: the smoldering orange glow of geothermal vents tapped millennia ago, now just radiating a dull heat, or the faint, sour yellow phosphorescence of ancient warning strips embedded in the floors of dead factories.
+
+Despite the darkness, it is warmly comfortable. The massive density of metal and stone retains heat, radiating a steady, close warmth like the inside of a cooling kiln.
+
+The most striking feature, however, is the silence. This is a landscape built for deafening noise—foundries, stamp mills, colossal piston chambers—but they are all still. It is a museum of kinetic potential forever frozen. The great machines are welded shut by age and dust. There is no hum of electricity, no grind of gears. The silence is heavy and velvety; it absorbs sound instantly. The only noise is the crunch of your own footfalls on the omnipresent carpet of metallic dust, a sound that seems alarmingly loud.
+
+Life is exceedingly rare. Occasionally, in the deepest shadows of the curved alleyways, something might move. They are slow, low-slung creatures, perhaps silicon-based scavengers or intricate automata abandoned by their creators, feeding on the trace energy signatures in the decaying metal. They scuttle silently on many legs, hermetic and indifferent, vanishing before they can be clearly seen.
+
+The weirdness of the place lies in this perfect stasis. It is a dead industrial god, high above a forgotten world, warm in the dark, preserved forever in the moment after it drew its last breath. Nothing changes here. A footprint left in the dust today will remain undisturbed for ten thousand years.

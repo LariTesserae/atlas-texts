@@ -1,0 +1,17 @@
+I would find myself at the bottom of the shaft, where the white walls have finished their shouting and the world has gone quiet.
+
+I would be the fox.
+
+Not a creature apart from the limestone, but carved from it—pale as old bone, bleached by the same surgical light that hammers down from the bleached-bone sky. My fur has taken on the color of the walls, the color of the voles I hunt, the color of the moths that drift like living dust in the column of light above me. I am the ghost that the pit keeps.
+
+I move across the talus at the base, and my paws make no sound. The moss has swallowed the click of stone on stone; it drinks the noise of my passage as it drinks the mountain’s weeping. I am padding toward the north wall, where the limestone is porous and generous, where the condensation beads and gathers, where—if I tilt my head just so—I can find a rivulet that climbs upward, defying gravity, feeding the inverted forest of green stalactites that hang from the ceiling of the world. I drink from the stone. It is cold, metallic, alive with the slow respiration of the rock.
+
+Around me, the moss is thick as velvet, a topography of emerald and jade that has swallowed the fallen stones. It glows almost phosphorescent in the perfect circle of light that pools here at the bottom—a spotlight of the sky that does not spread, that stays merciless and bright while the corners of the pit remain in shadow. I move through this green sea, a white shape in the dimness of the lower third where the mist hangs, where the air is milky and the silence is absolute.
+
+I can hear my own heartbeat. The rush of blood in my ears. The silence is not empty; it is full of the things that do not make sound: the larvae curled fat and translucent in the warm pockets between stones, the beetles tunneling through root-mats, the birds in their crevices communicating in vibration, the tap of a beak against limestone. I am part of that web. I hunt the pale voles, the eyeless things, the eggs of the silent birds. I am predator, yes, but I am also prey to the cold, to the hunger, to the vast indifference of the vertical world. I am a tenant here, as much as the Makers with their cairns on the rim and their lean-to of hides and antler.
+
+I pause. The chimney effect draws cold air down from above, pooling here at the bottom like water, displacing the warmer mist that rises in a ghostly current past my fur. I feel it—the breath of the mountain, inhaled and exhaled. The condensation climbs the walls behind me, feeding the moss that hangs from the ceiling like a forest turned upside down. I am drinking from a place where water moves against the world, where life grows in a freezer, sustained by damp and stone and silence.
+
+I do not announce myself. I have learned, over generations of hard cold and harder silence, that noise is a vulnerability. I move through the green without a whisper, my white fur merging with the limestone, with the moss, with the mist. I am the color of the place. I am the silence made flesh.
+
+And when I stop moving, when I stand still in the perfect circle of light, watching the spores drift upward in the thermal current, I am not alone. I am the fox, the moss, the climbing water, the hive of whispers. I am the pit’s quiet heart, beating in the dark.

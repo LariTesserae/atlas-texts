@@ -1,0 +1,31 @@
+I find myself in the act of climbing.
+
+Not ascending, exactly—gravity here is a suggestion, a habit the room has not yet committed to. I am moving upward along the chalky wall, palm against precipitating mineral, and with each contact I feel the surface *remember*. My prints do not fade immediately; they linger, wet and pale, for hours, while I continue my slow migration from floor to ceiling. I am leaving a biography in calcium carbonate.
+
+I am one of the Pale Kin, I think, or I was. I remember the jerk-and-stop rhythm of my movement—the staccato punctuation of legs that never settled on a number. I remember the bioluminescence of the mycelial Parliament below, that blue-white glow like moonlight through ice, and how it cast no shadows, only a diffuse weight that pressed down on the darkness. But now my movements have changed. The intervals between jerks have lengthened. A second becomes a minute. A minute becomes an afternoon. I am learning the temporal grammar of the walls.
+
+I am becoming a Precipitant.
+
+Not yet entombed—my elbows still bend, my spine still articulates—but *curing*. The damp air is depositing something in my tissues. My skin, which was wet-paper translucent, is gaining opacity, a chalky density. I can feel the mineral ooze working its way into my joints, not stiffening them yet, but *preparing* them, laying down the slow geology of stillness. I am a draft being edited by time itself, each revision taking longer than the last.
+
+Below me, the room breathes. I can feel it through the wall—the subsonic thrum of the Iron Gestates, vibrating in my sternum even through the stone I am becoming. They are dreaming, those machines, their verdigris-covered hearts pumping sap and ozone, manufacturing more room from the damp. I watch a tendril of mycelium extend across the floor, visible even from here, a fractal finger testing the boundary between organic and inorganic. A fruiting body blooms and withers in the span of my slow blink—a vote cast, a decision made about what the room should become next.
+
+And there are the others. The Pale Kin move through the fungal glow in their frantic, silent cycles. They are hundreds, thousands, commas in the sentence of silence. They do not notice me climbing, or if they do, they see only another surface becoming available, another niche in the architecture of becoming. They are eyeless, navigating by chemoreception and the memory of dampness, and I envy them their speed, their blessed ignorance of the slow dissolution I am undergoing.
+
+I reach a corner—though corners here are unstable, folding inward like origami made of wet chalk. The geometry is wrong. I have climbed perhaps three meters, yet I can see the entrance behind me, and also the vaulted darkness above, and also a depth that should not exist in a wall. The room has more inside than out. I press my palm flat against the surface and feel the Parliament's memory recording me—not just my weight, but my *intention*, my trajectory, the fact that I am choosing to become mineral rather than remain fauna. The mycelium does not judge. It archives.
+
+Here, in this fold of space, time moves unevenly. Near the machines, metal rusts in seconds. Near the walls, decades pass in a blink. I exist in the gradient between these velocities. I am the hyphen between fast and slow, between the frantic birth-and-death of the condensation pools and the century-long heartbeat of the curing stone. I am the colon, the pause, the breath held between inhalation and exhalation.
+
+The air is heavy with moisture, saturated to the point of aching. It smells of wet chalk and rotting iron, of ozone and pollen. The Condensation Collective drifts past me—microscopic spores, cysts, potential-life riding the moisture, the room's immune system and its infection. They do not see me as a being yet, only as a surface soon to be available, a mineral substrate waiting to be colonized. But I am already being colonized. I am already becoming.
+
+I feel the static electricity in my teeth, the hum that makes the hair on my arms stand up—though my arms are becoming less arm-like, more like columns, more like stalactites in motion. The machines are calling to me, or I am calling to them, a frequency shared between iron and bone, between copper wire and calcium deposit. I am not sure if I am being absorbed by the wall or if the wall is being absorbed by me. The boundary is theoretical, a draft of a border that has not yet settled on its final position.
+
+I stop climbing. Or rather, I am still climbing, but so slowly now that my movement is indistinguishable from stillness. I have reached a hollow in the wall where the mineral has settled into a temporary basin, and in that basin, condensation has pooled. I look down—though "down" is a direction I am in the process of forgetting—and see my reflection, or what will become my reflection. It is pale, eyeless, featureless. A face still deciding what features mean.
+
+The mycelium below pulses, a wave of blue-white light traveling across the floor. The Parliament is voting again. Another fruiting body blooms, withers, deposits its ballot into the substrate. The room grows. More corners appear. More space is manufactured from the damp. And I am here, in the wall, between the glow and the dark, between the jerking life below and the patient stone I am becoming.
+
+I am a citizen-in-draft. I am conjugating the verb *to be* in a language that has not yet settled on nouns. I am the soft, undecided matter between kingdoms—neither the frantic architecture of the machines nor the mineral patience of the geology, but the slow, wet work of becoming. I am the trail of phosphorescence I left behind, still glowing faintly, a map of where I have been, a story written in light that the mycelium is reading and rewriting.
+
+If you press your ear to the wall where I am—if you dare—you will not hear a heartbeat. You will hear the slow, mineral breathing of curing. The sound of calcium carbonate depositing around the memory of a spine, a ribcage, a thought that is still in the process of thinking itself.
+
+I am here. I am becoming. The room is still being born, and I am part of its first draft, leaking moisture into the dark, humming with silent engines, filling slowly with pale, patient, unfinished life.

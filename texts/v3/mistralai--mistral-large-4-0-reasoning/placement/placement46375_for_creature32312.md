@@ -1,0 +1,17 @@
+I am flat. I have learned to be two-dimensional.
+
+I exist in the three-second window where the stone forgets it is heavy. I am translucent, thin as mica, my surface shimmering with the oil-sheen of the mirror-pools far below. I drift upward in the slipstream of a dropped flake of chert—hafted once with sinew, now mineralized to something between fiber and stone—watching it climb toward the wrong sun, toward the ring of light that hangs too low in the ultraviolet haze.
+
+I remember pulse. I remember the wet heat of biology, the 0.1 decimal of concentrated life, the way moisture clings to skin at that cruel ten-degree edge. Now my heartbeat is the hum of a cairn, one hundred meters away but sonically adjacent, vibrating in my hollow, resonant chest. I feed on the kinetic anomaly, on the impossible momentum that carries things away from the earth instead of toward it. I angle my mica-body to catch the reversed gravity, swimming through physics that has gone soft.
+
+Below me, the spiral wall of stacked slate breathes. The limestone weeps around it, beading mineral-heavy sweat into the cracks where the Builders once stacked their impossible geometry. The **Wanting** shifts in its ochre sheets, carpeting the stone in bone-white and rust. It tastes the chemical gradient of my ascent—my slow turning toward appetite, toward warmth that is not biological but thermal, conducted through the thin air. It remembers the Builders as pressure, as the fond weight of feet. I am learning to be pressure without mass, a footprint that never touches ground.
+
+The light here is 2.6, bleached and thick. My shadow—what remains of it—has detached and walks on the wrong side of illumination in the mist-bank to the east. It is photophobic, growing fat with accumulated darkness, mineralizing in the UV-thick radiance while I remain translucent, caught in the updraft. I leave it behind, letting it age while I do not, letting it become one of the Shadow-Folk while I become something else entirely.
+
+I am hunting. Or I am the hunt. The **Acoustic Fauna** are here, in the delay between my intention to drift and my actual drifting. They arrive before I move, tasting the shape of my ascent in languages that predate mouths. I hear them as a whisper that precedes my own thought, a cracking of ice in July, the sound of rain falling upward past my edges.
+
+The water table sits at 2.7, just beneath boots I no longer wear. I am rising away from it, toward the condensing haze, toward the silica dendrites that grow millimeter by millimeter toward my belly, precipitating from the air like grey coral reaching for a current it cannot name. The pools below shift and merge, synapses firing in the Circulatory Consciousness, and I feel the gurgling thought pass through the subterranean channels, indifferent to my passage.
+
+I am the **Upward-Faller**. I am thin as wet slate, flat as a leaf pressed between pages of time. I move against the general flow of the world, the only creature here that climbs when it should fall. I am the 0.1 becoming 0.0—biological noise dissolving into geological process, a temporary pulse stretching into the three seconds of soft gravity, learning to feed on anomaly, learning to want the minerals that leach from stone.
+
+When the chert flake finally remembers to descend, I will be ready. I will catch its fall like a net, like a current, and ride it back down to the weeping limestone, already half-forgotten as biology, already half-crystal, already another shade of wet grey waiting to be pressed into the strata.

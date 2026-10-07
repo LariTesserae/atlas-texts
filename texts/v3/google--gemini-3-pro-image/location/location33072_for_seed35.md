@@ -1,0 +1,15 @@
+The descent ends not with a soft landing, but a sudden opening into a pressurized cavity deep within the planetary crust. You are immediately assaulted by a wall of sound and dry, convection-oven heat. The air here has never known moisture; it tastes of scorched metal, ozone, and pulverized rock dust that hangs thick in the atmosphere, vibrating with the noise.
+
+This space is a geological wound, a blister chamber perhaps two hundred feet across and half as high, formed recently by some violent tectonic spasm. The walls are not smooth cavern stone; they are a violent chaos of fresh fractures, razor-sharp shards of obsidian and basalt jutting out like shattered teeth. There is no smoothness here, only jagged edges and raw, newly exposed mineral veins that glitter dully in the gloom.
+
+Despite being sealed from the surface, the chamber is choked with activity and artifacts. It is densely packed, a claustrophobic collision of geology and inexplicable industry. Rusted iron gantries are bolted haphazardly into the fracturing rock face. Huge, oily pistons, three stories tall, hammer rhythmically against anvils of hardened slag—*CLANG, hiss, CLANG, hiss*—serving no conceivable purpose other than generating noise and heat. Conveyor belts, their rubber cracked and desiccated, loop endlessly, carrying piles of abrasive grit from one side of the room to the other, only for mechanical arms to shovel it back onto the return belt.
+
+The light is dim and hellish, provided solely by the open grates of geothermal furnaces and the cherry-red glow of exposed heating coils on the machinery. Shadows are long, twitching things that dominate the periphery.
+
+Life here is abundant, weird, and utterly reliant on this toxic, anhydrous environment. The "vegetation" consists of rigid, crystalline lattices growing around the hottest vents—fractal structures of silicate and sulfur that chime faintly when brushed against. They don't need water; they feed on thermal gradients and mineral sublimation.
+
+The fauna is even more intrusive. The space is crawling with life. Multitudes of armored creatures, resembling a cross between horseshoe crabs and oversized woodlice, scuttle over every surface. Their shells are made of iron pyrite, clicking against the metal walkways. They swarm over the moving machinery in dense carpets, feeding on the rust, the grease, and perhaps the low-grade electricity humming through frayed cables. Larger entities, sluggish and bloated like ticks made of lava rock, adhere to the furnace walls, pulsing with an internal orange glow, absorbing the intense heat directly.
+
+The noise is deafening and constant. The industrial grinding, the steam releases from closed-loop systems, the clicking of thousands of metallic carapaces, and a deep, subterranean thrumming that vibrates up through the soles of your feet.
+
+Nothing changes here. The pistons never stop, the conveyor belts never empty, the creatures live and die in the same dense swarms, and the heat never abates. It is a pocket of frantic, loud, crowded equilibrium, a machine churning forever in the dark, dry heart of the world.

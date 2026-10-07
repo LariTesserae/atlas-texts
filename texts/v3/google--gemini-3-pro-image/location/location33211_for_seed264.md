@@ -1,0 +1,17 @@
+This is the Basin of the Perpetual Hammer.
+
+It is a vast, shallow depression in the crust, stretching far enough that the horizon is merely a hazy thickening of the air. The climate here is universally warm, a thick, humid blanket that smells of wet iron, sulfur, and heated grease. There is no sky-falling rain, yet everything is slick with moisture. A viscous condensation beads on every surface, weeping downwards to pool in shallow, iridescent lagoons of chemical slurry that snake across the valley floor.
+
+There is absolutely no vegetation. The concept of "green" does not belong here. The terrain is composed wholly of mineral and metal, but not in their raw states. This is a landscape of geology heavily processed and rearranged by forces that blur the line between tectonic and mechanical.
+
+The ground is not soil, but impacted slag, smoothed by aeons of wear into undulating plains of charcoal-grey and oxidized russet. Rising from these flats are monolithic structures that are simultaneously mountains and machines. They are not "built" in the sense of architecture; there are no rivets, no welded seams, no windows. Instead, immense components seem to have grown from the rock or been extruded by planetary pressure.
+
+Great, calcified pistons the size of office towers rise and fall with agonizing slowness, driving into the earth with enough force to shudder the entire basin. They are rounded and pocked by erosion, their original sharp edges worn smooth by millions of years of friction. Between them, canyon-sized gears lying horizontal in the earth turn imperceptibly slowly, grinding strata of rock into fine powder that drifts like grey snow.
+
+The "tech" here is industrial on a geological scale, and it is old. It has reached a perfect, terrifying equilibrium. Nothing new is being produced. The basin is a closed loop of material processing. Rock is ground down by the great gears, fed into geothermal fissures that glow with dull orange heat, melted into slag, cooled by the pervasive dampness into new flats, and eventually pushed back under the hammers to be broken again.
+
+The sound is tremendous and unceasing. It is not a cacophony of chaotic noise, but a single, deafening drone of heavy industry. The deep *thrum-thrum-thrum* of the subterranean pistons provides a bass rhythm that vibrates in the marrow of bone. Over this lies the high-pitched shriek of steam venting from pressure ridges and the endless, resonant grinding of stone against metal on a massive scale.
+
+The light is typical daylight, filtering down through a perpetual haze of steam and particulate matter, lending the vista a washed-out, yellowish cast.
+
+Life is almost entirely absent. The toxicity of the slurry pools and the grinding hazards of the terrain make it inhospitable to biology as usually understood. However, rare fauna do exist. In the shadow of a stationary, colossal flywheel, small, crab-like creatures with shells of salvaged magnetite scuttle across the oily rocks. They feed on the mineral paste left behind by the grinding gears, their movements jerky and mechanical, insignificant specks against the backdrop of the churning, indifferent landscape. They are the only things that react; everything else in the Basin of the Perpetual Hammer simply *is*, locked in a loud, warm, wet, eternal cycle of purposeless industry.

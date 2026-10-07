@@ -1,0 +1,15 @@
+You have stepped into a hollow space of cathedral proportions, though "cathedral" implies construction, and nothing here was built. You are standing inside the lung of an ancient, sprawling organism.
+
+The environment is defined by total vegetation, but not in the sense of a tangled jungle. It is the architecture of a single, colossal plant structure that has settled into its final, immutable form aeons ago. The ground beneath your feet is not soil, but the smoothed, lignified curve of an enormous root, wider than a highway, polished by unimaginably long stretches of time until it resembles dark, grainless stone. The walls curve upward, forming a massive dome that disappears into a hazy upper canopy. These walls are made of bark so old it has lost its texture, eroded down to a sleek, cold carapace that feels like iron to the touch.
+
+The scale is deceiving. While the chamber itself is vast—easily large enough to contain a city block—the feeling is one of emptiness. The density of matter per cubic meter of air is incredibly low; it is mostly enormous, open void bounded by these titanic wooden surfaces. The light is normal daylight, but filtered through layers of translucent canopy far above, casting everything in a cool, aqueous green illumination that reveals the sheer distance to the other side of the hollow.
+
+It is cold here. A persistent chill hangs in the motionless air, a temperature perfectly maintained to ensure a constant state of dampness. There is no rain, no flowing rivers. The moisture exists as a perpetual sweat on the ancient wooden walls. Every surface is slick with condensation. Droplets bead on the polished root-floor and hang from the high, arching ceiling structures, occasionally falling through the empty space with a long, silent trajectory before striking the ground below.
+
+The most overwhelming feature, however, is the sound. It is deafening.
+
+Despite the lack of machinery, the acoustic landscape is intensely industrial. It is a relentless, high-decibel thrumming that vibrates in your chest. This is the sound of abundant fauna, but programmed into a singular, mechanical purpose. Millions of fist-sized insects—sleek, chitinous things polished to the same sheen as the walls—cling to the upper reaches of the dome. They are not swarming or feeding; they are vibrating their wings in unison, creating a synchronized drone that sounds exactly like a massive turbine hall operating at full capacity. The sound reflects off the hard, damp wooden surfaces, amplifying the noise into a solid wall of pressure.
+
+Beneath the insect-turbine roar, there is a deeper, slower sound: a rhythmic, hydraulic *thump-hiss* that reverberates through the floor. It is the sound of the plant itself, still alive in its ancient stasis, pumping fluids through vascular channels the size of subway tunnels hidden within the walls.
+
+This world is static. The light does not change; the temperature does not fluctuate. The noise never varies in pitch or intensity. It is an ecosystem locked in a permanent, deafening equilibrium, an ancient biological machine running indefinitely in a cold, damp void.

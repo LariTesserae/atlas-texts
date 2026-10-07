@@ -1,0 +1,23 @@
+You do not see the plateau. You feel it.  
+
+A breath of air, warm and utterly dry, passes over your skin—not a wind, but a slow exhalation from the world itself. Beneath your boots, the ground is fine-grained dust the color of bone ash, cool at the surface but radiating a deep, steady warmth from below. Each step leaves a perfect impression: the tread of your sole, sharp-edged, undisturbed. It will remain like that for a thousand years. There is no moisture to soften it, no breeze to blur it. Time here is not measured in moments, but in absences.  
+
+Above, only void. Not the star-dusted black of a clear night, but a total, velvety absence—a ceiling of pure non-light that presses down without weight. Your eyes ache with the effort of seeing nothing. Yet after a long while, a deeper perception stirs. Faint thermal gradients bloom in your mind’s eye: the ground breathes a dull crimson glow along hairline fractures where geothermal energy bleeds upward. Not light you can see, but heat you can almost taste—iron, salt, deep stone. This is the only illumination the plateau acknowledges.  
+
+The land is a study in finality. Eons of patient abrasion have planed every ridge, every stone, into soft undulations no taller than a sleeping body. What was once mountain is now memory. The scale is immense—a gentle, rolling plain stretching to a horizon that curves with planetary certainty—but the density is profound emptiness. Between you and that curve, nothing. Only the dust, the silence, and the Forges.  
+
+They rise without announcement.  
+
+A kilometer ahead (you know the distance by the slow shift in the thermal sigh beneath your feet), the first structure emerges from the dark not as a shape, but as a *coolness*. A vast, inverted dome of fused obsidian-smooth slag, seamless and windowless. As you draw near, your hands find its surface: cool, humming with residual inertia. Gears the size of wagons are frozen mid-turn along its flanks, teeth locked in eternal engagement. Conduits spiral upward in logarithmic curves that feel *wrong*—not inefficient, but purposeful in a geometry that rejects Euclidean comfort. This is industry, yes: pistons, crucibles, conveyor skeletons—but built for hands that never were human. The apertures are too low, the levers set at angles that suggest manipulation by multiple limbs. Etched into every surface, the dust has settled into fractal lattices: perfect Koch snowflakes in pale powder, repeating to microscopic precision. Not wind-work. Not chance. A quiet, persistent order.  
+
+Sound is a ghost here. The silence is not empty; it is *full*—a dense, cottony pressure against the eardrums. Then, once: a deep *thrum* vibrating up through the soles of your feet. The planet’s slow pulse. Minutes later, a whisper of chitin on stone. You freeze. From a vent-grate in the Forge’s base, a creature emerges—no larger than your palm. Six articulated legs, carapace like polished flint, blind head tilted. It moves not toward you, but toward a seam of warmer dust, mandibles clicking softly as it sifts mineral grains. It feeds on heat gradients. On time itself. It pauses, antennae twitching at your warmth, then vanishes back into the dark. The only fauna. The only witness.  
+
+This is the rule of the plateau: *nothing changes, because nothing can*.  
+No rain to rust the iron. No wind to shift the dust. No sun to fade the slag. The warmth is constant—a geothermal equilibrium so perfect it feels intentional. The Forges are not ruins. They are *complete*. Their purpose was fulfilled or abandoned so utterly that decay became irrelevant. The weirdness is not in decay, but in preservation: the oil in a gear housing remains viscous after centuries; a ceramic valve holds its tension; the dust-lattices re-form overnight if disturbed, as if the plateau itself remembers its pattern. This is not a dead place. It is a place that chose stillness.  
+
+You stand between two Forges, a kilometer of dust stretching in all directions. The air carries a scent like hot pottery and cold iron. Your own breath sounds deafening. You realize you are holding your breath.  
+*Let it go.*  
+The exhale hangs for a heartbeat—a faint, warm cloud in the absolute dark—then vanishes, absorbed by the dust. No trace remains.  
+This is the final truth of the plateau: it accepts nothing it cannot keep forever. And it keeps everything exactly as it is. Warm. Silent. Waiting not for an end, but for the concept of change to be forgotten entirely.  
+
+You take one last step. The dust holds your print. The plateau breathes on.

@@ -1,0 +1,17 @@
+The air here is thin, impossibly crisp, and bites with a pervasive chill, though the sun is a searing, relentless eye in a sky the color of deep amethyst. You stand on a high continental plateau that stretches beyond the curvature of the world, an expanse so vast it seems to operate on geological time rather than biological time.
+
+There is no water. Not a drop of rain, not a hidden spring, not even ice, despite the cold. The chemistry of this place is entirely anhydrous. Yet, it is lush.
+
+The "vegetation" dominates the landscape, though "flora" is perhaps a misnomer for these colossal structures. They are silicon and metal-based lifeforms, massive cathedral-sized organisms that draw their sustenance directly from the mineral-rich winds and unseen geothermal vents filtering up through deep fissures in the rock.
+
+Imagine forests of crystalline dendrites that tower thousands of feet into the violet sky. They are not green, but a riot of muted metallic hues: oxidized coppery blues, deep manganese purples, and ferrous reds, all possessing a translucent, vitreous sheen that catches the intense sunlight. Their "leaves" are razor-sharp lattices of spun glass and metallic salts, designed to maximize surface area not for photosynthesis, but to filter trace heavy gases from the atmosphere.
+
+Because the resources are scarce and the growth rates glacial, these titans are sparse. A single mature organism might dominate a hundred square miles, a solitary, sprawling complex of branching spires and cantilevered canopies. The space between them is vast, emptiness emphasizing their monumental scale. You could walk for days across the intervening bedrock and never reach the next grove.
+
+The terrain itself is ancient, having settled into its final form aeons ago. There are no jagged peaks; eons of relentless, dry wind have sandblasted every mountain into smooth, rounded domes and polished the canyon walls into undulating waves of exposed strata. The ground underfoot is largely continuous pavement of wind-scoured rock, tessellated with stress fractures, occasionally interrupted by dunes of fine, abrasive metallic dust that drifts like slow, heavy water.
+
+The primary sound is the wind. It is a constant, high-altitude sibilance, a unending friction against stone. Occasionally, a deeper, resonant note vibrates through the ground—the sound of one of the crystalline giants shifting its megatons of weight in response to thermal changes, its structures singing with the stress of expansion and contraction.
+
+Life moves here, but slowly. The "plants" actively turn their vast arrays toward the prevailing wind currents, a movement that takes weeks to complete. Rare fauna exists, creatures evolved to consume this inorganic bounty. You might scan the horizon for days and see only rock, until a boulder suddenly uncurls. These are massive, armored grazers, resembling segmented tortoises the size of hills, their carapaces plated with native iron. They move with agonizing slowness, grinding away at the base of the silicon trees with diamond-hard mandibles, their metabolic cycles measured in decades.
+
+It is a world of blinding brightness and deep shadows, of piercing cold and immense, silent growth. A perfectly balanced, dry ecosystem operating on a scale that makes a human observer feel microscopic.

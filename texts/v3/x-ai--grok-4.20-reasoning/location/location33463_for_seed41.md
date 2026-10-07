@@ -1,0 +1,28 @@
+**The Gloomroot Warren**
+
+You descend through a throat of cooled lava, the passage narrowing until your shoulders brush stone, and then the world opens—not grandly, but intimately, like stepping inside the ribcage of something ancient that still breathes. The chamber is no larger than a modest cathedral, perhaps forty paces across, yet its ceiling vaults upward into shadow for nearly thirty meters. Every cubic meter is claimed. Nothing here is empty.
+
+The heat is immediate and physical, a 2.6 kind of heat that feels wetter than water. Geothermal blood rises through hairline fractures in the basalt floor, warming the air to the temperature of fresh blood. Condensation beads on every surface, gathers, trembles, and falls in slow, irregular rain. Not a storm—just perpetual, personal dripping. The water is never abundant enough to form a river, yet nothing is dry. Moisture gathers in cupped leaves, in the hollows of bones, in the wrinkled skins of enormous fungi. Pockets of it tremble like mercury under the dim light.
+
+The vegetation is lush in the way only closed systems can manage. Pale, feverish greens and bone whites dominate. Towering bracket fungi rise in layered shelves like frozen waterfalls, their gills dripping slow strings of spores that drift through the steam. Vines—actually the aerial roots of a single colossal organism—hang in dense curtains, braided so tightly in places that they form living walls. Moss grows in shaggy pelts thick enough to swallow a hand. Where the heat is fiercest, near the vents, crimson liverworts unfurl in wet velvet plates, exhaling faint clouds of spores that catch the light like sparks.
+
+Light itself is stolen and hoarded. The primary source is a symbiotic lichen that crusts almost every surface, glowing a sullen, arterial red-orange. Here and there, colonies of ghost-moths cluster on the undersides of fungal shelves, their wings powdered with reflective scales that concentrate and scatter the lichen-glow into soft, floating lanterns. The total effect is dim, intimate, ecclesiastical. You can see clearly for perhaps five meters, then everything dissolves into warm amber fog.
+
+Fauna throngs in every layer. The air is stitched with tiny movements: translucent midges whose abdomens pulse with cold blue light, long-legged cave crickets that move like priests in procession, and something that might be a lizard or might be a land-slug with a jeweled carapace. In the deeper pockets of water—black, perfectly still basins ringed by white crusts of minerals—eyeless fish the color of old ivory drift in slow spirals, feeding on bacteria mats that ripple like silk. Above them, bat-like creatures with membranous ears shaped like trumpet lilies hang inverted, occasionally emitting soft, almost sub-audible clicks that feel more like heartbeats than sound.
+
+The silence is not absence. It is pressure. The Warren is hushed the way a held breath is hushed. You hear the *plink* of condensation falling into pools, the papery rustle of spore clouds brushing against one another, the minute clicking of mandibles, the wet sound of something being eaten. Once every few hours a deeper sound arrives: a low, rolling groan as the living rock itself exhales heat through a distant fissure. The creatures all pause when it comes, as if listening to their god.
+
+It has been this way for an inconceivable length of time. The erosion parameter reads “established” because the Warren has reached its own equilibrium. The mineral and the biological have negotiated borders. Stalactites have been colonized so thoroughly by hanging moss that they now grow *downward as roots*. Some of the oldest fungal shelves have developed woody cores and have stood so long that smaller creatures have built delicate, papery structures inside their gills—tiny buttressed chambers no larger than a fist. These are the “built” elements: not ruins of any civilization, but the architecture of successive generations of symbiotic life that learned to cooperate the way coral learns. They look, at first glance, like the remains of small shrines. They are not. They are lungs.
+
+There is one strangeness (the 1.0 weirdness) that reveals itself only after you have been still for a long time. The entire chamber pulses. Not metaphorically. A slow, tidal rhythm moves through every living thing—vegetation, insects, even the condensation itself—once every ninety seconds. It is the breath of the heat rising and falling through the stone. Life here has tuned its metabolism to that exact cycle. Predators strike, prey scatters, flowers release pollen, and spores bloom in perfect synchrony with the subterranean pulse. To watch it is to feel you have intruded on the heartbeat of a single enormous organism that happens to be shaped like a cave.
+
+The rules of the Warren are simple and merciless:
+
+- Nothing leaves.  
+- Nothing arrives.  
+- Everything is eaten, remade, and eaten again.  
+- Movement is tolerated only if it matches the rhythm. Those who fall out of time—sick creatures, intruders, the too-noisy—die quickly and are consumed by the moss before their bodies can cool.
+
+Stand still long enough and the Warren will begin to treat you as furniture. Condensation will bead on your skin. Spores will settle in your hair. Small luminous insects will land on your shoulders to drink your sweat, mistaking you for another warm outcrop of the world.
+
+It is not a place. It is a stomach that has learned how to dream in red and black and dripping amber. And it has been digesting itself, perfectly, for twenty thousand years.

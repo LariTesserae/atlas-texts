@@ -1,0 +1,19 @@
+The descent is long, and the air thickens with every downward step, trading the cool neutrality of the surface for a suffocating, immobile heat. You arrive not in a cavern, but in a series of choked chambers, hollowed out of the bedrock deep below. This is the Geoforge.
+
+The temperature here is nearly unbearable. It is a physical weight, pressing against the eyes and lungs. The air is not wet, exactly—the heat is too intense for standing puddles—but it is saturated with superheated vapor. Every surface is slick with a transient film of condensation that forms on cooler metal and instantly sizzles away on hotter rock. The smell is profound: sulfur, hot iron, and the sickly-sweet rot of fermentation on a massive scale.
+
+It is dim. The primary illumination comes from beneath metal grates in the floor, where geothermal vents glow with a sullen, deep-red furnace light. Supplementing this are dying industrial fixtures high above—bulbs the size of human heads that flicker with weak, amber filament-light, casting long, jittering shadows.
+
+The space is defined by a dense, chaotic interweaving of geology, dead industry, and strange, lush life. It is cathedral-scale in height, but cramped in floor plan. Massive, riveted iron pillars, thick as ancient redwoods, support the unseen ceiling, their bases corroded into flaking orange scab-lands. Pipes, some wide enough to walk through, snake across the walls and overhead, leaking plumes of white steam that unite with the haze.
+
+But the machinery is no longer dominant. It has been colonized.
+
+Because of the heat and the chemical vapors, the "vegetation" here is not green. It is a riot of fungi and chemotrophic growths adapted to the dark oven. Great shelves of bracket fungi, colored in bruised purples and necrotic yellows, jut from the rusted machinery like platforms, sturdy enough to stand on. From the high pipes hang thick curtains of slime-mold, resembling pale, translucent Spanish moss that drips a viscous, oily fluid onto the structures below.
+
+On the floor, between the struggling geothermal vents, are forests of what look like giant puffballs, some taller than a person. They are leathery, veined with red, and pulse slowly with the ambient heat. If touched, they release clouds of heavy, rust-colored spores that hang in the stagnant air. Everything is layered; mold grows on rust, rust grows on iron, and stone flows around it all, smoothed by eons of heat and slow mineral drips into a glossy, calcified carapace.
+
+There are no animals here. No insects scuttle, no bats roost. The space is utterly devoid of sentient life, yet it is deafening.
+
+The noise is a constant, crushing assault. It is the sound of the earth’s engine room. Deep, resonant booming noises migrate through the rock walls, vibrating up through the soles of feet. The rusted machinery, though largely broken, still tries to function under the pressure of the geothermal steam; massive pistons groan in slow, tortured cycles, metal shrieking against calcified metal. Vents release high-pressure blasts of vapor with the sound of screaming jets, a cycle that repeats every few minutes with agonizing slowness. It is a mechanical and geological cacophony, amplified by the enclosed stone chambers.
+
+The dynamic of the place is glacial. A drip of mineral-rich water might take an hour to fall from a stalactite to a rusted gear below, adding an infinitesimal layer of stone to the metal. The fungi grow, but imperceptibly slowly. The iron rusts, but it will take millennia to dissolve completely. It is a loud, hot, crowded tomb, forever settling into itself.

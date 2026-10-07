@@ -1,0 +1,17 @@
+You are enveloped in warm, exceptionally clear water. It feels thicker than seawater, perhaps due to dissolved minerals, but it tastes of nothing but clean stone. The temperature is that of a pleasantly heated bath, relaxing yet insistent.
+
+There is no natural world here. Every surface, every boundary of this immense, submerged chamber has been constructed by human hands—or hands very much like them. You are inside a colossal mechanism of hewn rock and hammered metal, hidden deep beneath an unknown surface.
+
+The scale is disorienting. While the space is contained—a single, hidden pocket environment—the components within it are massive. Great piers of cyclopean masonry rise from the depths, vanishing into the watery ceiling above. The blocks are cut with startling precision, fitted together without mortar so tightly that not even a blade of grass could pass between them. The edges of the stone are razor-sharp, showing no signs of wear, as if the masons laid down their chisels only yesterday. This place is ancient in design but seemingly brand-new in its existence, perhaps recently unsealed or flooded.
+
+Despite being far underground and underwater, the chamber is brilliantly lit. Intense, concentrated beams of sunlight pierce the aquatic gloom from huge circular shafts high above, acting like lenses that magnify the day. These columns of light hit the submerged architecture with blinding force, illuminating suspended dust motes and causing the surfaces to glow.
+
+Where the light strikes, it reveals the materials. The dominant stone is a pale, creamy limestone, almost blinding in the sun-shafts. Accenting the stone are enormous fixtures of dull, reddish-orange metal—likely copper or a primitive bronze. There are no advanced alloys, no polymers, no wires. Everything is mechanical and heavy.
+
+The space is sparse. Between the titanic piers and gears, there are vast expanses of open, illuminated water. This emptiness emphasizes the sheer size of the constructed elements.
+
+It is deafeningly loud here. The water is not still; it is the fuel of the machine. A deep, resonant thrum vibrates through your entire body, a sound felt as much as heard. It comes from the churning of water through massive, hidden conduits built into the walls. The main source of the noise and action is a series of titanic gears, tenfold the height of a person, slowly rotating in the center of the chamber. They are made of the same pale stone, reinforced with bands of hammered bronze. They turn with agonizing slowness, driven by an unseen, powerful current, grinding with a low, tectonic groan that overcomes the roar of the flowing water.
+
+It is a dynamic, active environment, but sterile. There are no fish, no insects, no crustaceans crawling on the stonework. The only sign of life is a very sparse, slick film of bright green algae beginning to cling to the sharpest edges of the newest stonework near the light sources, a pioneer species in a recently activated ecosystem.
+
+The rules of this place are mechanical. Currents flow in rigid, engineered patterns, pulling and pushing with predictable violence around the churning gears. The pressure is immense but constant. It is a perfectly preserved, brightly lit, deafeningly loud engine room from a civilization that mastered stone and water before it ever dreamed of electricity, running dutifully in the warm dark.

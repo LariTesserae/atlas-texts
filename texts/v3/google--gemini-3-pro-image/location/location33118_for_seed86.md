@@ -1,0 +1,19 @@
+This is a subterranean realm of immense proportions, a hollowed-out region beneath the crust where the concept of a ceiling is replaced by an encroaching, absolute darkness overhead. It is a sprawling network of cavern systems, cathedral-sized chambers linked by broad, high avenues of stone that stretch for miles. The scale is regional; one could wander for weeks and never cross the same threshold twice.
+
+The air is consistently cool, holding a steady, cellar-like chill that sinks into the bone. It is a damp cold. There are no roaring underground rivers here, only the pervasive sweat of the earth. Every surface glistens with condensation. Slow, deliberate drips fall from unseen heights, landing with sharp *plinks* in shallow, perfectly still pools of black water that collect in the depressions of the floor. These isolated pockets of moisture are the only water sources, separated by vast expanses of slick, damp rock.
+
+The geology is strikingly young. The walls and floors are not smoothed by eons of flowing water but are defined by violence and fracture. It looks as though the earth was recently torn apart. Great tectonic plates of granite and basalt jut outwards like shattered teeth. The edges of fallen boulders are razor-sharp, and the floor is often a chaotic jumble of scree and slate that would slice open unprotected skin. There is a sense of raw, newly exposed stone that hasn't settled.
+
+The lighting is perpetual twilight, a dim, uniform gloom that permits vision but hides detail. The source is terrestrial phosphorescence—veins of mineral salts and vast, thin mats of microbial life coating the damp walls that emit a faint, sickly greenish-grey glow. It is just enough light to navigate by, but shadows are long and deceptive.
+
+Vegetation is nearly non-existent. In the wettest cracks, pale, translucent fungi dangle like bundles of wet nerves, and patches of grey slime-mold slick the edges of the drip-pools. They are sparse, spectral things that seem barely alive.
+
+Yet, this scarcity of flora is shockingly contrasted by an overwhelming abundance of fauna. The cave system is deafeningly loud with life. It is a churning, clicking, screeching ecosystem.
+
+The primary sensation is sound. A relentless, high-pitched cacophony echoes flawlessly off the hard stone surfaces. It is the sound of millions of creatures existing in the dark. The walls appear to ripple, a shifting tapestry of brown and black; upon closer inspection, this movement reveals itself to be a carpet of cave crickets, beetles, and centipedes, layered over one another, feeding on the guano and detritus that coats the rock.
+
+The air is thick with winged things. Great colonies of bats hang like furry stalactites from the upper reaches, their social chittering a constant background radiation of noise. Periodically, thousands take flight simultaneously, a whirlwind of leathery wings that creates a physical draft through the caverns. Blind, albino salamanders choke the small pools, snapping at water striders. Every niche, every crack, every dark corner is stuffed with crawling, fluttering, scuttling life, all competing fiercely in the gloom.
+
+There is nothing built here. No ruins, no paths, no sign that any tool-using intelligence has ever breathed this cool, ammonia-tinged air. It is a world of pure biology and geology.
+
+Crucially, this environment is static. There are no seasons, no day or night cycles, no gradients of weather. The temperature never fluctuates; the drip rate of the water is constant; the dim light never wavers. The ecosystem has reached a crowded, noisy, ferocious equilibrium, frozen in a timeless loop of birth, consumption, and death in the dark.

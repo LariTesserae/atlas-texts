@@ -1,0 +1,33 @@
+I'll let this place emerge slowly, following where the parameters pull.
+
+---
+
+**The Weeping Basin**
+
+You descend into it. That's the first thing—how you arrive. The land falls away in a single long slope, and you don't see the bottom until you're already committed, already damp. The altitude presses in your ears, a high place that shouldn't feel so heavy. The air is thin enough to notice and thick enough to taste.
+
+It is a room, almost. The scale parameter wants boundaries, and here they are: a cirque of pale stone, not quite a valley, not quite a crater. The walls rise around you in weathered tiers—sediment laid down in patient centuries, now holding their shape against everything that would wear them smooth. They should be dry at this elevation. They are not.
+
+Water moves through this place the way breath moves through a sleeping body. It is *in* the stone. You can hear it before you see it: a low, pervasive sound, like the basin itself is murmuring. The rock faces weep. Not dramatically—no waterfalls, no drama—but constantly, mineral-laden moisture seeping from a thousand pores, collecting in the shallowest depressions, feeding root and moss and something else, something that clings to the undersides of overhangs where light barely reaches.
+
+The wetness has its own logic. Puddles persist for weeks after rain, which is to say, rain is not an event here but a condition. The atmosphere condenses on every cool surface. Your skin learns this first: the persistent clamminess, the way fabric never quite dries, the particular chill that comes from evaporating moisture even in warmth.
+
+Heat, yes. The temperature sits in that strange zone where warmth and wetness combine into something almost tropical, though the altitude would argue against it. The basin traps what it receives. Days are mild, nights are mild, and the difference between them is a matter of degree, not kind. Growth responds to this. Lushness, but of a compressed kind—vegetation that doesn't reach for sun so much as *occupy* what light falls, that spreads horizontally rather than vertically, that carpets the available surfaces in dense, low mats of fern and clubmoss and something like grass that never flowers, never seeds, simply persists and spreads and persists.
+
+The plants here are old. Not ancient in the spectacular sense, but *established*—communities that have found their balance and show no interest in changing it. They grow in the cracks where the stone has begun to surrender, in the thin soil that accumulates in sheltered pockets, in the constant spray at the base of each weeping face. They do not compete so much as *arrange* themselves, each species holding its ground, the whole assembly moving only on timescales you would need instruments to measure.
+
+And the sound. The water's murmur is constant, but it is not the only voice. The basin amplifies. A stone dislodging somewhere high on the walls—a slow process of erosion, a crack propagating, a fragment finally surrendering its tenuous hold—reaches you as something almost articulate. The place *rings*, in its way. Low frequencies travel through the saturated stone, through the water held in its pores, and emerge somewhere below as a sustained note that makes your teeth ache. You learn to wait for it. The locals—if locals there are—would know its schedule. It comes with the cooling of evening, with the particular pressure change that precedes weather, with the slow breathing of the mountain itself.
+
+Fauna is rare, and when present, it is *wrong* in small ways. A bird, perhaps, seen only as a silhouette against the pale stone, its call distorted by the acoustics of the basin, arriving from everywhere and nowhere. Something that moves through the saturated vegetation at the water's edge, leaving no track that persists, its passage marked only by a momentary stillness in the ferns. You might wait hours to see it. You might never see it and know only that the silence has *changed*, that something has passed through and the place has noticed.
+
+The strangeness here is geological before it is biological. The basin is a wound in the mountain that has not healed, a place where the ordinary rules of drainage have been suspended. Water appears where it should not, disappears where it should pool, moves through channels that exist only in the stone's memory. There are sinkholes and springs in impossible proximity. The water table is a suggestion, not a fact. You can stand with one foot in saturated mud and one on stone that rings dry when struck, and the boundary between them will shift overnight.
+
+No structures. No marks of hands. But the *absence* is itself a kind of presence—you feel it as you feel the absence of a limb, a background tension that says *something should be here, something has been here, something chose not to remain*. The primitive technology of the place is its own: the slow chemistry of water and stone, the patient fabrication of soil from mineral and time, the hand-tools of root and frost and the slow pressure of growing things. Nothing is made. Everything is *grown*, in the geological sense, in the sense that a crystal grows, a glacier grows, a living thing grows.
+
+Light falls normally, for the most part. The basin is open to the sky, high enough that the light has clarity, low enough in its enclosure that shadows persist. Clouds gather against the walls and move through, and the light shifts with them—sudden brightness, sudden shade, the whole place breathing with the weather. At certain hours, when the sun angles just so, the weeping stone catches it and the basin becomes a room of moving glints, a thousand small mirrors winking on and off, and you understand that the water is not merely *in* this place but *of* it, inseparable from its character, its slow transformations, its patient holding of forms.
+
+Time moves slowly here, and yet you feel it. The erosion is not dramatic but *inevitable*—the walls are coming down, will come down, are in the process of coming down at a rate that would require centuries to perceive directly. The vegetation is a moment in that process, a pause in the stone's long fall, a community of living things holding the soil in place as long as they can, knowing it is temporary, not caring, persisting anyway. The balance is real but not permanent. Everything is *becoming*, at a pace that makes human urgency seem like a kind of sickness.
+
+You leave the way you came, up the single slope, and the basin closes behind you with a sound like a door that was never quite open. The silence that follows is not empty. It is *waiting*.
+
+---

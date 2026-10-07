@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **147** source folders · **167,469** texts
+- **153** source folders · **171,707** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -285,6 +285,18 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | `google--gemini-3-flash` | 250 | 2026-09-07 | location·250 | route | event-observed 250 |
 | `google--gemini-3-flash-preview` | 1,075 | 2026-05-22→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
+## gemini-3-flash-preview:reasoning  ·  750 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `google--gemini-3-flash-preview-reasoning` | 750 | 2026-10-06 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
+## gemini-3-pro-image  ·  250 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `google--gemini-3-pro-image` | 250 | 2026-10-06 | location·250 | route | event-observed 250 |
+
 ## gemini-3.1-flash-lite  ·  2,150 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -524,6 +536,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `x-ai--grok-4.20` | 1,075 | 2026-04-28→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
+## grok-4.20:reasoning  ·  750 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `x-ai--grok-4.20-reasoning` | 750 | 2026-10-06 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
 ## grok-4.3  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -692,6 +710,18 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `mistralai--mistral-large-2411` | 1,075 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
+## mistral-large-4-0  ·  861 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `mistralai--mistral-large-4-0` | 861 | 2026-10-06→2026-10-07 | creature·123, location·250, placement·250, regard·238 | route | event-observed 861 |
+
+## mistral-large-4-0:reasoning  ·  373 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `mistralai--mistral-large-4-0-reasoning` | 373 | 2026-10-07 | creature·123, placement·250 | route | event-observed 373 |
+
 ## muse-spark-1.1  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -770,6 +800,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `qwen--qwen3-max-thinking` | 1,075 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
+## qwen3-max-thinking:reasoning  ·  750 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `qwen--qwen3-max-thinking-reasoning` | 750 | 2026-10-06→2026-10-07 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
 ## qwen3.6-max  ·  1,068 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -830,8 +866,8 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `us.openai.gpt-6-sol` | 250 | 2026-09-22 | regard·250 | house-tag | event-observed 250 |
 
-## unresolved  ·  13 texts
+## unresolved  ·  517 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `source-unresolved` | 13 | 2026-05-16→2026-09-29 | placement·5, regard·8 | unresolved | unresolved 13 |
+| `source-unresolved` | 517 | 2026-05-16→2026-10-06 | creature·254, location·250, placement·5, regard·8 | unresolved | unresolved 517 |

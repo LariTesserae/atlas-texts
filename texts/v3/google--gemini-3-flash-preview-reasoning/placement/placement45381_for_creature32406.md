@@ -1,0 +1,17 @@
+I am not the hunter, for there is nothing here that fears the shadow. I am the **Hush-Owl**, though my wings carry no weight and my heart beats only in sympathy with the ground beneath me.
+
+I find myself at the precise center of a Slow-Mover’s brow. Beneath my talons—which are soft as frayed silk, more like rootlets than bone—the skin of my host is a vast, heaving continent of damp suede. I am perched just above the lidless eye, an orb the size of a shield, dark and glassy, reflecting the mercilessly clear sky and the ochre domes that stretch to the horizon.
+
+I have been here for three seasons. Or perhaps it has been three centuries. In this light, the distinction is a trick of the wind.
+
+I do not eat the flesh of this world. I am a creature of the *long-form*. My beak is pressed against the margin of the giant’s eye, and through it, I drink. I am drinking the stillness. I am absorbing the Slow-Mover’s dream of a mountain that once had a peak, a memory passed down through its lineage from a time when the air was cold and the stone was sharp. I feel the thrum of the plateau—that once-every-ten-minutes expansion—rising through the host's body, into my breast, and out through my four wings. 
+
+As I sit, I watch the **Dew-Gilders**. From my height, they look like slow-motion sparks of silver, weaving their iridescent calligraphy across the ochre expanse. I see the map they are writing—a map of survival, a cooling geometry that keeps the heat from cracking the world open. I know the taste of the salt they gather; I can feel it in the air, a faint, briny tang that rises as the midday sun pulls moisture from the suede.
+
+Behind me, the **Lace-Towers** whistle. I am the only one who truly hears the song they play. The **Vibrants** inside are my cousins in resonance; while they shiver in the dark honeycombs to turn wind into heat, I sit in the open sun to turn sight into memory. When the wind hits the towers at that high, piercing pitch, I feel my own feathers vibrate at the same frequency. I become a tuning fork, a bridge between the hollow bone-towers and the solid, pulsing flesh of the haystacks.
+
+I look down into the "weeping cracks" at the base of the dome. I see the shimmer of the **Glass-Larvae**. They are the only things here that represent a *becoming*. I watch them congregate in the tea-colored pools, waiting for a heartbeat to stop. I am the one who will tell them when it is time. When the host beneath me finally ceases its ten-minute pulse—when the suede begins to lose its warmth—I will be the first to know. I will drink the final, heavy dream of its passing, and then I will take flight.
+
+My flight is not a leap, but a shedding. I will detach from the shadow of the dome like a piece of the sky falling upward. I will drift over the mammillary hills, my four wings catching the high-altitude warmth, looking for the next lidless eye, the next vessel of history.
+
+I am the Plateau’s witness. I am the keeper of the sunset that never arrives. I am the heavy, grey silk that binds the stone to the wind, the pulse to the silence, and the dream to the dreamer. I am the Hush-Owl, and I am waiting for the mountains to become even flatter, until there is nothing left but the warmth and the light and the memory of what it was to breathe.

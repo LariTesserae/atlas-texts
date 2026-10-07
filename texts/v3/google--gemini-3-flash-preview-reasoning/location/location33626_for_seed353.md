@@ -1,0 +1,15 @@
+The air here is a thick, searing shroud, a dry furnace-breath that carries no hint of moisture. It is a world of high, jagged ridges that have been worn down by eons of thermal friction and internal grinding until their peaks are as smooth and polished as obsidian. This is not a natural landscape, nor is it a purely mechanical one. It is the **Loom of the Xylocore**, a planetary-scale industrial thicket where the distinction between a machine and a tree has long since eroded into a singular, ancient state of being.
+
+There is no light here, only the suffocating, velvety blackness of a sky choked by a canopy of iron-hard leaves. You navigate by the heat. The temperature is a constant, blistering 140 degrees, radiating from the "ground"—which is not soil, but a densely woven mat of calcified roots and copper-laced bark. 
+
+Everything is built. Every pillar of "wood" is perfectly cylindrical, ribbed like a turbine, and every "branch" follows a precise geometric arc before interlocking with its neighbor. The ecosystem is a closed circuit of biological engineering. There are no animals; the world has no need for them. The vegetation performs all roles: it is the factory, the fuel, and the product. 
+
+The density is absolute. There is no such thing as an "open space." To move is to squeeze between massive, vibrating trunks that pulse with a rhythmic, industrial heartbeat. These trunks are not filled with water—which is an alien, corrosive substance here—but with a pressurized, viscous amber resin that serves as both hydraulic fluid and nutrient broth. 
+
+The sounds are muffled, swallowed by the immense mass of the forest. It is a "mostly quiet" world, yet it is never still. You hear the deep, subsonic groan of wood under immense tension, the staccato *click-hiss* of pressure-valves disguised as seed pods, and the distant, thunderous grinding of the lower strata where the oldest roots are being crushed and recycled into new growth. It is a sound like a cathedral-sized clockwork mechanism submerged in oil.
+
+The world is profoundly turbulent. Even as you stand on a ridge, the geography is shifting. A mile-long "hedge" of piston-driven stalks may suddenly retract into the earth, replaced by a blossoming array of radiator-fins designed to vent the planet’s core heat into the upper atmosphere. The terrain is a hyperactive bazaar of structural reconfiguration. One moment you are in a narrow canyon of interlocking burls; an hour later, the burls have uncoiled, and you are standing on a flat, vibrating plateau of hardened sapwood.
+
+Everything is old. The erosion is visible in the way the bio-mechanical structures have fused together. There are no seams. The "plants" have grown into their final, industrial form over billions of years, creating a planet-wide engine that processes nothing but heat and its own mass. 
+
+If you were to look up—if you could see through the darkness—you would see no stars. You would see only the underside of the next layer of the Loom, a ceiling of gears made of grain and knots, spinning slowly in the hot, dry dark, forever building a world that is already full.

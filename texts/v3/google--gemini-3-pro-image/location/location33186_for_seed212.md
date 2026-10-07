@@ -1,0 +1,17 @@
+This landscape is a vast, low-lying basin, a geological sinkhole stretching toward the horizon, cradling a sprawling metropolis of pure biology. It is hot, humid, and deafeningly loud.
+
+There is no stone here, no exposed earth, no metal. The entire structure of reality in this place is botanical. The ground you walk upon is a woven matte of iron-hard roots and spongy tuber-flesh, a seamless, undulating substrate that replaces soil completely. The "urban" density arises not from human design, but from a hyper-evolved, architectural mimicry performed by the vegetation itself.
+
+Enormous structures erupt from the basin floor, rivaling skyscrapers in height. They are cathedral-groves of fused trunks, pale and slick like polished bone, spiraling upwards in dizzying, organized complexity. These aren't single trees, but colonial organisms growing in coordinated, structural frenzy. They form towers, buttressed arches, and flying bridges spun from tensile vines thick as suspension cables. The architecture is chaotic yet strangely functional, creating a layered, dense cityscape of chasms and platforms, all made of living, sweating cellulose.
+
+The air is thick to the point of being chewable, heavy with the musk of hyper-accelerated growth and the fermentation of sugar-rich sap. While there are no standing bodies of water—no lakes or rivers—everything is damp. The "buildings" sweat profusely. The sheer speed of their upward expansion causes their outer bark to fracture, spraying fine mists of pressurized xylem sap into the air. You walk through constant, localized rainstorms of sticky, nutrient-rich fluids hemorrhaging from the growing city.
+
+The primary defining characteristic of this place, however, is the noise. It is a deafening, continuous roar that vibrates in the chest. With no animals to cry out and no machines to grind, the sound is purely botanical.
+
+It is the sound of violent growth.
+
+The landscape is in a state of turbulent, chaotic flux. The flora grows at a speed that defies terrestrial biology—a visual realization of reality breaking down. You can watch a spire add a foot to its height in a matter of minutes. This rapid expansion creates a cacophony: the screeching groan of massive woody fibers stretching past their breaking point, the rifle-crack pops of seed pods detonating like ordnance, the deep, subterranean grinding of root systems rearranging the foundation of the world. Whole architectural sections collapse under their own weight, only to be immediately consumed and overgrown by opportunistic creeper-vines that solidify into new buttresses within hours.
+
+The light is bright, normal sunlight, but it struggles to penetrate the canopy layers. Down in the "streets"—deep canyons between the root-towers—the light is filtered through translucent leaves the size of billboards, casting the world in bruised shades of violet, chartreuse, and blood-orange.
+
+There is absolutely no fauna. No insects buzz, no birds call, no small things scuttle. The environment is too hostile, too unstable, and simply too fast for animal life. Anything with a central nervous system would go mad from the noise or be crushed by the sudden, spasmodic shifting of a wall-flower trying to become a load-bearing column. This is a kingdom of flora, pure and total, engaged in a screaming, turbulent war of construction and consumption with itself.

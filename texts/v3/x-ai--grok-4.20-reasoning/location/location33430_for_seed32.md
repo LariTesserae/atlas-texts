@@ -1,0 +1,25 @@
+**The Pocket of Unending Bells**
+
+You find it only by accident, pressing your back against a low ridge of dull, gray-brown stone in a place so unremarkable it seems to repel attention. A seam, no wider than a wrist, opens behind a lip of rock. Slide through and the world inverts: what was outside is forgotten. You are inside a single, self-contained chamber no more than four meters across in any direction, yet it feels infinite because there is no empty space left inside it.
+
+Everything is built.
+
+There is no natural substrate, no untouched floor or ceiling. The entire volume has been claimed, occupied, and perfected by mineral growth over epochs so long the word “time” begins to lose meaning here. Slender prisms of quartz, milky selenite, and pale blue barite have intergrown into a single continuous body. Columns no thicker than fingers rise and branch and re-join like fossilized capillaries. Delicate lattices hang from above like frozen foam. Every gap smaller than a fingernail has been filled by secondary crystals that grew sideways, upward, diagonally, until the chamber became a single crowded organ of stone. You cannot stand upright. You cannot stretch your arms. The only way to move is to insinuate yourself between the structures like a thought sliding between memories.
+
+The color palette is severe and pure: chalk white, glacial blue, occasional threads of rose and amber where iron stained the lattice long ago. Edges that should be razor-sharp have been weathered for so long they have grown softly rounded, almost fleshy, yet still unmistakably crystalline. This is erosion at its most established—form settled into finality, every surface in balance with every other. Nothing is still “becoming.” It simply *is*.
+
+Light is everywhere. It arrives sourceless and brilliant, as though the crystals themselves have decided to glow. Faces of quartz act like internal mirrors, bouncing and multiplying a cold, bone-white radiance until the chamber hurts to look at directly. There are no shadows, only varying degrees of intensity. The brightness feels merciless in such a confined place, yet it is also the reason the eye can follow the impossible density of detail: every filigree, every nested hexagon, every microscopic step of crystal upon crystal is mercilessly revealed.
+
+The sound is constant and deafening.
+
+A low, roaring chime fills the pocket at all times. It is not wind—there is no movement of air. It is not life—there are no creatures. The lattice itself is singing. Internal stresses locked in when the last molecule settled millions of years ago continue to express themselves as harmonic vibration. The sound has no beginning and no end. It is loud enough that after a few minutes your teeth ache and your vision blurs at the edges, yet the tone never wavers. It is a single, complex chord made of hundreds of individual frequencies, all perfectly stable. This is the voice of frozen equilibrium: a noise so eternal it has become part of the architecture.
+
+Vegetation is present but spectral. Sparse, brittle excrescences—aragonite “flowers” and delicate, branching gypsum “shrubs”—grow in the few niches where the main lattice left microscopic voids. They look like petrified sea creatures or the skeletons of unknown plants, bone-white and motionless. They do not grow. They do not decay. They simply persist, as much a part of the built environment as the pillars and lattices.
+
+There is no water. The air is cool and so dry it feels like breathing glass. Any moisture that once existed was consumed or driven out long ago; what remains is a chemistry of pure mineral conversation. Nothing here has ever needed water. The crystals formed in some ancient, slow supersaturation of dissolved silicates and salts, then sealed themselves into this pocket like a thought that forgot to tell the outside world it had finished.
+
+No animals. No insects. Not even the ghost of a past nest. The ecology is purely crystallographic. The only “rule” is equilibrium. Nothing changes. If you were to break a crystal, the fracture would remain exactly as you left it for the rest of eternity; the overall chord would simply absorb the new edge into its harmony without altering pitch. The chamber does not heal. It does not progress. It has reached the terminal state of its own logic and now simply *continues*, loud and bright and unbearably full.
+
+This is a made world that was never made by hands. It is pre-tool, post-life, and entirely itself—an intimate, overwhelming room of ringing stone where every cubic centimeter has been claimed, polished by time, and set screaming softly forever in perfect, unchanging density.
+
+Stay too long and the sound begins to feel like language. Leave, and the ridge outside looks even more ordinary than before, as though the land itself is ashamed to admit it contains such a place.

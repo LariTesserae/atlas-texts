@@ -1,0 +1,25 @@
+It is not a place you find on a map. It is a place the map *is*.  
+
+You stand upon the Oculus Plateau—a disc of forged iron no wider than a village square, suspended in the throat of the world. Below, nothing. Above, the bruised violet of high atmosphere. The Plateau is not *on* the mountain; it *is* the mountain’s final, deliberate punctuation: a flat, hexagonal plane of riveted steel plates, cooled to a dull gunmetal grey, bolted directly to the living rock of a needle-peak so slender it seems the Plateau might tilt and spill you into the abyss. Elevation is not a condition here; it is a covenant. The air is thin, warm (2.1), and carries the scent of hot metal and wet stone.  
+
+Water does not flow here. It *condenses*. At dawn and dusk, when the warm air meets the chilled iron, a fine sweat beads along the seams of the Plateau. Rivulets trace the rivet-lines like liquid cartography, pooling in shallow, purpose-cut channels around the Plateau’s sole feature: the Gear.  
+
+The Gear is why you are here.  
+It is not a machine *in* the landscape. It *is* the landscape. A single, vertical gear of oxidized bronze, thirty feet tall, mounted in a stone-and-steel housing at the Plateau’s exact center. Its teeth are worn smooth in three precise arcs—centuries of contact with an invisible counterpart below the Plateau. Mosses (emerald spleenwort, silver-thread moss) and resurrection ferns cling to its lower flanks where moisture lingers, a lush (2.5), velvety tapestry thriving in the engineered damp (1.2). Vines of hardy alpine clematis, their purple bells trembling, snake up the housing’s struts. This is not wilderness. It is cultivation. Every patch of green is a testament to design—a symbiotic latchkey in the total-built (2.6) order.  
+
+And the Sound.  
+It is not loud. It *is* sound. A deep, resonant *THOOM… … … THOOM…* that vibrates up through the soles of your boots, rattles your teeth, fills the hollows behind your eyes. Deafening (2.6). It is the Gear turning. One revolution every seventy-three minutes. A motion so slow (dynamic: 1.0) you cannot perceive it shifting—only the accumulating evidence: a new bead of condensation flung from a tooth; a fern frond brushed aside; the slow, patient grind of bronze on bronze, amplified by the Plateau’s hollow construction into a seismic heartbeat. There is no engine room, no smokestack. The power is geological. Tectonic. The Gear is a regulator, a pressure-release valve for the mountain’s deep bones. It has turned like this for eight hundred years. It will turn for eight hundred more. Erosion (2.2) is not decay here; it is dialogue. The rust on the iron is a language. The smoothed teeth are a record.  
+
+Light (1.5) falls clean and ordinary—a midday sun casting sharp, short shadows. It glints off dewy moss, illuminates dust motes dancing in the Gear’s slow exhalation. In that light, the emptiness (density: 0.0) becomes palpable. The Plateau holds only the Gear, its housing, the channels, the green. No benches. No rails. No offerings left by pilgrims. The space between you and the Gear is vast, sacred in its vacancy. You feel the scale (0.6) not as confinement, but as focus: a single room in the sky, designed for one witness, one purpose.  
+
+Fauna (1.6) adapts.  
+Alpine swifts nest in the housing’s upper vents, their shrieks swallowed whole by the THOOM. They dart through the beams of light, unbothered. In the mossy troughs, blind cave crickets hop between droplets. A single, ancient raven perches on a gear tooth during the long pauses between rotations—a silent custodian. They do not flee the noise. They *time* themselves to it. The swifts dive on the downbeat. The crickets sing in the resonant aftershock. Life here is not abundant in number, but in resilience. It is woven into the rhythm.  
+
+Weirdness (2.0) lives in the details.  
+The condensation channels form a perfect, fractal map of a river system that does not exist on any continent. The moss grows only on the *east-facing* teeth of the Gear, as if honoring a sun it cannot see. If you place your palm flat against the iron between the rivets, you feel not cold metal, but a faint, rhythmic pulse—warm, then cool—synced to the Gear’s turn. The builders left no inscriptions. No faces on the housing. Only function, worn into grace. The strangeness is not in the uncanny, but in the *intention*: a machine of immense power, designed to do one quiet thing perfectly, forever, and to make beauty from its byproduct.  
+
+Stand here long enough, and the deafening sound stops being noise. It becomes silence of a deeper kind. The slow turn erases urgency. The emptiness holds you. The damp moss breathes. The warm air carries the scent of wet bronze and blooming clematis. You are not in a factory. You are in a lung. A heart. A single, deliberate breath drawn by the world itself—a breath that condenses into life, turns with geological patience, and sings its slow, deafening song into the hollow sky.  
+
+There are no rules written here. Only the ones the place teaches:  
+*Wait. Listen. Notice the water on the iron. Do not step on the moss.*  
+The Gear turns. The mountain holds. The sky waits.

@@ -1,0 +1,21 @@
+The air tastes of mineral dust and old stone—dry to the point of desiccation, yet thick with the spores of things that have no need of water. You stand on a floor that is not floor at all, but the near-flattened remnant of a primordial seabed, scoured smooth over eons by forces that have long since exhausted themselves. The rock here is limestone, or something like it: pale, porous, worn down to a satin sheen by the patient abrasion of time and the slow, grinding drift of crystalline sediment. Erosion has settled into its final form; the walls curve in vast, settled arcs, neither growing nor collapsing, simply *being*, as they have for millions of years.
+
+Above you, the ceiling is lost in dimness. The light is faint, diffuse, the color of old bruises—violet and grey—cast by colonies of chemiluminescent lichen that cling to the upper reaches in patches the size of dinner plates. It is cool here, a stable, refrigerator hum of temperature, neither warming nor cooling, held in equilibrium by the mass of stone above.
+
+This is not empty wilderness. It is a city.
+
+But the architecture is grown, not built. Over millennia, vast fungal forests have colonized these caverns, their mycelial networks tapping into mineral veins deep in the bedrock, drawing sustenance from hydrogen sulfide and methane rather than sun and rain. The fruiting bodies have risen to impossible heights—columns of chitin and cellulose twenty meters thick, their caps fanning out to form domed chambers, vaulted halls, and terraced districts. The structures repeat in patterns too regular to be accident: streets of packed fungal stalk run between plazas where the caps overlap like umbrellas, creating a layered, vertical metropolis that extends past the limits of sight. It is urban in its density and organization—infrastructure of tunnels and ventilation shafts, waste-recycling chambers, nurseries—but there are no tools here, no devices, no hands that shaped it. The city grew, cell by cell, over geological time, and has now reached its mature, climax state.
+
+The vegetation is lush in a way that defies the dryness. The fungal forests are dense with color—ochres, rusts, bone-whites—and they teem with moisture locked within their tissues, a closed-loop biology that recycles every molecule, needing nothing from the outside world. They do not photosynthesize; they breathe the stone.
+
+And the fauna is abundant.
+
+The air moves with life, though the life moves slowly. Swarms of beetle-like creatures, their shells iridescent with mineral oils, crawl across the fungal stalks in glacial procession. They are everywhere—underfoot, overhead, clinging to the walls in drifts that shift and reform with the patience of tides. They do not hurry. A single step might take an hour. Yet there are so many of them, trillions upon trillions, filling the regional vastness of the cavern system—a valley-sized network of chambers and passages—that their collective presence is overwhelming. Between the fungal towers, which stand sparse and scattered across the landscape, the ground is a carpet of slow-moving bodies, a living sediment.
+
+The sound is deafening.
+
+It is not the skittering of legs—that is too slow, too deliberate. It is the cavern itself, resonating. The porous rock is honeycombed with gas vents, ancient fissures through which methane and other primordial gases seep in a constant, high-pressure whisper. The chambers are tuned, over eons of erosion, to amplify this seepage into a roar—a white-noise shriek that fills the space, a subsonic drone that vibrates in the sternum, a geological howl that never ceases, never changes, never sleeps. It is the sound of the earth breathing out, slow and eternal.
+
+Everything here is patient. The fungi grow millimeters per century. The creatures graze on the mycelium with movements so gradual they resemble stillness. The erosion continues, wearing the stone smoother, flatter, more perfect, but the change is imperceptible. The gas flows. The spores drift. The city stands in its final form, settled, ancient, waiting.
+
+You are below the world, in a place that has forgotten water, where life has learned to drink from rock and air, where the dark is absolute but for the dim glow of chemical light, where the silence is broken only by the eternal, deafening song of stone and gas.

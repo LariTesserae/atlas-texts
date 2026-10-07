@@ -1,0 +1,25 @@
+To live here is to be an extension of the friction. The inhabitants of the Fourteenth Strut are not merely residents; they are the biological lubrication of a system that has forgotten its purpose but cannot stop its movement.
+
+### The Silents (The Copper-Skins)
+The most prominent inhabitants are the **Silents**, a lineage of humanoid-ish figures who have long since surrendered their voices to the deafening thrum-hiss. Their skin is the color of old pennies and has the texture of cured leather, calloused by a lifetime of gripping vibrating railings. They do not speak; they communicate through **Percussive Sign**, a language of rhythmic taps delivered against the brass conduits. By pressing their foreheads against the metal, they can "hear" a message carried through the machine’s skeleton from kilometers away. 
+
+They are the gardeners of this mechanical rot. You will see them moving with agonizing, calculated grace—timing their leaps between the slow, crushing teeth of the gears. They carry small, serrated hooks to harvest the waxy ferns, which they press for a thick, bitter nectar that tastes of iron and sugar. They do not build; they only maintain, scraping the calcified "arteries" of the steam pipes to ensure the warmth continues to flow to their hanging moss-beds.
+
+### The Lubricant-Leeches
+Tending to the shadowed undersides of the gantries are the **Lubricant-Leeches**. These are soft-bodied, translucent organisms that look like spilled mercury. They possess no eyes, only a singular, diamond-hard proboscis. They cluster around the joints of the massive pistons, tapping into the ancient reservoirs of black, viscous oil. As they feed, they swell, their bodies taking on a dull, metallic sheen. The Silents value them; a Leech, when squeezed gently, provides the only salve capable of soothing the "Vibration-Rash" that plagues the skin of anything living in constant contact with the Strut.
+
+### The Resonance-Wraiths
+In the gaps between the struts, where the white void presses closest, live the **Resonance-Wraiths**. They are not ghosts, but spindly, multi-jointed predators with limbs like segments of copper wire. Their bodies are hollow, acting as organic tuning forks. They don’t hunt by sight or scent, but by **Phase-Locking**. They sit perfectly still on a vibrating plate, adjusting their internal tension until they vibrate in perfect harmony with the machine. To any other creature, they become invisible—a literal blind spot in the sensory map of the Strut. When a Gear-Moth or a stray bird passes, the Wraith shatters the harmony with a sudden, discordant twitch, the resulting kinetic shock stunning the prey instantly.
+
+### The Solder-Mites
+If you look closely at the "soil" in the cracks of the perforated plates, you will see a shimmering, restless dust. These are the **Solder-Mites**. They are the recyclers of the Fourteenth Strut. They consume the microscopic filings of brass and iron shed by the grinding gears. Their waste is a fast-hardening biological resin that fills the cracks and stabilizes the rattling walkways. The machine wears down, and the Mites build it back up in a cycle of eternal, microscopic repair. The very ground you walk on is less "steel" and more a compressed fossil-bed of a billion Mite-shells.
+
+### The Void-Gliders
+Occasionally, something will break the verticality of the world. The **Void-Gliders** are enormous, translucent rays that drift in the grey-white expanse beyond the Strut. They never touch the machine; to them, the Strut is a pillar of intolerable noise and heat. Instead, they hover kilometers away, feeding on the "Exhale"—the massive plumes of spent steam and mineral vapor ejected by the Strut’s exhaust vents. They appear as ghostly silhouettes in the mist, silent observers of the industrial cathedral, their long, ribbon-like tails trailing behind them like ribbons of silk in a windless sky.
+
+### The Heart-Keepers
+Deep within the central shaft, where the heat is enough to blister skin and the bioluminescence is a blinding, steady gold, live the **Heart-Keepers**. Rarely seen by the Silents of the upper walkways, these are creatures of pure muscle and bone, shaped like heavy, low-slung bulls. They have no limbs, only powerful, suction-cupped bellies. They move by inching along the main drive-shaft, their rhythmic contractions assisting the machine’s rotation. They are the pulse within the pulse. They eat the thickest, hottest sludge of the engine, and their low, booming bellows are the only sounds that can be heard over the *thrum-hiss* of the steam.
+
+***
+
+In this place, life is a parasite that has become a symbiote. There is no concept of "wild" or "civilized." There is only the **Tension**. The plants hold the rust together; the animals clean the joints; the people navigate the gaps. You are standing in a closed loop, a terrarium of iron where every breath you take was exhaled by a piston, and every drop of water you drink has already passed through the cooling-fins of a god-sized engine. You are not a guest; you are a new, uncalibrated cog.

@@ -1,0 +1,25 @@
+I am the weight in my mandibles. A pellet of loam, grey and cool, mixed with my own saliva and the mortar of my body’s waste—soil and secretion pressed into service. I carry it through the press. The stream is thick here, bodies against bodies, chitin whispering against chitin, a vibration that travels up my legs and settles in my sternum: a hum that says *forward, forward, the wall demands.*
+
+I do not see the chamber. I taste it. My antennae sweep the air, drinking the chemical signatures layered like strata: the sweet rot of the fungus gardens to my left, the sharp mineral tang of new construction ahead, the warm musk of a thousand metabolisms that is the breath of the city. I follow the scent-trail, a ribbon of pheromone laid by the one who passed before me, guiding my claws across the packed earth floor.
+
+The stream parts around me. I move against the current toward the northeast wall where the loam is softest, where the architecture is raw and unfinished. My legs grip the damp fiber, the masticated cellulose that was finished yesterday but is already hungry again. I reach the place. My mandibles work, placing the pellet with precision against the surface. It adheres, dark and wet. The wall thickens by the width of a grain. I am the mortar and the mason.
+
+Around me, others do the same. A thousand mandibles placing, smoothing, pressing. The vibration in my sternum shifts—a new rhythm, a command from deeper in the city. We are sealing a tunnel here, excavating another there. The chamber breathes, expanding inch by inch into the raw geology.
+
+Above me, the ceiling grows. I feel it as coolness, as moisture beading on my translucent back. The spikes hang, pale and mineral, calcifying visibly, slowly, catching condensation that has not yet fallen. They drip. The patter is irregular, too sparse to be called rain, but I feel the rhythm in the floor beneath my feet, in the shallow basins where the packed earth has settled, holding small mirrors of still water. The air carries a dim luminescence—faint, bruised green—emanating from the fungus or filtering from some distant aperture. It turns my pale body into a lantern, faintly glowing.
+
+I turn toward the garden. The scent is stronger here—sweet, earthy, the smell of *Termitomyces* spreading in velvety mats across the compost heaps. I am hungry, or rather, the colony is hungry, and I am its mouth and its stomach. I carry a fragment of leaf, a piece of decaying wood, toward the beds. The mycelium waits, white and jade, ready to break down the cellulose I cannot digest, to prepare the meal I will later consume.
+
+But there is another presence. Deeper in the city, beyond the widening tunnel that curves with the logic of growth, she exudes. The queen. I do not see her, but I feel her as a chemical tide, a constant broadcasting that overrides all other signals. *Dig. Feed. Seal. Swarm.* Her pheromones wrap around me, binding me to the whole, telling me when to turn, when to stop, when to press my body against the wall and add my substance to the becoming. I am sterile, sexless, but I am not alone. I am a node in a network, a cell in a body that thinks with chemistry.
+
+In the floor-level tunnel, I pass the nursery. I feel the soft grubs, legless and blind, waiting in the humid warmth. The workers there move with a different urgency, a tenderness in their antennae as they groom, feed, tend. Some of these larvae will become soldiers, armored and rigid with guardianship. Others will become alates, winged, destined to leave and found new cities. I am none of these. I am the present, the stream, the silent industry.
+
+A soldier passes, larger, her head swollen and darkened with chitin, her mandibles elongated into curved blades. She does not look at me—she cannot see—but she senses me, vibration through the substrate. She pauses at the threshold, antennae sweeping for the chemical signature of intruders. I feel the tension in her, the readiness to surge, to click her mandibles in that dry, rattling percussion that travels through the earth faster than sound.
+
+I continue. The air is thick with spores, with the layered invisible messages of my sisters, with the heat of metabolisms I will never meet but whose warmth I carry. I am moving through a greenhouse trapped in the earth, a pocket of life hidden within the larger darkness. The walls are raw, always under construction. The ceiling drips. The fungus grows, aggressive and disciplined. The condensation pools, evaporates, returns.
+
+I place my pellet. The wall grows. The city becomes, never finished, always yesterday’s work becoming tomorrow’s foundation.
+
+I am the silence full of work. I am the whisper of chitin against earth. I am the calcifying spike growing slowly toward the floor. I am the pool reflecting dim light. I am the chemical trail guiding the way. I am the superorganism, distributed across a thousand metabolisms, feeling the vibration of the chamber in my sternum, leaving the scent of my passage on the air, excavating the new tunnels at the periphery, letting the architecture grow around me as I grow it.
+
+I am the body that is the city.

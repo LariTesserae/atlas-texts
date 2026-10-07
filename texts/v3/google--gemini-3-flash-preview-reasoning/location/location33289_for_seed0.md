@@ -1,0 +1,23 @@
+The landscape is a vast, suffocating bowl known as the **Shatter-Sink**. It is a young depression, a regional wound in the earth where the crust has recently—in geologic terms—dropped away, leaving the edges raw and the floor a chaotic expanse of jagged, unweathered obsidian and obsidian-like basalt. Everything here is sharp. The rocks have not yet learned the curve of a circle; they are all triangles, needles, and razors.
+
+**The Atmosphere and Light**
+The sky is not visible. A ceiling of thick, low-hanging sulfurous clouds and heavy, suspended spores creates a state of near-perpetual darkness. The light that does exist is a bruised, internal glow—a dim, phosphoric violet emitted by the fungal carpets and the bellies of certain insects. It is warm, a humid, claustrophobic heat that smells of ozone, rotting fruit, and hot stone. The air feels heavy, pressing against the skin like a wet wool blanket.
+
+**The Water**
+There is no standing water, no lakes or steady rivers. Instead, the Shatter-Sink breathes. Every hour, the temperature spikes, and the jagged floor "sweats." Intermittent pulses of steam hiss from the cracks in the young rock, instantly condensing on every surface. For ten minutes, the world is a slick, dripping labyrinth of oil-like moisture; ten minutes later, the porous rocks have swallowed it back, leaving only a tacky, salt-heavy residue behind. Life here exists in the frantic moments between the steam-pulse and the dry-hiss.
+
+**Vegetation and Density**
+Despite the darkness, the valley is terrifyingly lush. This is not a green lushness, but a spectrum of charcoal, deep indigo, and bruised mauve. Massive, rubbery stalks—hybrids of fungi and vascular plants—reach upward, their surfaces covered in fine, sensory hairs that twitch in the wind. They grow in dense, overlapping clusters, fighting for every inch of the jagged floor. Parasitic vines, thick as a human thigh but soft as velvet, bridge the gaps between the obsidian spires, creating a multi-layered canopy that vibrates with the sheer pressure of its own growth. It is a vertical jungle where the "ground" is merely the lowest layer of a mile-deep thicket.
+
+**The Fauna and the Sound**
+The sound is the first thing that breaks a visitor. It is not a background noise; it is a physical force. Millions of armored, multi-limbed creatures—the size of hounds, the size of gnats, the size of fallen trees—are in constant, violent motion. They communicate through high-frequency shrieks and the rhythmic grinding of chitinous plates. The result is a deafening, metallic roar that echoes off the sharp valley walls, a sound like a thousand saws cutting through bone. 
+
+The fauna is overwhelming. They do not scurry; they swarm. They carpet the vines and the stalks in undulating blankets of iridescent shells. You cannot step without crushing something that bites, or something that is already being eaten by something else. The food chain is not a ladder here; it is a blender.
+
+**The Dynamic and Tech**
+The valley is in a state of hyperactive turbulence. Nothing stays still. A grove of giant stalks might be leveled in an afternoon by a localized swarm of boring beetles, only to be replaced by a different, faster-growing mold by the following dawn. The ecology is a bazaar of frantic evolutionary gambles.
+
+Deep within this chaos, there are signs of a primitive, transient intelligence. There are no buildings—nothing could withstand the constant upheaval and the corrosive steam—but there are *tools*. Large, wedge-shaped stones have been lashed to the obsidian shards with braided vine-silk to create crude, heavy hammers used to crack the carapaces of the larger beasts. There are "ladders" made of bone, wedged into the rock faces to allow passage above the most violent swarms. These are not permanent fixtures; they are discarded and replaced as the landscape shifts. The "people" of this place, if they can be called that, are ghosts in the dark—nomadic, silent (for they cannot compete with the roar), and move with a terrifying, fluid grace across the razor-edges of their world.
+
+**The Rules of the World**
+In the Shatter-Sink, softness is death. To survive, an organism must be either as hard as the obsidian floor or as fast as the steam-pulse. The world is defined by the *Now*. There is no history in the soil because the soil is too young, and there is no planning for the future because the swarm will change everything by morning. It is a place of beautiful, deafening, and absolute ferocity.

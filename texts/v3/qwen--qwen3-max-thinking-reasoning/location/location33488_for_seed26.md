@@ -1,0 +1,1 @@
+You descend the final rust-streaked ladder rung and step onto the grating. The air hits first: a damp, metallic chill that seeps through layers of clothing, carrying the scent of wet steel, ozone, and the faint, sweet-rot tang of lubricant pooling in unseen troughs. You are deep. Not in a cave—there is no stone

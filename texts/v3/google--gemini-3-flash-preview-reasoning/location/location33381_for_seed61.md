@@ -1,0 +1,19 @@
+Below the frost-line of the greater world, tucked into a seismic fissure no wider than a human ribcage, lies the City of Still-Drip. 
+
+It is a miniature metropolis, an urban sprawl contained entirely within a three-foot-long pocket of schist and damp limestone. Here, the scale of existence has collapsed inward. What would be a minor crack to a surface-dweller is, in this place, a cavernous boulevard. The architecture is a dense, suffocating climb of stacked slate flakes and hollowed-out pebbles, piled one atop another until they touch the "sky"—the weeping ceiling of the fissure. 
+
+There is no green here. The world is a monochromatic study in grays, ochres, and the dull, oily sheen of wet mineral. In place of trees, there are only the "Groaning Spires"—tall, thin stalagmites that have been manually shaped by primitive chipping. They aren't grown; they are manufactured from the slow, calcified blood of the mountain.
+
+The air is thick, cool, and permanently saturated. Water does not simply fall here; it migrates. It weeps from the walls in a constant, rhythmic hemorrhage, coating every surface in a fine, slick membrane that never dries. Because the temperature remains a steady, unchanging chill, there is no evaporation. The water simply cycles through the cracks, pooling in deep, black micro-reservoirs that serve as the city’s plazas.
+
+It is incredibly loud. 
+
+The sound is not the roar of wind or the bustle of speech, but the percussion of a billion distinct impacts. In this cramped, high-density space, every falling drop of water hits a resonator—a flat piece of shale or a hollowed-out bone—carefully placed by the unseen architects. The result is a deafening, polyrhythmic drumming that never ceases. It is a tectonic metronome, a thunderous white noise that vibrates in the very marrow of the stone. The sound is the city’s primary infrastructure; it is how the inhabitants orient themselves in the dim, charcoal light.
+
+The technology is ancient and manual. There are no wheels, no gears, no fire. The city is built of friction and weight. Bridges are made of braided mineral-wool and hair-fine strands of silica, tensioned by hand and anchored into the weeping rock with crude, hand-knapped flint wedges. Every dwelling is a masterpiece of balance, held together by the surface tension of the water and the sheer density of the masonry.
+
+Life is a rarity, a statistical anomaly. Occasionally, a pale, sightless arthropod—no larger than a grain of salt—scuttles across a slate bridge, its movements jerky and panicked. These are the rare fauna of the fissure, scavengers of the mineral-rich slime that coats the lower districts. There are no plants to provide oxygen; the air is refreshed by the slow, heaving "breath" of the earth as barometric pressure shifts miles above, pushing stale, damp air through the cracks.
+
+The most striking quality of the City of Still-Drip is its utter lack of movement. It is a frozen equilibrium. The buildings do not crumble because there is no wind to erode them; the water follows the exact same paths it has carved over ten thousand years. The society that built this place—if they are still there, hiding in the lightless crawlspaces—exists in a state of permanent stasis. Nothing is repaired because nothing ever breaks. Nothing is born because there is no room left to grow. 
+
+It is a monument to the eternal present. The dim, grey light catches the curve of a wet pebble, reflecting a city that has reached its final form. It is a dense, vertical labyrinth of stone and water, screaming with the sound of its own drowning, perfectly content to never change again.

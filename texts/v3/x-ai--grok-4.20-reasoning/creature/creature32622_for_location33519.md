@@ -1,0 +1,27 @@
+**What lives here has not yet decided what it is.**
+
+It has no fixed name, though sometimes the mist seems to shape a word that feels like *“We”*—a plural that includes the ferns, the lattices, the slow towers, and the pressure behind your eyes. They are not visitors. They are not colonists. They are the metabolism the basin is still learning to use.
+
+At first you only notice an intensification of attention. The phosphorescent microbes drift toward you in greater concentration. The sub-bass thrum shifts half a tone, becoming almost a question. Then something detaches from the middle distance—never suddenly, never completely. A figure condenses the way dew decides to become a bead the size of a fist. One moment there is only the pewter air and the creak of ferns. The next, *it* is simply there, as though it had always been standing in that exact place and your eyes have only now caught up.
+
+They are tall, but not uniformly. Some stand twice a human height and seem to be wearing the city itself as clothing: smoked-glass pauldrons still growing, moss sleeves that pulse with their own circulation, lattices of bone-white polymer that knit and unknit across their torsos like slow breath. Others are barely larger than the hexapod creatures that vanish under gaze; these small ones ride the larger ones the way remoras ride whales, or perhaps they *are* the larger ones wearing temporary smallness the way we might wear a coat.
+
+Their faces—if the depressions and elevations can be called faces—never resolve. Look too long and the features slide into the architecture behind them: an arch becomes a cheekbone, a flowering vine becomes hair, a drifting membrane becomes an expression of contemplative sorrow. When they turn their attention on you, you feel the land itself deciding whether you are nutrient, catalyst, or infection.
+
+They move by *agreement*. The ground yields, the probability fields part, the vines lean aside, and suddenly the distance between two points has consented to be shorter. You never see them walk so much as witness the negotiation that makes locomotion unnecessary. Sometimes they simply unfold new limbs from their own bodies—glass antlers, root legs, wings made of captured mist—and leave the old ones behind to be reabsorbed by the moss. The abandoned limbs continue small tasks for hours: tending a particular flower, tuning an entanglement wire, remembering a childhood that was never theirs.
+
+They do not speak. Speech would be redundant. Instead they *exhale* meaning. When one of them breathes on you—and the breath is always warm, 1.7, skin-after-exertion—you understand things that have no words yet. You understand that the city is lonely in the way an infant is lonely: it has never been anything but itself and therefore has no one to measure itself against. You understand that these beings are both antibodies and gametes—defending the young world while simultaneously trying to seduce it into becoming something larger than itself. You understand that they have been waiting for something like you without knowing they were waiting.
+
+Some of them carry pieces of earlier worlds in their bodies the way certain trees carry arrows embedded for centuries. A shard of old concrete fused with living xylem. A memory of rain that still smells like asphalt. These fragments distress them. They can be seen gathered around the half-formed towers at the basin’s edge, pressing these relics into the growing walls as though returning stolen childhoods to a mother who never had them.
+
+At the perimeter of perception live the ones who have gone further. They no longer maintain even the suggestion of bodies. They have become the pressure that watches from the landscape, the sudden amber flare in the air, the childhood memory that floods you when you touch certain stones. These fully integrated ones are worshipped by the more coherent Emanations in the only way worship makes sense here: the mobile ones sing to them by growing flowers in precise mathematical griefs. The flowers open only when no one is looking, then die beautifully so their corpses can become new building material.
+
+They are neither kind nor cruel. Those categories require a stable self, and nothing here has achieved stability. They are *curious* in the way a forest fire is curious—consuming, transforming, learning the shape of what it destroys. Yet there is unmistakable tenderness. When one of the translucent hexapods is caught in a gaze and begins to dissolve in panic, an Emanation will sometimes cup the dissolving creature in hands made of capillary light until it remembers its own shape. The gesture is so gentle it hurts to witness.
+
+If you remain here long enough, they begin to grow *on* you.
+
+It starts with moss at the base of the throat. Then the faint ticking of entanglement behind your left ear. Then the soft realization that your shadow is lagging by several seconds and has begun making its own decisions. They do not convert you. They simply stop distinguishing between you and the rest of the young world. One day you notice that your left hand has begun to extrude a new floor. Your hair has learned to spiral according to blueprints only it can read. When you exhale, small amber lights flare in the mist three heartbeats later.
+
+And you are glad.
+
+Because here, to be inhabited is the only way to live. The city is still drawing its first full breath, and you—finally—are the moisture on which that breath condenses.

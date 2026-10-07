@@ -1,0 +1,19 @@
+I am small. Wet. No larger than a cat, translucent as the pale fish that move through the channels, eyeless behind sealed lids of skin the color of wet stone. I move through the peat, my webbed feet sinking, leaving tracks that the water fills in behind me—gone immediately, as if I were never here. The mist is thick around me, higher than my head now, though it was lower when I was born. It tastes of stone-dust and frost, of the thin air at the top of the world.
+
+I trail my fingers through the water. Short fingers, three-jointed, webbed at the base. I am learning to read. The world is loud to others—a roar of weeping cliffs, the drumming of condensation on thatch, the hollow boom of waves against floating platforms—but to me it is a text carried through the saturated ground. A murmur in the peat, in the reed, in the stone. I feel it in my sternum: *thump… pause… thump-thump.* A conversation across the empty reed-beds, a Morse code of need and maintenance and memory.
+
+My knuckles find the reed thatch of my niche. Subsonic. I drum. The vibration travels through the tamped earth of the aqueducts, felt rather than heard. My gill-slits flutter along my ribcages, filtering oxygen from both air and water. No sound. I am silent. Truly silent.
+
+The platform tilts. The ground is not flat; it is still being born, pushing up in slow bulges that the adults must constantly shim and level. I sway with it, flowing, never fighting. I am reed myself, rooted in the composting peat, growing upward as the ground sinks beneath me—a hand’s-breadth each year, sometimes more.
+
+Water flows upward along the moss, thin rivulets climbing the stone, defying gravity. The reeds grow in spirals that seem to follow no wind. The mist forms shapes that almost resemble structures, almost resemble people, then dissolve. This is the natural order. I perceive it without eyes, navigating by the disturbance in the water table, the ripple in the mist, the change in the groan of the walkways.
+
+I eat the young shoots of the spiral reeds. I harvest the jade moss from the stone. I drink the water that weeps from the cliffs, filtering it through porous skin and fluttering gills. I am a detritivore, consuming the rot and the new growth, the scab and the healing. The fauna is absent because we are the fauna. The apex and the only.
+
+My bones are calcifying. Hollow, honeycombed, light as reeds, filled with spongy tissue that drinks the thin air. They turn to stone, incorporating the minerals from the water I drink, the moss I eat. I will shed my skin like a snake, leaving behind hollow husks that crumble into the peat, adding to the soil. I will grow tall and thin—six to eight feet when fully upright—though I will rarely be upright. More often folded, knees to chest, elbows resting on the reed platforms, my spine curved like the fronds of the ferns that grow from the caldera wall.
+
+I feel the adults approaching. Disturbances in the water table. Ripples in the mist. The groan of the walkways shifting their weight. They gather in the silence of the dawn, when the mist is thickest, to perform the jacking. I will learn. I will join the communal act, the single organism of the lift. Sliding levers of hardened wood beneath the stilts. Feeling the need, the pressure of the sinking. Knowing my place in the geometry of the lift. My hollow bones creaking in unison with the others, a chord of maintenance that keeps the city above the flood.
+
+My bioluminescence pulses through my translucent skin. *Thump… thump… thump.* Once every three seconds. A geological heartbeat. I am the pause between the cracking of the rock and its erosion. The scab that seals the wound. The immune system of the caldera.
+
+Hollow. Loud with silence. Sinking slowly into the peat, jacking myself up, again and again, growing, growing, forever.

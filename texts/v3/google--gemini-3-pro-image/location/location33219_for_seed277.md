@@ -1,0 +1,19 @@
+The horizon here is a concept, not a visible line. You stand on a high, continental plate, an expanse of ancient rock lifted so far up it shoulders against the underside of a perpetual, bruised-black cloud layer. It is never truly day. The light is submarine, a diffused copper gloom that filters down from the heated clouds above, supplemented by the landscape’s own luminescence.
+
+The air is thick and surprisingly warm, heavy with the smell of wet iron, ozone, and sulfur. Though it rarely rains in any recognizable sense, everything is damp. A persistent, warm condensation slicks the surfaces of the rock, gathering in shallow, ephemeral pools in the hollows before being evaporated by the ground's heat, only to condense again upon the cooler high-altitude breezes. This cycle of steam and slickness is constant.
+
+The terrain is vast and rolling, defined by erosion that finished its violent work eons ago. The mountains have been worn down into massive, rounded hummocks of basalt and iron-rich slate, like the exposed vertebrae of a planet-sized fossil. There are no jagged edges; time and chemical weathering have smoothed everything into sloping forms that stretch for hundreds of miles in the dim light.
+
+Emptiness is the primary feature. You can walk for days and see only the curve of the slick rock and the oppressive sky. Yet, this is not a dead place. It is a landscape where geology has organized itself into a semblance of industry.
+
+This is the crux of the world’s weirdness: the absence of built structures is juxtaposed with an environment that functions like a vast, slow machine. The heat beneath the crust is channeled through naturally formed vents— towering, chimney-like stacks of solidified lava that punctuate the horizon. They don't just smoke; they breathe. With a rhythm measured in hours, these geological engines build pressure and release plumes of superheated vapor with a low-frequency thrum that vibrates through the soles of your feet rather than registers as sound in your ears.
+
+Around these thermal vents, the sparse vegetation gathers. These are not green plants. They are chemosynthetic organisms that have incorporated heavy metals into their structure. "Copper-scrub" bushes, with leaves like stiff, oxidized foil, cling to the warm rocks, their roots tapping into mineral veins, drawing electrical potential from the ground. Tangles of "wire-grass"—silica-based strands that coil like discarded electrical filaments—glow with a faint, pulsing blue light, harvesting the static charge that builds up in the damp, friction-heavy air.
+
+Despite the sparsity of the plant life, fauna is abundant, thriving in the dark warmth. The ecosystem is fueled by the geothermal output. Massive mats of extremophile bacteria grow thick and slimy around the vent openings, feeding on the chemical soup.
+
+Grazing on these mats are herds of "slag-backs." They are large, slow-moving creatures, vaguely crustacean, whose carapaces are heavy accretions of mineral deposits harvested from their food. They clatter quietly when they move, a sound like stones shifting in a riverbed. They are preyed upon by silent, slinking things—leathery, heat-sensing predators that move on multiple limbs, their skin the color of oil-slicked water, designed to shed heat in the warm environment rather than retain it.
+
+High above, catching the thermal updrafts from the vents, creatures like manta rays made of tanned hide glide in the eternal twilight. They never land, feeding on aerial plankton carried up in the steam.
+
+The overwhelming impression is one of quiet, massive operation. It is a world of deep time and slow, heavy energy. There is no clutter, no debris of civilization, only the vast, slick shoulders of the ancient rock, the rhythmic venting of the geological engines, and the silent movements of metal-infused life forms in the humid dark.

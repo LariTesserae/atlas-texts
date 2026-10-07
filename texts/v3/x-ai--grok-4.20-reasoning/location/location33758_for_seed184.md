@@ -1,0 +1,25 @@
+**The Condensery of Veyr-Nadir**
+
+You are not in the ocean. You are inside something that drowned so long ago it has forgotten the name of air.
+
+The chamber is cathedral-sized yet feels far smaller because every cubic meter is claimed. Warm water—thick, almost oily, 1.7 on the scale of comfort—presses against you with the lazy insistence of a creature that has never been in a hurry. It is not seawater. It is older. It tastes of iron, sulfur, and something faintly sweet, like crushed kelp left to ferment for centuries. Light arrives at 0.6: a dim, bronchial glow the color of old brass, leaking from chemical lanterns that have not been tended in living memory and from the slow bioluminescence of fungal veils draped across everything.
+
+The Condensery was once an industrial pilgrimage site, a single self-contained factory-temple built inside a natural karst void beneath a now-vanished continent. Its scale is hamlet-like if you could see the outer shell, but inside it has collapsed into one continuous organ of machinery and accretion. Nothing here is more than thirty meters from something else. Density is 2.8; there is no negative space, only differing densities of presence. Pipes as thick as redwoods braid into cathedral columns. Catwalks have become reefs. Enormous settling vats wear skirts of black vegetation so lush it looks like wet velvet poured from above. Every surface is both built and grown, urban and vegetative at once, and the two have reached a state of equilibrium the parameter of erosion calls *established*.
+
+The machines still move, but only just. Their dynamic is 0.9—glacial. Great piston hearts the size of houses rise and fall once every forty minutes, sending a lazy pressure wave through the warm broth. Valves sigh open over the course of an hour. Condensate drips in perfect spheres that take minutes to fall. The soundscape is therefore almost sacred: a sub-bass throb felt more in the teeth than the ears, occasional metallic creaks like whales singing in a minor key, and the soft perpetual rain of microscopic bubbles rising along every surface. True silence pools in the narrow corridors between machines where even the water seems to hold its breath.
+
+Vegetation has conquered the gaps. It is not kelp, not algae, not quite coral. It is something that learned to photosynthesize the faint industrial glow and the trace chemicals the old pumps still exhale. Matted curtains of it hang in perfect stillness, dark emerald shot through with threads of luminous violet. In places it has fused with the metal, growing into the rust until pipe and plant share a single circulatory system. Where the growth is thickest it forms slow, breathing lattices—vegetation behaving like lungs, expanding and contracting by millimeters per day in time with the distant piston cycle.
+
+Fauna is rare. The few creatures that survived the long equilibrium are either microscopic or monstrously patient. Ghostly isopods the length of a forearm drift between the lattices like pale thoughts. Once every few years a blind, translucent eel the color of milk will nose along a pipe, tasting for leaks. That is almost all. The ecosystem has decided that excess movement is inefficient.
+
+There is strangeness here, 1.7 on the scale, enough to unsettle without quite breaking the mind. The water has layers that do not mix. You can swim through an invisible curtain and the temperature drops three degrees while the taste changes from iron to chalk. In certain vaults the liquid itself appears to be *growing*—tiny crystalline structures forming and dissolving in the shape of half-finished gears. Some of the oldest machines have developed what can only be called habits; a particular pump has begun to beat in 7/4 time instead of 4/4, and the vegetation around it has learned to pulse in sympathy. No one knows whether the machines are imitating life or the life is remembering how to be machines.
+
+The rules of Veyr-Nadir are simple and ancient:
+
+- Everything that arrives here eventually becomes part of the Condensery.
+- Nothing is allowed to hurry.
+- The water remembers every molecule that has ever passed through the system, and sometimes it shows you reflections of them—faint shadows of workers who died a thousand years ago still turning valves that no longer exist.
+
+If you stay long enough (and time dilates here; hours become weeks in the body), you may notice that the entire structure is slowly sinking deeper into the warm crust at a rate of perhaps a centimeter per decade. The planet is swallowing its old wound with infinite patience. The machines, the vegetation, the faint brass light, and the warm thick water will continue their slow, packed, industrial liturgy long after the last human name has dissolved.
+
+You are standing—floating—inside a place that has achieved its final form. It is not dead. It is not alive. It is *established*, and it has room for one more thing only if that thing is willing to rust beautifully and never leave.

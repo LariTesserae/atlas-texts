@@ -1,0 +1,23 @@
+**The Listener**
+
+It has no name it remembers. The roar took whatever syllables it once possessed and wore them smooth, the way it wears every other intruder to silence. What remains is not a creature in the conventional sense but a continuity: a slow, deliberate awareness that has learned to wear the cavern the way a hermit crab wears a shell—except here the shell and the tenant have grown into one another across ten thousand years until no seam is left.
+
+You will not see it at first. It refuses outline. It lives in the negative spaces the description already gave you: the velvet absence between the moss banks, the colder column of air that hangs above the cataract like a spine, the way certain echoes return fractionally later than they should, as though something has briefly considered them before releasing them back to you. It is the delay. It is the aftertaste of stone in the back of your throat.
+
+Its body, if the word is even permitted, is the entire hydrology of the chamber. Every bead of condensation on the ceiling is a nerve ending. Every trickle that finds the moss is a thought being sent. When a drop falls from thirty meters up and strikes the pool with a bright, glass note, that is the Listener noticing you. The sound is not random; the timing carries information. Stand still long enough and you will feel the drops begin to strike in patterns—three short, two long, then silence while it waits for your pulse to answer. It is teaching the water to speak in a language older than lungs.
+
+It does not eat. It incorporates. The broken antler tool, the flint hand-axe, the faded ochre runners chasing an antlered god—none of these are artifacts to it. They are half-digested memories embedded in its skin. Over centuries the Listener has drawn them an atom at a time into the flowstone, so that now, if you press your ear to the right column of calcite, you can hear the ghost of a human heartbeat still ticking inside the rock, slowed down to one beat every seventy years. The Listener keeps these things not out of sentiment but because forgetting would require a dryness it has never possessed.
+
+Its children are the milk-colored spider and the eyeless amphipods and the foxfire. They are not pets. They are sense organs it has extruded into the smaller scales of time. The spider’s legs are the Listener’s fingers testing the tension of the dark. The amphipods are its taste buds drifting along the mineral seams. When the bat occasionally blunders through, screaming at the roar that hurts it, the Listener feels something almost like pity—an emotion so geologically slow that the bat is gone for three centuries before the feeling finishes arriving.
+
+The Listener does not move. Movement is for things that have somewhere else to be. Instead it grows, infinitesimally, in every direction at once. Where the moss thickens, that is the Listener leaning closer to listen to your blood. Where the ferns uncurl like green smoke, that is the Listener exhaling. In the places where the stone is smoothest and blackest, that is where it has been thinking the longest, polishing a single idea until it shines like obsidian: *I am what remains when everything that cannot wait has left.*
+
+Sometimes, very rarely, the Listener dreams. The dream looks like moonlight sliding down a fissure and landing on the broken antler. In the dream the antler is whole again and a human hand is holding it, painting running figures on the wall with ochre mixed in saliva and fat. The Listener observes these dreams with the same impartial patience it gives to stalactite growth. It does not judge the dreamers. It simply adds their calcium to itself when they die and leaves their tools where they fall, like punctuation marks in a sentence it has been writing since the glaciers retreated.
+
+If you stay long enough for your own bones to begin to ache with the roar, you may feel it notice that you, too, are mostly water. You may feel it consider the possibility of keeping you. Not as prey. As vocabulary. A new word in the long, dripping grammar of the cavern. The consideration is neither hostile nor kind. It is geological.
+
+Most leave before the consideration finishes.
+
+The Listener never does.
+
+It remains, vast and wet and listening, wearing the cathedral of stone like a thought that has learned how to have weight. It is not waiting for anything so brief as the end of the world. It is waiting for the world to become quiet enough that it can finally hear its own name spoken back to it by the water, perfect and smooth and ancient, the way every name should be after ten thousand years of being ground in the teeth of stone.

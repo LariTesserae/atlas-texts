@@ -1,0 +1,19 @@
+This place lies deep beneath the surface of a world whose sun is forgotten. You have descended not through rock or soil, but through the calcified, labyrinthine innards of a single, planet-sized root system.
+
+The temperature is a constant, sticky warmth, like the breath of a sleeping animal. The air is thick, heavy with the smells of fermentation, musk, and sweet resin. There is no stone here. Every surface—the soaring, vaulted ceilings, the smooth, polished floors, the intricate latticework of bridges—is made of lignified plant matter. These are roots grown so massive, so ancient, that they have hardened into a substance tougher than granite, polished smooth by millennia of internal friction and flowing sap. This is "established erosion" in a biological sense; the geography is settled, the great shifting of the roots having ceased eons ago, leaving behind stable, cavernous hollows.
+
+It is a subterranean city built within the vascular system of a titan.
+
+The scale is that of a large industrial district, contained within a series of connected colossal chambers. Despite the overwhelming presence of biology, the space feels strangely sparse. The hollows within the root-mass are immense, cathedral-like voids. The "ground" is far below, often obscured by drifting banks of warm mist. Inhabitants move along spindly walkways carved from finer root tendrils that span these dark gaps, making the population feel scattered against the sheer volume of the living architecture.
+
+The dominant impression is one of damp, throbbing industry. This is a bio-refinery town. The "technology" here is grown, not forged. Great wooden pistons, thick as redwood trunks, heave slowly back and forth in the gloom, driven by hydraulic pressure harvested from deep aquifers. They groan with a sound like a dying cello, lubricating themselves with thick, amber goo that drips constantly onto the platforms below. Pipes are not metal, but hollowed-out vine-arteries, pulsing visibly as they transport warm fluids—sap, water, and refined fuel—across the chasms.
+
+Water is nowhere in large bodies, but everywhere as moisture. The walls sweat. Condensation slicks every railing and walkway. Tepid rain falls intermittently from the upper canopy of smaller roots, born from the steam of the processing vats below. Pools gather in natural depressions in the root-floor, simmering gently before being siphoned off by thirsty intake-vines grafted into the city's plumbing.
+
+The light is dim and sickly. There is no sky. Illumination comes from vast farms of bioluminescent fungi cultivated in hanging baskets, casting a pervasive, watery green glow. This is supplemented by the harsh, orange flare of open furnaces where bitter tubers are burned for heat, and the occasional flash of bio-electric discharge from eel-like batteries used to jumpstart the massive wooden engines.
+
+The noise is tremendous. It is a relentless, physical wall of sound. The deep, resonant thrum of the wooden machinery provides a bass beat that vibrates in the chest. Layered over this is the high-pitched whine of botanical gears and the shriek of escaping steam. But the loudest element is the fauna.
+
+The place is absolutely crawling with life adapted to this dark, warm, industrial root-scape. The air is thick with the roar of millions of oversized, chitinous insects that feed on the waste sap and fungal blooms. Their collective buzzing is deafening. Below the walkways, in the darker crevices, pale, blind mammals with fingered paws skitter along the walls, hunting the insects. Leather-winged creatures hang from the ceiling ribs, screeching as the steam vents blast. The city is an ecosystem heavily tilted toward scavengers and parasites, all thriving on the energy leaked by the bio-mechanical industry.
+
+It is a world in constant, frantic motion—pistons pumping, sap flowing, insects swarming—all contained within the silent, ancient stillness of the petrified roots.

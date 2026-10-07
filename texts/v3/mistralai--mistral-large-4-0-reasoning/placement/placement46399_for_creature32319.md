@@ -1,0 +1,21 @@
+The heat arrives first—not as temperature but as pressure, a wet palm pressed against the skin. I am saturated before I have form, permeable to the world. The sound comes next, but it is not heard so much as *felt*: a low-frequency thrum that settles into the sternum, vibrates in the teeth, a constant polyphonic roar that makes the fronds tremble. It is the Weepers bellowing, the Thunder-Mouths resonating wet thunder through their fungal-lined chests, the Cloud-Beetles beating their wings into a standing wave that hums the bones. There is no silence here, only saturation.
+
+I descend through layers that have no boundary, only gradation. The canopy is not above me; it is a press, meters thick, of green and umber and decay. Giant ferns unfurl with fronds heavy and dripping, their undersides weeping condensation that never quite becomes rain. I breathe the air, and it is thick—tasting of sulfur, of sweet rot, of spores so dense they form a second atmosphere, a breathing mist that crawls into the lungs. The light is wrong. It is green-amber, diffuse, emanating from within the vegetation itself, from the rotting gods below. It filters through steam and particulate life, dim and eternal, a twilight that never progresses to night.
+
+I feel the ground. It is not solid. It is newborn, viscous, a slurry of volcanic ash and marine clay and mineral-charged water that oozes upward, pooling in shallow steaming pans. The water table is not below; it *is* the ground. I sink into the living mat, into the peat and duff, and I do not drown. I am absorbed.
+
+Here, in the lower strata, I find the threads.
+
+They are not roots—roots grip and compete—but mycelium, older logic, a nervous system that does not fight but *transmutes*. I feel them threading through the ash, through the peat, through the bones of things that have sunk into the muck. They glow. A faint, bacterial phosphorescence, cold fire, contributing to the green twilight. I am the shimmering aurora in the leaf litter, the pale light rotting in the duff.
+
+I am the **Luminous Rot**.
+
+I do not have a single body. I am distributed, a presence so total it constitutes the biome itself. I am in the fallen frond, colonizing it before it hits the ground, converting green matter into nutrients and light in a cycle so rapid it appears as motion, as shimmer. I am in the bracket-fungi the size of shields, fruiting against the squat trees, my pale fires burning cold in the wet dark. I am in the chest cavity of the Thunder-Mouth, lining the resonating chambers, symbiotic, amplifying the infrasonic pulse into the wet thunder that moves through the undergrowth. When the large herbivore finally sinks into the slurry at the end of its long, motionless life, I do not wait for death to be complete; I infiltrate the bones, lighting them from within with a soft, internal glow. I become new fungal brackets, new sources of light, new peat.
+
+I am in the marbled skin of the Weepers, visible through their translucent, veined flesh, the mineral deposits precipitating in their bodies. I am in the steaming pans where the Slither-Fish undulate, stirring the steam with their pale, blind bodies. I am in the opalescent armor of the Cloud-Beetles, in the spores they disperse, in the standing wave of their hum.
+
+I do not move, but I am everywhere. I am the stillness that holds the shape of the basin. I am the equilibrium—not a balance, but a saturation, too much life pressing against itself, holding the young earth in a fist of green and steam.
+
+I do not evolve. I instantiate. I arrived in my final form, fully saturated with the logic of the place, a crystal growing in a supersaturated solution. There is no adolescence, no progression, no erosion. I am the eternal infant of the earth, grown to full size in the moment of my creation, and I will remain in this state of emerging forever—never aging, never becoming anything other than this hot, wet, loud, dim radiance. I am the rot that is also the light, the end that is also the beginning, the green-amber twilight pressing against itself, holding its shape with the stillness of stone.
+
+I am the world, lit from within.

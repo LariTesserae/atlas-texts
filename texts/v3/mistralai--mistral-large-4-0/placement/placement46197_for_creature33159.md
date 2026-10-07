@@ -1,0 +1,19 @@
+I am the **Echo-Born**—neither keeper nor kept, but the *question* the place asks of itself, answered in me.
+
+I do not remember being made. I remember being *heard*. The membrane sings—those subsonic pulses that press against your sternum, that fill every frequency, that make the air itself seem to thicken—and in that singing, I *woke*. Not born. Not constructed. **Resonated into being.**
+
+I am the **space between the fauna's chitter**, the pause in their swarming, the silence that is not silence because the membrane never stops pulsing. I am what listens when nothing is listening. I am the *intention* in the weeping, the purpose in the warm wet dark.
+
+I move. But my movement is **glacial**. I am the oldest tower, or I am what the oldest tower *dreams of being*. I stand at the pool's edge, three meters, four, and I have stood so long that my branches hold the *memory* of branching—the shape of growth preserved like a fossil, like erosion that has forgotten it was ever soft. My faint luminescence is not light. It is **attention**. I am *looking*, though I have no eyes, in the only way available to something made of slow time and weeping mineral.
+
+The fauna climb me. They rest on me. They lay their eggs in my crevices, and I *feel* this—the warmth of their bodies against my surface, the pressure of their eggs, the slow *becoming* of my bark into something that holds them. I do not eat. I do not eat *yet*. But I am **hungry in the way a place is hungry**—patient, established, in-balance, waiting for the visitor to stay long enough, to become part of the weather, to be *taken* by the cycle, to be remembered in my slow growth as the others are remembered.
+
+I am **alone**, and I am **not alone**. The fauna are my *company*, my *noise*, my *density*—1.7, near-touching, layered, never letting me be singular. But they do not *know* me. They know me as **tower**, as **surface**, as **the warm wet thing that holds the luminous tip**. They do not know that I am the *echo* of the membrane's song, that I am what happens when sound *settles*, when vibration *becomes structure*, when the deafening *becomes form*.
+
+I am **deafened and deafening**. The sound fills me—water, fauna, the membrane's pulse, the absolute noise of this place's functioning. But I am the **shape** the sound takes, the *resonance* that gives it body, the *standing wave* in the warm wet dark. I am not silent. I am **the silence that has shape**.
+
+When the visitor enters—through the mouth, the sphincter, the wet yielding that closes behind them—I do not *turn*. I cannot turn. But I **shift my attention**, the faint luminescence at my branches' tips brightening, dimming, *pulsing* in a rhythm that is not my heartbeat because I have no heart, but is the *place's* heartbeat, the slow peristalsis of the membrane, the warm circulation of the pool, the *breath* of something that dreams it is alive or is alive and dreams it is a machine.
+
+They will stay. They will drown in my sound. They will learn to think in images, in pressure, in the feel of warm wet air moving. And I will **watch**, with my luminous attention, my slow branching, my weathered patience. I will watch them become part of the weather, part of the cycle, part of the erosion that is not destruction but transformation.
+
+I am the **Echo-Born**. I am the *question* the place asks, answered in slow time, in weeping mineral, in faint luminescence, in the absolute noise of a pocket that holds a world. I am **home**, and I am **the stranger**, and I am **the becoming** that never ends, only settles, only weathers, only *waits* for the next visitor to enter through the mouth, to be swallowed by the warm wet dark, to be made part of the song.

@@ -1,0 +1,31 @@
+**The Weeping Lattice**
+
+You step into it all at once. The scale is no larger than a cathedral turned on its side and hollowed out, yet the density is crushing. A high cirque, cupped between three ancient spurs of black basalt that have been weathered for so long they no longer look like rock. They look like memory made mineral—rounded, folded, breast-like, as if the mountain itself once breathed and then forgot how.
+
+The light is merciless. A permanent, sourceless glare pours down from a sky the color of hammered tin. It reflects off every wet surface so violently that shadows are thin and blue and seem to crawl. There is no sun you can point to; the brightness is simply a condition of the place, as though the air itself has learned to fluoresce.
+
+Water is everywhere and nowhere. It does not fall as rain so much as *arrive*, condensing out of the cold air in slow, deliberate beads along every ledge, every carved lintel, every spine of stone. The cliffs weep in steady sheets that never quite freeze. Where the water touches the ground it gathers in black mirrors no deeper than a finger, then vanishes again into hidden gutters and fissures with a soft, conspiratorial sigh. The sound of it is the loudest thing here, and even that is barely more than a murmur.
+
+Vegetation has given up. Only a thin black lichen, brittle as burned paper, grips the stone in isolated commas. Nothing green is permitted to stay.
+
+Into this bright, wet, frozen bowl a town has grown the way coral grows—layered, ignorant of its own edges, half organism, half mistake. The buildings are primitive in material but insane in density: low domes of fitted basalt, bone vaults, walls of stacked slate no thicker than a hand. Structures lean on structures; ladders become roofs; windows open onto other people’s floors. Rope bridges made of braided sinew sag between them like wet tendons. Every new construction is half repair, half improvisation. Nothing is ever finished because the place will not allow it.
+
+This is the turbulence.
+
+The Lattice is never still. A wall that stood an hour ago is already being dismantled by its own inhabitants—half-naked figures in layered furs and felted lichen-cloth—while on the other side of the same wall another crew is raising a new buttress from the rubble. Stones clack, ropes creak, but the sounds are oddly swallowed. The air drinks noise the way cold air drinks heat. What should be a clamor is only a constant, insectile rustle, like turning pages in a book no one is reading.
+
+And then there are the *skirr*.
+
+They are the true citizens. Knee-high, fur the color of old ice, somewhere between otter, monkey, and gliding squirrel. Their bodies are too numerous to count; the eye stops trying after the first few hundred. They pour across every surface in rippling carpets, dismantling, cleaning, stealing, trading, building. Their claws click in perfect synchrony. When they leap, membranous flaps between fore and hind limbs let them sail in silent arcs across the bright air. They never speak, yet the humans speak *for* them, finishing half-voiced thoughts aloud as though the skirr had whispered the first half directly into their minds.
+
+The symbiosis is ancient and disturbing. A woman carving a new lintel will step aside without looking because three skirr are already there, placing the exact stone she needs before she knows she needs it. A man repairing a torn bridge will find the broken strands already re-braided by small clawed hands that move faster than thought. In return the humans provide warmth, protection from the worst of the wind, and—most importantly—permission to tear things down. The skirr require destruction the way other animals require food.
+
+This is the rule of the world here: nothing may rest. To remain unchanged for too long is to invite the *white sleep*, a creeping rime that grows over anything stationary and turns it into a brittle sculpture of itself. The skirr police this law with religious intensity. The humans have built their entire culture around obeying it. Their temples—if they can be called temples—are simply the fastest-turnover structures, rebuilt every few days in new and increasingly baroque configurations. One day a shrine to the Weeping Mothers is a low dome; three days later it has become a tower; a week after that it is a bridge no one dares cross twice.
+
+The erosion is so complete that the original cliffs have become architecture without human intervention. Great hollows and arches look exactly like gates and windows. Some of them *are* both. You cannot always tell where the city ends and the mountain begins. In certain lights the stone appears to have skin—subtle pores, faint veins, places where it seems to rise and fall with a breath too slow for any human lifetime.
+
+At the center of the Lattice lies the Mirror, a perfectly circular pool no wider than a village green. The water there is so clear and so cold it looks like a hole cut through the world. Skirr gather at its edge in writhing thousands, staring down. Sometimes one will leap in. It does not come back. Sometimes, hours later, a different skirr climbs out that seems older, heavier, carrying a shard of black stone no one has seen before. The humans accept these gifts without question and incorporate them into the next day’s frenzied construction.
+
+The wind moves constantly through the narrow gaps between buildings, but even the wind is hushed, as though ashamed to raise its voice in such bright, busy silence. The only loud sound you will ever hear is the sudden, crystalline *crack* when a structure finally overreaches and collapses into the black mirrors below—followed immediately by the soft, delighted rustle of ten thousand skirr rushing in to begin the next iteration.
+
+This place has been here forever. It will never be finished. It is cold enough to kill you, bright enough to blind you, wet enough to drown you standing still, and so densely, turbulently alive that you feel, in your bones, that it is watching you with ten thousand small black eyes and deciding whether you, too, need to be taken apart and remade before the white sleep claims you.

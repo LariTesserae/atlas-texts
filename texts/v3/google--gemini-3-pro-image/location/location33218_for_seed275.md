@@ -1,0 +1,17 @@
+This is the Geode Canopy, a sprawling subterranean realm located kilometers beneath the planetary crust, yet vast enough to hold its own weather systems.
+
+The defining feature of this space is the absolute absence of moisture. The air is frigid (around 5°C) and chemically desiccated, so dry that exposed skin cracks in minutes. There are no pools, no dripping stalactites, no condensation. The "ecology" here is entirely based on dry, non-aqueous chemistry, thriving on geothermal vents that release mineral vapors and sulfur compounds rather than steam.
+
+Because of this, the "vegetation" that dominates the landscape is not biological in a terrestrial sense; it is litho-botany—an explosion of crystalline and metallic growth that mimics the forms of forests. Massive trunks of raw, fractured amethyst and quartz rise hundreds of meters from the cavern floor, branching into delicate, razor-sharp canopies of spun silicate glass that chime faintly in thermal drafts. There are "ferns" made of layered mica and "mosses" of copper acetate crystals that stain the rock walls in vibrant, toxic verdigris.
+
+The environment is in a state of raw emergence. The cavern walls are fresh fracture planes, jagged and unstable, showing signs that this entire pocket was only recently cracked open by tectonic shifts. The crystal forests are growing aggressively, their sharp edges unweathered by time, pushing out from the new wounds in the rock.
+
+Despite being underground, the space is bathed in a flat, functional "daylight." This illumination comes from immense, suspended arrays of industrial arc-lamps hung from the distant ceiling, supplemented by the natural, faint piezoelectric glow emitted by the quartz "trees" as they grow and shift under pressure.
+
+Integrated into this mineral wilderness is a sparse, sprawling industrial city. It is not built *on* the ground so much as it is clamped *onto* the crystalline vegetation. A complex lattice of girders, catwalks, and pipelines bridges the vast gaps between the major crystal trunks. Habitation modules look like barnacles made of reinforced steel, fused to the sides of amethyst pillars. The scale is regional; you can see distant work-clusters twinkling kilometers away across the glittering chasm.
+
+It is an active extraction site. The industry here is harvesting the "plants." Slow-moving, colossal machines with diamond-tipped grinding wheels gnaw at the base of the fastest-growing crystal formations, harvesting rare piezo-electric materials. Conveyor belts made of woven metal chain rattle softly as they transport chunks of raw crystal to refineries suspended mid-air.
+
+The soundscape is surprisingly hushed. The immense volume of the cavern dampens noise, reducing the industrial activity to a low, resonant vibration felt in the chest rather than heard. The dominant sounds are the occasional sharp *ping* of cooling stone, the deep groan of a crystal trunk shifting under its own weight, and the dry, clicking sounds of the fauna.
+
+Abundant life scuttles through this dry world. Creatures resembling oversized isopods with shells made of iron pyrite graze on the copper mosses. Spindly, six-legged predators with translucent, chitinous bodies stalk through the glass-canopies, hunting the metal-eating herbivores. Great, manta-ray-like creatures with leathery, silica-impregnated wings glide silently on the thermal updrafts between the glowing trees, filtering mineral dust from the frigid air.

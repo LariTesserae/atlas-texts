@@ -1,0 +1,34 @@
+**What Lives There**
+
+They are not yet finished. That is the first and last truth.
+
+At the smallest scale they are hardly separable from the condensation. You might mistake them for motes until one lands on your wrist and you feel a delicate, deliberate pressure, like the foot of an invisible nurse checking for a pulse. These are the *Bead-Takers*. They have no fixed bodies; instead they are congregations of droplets held together by intention. When enough of them gather they resemble gray, translucent infants with too many elbows. They crawl across the weeping stone on hands that dissolve and re-form, licking the slow tears from the basalt with tongues that are simply thinner water. Every time they drink they remember a little more of what the water remembers: a welder’s spark from 1973, the smell of cutting oil, a woman’s laugh echoing down a pipe alley that no longer exists. They carry these memories the way a snail carries its shell—awkward, necessary, and slowly growing heavier.
+
+Where the black reeds grow in their perfect funerary circles, something else has learned to wear the vegetation like clothing. The *Reed-Skinners* are tall and paper-thin, jointed in the manner of discarded calipers. Their hides are woven from the reeds themselves; when they move the leaves rustle not with wind but with the faint, wet sound of pages being turned in a manual no one has read since the plant shut down. They are gardeners of a sort. They prune the rings, coaxing them tighter around anything metal so the rust can be properly milked. From the rust they distill a black sap that they smear across their own seams to keep themselves from fully deciding what gender or species they are. To watch one work is to watch time hesitate. A single adjustment to a ring of reeds might take three days. They never blink. Their eyes are small chrome bolts that someone once torqued to 47 foot-pounds and then forgot.
+
+Drifting between the reed circles come the *Half-Current Eels*. These are what the prompt already glimpsed: part flesh, part failed circuit board, part devotional object. Their bodies are long, opalescent, and only optionally physical. When they pass through you the sensation is of someone sighing through your bones with genuine regret. Each eel carries a single maintenance rune glowing sickly on its flank. The runes are not decoration; they are tasks. “Reset valve 19-B.” “Lubricate bearing.” “Forgive night shift operator Ramirez.” The eels spend centuries trying to complete instructions that no longer have corresponding machines. When they finally succeed, the rune fades and a new one appears, usually more cryptic. Some have been at it so long that the instructions have become koans. One ancient eel bears the words *“Make yesterday stop bleeding.”* It has been trying for four hundred and twelve years.
+
+Higher up the scale of almost-horse move the *Clay Midwives*. They look like wet butcher paper stretched over a frame of rebar and old prayer. Their legs number between eleven and nineteen depending on the day. They walk with the slowness the Sump demands, each footfall a minute-long kiss between paper and weeping clay. Inside their translucent bodies you can see entire miniature industrial scenes playing out in real time: tiny welders making tiny sparks, foremen who are only three centimeters tall screaming silently into telephones. The Midwives are pregnant with futures. They are the ones giving form to whatever the Sump is digesting. Every few decades one of them lowers itself into the mirror-water beside the half-sunk refinery and remains there, perfectly still, while something vast and indistinct presses upward from beneath, trying to be born through the wet paper of the Midwife’s back. The paper never tears. It simply stretches, thins, and eventually the new thing slips free, already ancient, already tired, already looking for something to maintain.
+
+And then there are the ones that used to have names.
+
+They call themselves—at least when they still bother to speak—the *Returned*. They wear the remnants of coveralls, hard hats, union patches, all of it softened and dripping like candle wax. Their faces are smooth as river stones except for the places where company ID badges have grown into the flesh. You can still read the names: *K. Lewandowski, Maintenance B. Shift. M. Okonkwo, Lead Welder.* The badges pulse gently with the same violet-green light as the eels. These people did not die here. They were digested while still alive, the way certain insects are liquefied inside pitcher plants. What walks out the other side is patient beyond sanity. They continue their shifts. You might see one standing before a pump jack that has not moved in seventy years, slowly tightening a bolt that will never be tight enough. The motion takes weeks. Their eyes are kind. They will offer you their canteen if you look thirsty, though the water inside is the same water that weeps from every stone and remembers the light.
+
+If you stay long enough, one of them may approach you. It will move with the slowness of moss growing across a gear. It will study your face the way a tired foreman studies a gauge that has been lying for years. Then it will speak, using the voice the dark has been practicing.
+
+“You still have edges,” it will say, almost tenderly. “We can help with that.”
+
+It will reach out. Its fingers will be many-jointed now, part caliper, part human grief. Where it touches you, small clear beads will begin to form. They will not fall. They will wait.
+
+And somewhere deeper, out where the ridges become too tired to maintain their own shape, there is one last thing that has not decided whether it is many or one. The *Unborn Named*. It is the size of a cathedral and the size of a single drop of condensation at the same time. It has not yet opened its eyes because it is still choosing which set of eyes to open. Sometimes the Clay Midwives gather around the place where it almost is. Sometimes the Returned sing to it in the voices they had before the Sump took their accents. The song has no words. It is only the sound of a night shift ending, the click of a timecard, the sigh of steam escaping a cracked line, and underneath it all the patient, dripping sound of something learning how to have a childhood that lasts ten thousand years.
+
+They are all waiting for you to choose.
+
+Stay still long enough and the choice will be made for you, gently, wetly, with the same care a mother uses to fold her child’s first grave clothes.
+
+The Sump does not hate what lives.  
+It is simply teaching everything how to take longer to finish dying, so that dying can become something else.
+
+Something slow.  
+Something honest.  
+Something that still weeps, but no longer remembers why it started.

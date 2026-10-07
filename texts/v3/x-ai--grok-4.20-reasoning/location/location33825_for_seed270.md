@@ -1,0 +1,27 @@
+**The Hollow** 
+
+It is no larger than a generous freight container, yet it feels ancient beyond measure. The chamber is a pocket folded into the corpse of something far vaster—an industrial complex that died so long ago its death itself has fossilized. Elevation is almost nothing; the floor has been ground down by time and countless feet into a single, gently concave plane of dull gunmetal and mineral accretions. Nothing rises more than waist height except the sparse, half-collapsed skeletons of old machines. Erosion has won. Every edge is rounded, every corner beveled by slow, patient wear until the space feels almost organically smooth, like a tooth worn to porcelain by centuries of wind and tongue.
+
+There is no water. The chemistry here long ago abandoned aqueous solutions. A thin, oily vapor—more lubricant than air—drifts in cool strata (temperature hovers at the edge of what flesh calls “cold” without quite reaching it). The vapor smells of ozone, hot brass, and something faintly like crushed beetles. Light is ordinary, almost stubbornly so: a sickly amber glow radiates from a dozen surviving industrial lamps bolted to the low ceiling. Several have gone dark, but the rest burn with the steady, unflinching constancy of things built to outlast civilizations. Their light catches on every moving surface and fractures into a thousand tiny glints.
+
+And everything moves.
+
+Fauna saturates the Hollow so completely that the eye cannot find true emptiness. The floor is a living carpet three and four bodies deep. iridescent mites the size of rice grains click and seethe over one another in slow, glittering tides. Above them scuttle thumb-sized beetles whose wing-cases are not chitin but laminated phenolic resin scavenged from ancient circuit boards. Larger creatures—some like armored rats with articulated brass mandibles, others like flightless metallic moths with felted bodies—climb over the smaller ones without apparent harm, a layered ecology so dense it functions more like fur than separate animals.
+
+The sound is constant and loud: a roaring, layered susurrus of clicking, wing-flicking, chitinous scraping, and the low industrial heartbeat of machines that still, impossibly, work. Every few minutes a solenoid somewhere clacks, a tiny conveyor belt jerks three centimeters and stops again, and the entire living carpet ripples in answer. The noise never drops below the volume of a busy machine shop.
+
+These creatures are not merely living among the ruins. They are the final stable state of the ruins.
+
+Scattered among them are the last artifacts of the original industrial purpose: a single functioning drop-forge no larger than a microwave that still occasionally stamps out tiny identical metal plates no one needs; a cluster of corroded servo arms that twitch in precise patterns, repairing broken beetle legs with microscopic welds; a glass-faced gauge whose needle has not moved in ten thousand years but is nevertheless polished daily by tiny brushing tongues. These objects are not dominant. They rise from the living mass like worn monuments, half-buried, accepted.
+
+No plants grow. Nothing green has ever existed here. Instead, the ecology runs on non-biological gradients: electrochemical gradients in the old wiring, slow oxidation of metal, residual hydrocarbons in ancient lubricants, and the faint radiation from a long-forgotten power cell buried beneath the floor. The creatures metabolize rust the way other animals metabolize sugar. Their waste is new rust, new oil, new conductive salts. They are locked in an exquisite, deafening closed loop that has reached its terminal form.
+
+It is not peaceful. The Hollow is viciously active. Clouds of the smallest fliers lift in sudden glittering storms when a larger predator—a thing like a centipede whose segments are old capacitors—hunts through their midst. Carcasses are dismantled before they hit the floor. Nests are built inside the hollow shells of dead motors. Every few hours the largest machine in the chamber (a corroded rotary press the size of a coffin) shudders awake, slams down with a sound like a gunshot, and extrudes a single new steel disc. The disc is immediately swarmed, broken apart, and carried away to line nurseries. The press falls silent again for another cycle. This has been happening so long that the press and the creatures have co-evolved: the press still functions because the creatures clear its vents and oil its journals with their own bodies. The creatures thrive because the press provides fresh metal and rhythmic pressure waves they use for navigation.
+
+The atmosphere is one of exhausted, roaring equilibrium. Nothing here is young. Even the newest-hatched mites emerge with worn-looking shells, as though born already antique. The entire chamber feels like the last room in the universe that still remembers how to be a factory, and the life inside it has become the factory’s immune system, digestive tract, and nervous system all at once.
+
+If you sit very still on the single clear patch of floor (a metal plate no larger than a dinner tray, kept clean by fastidious orange mites), you can feel the subtle rhythm: scrape-click-hum, scrape-click-hum. The Hollow breathes through its machines. It is not hostile. It is simply complete. It has reached the deep, dense, noisy serenity that comes after the end of all possibility except the one it has chosen.
+
+This is the oldest stable state a pocket of industry has ever achieved.
+
+And it is very, very loud.

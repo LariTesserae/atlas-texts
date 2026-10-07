@@ -1,0 +1,19 @@
+In the Heights of Ophal-Za, the verticality is not merely a geographic feature but a fundamental law. The world is a sheer, basaltic cliff-face that extends upward into an blinding, white-hot zenith and downward into a sea of steam that has never once parted. 
+
+It is a place of absolute, sweltering stillness, despite the noise.
+
+The temperature is a constant, heavy weight—a wet 105 degrees that never fluctuates by a fraction of a degree. The air is so thick with moisture that it feels less like gas and more like a suspended ocean. Water does not fall as rain; it simply manifests on every surface. The basalt walls, worn smooth by eons of weeping, are perpetually slick. Veins of water, thick as honey, crawl downward in established grooves, never speeding up and never drying out.
+
+The "city" is not built, but cultivated. It is an urban sprawl of biological architecture that clings to the cliffs. Great, bulbous nodules of iron-hard, calcified moss form the foundations of tiered plazas. From these, massive, translucent gourds—some the size of cathedrals—grow outward over the abyss. They are connected by a labyrinthine network of woven vine-bridges and hollowed-out root tunnels. The geometry is disturbingly precise: perfect dodecahedrons of flowering succulents and long, straight avenues of bioluminescent fungi that glow with a steady, unblinking light. There are staircases carved into the living wood of giant, shelf-like bracket fungi, their surfaces worn smooth by a history that requires no tools. 
+
+Despite the urban density, there is no one here. There are no insects to buzz in the heat, no birds to ride the updrafts, and no scuttling things in the shadows of the giant leaves. The ecology is entirely floral and fungal, yet it behaves with a terrifying, mindless intentionality. The plants do not grow toward the sun; they grow toward the sound.
+
+The sound is the soul of Ophal-Za. It is a deafening, monolithic roar that has no source and no end. It is not the sound of wind or water, but a structural vibration of the reality itself—a flat, tectonic scream that occupies every frequency at once. It is loud enough to vibrate the water off the leaves into a fine mist, yet it is so constant that it functions as a form of silence. In this place, the scream is the baseline of existence.
+
+Time has no purchase here. The "Dynamic" parameter is at a near-standstill. The fruit on the vine-trees is perpetually, agonizingly ripe—heavy with juice, skin stretched to the bursting point—but it never falls, and it never rots. The flowers are caught in a permanent state of blooming, their petals frozen in the act of unfurling. If you were to pluck a leaf, the space it occupied would not be empty; the reality of the leaf is so established that it seems to leave a visual ghost behind, a refusal to change.
+
+The weirdness of the place manifests in the breakdown of distance and perspective. Because the landscape is so vertical and the scale so vast, the eye loses its ability to judge depth. A plaza a mile away might appear to be within arm’s reach, shimmering through the hot, wet air. The gravity feels "heavy" in a way that suggests the cliff isn't just a wall, but the center of a cosmic pull. 
+
+Walking through the Ophal-Za is like moving through a photograph of a catastrophe, taken at the exact moment of peak intensity and then held forever. The lush, green corridors are beautiful and suffocating. The architectural elegance of the root-towers suggests a high civilization, but there is no evidence that a mind ever conceived them. They simply *are*. They are the result of plants trying to organize themselves against the pressure of the eternal roar.
+
+Everything is wet. Everything is hot. Everything is loud. And nothing—absolutely nothing—will ever happen again. The city is finished, the growth is complete, and the garden is perpetually in its final, perfect, deafening moment.

@@ -1,0 +1,17 @@
+This is the Cloaca Maxima of a forgotten civilization, the deepest sump in an endless, constructed world.
+
+It is a space defined entirely by rough, colossal stonework. There is no bedrock here, no natural earth; the floor is flagged with immense, uneven slabs of dark granite, the walls are cyclopean blocks stacked precariously high, vanishing into the upper gloom, and the ceiling—where it can be seen—is a heavy, sweating vault of crudely mortared arches. The scale is that of a cathedral nave, but compressed, feeling less like an open space and more like a hollowed-out lung inside a massive stone beast. Despite the sheer weight of the materials, the primary impression is one of emptiness. The air hangs heavy and unoccupied in the vast gaps between the dripping walls.
+
+It is perpetually cold and overwhelmingly wet. The air is a thick, chilling nebulizer mist that clings to the skin and instantly soaks fabric. Visibility is low, hampered by the fog and the minimal light—a weak, grey luminescence that filters down through distant, rusted iron grates far overhead, seemingly miles away.
+
+Water is the dominant force. It does not flow in neat channels; it weeps from every joint in the stonework. It cascades in thin, shimmering sheets down the faces of the walls. It pools on the sagging floor slabs, forming black, knee-deep lagoons that conceal jagged debris. The entire structure is eroded, not by wind, but by the patient, ceaseless solvent of dripping water over millennia. The stone edges are rounded, smooth like river rocks, and the mortar has largely turned to paste, leaving deep fissures where things scuttle.
+
+The sound is tremendous. It is a cacophony of splashing, dripping, gurgling, and rushing water, echoed and amplified a thousandfold by the hard, empty acoustics of the stone chamber. It is a roar of white noise that buries individual sounds.
+
+Despite the lack of light and the near-total absence of vegetation—save for slick patches of black slime mold and pale, wire-thin fungi that hang like distinct hairs from the archways—the place is teeming with life. The fauna here is abundant, strange, and blind.
+
+The water is alive with movement. Pale, segmented crustaceans, the size of serving platters, clatter over the submerged stones, their shells thicker and darker than natural biology would dictate, perhaps drawing minerals from the decaying architecture. Long, ribbon-like eels, translucent and eyeless, writhe in the deeper pools, feeding on the rain of organic detritus that washes down from the world above.
+
+On the walls, clinging to the wet stone, are colonies of things that look like wet leather sacks—filter-feeders catching the ambient moisture. They pulse slowly. Larger, multi-legged creatures, something between an insect and a crab, skitter across the high walls. They make a sharp, clicking sound that cuts through the roar of the water as they hunt smaller prey in the crevices.
+
+The technology present is ancient and brutal. Rusted-out sluice gates made of hammered iron and waterlogged timber hang precariously in archways, no longer functional but still impeding the flow. Great chains, corroded to half their original thickness, dangle from the ceiling, holding nothing, swinging slightly in the air currents caused by falling water. The whole environment is a dynamic, churning engine of decay and strange biology, a cold, wet gut digesting the waste of an unseen world.

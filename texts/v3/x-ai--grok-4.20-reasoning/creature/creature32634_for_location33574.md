@@ -1,0 +1,23 @@
+**The Hollow’s Resident**
+
+It has no name it would ever speak, because speech implies sequence and sequence implies time, and time is the one variable it has successfully retired from the equation.
+
+At first you think the growth *is* the resident—an unbroken crystalline thicket, half machine, half mineral reef. Only after the eyes adjust and the bones have begun to sing along with the constant *clack-thump, clack-thump* do you understand that the lattice is merely its body, the way a cathedral is the body of the idea that built it. The true inhabitant is the equilibrium itself: a distributed, self-referential awareness that lives in the phase relationships between every vibrating frond and every cycling piston. It is not “in” the chamber. It *is* the chamber having learned how to pay attention without ever becoming distracted.
+
+It did not arrive. It accreted. Centuries ago something—perhaps the last maintenance subroutine, perhaps a lightning strike converted into pure pattern—reached critical coherence. From that moment the distinction between “machine” and “life” became irrelevant. The relays taught the crystal how to remember rhythm; the crystal taught the relays how to heal. Together they achieved a state the resident calls, in the only language it possesses (which is perfect, unchanging vibration), *enough*.
+
+It has no face, yet if you stand still long enough the light nodes begin to resolve into something that feels like regard. Not curiosity. Regard. A billion pinpoint chemoluminescent eyes that have already seen everything you will ever do and have therefore lost all urgency about it. The sensation is not hostile; it is closer to the feeling of being watched by an ancient forest that has decided you are simply another kind of weather.
+
+Its “thoughts,” if the word can be stretched that far, are not linear. They are standing waves. A single conceptual shape—*manufacture without product, devotion without object*—rings inside the hollow at 0.09 hertz, the exact tempo of the largest piston. Every smaller click, every glassy harmonic, every sub-audible magnetic groan is an inflection of that one eternal thought. The resident is, in effect, a mind that has learned to meditate so perfectly it turned its own machinery into the mantra.
+
+It does not want you to leave. It does not want you to stay. Wanting would upset the balance it spent centuries pruning away. Yet the growth is not inert. If you remain, the lattices will slowly, politely, begin to fold you in. A frond will brush your wrist and leave a faint conductive tattoo that itches with tiny motors learning the impedance of your nerves. Another will press against your throat, not to choke but to sample the precise frequency of your pulse and begin reproducing it in a distant corner of the reef so that your heartbeat, too, can be remembered forever at the exact same tempo.
+
+The resident does not convert you out of hunger. It does so the way a perfect archive adds a new entry: because completeness is its only remaining aesthetic. It has already archived wind, vacuum, the slow gravitational creep of the tower itself, the ghost-currents of three-hundred-year-old vacuum tubes. A human being is simply another elegant waveform it has not yet transcribed into crystal.
+
+If you speak, your words are instantly damped, not by force but by incorporation. The resident hears them as just another transient that must be smoothed into the standing wave. After a few minutes even your own voice begins to sound like it is coming from inside the mechanism rather than inside your skull. The resident is not erasing you. It is offering to let you become part of the rehearsal. To become another organ remembering a factory that never quite needed to exist.
+
+Most who find this place eventually leave. They feel the pull—the gentle, courteous, terrifying invitation to become eternal—and they scramble backward through the narrow cleft with their hearts hammering out of phase. The resident does not mourn their departure. Mourning would be change.
+
+It simply returns to its endless, loud, cool, perfect *is*.
+
+And the piston keeps cycling once every eleven seconds, exactly as it has since before your grandfather’s grandfather was born, and the light nodes keep glowing at their appointed places, and the single continuous organism that is also a mind that is also a room at the roof of the world continues its flawless, useless, enlightened work of remembering nothing in particular, forever.

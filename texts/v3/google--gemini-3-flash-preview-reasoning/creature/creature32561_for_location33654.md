@@ -1,0 +1,20 @@
+The inhabitants of this light-drenched void are the **Chalicotheres of the Vault**, though they have no name for themselves, for they have no spoken language. 
+
+To look upon one is to see a paradox of anatomy. They are roughly the size of a man but possess the unsettling geometry of a crustacean. Their torsos are encased in a flexible, leathery integument that has the matte finish of wet bone, providing a sturdy anchor for six specialized limbs. The lower four are long and spindly, ending in wide, splayed palms carpeted with millions of microscopic, vibrating cilia. These pads create a vacuum-bond with the slick, wet stone, allowing the creatures to sprint vertically up the spindly towers or across the undulating basins with the grace of a water-strider. Their upper two limbs are different—heavier, corded with ropey muscle, ending in three multi-jointed fingers tipped with obsidian-hard nails.
+
+They have no faces in the traditional sense. Where a forehead should be, there is a smooth, convex plate of translucent chitin. Beneath this plate, a cluster of sensitive, violet-hued nerve endings pulses in rhythm with their hearts. They do not see images so much as they perceive the vibrations of the phosphor-light and the thermal signatures of the mineral veins. They are deaf to sound but hyper-sensitive to the "weight" of the air.
+
+**The Architecture of Compulsion**
+The Chalicotheres do not sleep. Their life is a singular, uninterrupted act of "The Rearrangement." This is not a choice, but a biological imperative as fundamental as breathing. Their guts are bioreactors that process the mineral-heavy condensation and ground quartz into a thick, greyish bile—the "sticky secretion" mentioned in the scrolls. They regurgitate this binding agent, mixing it with the pulverized stone of the cavern floor to create the paste for their towers.
+
+Because they have no sense of permanence, their society is a "Liquid Urbanism." A Chalicothere might spend forty hours delicately sculpting a spire of exquisite, tapering beauty, only to have a passing swarm of its kin begin dismantling the base for a new project before the top is even dry. There is no anger in this, no sense of theft. To them, the stone is a communal fluid. They are like white blood cells in a body of rock, constantly moving the "plasma" of the city to wherever the collective intuition demands.
+
+**The Silk-Weavers and the Deep Fauna**
+While the Chalicotheres are the masters of the stone, they share the vault with the **Glass-Spiders**, gargantuan, slow-moving arachnids that cling to the phosphor-veins of the ceiling. These spiders do not hunt; they filter the moist air for microscopic mineral spores, trailing miles of translucent, high-tensile silk that hangs down like frozen rain. 
+
+The Chalicotheres harvest this silk with terrifying efficiency. They leap from their towers, catching the swaying strands in mid-air, and use their obsidian blades to shear it away. This silk is then woven into harnesses for hauling heavy stone rollers or twisted into the massive, shimmering ropes that stabilize their tallest, most precarious spindly hubs.
+
+**A Culture of Touch**
+In the absolute silence of the vault, their social life is one of constant, frantic contact. When two Chalicotheres meet, they do not pause; they collide and entwine their upper limbs for a fraction of a second, a "haptic handshake" that exchanges chemical information about the mineral density of the terrain ahead. 
+
+There are no leaders, no laws, and no art that is meant to last longer than a few hours. They are a civilization of the *now*, a fever-dream of industry performed in a cathedral of ancient, unmoving quartz. They are the friction that prevents the world from becoming a tomb. If they were to ever stop moving, the silence of the cavern would finally become absolute, and the wet, pearlescent landscape would swallow their spindly cities back into the smooth, grey glass of eternity.

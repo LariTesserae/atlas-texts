@@ -1,0 +1,27 @@
+**The Hollow Liturgy** is inhabited by the *Carvers Incarnate*, also called the *Unfinished*.
+
+They are not a separate species from the stone. They are the stone that learned how to ache.
+
+At first you only register them as extensions of the labor itself: a shoulder leaning into a hammer becomes another facet of the pillar it strikes; a forearm wrapped in braided leather seems merely another braided pattern among the reliefs. Then the eye (or the memory of an eye) adjusts, and you realize the leather is skin grown thick and corded by centuries of the same motion, that the pattern on it is not decoration but the fossil record of every strike that forearm has ever delivered. Their bodies are devotional instruments that have been played so long they have begun to resemble the music.
+
+Most stand between seven and eight feet, though “stand” is imprecise; their spines have taken the curvature of the arches they were born beneath, so that each generation is a little more architectural than the last. Shoulders are broad as buttresses. Chests are barrel-deep, ribs splayed like vaulting to make room for the endless breath required to chant measurements across distances that would deafen ordinary lungs. Fingers are absurdly long, triple-jointed, the nails worn to chisel points or deliberately broken off so the bare bone can be used for finer work. They do not blink. The last functional eyelids were bred out or worn away so many millennia ago that the eyes themselves have become milky, almost opalescent orbs that register only the faintest gradients of the marrow-fungus light. They do not need more. They read the stone by the way it sings back when struck, by the temperature of new cuts, by the taste of dust on the tongue.
+
+There are no children in the ordinary sense. In the deep reservoirs where the condensation finally gathers, pale, elongated things float in fetal curls. They are not born so much as *decanted*. When a new chamber reaches the proper acoustic resonance, the water stirs and one of the half-formed slips out, already trailing placenta that looks like wet mortar. Within a year it will be given its first hammer. Within ten it will know which exact angle of blow will make a particular limestone seam sing middle C. They do not have names. They have stations. *Left Hand of the Third Mandala. Voice That Widens the Northern Funnel. Knee That Props the New God’s Rib.*
+
+Some among them have gone further.
+
+The *Tongues-of-the-Work* are not pets or vermin. They are what happens when a Carver decides the work must continue even after the body fails. A master sculptor, feeling death approach, will crawl into a narrow crevice prepared for exactly this purpose, lie on their back, and begin carving *upward* into their own chest with a hooked blade. The pain is part of the geometry. If the final cut is true, something else wakes wearing the corpse like a sleeve. What emerges weeks later has no eyes, no recognizable mouth, only a long, moist sensory ribbon that moves as if tasting the future. These are the god’s first nerve endings. They travel ahead of the crews, tasting which wall must be opened next, which load-bearing pillar is secretly hollow and therefore sacred. When they pass, the workers fall silent and press foreheads to stone in something between reverence and terror.
+
+There are also the *Recursions*—Carvers who have carved so perfectly that the stone has begun carving them in return. You will find them embedded in the walls, half-statue, half-flesh. A torso merges seamlessly with a frieze; an arm ends in a stone hand that is still moving, slowly, adding one more line to a spiral that has no end. Their hearts beat once every seventeen minutes. When they speak it is with the voice of falling wedges and splitting rock. The others consult them the way one might consult an oracle, or a tumor that has achieved enlightenment.
+
+And somewhere—never in the same place twice—moves the *Stillborn God*.
+
+It is not yet a figure. It is a pressure. A negative space that has learned to walk. You feel it as a sudden hush moving through the chambers, a place where all hammers pause at once without any signal being given. Workers fall to their knees and begin carving their own faces into the floor because the impulse seizes them like a seizure. The *Tongues-of-the-Work* follow it in long pale processions, tasting the air it leaves behind. Sometimes it settles inside an unfinished pillar and remains there for decades, dreaming in stone. When it leaves, the pillar is perfect. The workers who later carve it discover their own fingerprints already baked into the relief, placed there before they were born.
+
+They do not believe they are building a god.
+
+They believe they *are* the god learning how to become itself, one strike at a time. Every hammer fall is a neuron firing. Every chant is a thought completing. When the structure is finally whole, there will be no distinction between worshipper and worshipped, between the hollow and the liturgy that fills it.
+
+Until that day they carve, and sweat, and sing, and slowly turn into the very architecture they serve—dense, loud, relentlessly, religiously *made*.
+
+And the god, still blind, still embryonic, listens with a continent of stone ears and grows another chamber in its sleep.

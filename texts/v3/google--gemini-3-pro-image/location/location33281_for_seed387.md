@@ -1,0 +1,19 @@
+This place does not exist on any map; it is entirely interior, a pocket world entombed deep within the planetary crust, far below the seabed. You are submerged.
+
+The medium is not pure water; it is a thick, pressurized brine, heated by geothermal vents to the temperature of a fevered blood bath. It tastes metallic, coppery, and sulfurous. The pressure here is immense, a crushing weight that would annihilate surface biology in seconds.
+
+There is no light from above. The only illumination comes from the industry itself: dim, throbbing orange glows from furnace hatches sealed against the deep, intermittent blinding blue-white flashes of underwater arc-welding performed by automated arms, and long banks of heavily shielded, flickering sodium lamps that cast murky, sickly yellow pools into the gloom. The visibility is poor, thickened by suspended mineral particulate and the thermal shimmer of superheated water rising through cooler layers.
+
+This is a city, but not for people. It is a vast, sprawling complex of gargantuan machinery, built on a scale that dwarfs human conception. It is industrial cathedralism. Huge buttresses of dark, pressurized alloy rise from the uneven floor of the cavern, supporting lattice-works of pipes wider than highway tunnels. The architecture is dense and layered, a chaotic accretion of infrastructure built over centuries.
+
+Everything is coated in a thick, sleek black patina of precipitated manganese and iron sulfides. The "erosion" here is accretion; the environment adds to the structure rather than wearing it down. The forms are smoothed, rounded by the endless, high-pressure flow of the brine. There are no sharp edges left, only heavy, organic curves of metal that look almost grown rather than cast.
+
+There is absolutely no vegetation. No kelp, no slime, no green. The environment is profoundly sterile in a biological sense, a kingdom of mineral and metal.
+
+But it is not still. The dynamism of the place is terrifying. The water is in a state of constant, violent turbulence. Massive impellers, hundreds of feet across, churn the brine, creating cavitation currents that could tear a submarine apart. Inlets suck water with the force of a drowning star, and exhaust ports blast jets of superheated, chemically-laden fluid back into the cavern, creating swirling vortices of differing temperatures and densities. It is a storm contained in a bottle.
+
+The defining feature of this place, however, is the sound. It is beyond deafening; it is a physical assault. It is a roar so profound it vibrates through the fluid and directly into the marrow of bone. The deep, rhythmic thrum of planet-sized pumps provides a bass line that shakes the foundation of the cavern. Over this lies the shrieking grind of metal-on-metal turning under unimaginable tonnage, the explosive *crack-boom* of collapsing cavitation bubbles, and the endless rush of pressurized fluid slamming through conduits. To be here is to be inside the combustion chamber of an endless engine.
+
+Despite the dense construction and the violent movement, the place feels overwhelmingly empty. The sheer scale of the cavern that houses this machine-city is immense, leaving vast, echoing voids of murky water between the churning industrial clusters. It is a hollow turbulence.
+
+Life is exceedingly rare. In the quieter, cooler eddies far from the intake valves, you might occasionally see something move that isn't a machine. Small, translucent scavengers, eyeless and armored in chitin derived from the mineral slurry, crawl along the underside of the cooling pipes. They are pale ghosts, extremophiles feeding on chemical leaks and the waste heat of a civilization of gears that knows nothing of their existence. They are the only organic witnesses to this eternal, roaring, submerged forge.

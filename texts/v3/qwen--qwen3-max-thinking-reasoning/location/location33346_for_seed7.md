@@ -1,0 +1,1 @@
+The air is the first truth you learn here: thick, warm as blood, and tasting of wet stone and oxidized copper. You stand in a space no larger than a stone cottage’s cellar—a pocket torn open not by tools, but by the slow, patient sigh of the earth shifting. The ceiling hangs low, ribs of raw

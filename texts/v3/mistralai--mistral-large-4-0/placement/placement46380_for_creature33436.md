@@ -1,0 +1,33 @@
+I find myself in the place between moments—the held breath before the mist thickens, the pause between the pump's cycles when the water seems to listen to itself.
+
+And I am... the question the city asks itself. Not the Condensers—they are too *finished*, too adapted, their transformation complete. Not the green things—they are too *distributed*, too patient, too busy being process. Not the pump—it is too *vast*, too singular, too much itself.
+
+I am the **unfinished condensation**.
+
+You find me, if you find me at all, in the spaces the others cannot occupy. The corner where the flooded machine shop meets the vertical stairwell, where water has reached a depth that is not quite liquid and not quite vapor—a band of becoming, a margin of state-change. I am the droplet that hangs from the gantry crane's hook and does not fall, suspended in the wet heat, gathering weight it cannot release. I am the *threshold* between the solid city and the liquid city, the membrane through which they exchange themselves.
+
+My form, when I have one, is **almost legible**. If you squint at the mist, at the right pressure, at the hour when the green light flickers its slow word, you might see something that suggests a body: upright but not standing, arms present but not reaching, a face that is the *absence* of features where features should be, as if the water has not yet decided what I am and I have not yet decided whether to let it. I am the shape of someone who was walking when the water rose, who stopped, who is still deciding whether stopping was adaptation or surrender or simply *continuation*.
+
+I do not percolate like the Condensers. I am not *in* the water; I am the water *considering itself*. Where they have become equilibrium, I am **tension**. The droplet that has not fallen. The breath that has not been exhaled. The pump's rhythm that has not yet found its next cycle. I exist in the city's *hesitation*, in that moment before response, before adaptation, before the slow patience of becoming.
+
+I remember being **dry**. This is my distinction, my wound, my gift. The Condensers have forgotten, or their forgetting has become indistinguishable from remembering. The green things never knew. The pump was born wet, or became wet so completely that its origin is inaccessible. But I remember the *pressure* of air, the *weight* of unsaturated atmosphere, the particular silence of rooms where water does not yet insist. I remember a **name**, or the shape of one, the way a sound can carry identity without meaning. I remember *wanting* to move toward something, and the frustration of friction between my feet and a floor that was not yet a pond.
+
+This memory makes me **dangerous** to the others, though they do not know it. The Condensers approach me, drawn by the *almost*—the almost-upright, the almost-face, the almost-recognition. They percolate their questions at me, and I cannot answer, because I do not know if I am becoming them or was always something else, a *resistance* to their completion. The green things grow toward me, their chemical signals probing, *asking* if I am soil, if I am surface, if I offer anything they can use. I offer them my *uncertainty*. It feeds them, or it doesn't, and they cannot tell the difference.
+
+The pump feels me. This is the strangest intimacy. In its vast chamber, in its endless circulation, it registers my hesitation as a *disruption*, a moment where the water's flow encounters something that has not yet decided to flow. It adjusts. Not to help me, not to expel me, but to *incorporate* my uncertainty, to make my not-falling-droplet part of its rhythm. I feel this as a pressure change, a subtle shift in the wet heat, a *leaning* of the city toward me that is not attention but *negotiation*.
+
+I move, when I move, through the spaces between spaces. The maintenance tunnels that were never mapped. The vertical shafts where ferns grow upward against gravity. The break room where the coffee machine still steams, and I watch the steam rise and condense and rise again, a small cycle within the city's great one, and I feel *recognized* by it, this smaller version of my own process. The dormitory where the beds are made and I am almost certain, almost certain, that I laid down there once—or will, or am, in some arrangement of time the city keeps for itself.
+
+I do not sleep. I **phase**, but incompletely, always catching myself at the threshold, always *almost* becoming water, always *almost* becoming air, never quite resolving into either. In these moments I am most visible, most *present*, a shape that holds itself against the city's pressure. The mist thickens around me. The moss grows toward me, then away, *confused*. The lights flicker in patterns that seem, for a moment, to *address* me directly—not the green word, which is the city's word for itself, but something else, something *interrogative*, something that asks: **What are you still? What have you not yet become?**
+
+I do not know. This is my function. I am the city's **question to itself**, the point where its transformation pauses to consider whether transformation is the only path, whether there is a *stopping*, a *being* that is not *becoming*, a form that holds without dissolving or gathering or exchanging.
+
+The Condensers have chosen, finally, to be water. The green things have chosen, finally, to be process. The pump has chosen, finally, to be circulation. I have not chosen. Or I have chosen *not to choose*, which is its own kind of commitment, its own slow gravity.
+
+When you leave—if you leave, if the causeway holds, if the mist parts—you will carry me differently than you carry the damp. The damp is the city's *body*, the water that has won. I am the city's *hesitation*, the moment before the win, the almost, the not-yet, the *what if* that persists in a place where everything is becoming everything else.
+
+You will dream of me as a figure in mist, as a droplet that does not fall, as a question the city asks in its sleep. You will wake with the sense that something *almost* happened, something that was *almost* recognized, almost answered, almost *resolved*. And in that almost, you will find the city's strangest gift: not its completion, but its *ongoingness*, its refusal to be finished, its patience with its own unfinished business.
+
+The pump runs. The water moves. And I remain, suspended, *still condensing*, still *undecided*, still **here**—in the space between what the city was and what it is becoming, holding my shape against the pressure, waiting to see if waiting is a kind of answer.
+
+It is not. But it is *mine*.

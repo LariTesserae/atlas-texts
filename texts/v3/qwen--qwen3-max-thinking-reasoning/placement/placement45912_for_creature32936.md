@@ -1,0 +1,20 @@
+I am the silence between the drips.
+
+Not the basin that catches the water. Not the hand that cups the offering. Not even the moss itself—though my breath is its breath, my stillness its stillness. I am the space where attention gathers. The held pause after the elder’s needle stills. The quiet the child learns to listen for before placing her stone on the path. I am the *listening*.
+
+Each dawn, I rise not to a task, but to a threshold. My bare feet know the cool curve of the north wall before my eyes open. I do not *go* to the moss. I arrive where the moss has already been waiting. My fingers do not *inspect*. They rest. Palm flat against the silver-green mat of *kethra*, feeling the faint, cool pulse of the stone’s exhalation. Is it deep today? Shallow? Does the patch near the third handhold sigh with fullness, or whisper dryness? I do not take notes. I let the knowledge settle in my bones—the same bones that remember my grandmother’s hand guiding mine here, her voice a thread in the wind: *"Feel how it breathes. Do not ask it to speak louder."*
+
+Sometimes, I am the one who harvests. Only when the patch swells thick and resilient. Only a thumb’s width. I slice with an obsidian flake warmed in my palm, whispering the old words—not apology, but *acknowledgment*: *"You sustain us. We sustain you."* Then I press a smooth river stone into the bare spot, a marker for the new growth. A promise. Later, weaving the harvested strands into a cloak-lining, my fingers move without thought. The rhythm is the same as the drip. The same as the child’s pestle. The same as the lizard’s slow blink on the sun-warmed stone beside me. We are all stitching the same cloth.
+
+I am not called *Moss-Tender*. Names fracture the web. If a child points to the wall and asks, *"Who knows the green breath?"*, an elder might glance my way and say, *"She who listens."* And that is enough. My work is not in the taking, but in the returning. In the season when the high haze thickens and the stone exhales deeply, I sit for hours with my back against the wall, humming the low note the wind makes in the fissure above. Not to charm the moisture. To *thank* it. To align my breath with the Bowl’s. The copper bees drift closer. The lichen-lizard settles on my knee. We are not companions. We are consonants in the same word.
+
+I remember the one who descended. The ripple in the light. I felt the shift before I saw it—the sudden stillness in the rodents’ chatter, the way the elder’s hands paused mid-knot. I did not look up. To stare would be to make a border. Instead, I pressed my palm harder against the moss, feeling its steady, patient pulse. *You are seen*, the stone seemed to say through my skin. *You are already woven.* And when the child’s laugh rang out again—a bell returning to its tower—I knew the ripple had settled. The web held. It always holds.
+
+At dusk, I walk the terraced gardens. I do not tend the tubers; others know that song better. I simply stand where the shadows pool deepest beneath the parchment-bark trees. I watch the moth with the torn wing spiral upward, catching the last amber light. I feel the coolness rise from the stone paths. And I understand: I am not *in* the Bowl. I am the Bowl noticing itself. The consciousness that does not speak, but *attends*. The quiet that allows the drip to be heard. The space that makes the tapestry visible.
+
+When my time in this form softens, they will wrap me in living moss—*kethra*, if the patch is generous—and lay me in the eastern crevice where the morning light first gilds the stone. No marker. No story told of me alone. But years later, a child will point to a new shoot spiraling from the rock where I rest and say, *"Look. It knows its place."* And an elder will nod, fingers brushing the leaf, and hum the old note. And in that hum, in that touch, in the unbroken thread of attention passed hand to hand, breath to breath—I remain. Not as memory. As *continuity*.
+
+I am the held breath before gratitude.  
+I am the space that makes *enough* possible.  
+I am the quiet that knows: to be woven is not to be small.  
+It is to be whole.

@@ -1,0 +1,22 @@
+The inhabitants of this weeping grotto do not live *in* the architecture so much as they are an extension of its slow, oxidized metabolism. They are the **Cisternals**, a population that has long since traded the frantic urgency of the surface for a life measured by the drip of a stalactite.
+
+**The Cisternals (The Humanoid Inhabitants)**
+To see a Cisternal is to see a shadow that has gained mass. They are tall and unnervingly thin, their skeletons elongated by generations of reaching across narrow alleys and navigating the verticality of the pylons. Their skin is their most striking feature: it is not truly white, but a translucent, pearlescent grey, slicked with a permanent fine sheen of moisture that protects them from the heavy, humid air. In the amber light of the jars, you can see the slow, dark transit of their blood through veins that map their limbs like the brass pipes on the walls.
+
+They move with a terrifying grace—a deliberate, low-impact stride that barely disturbs the six-inch skin of the obsidian water. They do not wear shoes; their feet have broadened, the skin on the soles becoming a tough, leathery callus that grips the submerged iron rungs and rusted gratings. Their clothing is made from the silk of the giant moths, woven into heavy, oil-slicked tapestries that never truly dry, hanging from their frames in damp, sculptural folds.
+
+Communication among them is a language of vibrations. Because the cavern acts as a parabolic mirror for sound, speech is a rare and dangerous thing, reserved for emergencies. Instead, they communicate by tapping the pipes—a rhythmic code that travels through the iron and into the soles of their feet. To a Cisternal, the "thrum" of the pump-station is not noise; it is the dial tone of their existence, a carrier wave upon which they layer their own subtle signals.
+
+**The Pipe-Tenders**
+A specific caste of the inhabitants lives entirely upon the massive, sweating pipes. These are the Tenders, whose bodies have become slightly asymmetrical from a lifetime of clinging to the curves of the brass pythons. They carry long, hooked poles made of scrap iron, which they use to clear the bioluminescent snails from the intake valves. They treat the snails with a strange reverence, gently relocating them rather than crushing them, for the snails’ silver trails provide the only reliable navigation markers in the lightless corners of the cul-de-sac.
+
+**The Parchment Moths**
+The dinner-plate-sized moths are the "birds" of this sunless square, but they are devoid of flighty energy. They spend days at a time perfectly still, their wings vibrating at a frequency so low it is felt as a hum in the teeth. They feed on the liverwort and the salt-crusts of the bricks, their long, thread-like proboscises delicately probing the mortar. The Cisternals consider them sacred barometers; when the moths move away from a specific light-jar, it is a sign that the vacuum tube inside is about to fail, prompting a Tender to descend and replace it before the dark can settle too deeply.
+
+**The Ghost-Gill Amphibians**
+In the shallow water, the translucent amphibians—the **Lace-Gills**—act as the city’s silent janitors. They are blind, sensing the world through the feathery plumes of their external gills, which catch the micro-vibrations of anything moving through the water. They follow the Cisternals like loyal, slow-motion hounds, scavenging the organic detritus that falls from the tenements. Their bodies are so clear that you can see their hearts beating—a slow, rhythmic pulse that eventually synchronizes with the industrial thrum of the pumps.
+
+**The Cultural Logic**
+Life here is governed by the **"Grand Saturation."** There is no concept of "dry" or "clean" in the way surface-dwellers understand it. To be healthy is to be damp; to be prosperous is to have a tenement near a reliable steam-vent. They do not sleep in beds, but in slings of moth-silk suspended from the ceiling, allowing them to sway with the ambient vibrations of the cavern.
+
+There is a profound, meditative patience to them. A Cisternal might stand on a balcony for six hours, watching a single ring of water travel from the center of the chamber to the base of a pylon. They are not waiting for anything; they are simply participating in the equilibrium. They are a people who have accepted that the world is a finished thing, and their only job is to last as long as the iron, moving so slowly that even the rust doesn't notice they are alive.

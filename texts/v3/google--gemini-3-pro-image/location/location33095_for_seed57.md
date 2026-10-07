@@ -1,0 +1,17 @@
+This place is a cyst buried deep within the planet’s crust. It is a sealed, aquatic pocket environment, a singular chamber no larger than a small cathedral nave, completely unknown to the surface world.
+
+You are immediately enveloped by the medium: water. It is absolute, filling every micron of space. It is not fresh, nor is it briny like the ocean; it is a thick, mineral-heavy amniotic fluid, distressingly cold. It presses against you with the weight of the kilometers of rock above. The density is overwhelming; there is no "open water" here. The space is saturated with presence.
+
+The boundaries of this chamber are violently formed. It is a young wound in the earth, perhaps created by a sudden, deep-focus fracture that immediately flooded. The walls are not smooth remnants of ancient erosion but are jagged, raw artistry. Shards of black, obsidian-like slate jut inwards like broken teeth, their edges razor-sharp, testifying to a recent, catastrophic shattering.
+
+Despite the near-total absence of light—a crushing, suffocating darkness that feels physical—the chamber is incredibly lush. It is a riot of life adapted to the void. Every available surface of the jagged rock is choked with growth. It is not green vegetation, but a pale, ghostly ecology of fungi, slime molds, and chemotrophic structures.
+
+Thick, gelatinous mats of translucent violet tendrils coat the floor, swaying hypnotically in unseen thermal currents. From the walls sprout forests of delicate, glass-like tube structures, rising inches or feet in height. They are brittle and incredibly dense, growing atop one another in a desperate bid for space. A very faint, dying bioluminescence pulses from within these glass forests—a weak, watery indigo glow that reveals nothing more than vague shapes and the terrifying density of the environment.
+
+The "built" elements are ambiguous, easily mistaken for natural formations in the gloom. Embedded in the sediment on the floor, half-swallowed by the purple slime, is a perfect sphere of polished, iridescent stone, marked with three parallel indentations. Nearby, a remnant of what looks like a fused ceramic strut protrudes from a rock fall. They are solitary, baffling artifacts suggesting something else was here before the water rushed in, now being slowly digested by the new ecosystem.
+
+Sound is muffled and distorted. The silence is heavy, a pressure in the ears, broken only by infrequent, long-wavelength vibrations that shudder through the water—the groaning of settling rock miles away, or perhaps something massive moving very slowly in the geology outside the chamber.
+
+Fauna is rare and ghost-like. You might wait hours in the freezing dark to see movement. Occasionally, a creature resembling a translucent ribbon, blind and dimensionless, will drift sluggishly through the glass forests, feeding on the bacterial mats. They move without urgency, suspended in the thick fluid.
+
+The weirdness of the place lies in its physics. The reality here feels viscous. The water seems thicker than it should be, resisting quick movement. Time itself feels dilated; a piece of silt disturbed from the ceiling takes an impossibly long time to drift down, wavering like smoke rather than falling through liquid. It is a tableau of slow-motion trauma, a hidden room where a geological catastrophe just happened, and the resulting alien bloom is frozen in the slow process of becoming.

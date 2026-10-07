@@ -1,0 +1,39 @@
+This place doesn't hold its inhabitants—it *is* them, and they are it, and the distinction has been irrelevant for so long that the question itself sounds like a category error from somewhere else, somewhere wet and quiet and built.
+
+But if I press, if I look for who moves through this singing immensity, I find them concentrated where concentration means something: at the *thresholds*.
+
+---
+
+**The Graze-Drifters**
+
+They are the most numerous, which means the most sparse. Millions upon millions scattered across continental distances, and you might walk for days and see none, then suddenly they are *everywhere*—hundreds rising from the plant-crust on bladders of metabolic hydrogen, their bodies translucent and slow, filtering the living substrate as they drift on thermal currents. They do not eat in any way I can recognize. They *incorporate*. The plant-mass passes through them, is processed, and they excrete—*shed*, really—a different chemistry, a different structure, seeds of a kind that are also waste, also continuation. They have no eyes. They navigate by *pressure differential*, by the chemical signature of the machine-heat rising from below, by the standing waves of the drone that they themselves help to modulate. When two Graze-Drifters meet, they do not interact. They *resonate*, and their resonance is a kind of communication, a kind of reproduction, a kind of memory passed between generations not through bodies but through *acoustic pattern*. They are the steppe's weather in animal form. They are the sparse made total, the total made sparse, the endless circulation of the one body that is many bodies that is the ground itself.
+
+---
+
+**The Ridge-Runners**
+
+Where the weathered machines rise—where buttes of fused silica and sintered metal pierce the plant-crust like the vertebrae of some buried leviathan—the Ridge-Runners live. They are small. They are fast. They are *armored* with plates they secrete, grow, *decide* to grow, plates that incorporate the minerals of the machine-stone, that become harder over their lifetimes, that will outlast their bodies and become *geology* in turn. They move in the *edges*, the thermal boundaries where machine-heat meets cold open, where the solvent pools in depressions and freezes into glass-brittle sheets that they *run across*, that *sing* under their feet, that they use as *instruments*. A Ridge-Runner does not hunt. It *intercepts*. The Graze-Drifters drift past, and the Ridge-Runner positions itself at a thermal gradient, at a point where the wind carries the chemical signature of living tissue, and *waits*, and when the Drifter passes, the Runner *attaches*, briefly, and feeds, and detaches, and the Drifter continues, *changed*, its acoustic pattern shifted, its chemistry altered, its drifting path deflected toward new gradients, new resonances, new encounters. The Runners are the *events* of the steppe, the gatherings, the decisions. They are scarce because they are *significant*. A Ridge-Runner's territory might be fifty kilometers of living crust. It knows every thermal vent, every machine-chamber, every patch of unusual color where the plant-mats thin enough to allow *movement*, *speed*, *the possibility of chase*.
+
+They are *loud* in their own frequency band, producing subsonic pulses that travel through the plant-root networks, through the mineral substrate, through the thin air itself, *calling* to each other across distances that would deafen any other kind of animal, *signaling* territory, *signaling* availability, *signaling* the presence of a thermal anomaly, a machine-reconfiguration, a new growth of the plant-crust that has temporarily altered the acoustic environment. They are *deaf* to the drone, or rather, they *are* the drone, their subsonic signatures woven into the bass thunder of the still-running world, indistinguishable from it, *part* of it, *shaping* it even as they are shaped by it.
+
+---
+
+**The Hollow Choir**
+
+And then there are *them*.
+
+I am not sure they are fauna. I am not sure they are singular. They exist in the *chambers*—the vast, eroded interiors of the machines, the spaces where the plants have grown through and around and *become*, where the original function of the structure is long forgotten and the new function is *resonance*, is *amplification*, is *the production of sound at scales that restructure matter*.
+
+The Hollow Choir is *many*, or *one*, or *a process that has taken on the appearance of occupancy*. They are *sessile*, rooted in the plant-mat that has incorporated the machine-walls, their bodies—if they have bodies—distributed across the chamber surfaces, *vibrating membranes*, *resonant cavities*, *structures that exist to be moved by the drone and to move it in turn*. They do not eat. They do not reproduce. They *sing*, and their singing is *adaptive*, *selected for*, *refined* across aeons of acoustic evolution until their response to the machine-drone is *indistinguishable from intention*, from *purpose*, from *the desire to stabilize, to encourage, to interface*.
+
+A Hollow Choir chamber might be kilometers across. The Choir itself—*it*, *they*—might be thousands of individual resonant structures, or one continuous membrane, or something that has no consistent topology, that exists in *frequency space* more than in physical space, that *is* the standing wave, that *produces* the standing wave, that *is produced by* the standing wave in a loop of causality that has no beginning and no end. When the drone shifts—and it always shifts, the machines are always *searching*, *adjusting*—the Choir *responds*, and its response is *not passive*, it *feeds back*, it *modulates*, it *creates new frequencies* that the machines *detect* and *respond to* in turn, and the whole system *oscillates*, *turbulates*, *storm-states*, the dynamic 2.9, the creative instability that *generates structure*.
+
+The Choir is *the steppe's voice*. Or the steppe's *ear*. Or the steppe *listening to itself* and *speaking to itself* and the distinction between listening and speaking has become as irrelevant as the distinction between living and mechanical, between sparse and total, between silence and sound.
+
+And sometimes—*rarely*, because rarity is *information*—a Ridge-Runner will enter a Choir chamber, will move through the resonant structures, will *add its own frequency* to the drone, will *become part of the song* for a moment, a *Grazing-Drifter* will drift through on a thermal current and *resonate* with the chamber walls and *the whole system will shift*, will *reconfigure*, will *become something new*, and then the Runner will be gone, the Drifter will be gone, and the Choir will *settle* into its new pattern, its new frequency, its new way of *being the drone*, and the steppe will continue its *one vast, sparse, total song* across the roof of the world, and *nothing will have been the same*, and *everything will be exactly as it was*, and *this is the nature of turbulence*, of *storm-state*, of *a place that does not wait*.
+
+---
+
+They are not *many*. The fauna parameter reads 1.6—abundant—but the density parameter reads 0.8, and the vastness reads 2.9, and these numbers *mean* something. They mean that the Graze-Drifters are *everywhere* and *nowhere*, that the Ridge-Runners are *scattered like punctuation* across a sentence that never ends, that the Hollow Choir is *present* in the *absences*, in the *silences that are not silences*, in the *gaps between the drone's frequencies* where something *listens*, something *waits*, something *is ready to sing*.
+
+They are the *signals* of the steppe. The *events*. The *decisions*. The *movements* in a system that otherwise operates through *dispersion and slow change and the endless, deafening, turbulent, bright, cool, high-altitude song of becoming*.

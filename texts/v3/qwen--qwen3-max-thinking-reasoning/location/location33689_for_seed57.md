@@ -1,0 +1,21 @@
+It is not a place you find. It is a place that finds you—when the current shifts just so, when the pressure of the deep sighs through a fissure in the basalt shelf, when your breath fogs the inside of your mask and for one disorienting second, the world *unfolds*.
+
+You are inside the Throat of the Stone.
+
+This is not an ocean. It is a single pore. A cavity no larger than a cupped hand, buried deep within the porous heart of a newly fractured sea-mesa. The entire world here is liquid: a cool, viscous brine saturated with suspended minerals, ghost-spores of deep fungi, and the fine silt of dissolved memories. There is no surface. No air. Only the gentle, absolute pressure of 2.9/3 water—thick as liquid obsidian, tasting of cold iron and salt-long-forgotten. You do not swim; you *inhabit* the medium. Every movement stirs slow eddies that take minutes to settle.
+
+The walls are sharp-edged crystalline lace (erosion: 1.4—young), fractured clean hours or centuries ago—time has no anchor here. Upon this raw stone clings the only green: a *lushness* of bioluminescent fungi and filamentous algae (vegetation: 1.9). But their light is a secret kept close. A faint, pulsing cerulean shimmer (light: 0.2) that does not illuminate so much as *suggest*—the ghost of a branch here, the curve of a spore-cluster there. To human eyes, it is perfect darkness. Yet in the mind’s eye, shapes bloom: a forest of frozen lightning, a tapestry of living veins. The glow is not for seeing. It is for *remembering*.
+
+Scattered across the mineral faces (built: 0.8) are faint impressions—not ruins, but echoes. The hexagonal ghost of a sponge spicule. The spiral whisper of a foraminiferan shell fossilized mid-drift. A smooth, oval depression where something once rested, now empty. No tools. No gears. No technology (tech: 0.2). Only geology dreaming of architecture.
+
+Life is a rare punctuation (fauna: 0.9). A tardigrade, curled like a comma in cryptobiosis, drifts past once in a geological sigh. A single, transparent copepod flickers—a needle-thread of motion—and vanishes. You feel its passage as a tremor in the water’s skin.
+
+But the true nature of this pocket is its quiet unraveling of law (weirdness: 2.6).
+
+The water holds time captive. A droplet does not fall; it swells with absorbed moments until it becomes a lens. Peer into its curve and you might glimpse: the shadow of a sunken bell tower from a coast that drowned millennia ago. The scent of rain on dry clay. A child’s laughter, crisp and clear, from a village that never existed on any map. These are not hallucinations. The stone and brine have drunk deep of the world’s stories and now dream them back in fractured, liquid whispers. Sometimes the wall feels like cool silk beneath your palm. Sometimes the water thickens to the consistency of honeyed smoke. Boundaries soften. Memory becomes matter. Matter becomes memory.
+
+Sound is a language of absence (sound: 0.8). The crushing silence of the abyss is broken only by patience: the almost-inaudible *plink* of a mineral deposit forming over a decade. The subsonic hum of tectonic plates shifting continents away. If you listen with your bones—not your ears—you might catch the echo of a whale’s song from a hundred years past, trapped and repeating in the water’s slow pulse. A whisper of current. The sigh of stone settling into itself.
+
+Change moves at the pace of mountains (dynamic: 1.1). The fungal forests grow a micron per millennium. The remembered images shift with glacial slowness. A face glimpsed today will be a blurred smudge by next century. This is not stagnation. It is reverence. Every particle is a word in a story too vast to comprehend, yet here, in this thimble of water, the story is waiting.
+
+The atmosphere is cool (temperature: 0.8), intimate, saturated (density: 2.6). There is no space between presences—water, memory, stone, light—all woven into a single, breathing tapestry. You feel held. Not threatened. This pocket is a secret the ocean keeps even from itself. A hidden (scale: 0.1) sanctuary where reality is not broken, but *breathing*. Where the deepest truth is not what is seen, but what is felt in the quiet between heartbeats: that even in absolute darkness, in the crushing deep, in the smallest space imaginable… something remembers. And in remembering, it keeps the world from unraveling completely.

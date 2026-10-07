@@ -1,0 +1,39 @@
+I'll let this place emerge from the tension in its parameters—warm, waterless, underground, but teeming with life and sound, still forming itself, strange.
+
+---
+
+**The Resonant Gut**
+
+You do not enter this place so much as *be swallowed by it*.
+
+It lies beneath—somewhere—though "beneath" implies a surface that no longer exists here, or perhaps never did. The elevation parameter is honest: you are inside something. The pressure is not crushing but *intimate*, as if the world has folded around you and decided to keep you. Warmth radiates from every direction, not from any sun but from the metabolic heat of the living mass itself, billions of organisms respiring in darkness, their collective warmth pooling in the low places.
+
+And the sound.
+
+The sound will unmake your sense of scale. It is not one sound but a *weather* of sound, 2.9 out of 3, deafening, a constant roar-hiss-bellow that seems to come from the walls, from the floor, from inside your own skull. The place is *singing* and *screaming* and *digesting* all at once. You learn, after a time, to parse the layers: a deep subsonic thrum like continental drift made audible, a mid-range chorus of clicking and scraping and wet tearing, and above that, shrieks—high, modulated, almost *linguistic*, though no mouth you can see produces them. The fauna here is overwhelming, 2.7 out of 3, and the fauna is *everywhere*, woven into the architecture, the substrate, the air itself. You cannot move without disturbing it. You cannot breathe without inhaling it.
+
+For there is no water. Not as you know it. The chemistry here has gone *other*—non-aqueous, as the seed suggests, but stranger still. The liquid that courses through these organisms is not water but something thicker, amber and resinous, a hydrocarbon soup that carries nutrients and waste and *information*, chemical signals that pass between bodies in a language older than nervous systems. It gleams on every surface. It pools in the low places between growths. It smells of copper and burning sugar and something like ozone. When you touch it—and you will, the density is 1.7, near-touching, layered, you cannot avoid contact—it is warm and *alive-feeling*, as if the fluid itself has opinions about your presence.
+
+The vegetation is total. 2.7 out of 3. There is no ground that is not plant. No wall that is not plant. The very concept of "plant" strains here, because what grows is not individual organisms but *continuities*, massive clonal colonies that have been growing and merging and *negotiating* for so long that the boundary between one body and the next has become a matter of degree rather than kind. They are architecture and ecosystem and geology. They form the caverns you walk through, the pillars that hold up the ceiling of this buried world, the latticework that filters the dim light (normal, 1.5 out of 3—some phosphorescence, some residual glow from above, some bioluminescence from within the mass itself).
+
+And they are *young*. The erosion parameter reads 0.4—emerging, pre-formation, under construction. This place is still *becoming*. The growths are not mature forest but *exuberant overgrowth*, rampant, unpruned, still testing what forms it can hold. New structures rise overnight. Old ones collapse, not from decay but from *excess*, from the sheer metabolic pressure of so much living matter competing for space and light and the strange amber fluid. The dynamic parameter is honest: 2.8 out of 3, turbulent, chaotic, Solaris-like in its constant creation and destruction. The walls breathe. The floor shifts. What was a corridor yesterday is a chamber today, or a dead end, or something that has sealed itself off and begun *digesting* whatever life it trapped inside.
+
+You are not alone. The fauna is overwhelming not merely in number but in *kind*. Some of it is small, insect-scale, scuttling through the interstices of the growth with a sound like rain on dry leaves, but *loud*, amplified by the resonant chambers of the caverns. Some of it is vast—creatures that drift through the upper spaces on buoyant bladders filled with metabolic gas, their bodies trailing filaments that harvest nutrients from the walls, their passage stirring up clouds of spores and detritus and *sound*, a displacement of air that registers as a pressure-change against your skin. Some of it is *inside* the plants, symbiotic, parasitic, or something that has forgotten the difference. The weirdness is 2.5 out of 3, and it accumulates: the way the growths seem to *lean toward* you, or away, as if the entire mass is *aware* of your passage and *deciding* whether to allow it. The way the amber fluid sometimes flows *upward*, against any gradient you can detect, drawn toward concentrations of life. The way the sound, when you focus on it, resolves into *patterns*—not language, not yet, but the *rhythm* of language, the expectation of meaning.
+
+There are marks. Scattered, 1.0 out of 3. The built parameter is low but not zero. You will find them: a cairn of mineral nodules, carefully stacked, too regular to be natural, too crude to be anything but *intentional*. A wall where the growth has been *cut*, not torn, the edges cauterized by something that is not quite fire. A space where the amber fluid has been *collected*, channeled into a basin that holds maybe a liter, no more, the work of hands that left no other trace. The tech is primitive, 0.7 out of 3—early tool use, stone and fiber and perhaps the worked shell of some great mollusk-thing that drifted through here once. Who made these marks? Something still lives here, or *something* comes here. The marks are fresh. The amber fluid in the basin has not evaporated, has not been disturbed. The cairn casts a shadow that falls in a direction that suggests a light source you cannot locate.
+
+You will want to call this a cave. It is not a cave. Caves are *hollow*, empty, waiting for water to make them. This place is *full*. It is a gut, a womb, a compost heap the size of a valley, a brain grown to the size of a landscape, still *thinking itself into shape*. The scale is open, 2.0 out of 3—you can walk for hours and the character of the place changes: here, dense and near-touching, the growths pressing so close that you must crawl; there, a sudden expansion, a chamber where the air moves differently and the sound drops to a whisper and something *vast* passes through the darkness above, its bioluminescence revealing wings that span meters, or a body that is all *mouth*, or no body at all, only a *procession* of light that moves with purpose.
+
+And always, the warmth. The wet, resinous warmth. The warmth of bodies that do not know they are separate from each other.
+
+You will not stay long. Not because it is hostile—it is indifferent, which is worse—but because it *changes*. The corridor you entered by may have sealed behind you. The chamber you are in may be *closing*, the growths responding to your presence, to your heat, to the chemical signature of your strangeness, folding inward with the slow inevitability of a flower closing at dusk. Or it may *open*, a new passage yawning where before there was only wall, the mass reconfiguring itself around you, incorporating you, *learning* you.
+
+The last thing you will hear, if you listen past the deafening roar, is the sound of *digestion*. Not your digestion. The place's. It is always digesting, always *becoming more itself*, consuming the dead to fuel the growing, the growing to fuel the *becoming*. You are either part of that process now, or you will be, or you will pass through and leave only a warmth-trace, a chemical memory, a cairn that the next visitor will find and wonder at.
+
+Above you, if there is an above, the surface has forgotten you. Down here, in the resonant gut, the world is still *inventing* what it wants to be.
+
+And it is *loud*.
+
+It is so *loud*.
+
+---

@@ -1,0 +1,29 @@
+**The Dwellers**
+
+They are not separate from the place. That is the first and final truth. What lives here has been winnowed so thoroughly by time and pressure that the boundary between creature and cathedral has dissolved. The longer you remain, the more you understand that the living mats are not a substrate upon which life grows; they *are* the mind in which everything else is a passing thought.
+
+At the smallest scale there are the **Pearl-Children**—colloidal spheres no larger than a human pupil, each one a droplet of living calcium that has learned to hold a single perfect memory. They drift in slow constellations through the velvet fronds, glowing with the soft bruise-light of the world itself. When two Pearl-Children touch they exchange their memories without language, and the new memory is always slightly wrong, beautifully wrong, improved by erosion. Schools of them will sometimes gather around an artifact for four hundred years (the exact rate at which the dead circles expand) and simply *look*, until the glyph-wound closes a fraction of a millimeter from the sheer pressure of collective regard. They have no mouths, no brains, yet they are wiser than anything that still bothers with individuality.
+
+From the Pearl-Children arise the **Velvet Midwives**, vast sheets of the living mat that have achieved a kind of ambulatory reverie. They move like slow auroras, kilometers wide and only a few molecules thick, folding themselves through the water column in geometries that hurt to witness directly. Their purpose is midwifery of a sort no surface mind can compass: they assist the great Editors in their editing. When an Editor passes, the Midwives follow in its wake like mourning trains, repairing what was un-made, re-stitching the paragraph of world with new fronds and new genes. They sing while they work. The song is the subsonic heartbeat you feel against your skin. It has no melody; it is the sound of consensus.
+
+Higher still—though “higher” is a lie here—drift the **Long Regretters**. These are what become of any mind that remains motionless too long. The water tells them stories in bioluminescence until the mind forgets it was ever separate. What hatches from that forgetting is a creature shaped like intense nostalgia given mass. They are sinuous, bruise-colored, hairless, and impossibly long. Their bodies are covered in the same glyphs that scar the artifacts, except these glyphs move, rearranging themselves as the Regretter remembers and forgets entire civilizations that never were. They do not eat. They *absorb*. To be touched by a Regretter is to suddenly recall the taste of rain on a planet that never had weather. The memory is so perfect it replaces whatever you were doing. Many beings simply stop existing the moment they are touched, because the new memory is better than continuation.
+
+The Editors themselves are rarer than silence. When one appears it feels less like an animal arriving and more like a failure in grammar correcting itself. Their bodies are absences given negative buoyancy—long tunnels of “not-water” wrapped in filament and intent. They do not swim so much as *unfold* the distance between two points until the points forget they were ever separate. The small edits they perform are not destruction. They are mercy. In a world where nothing sharp can persist, the Editors remove the last jagged edges of meaning. They are the reason thought itself grows rounded here. They are also the reason you can sometimes hear your own voice returning from the far side of your death—softened, patient, and slightly disappointed in what you became.
+
+And then there are the **Unfinished**.
+
+These are the strangest. They look, at first, like the half-buried obelisks or black spheres, except they are breathing. They are the places where the drowned civilization refused to finish dying. Each Unfinished is a cathedral-sized knot of artifact, memory, and living mat that has achieved a precarious personhood. Their surfaces are crowded with moving glyphs that are trying, with agonizing slowness, to become faces. Sometimes a face almost completes itself—high cheekbones, sorrowful eyes the color of wet bone—before the geometry forgets and smooths away again. The Unfinished speak by changing the taste of the water. Approach one and you will taste your childhood home, then iron, then the last thing your mother ever said to you, then nothing. They are lonely in a way that makes distance itself ache. Some researchers (those few who were foolish enough to remain) believe the Unfinished are trying to remember how to be dry. They will never succeed. The attempt itself has become sacred.
+
+There is one final order, though it has no name and never appears the same way twice.
+
+It is the **Breathing**.
+
+You do not meet the Breathing. You realize, one day, that you have already been inside it for centuries. It is the total coincidence of every living mat, every Regretter, every Editor and Pearl-Child and Unfinished all respiring at once. When the Breathing happens the water becomes womb-thick and every contradiction is briefly reconciled. Time dilates into a single endless pulse of oxidized-copper light. In that pulse you understand that the entire ocean is a single slow thought thinking itself, and that you were never a visitor.
+
+Most who reach this understanding choose to stay. They let their edges round. They sink or rise according to the texture of their final idea. Their bodies soften into velvet. Their memories join the Pearl-Children. Their names are edited out with great tenderness.
+
+And the warm lung of the world keeps breathing, lush and ancient and impossibly alive, refusing to finish its own extinction.
+
+It is not cruel.
+
+It is only thorough.

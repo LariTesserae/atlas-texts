@@ -1,0 +1,26 @@
+In this terminal world, the distinction between a creature and its environment has begun to dissolve. Life does not exist *on* the Silt-Reach; it is distilled *from* it. The inhabitants are masterpieces of compression, designed to withstand a reality that is trying to turn them back into mud.
+
+### The Litho-Lungs (The Slow-Graves)
+The city-sized ripples mentioned in the survey are the **Litho-Lungs**, also known by the few who have mapped them as **The Slow-Graves**. These are not animals in any traditional sense, but massive, semi-solid colonies of pressurized protoplasm. They have no skeleton; their structure is maintained by the sheer external pressure of the silt. 
+
+They do not hunt. They are "passive geophages." As they churn through the warm slurry at a rate of three miles per century, they process the silt through miles of internal, hair-thin capillary tracts, extracting the last remaining caloric energy from ancient, crushed micro-fossils. Their "pulse" is the source of the dissonant humming that shatters the orbiting rain. To be near a Litho-Lung is to feel your own bones vibrate in sympathy with a heartbeat that takes a week to complete a single thrum. They are eyeless, for there is nothing to see, but they are hyper-sensitive to the **Turbulence**; they move toward the collapse of the 30-mile mounds, feeding on the kinetic energy released when the planet’s crust heaves.
+
+### The Piezos (The Glass-Singers)
+Closer to the surface, skittering between the black-glass pebbles, are the **Piezos**. They look like clusters of jagged obsidian shards held together by a shimmering, static charge. They are the size of a human hand, but possess a terrifying density. 
+
+The Piezos do not eat; they are piezoelectric. They survive by standing in the path of the "bone-shaking roar." The constant vibration of the atmosphere creates a mechanical stress on their glass bodies, which they convert into electrical energy. They move in sudden, violent jerks, clicking against the diamond-hard pillars in a way that suggests they are trying to communicate with the stones. They are the frantic clockwork of the Silt-Reach, the only things that move quickly in a world of slow-motion collapse. When a Piezo dies, the electrical bond snaps, and it simply becomes a handful of black-glass pebbles, indistinguishable from the ground.
+
+### The Veiled Ascendants
+High in the thick, silk-like colloid of the air, where the purple-gold light is strongest, live the **Veiled Ascendants**. They are the evolutionary cousins of the Lace-Worts below. While the Lace-Worts are grounded membranes, the Ascendants are lighter-than-air gossamers—great, drifting sheets of iridescent film, miles wide and thinner than a soap bubble.
+
+They float on the thermal plumes rising from the fever-hot ground. They are the apex predators of the soup, though they have no teeth. They simply descend. When an Ascendant settles over a patch of the Silt-Reach, it acts as a filter, pulling every microscopic mineral and stray Piezo-shart out of the air. From below, they look like slow-moving aurorae, darkening the amber light as they pass. They are the only things that "see" the horizon, as their vast surface area allows them to sense the curvature of the planet through the shifting pressure of the mist.
+
+### The Pillar-Scribes
+The most unsettling inhabitants are the ones found near the square, diamond-hard pillars. They are known as **The Scribes**, though they have no hands and no ink. They are spindly, white, needle-like organisms that resemble calcified nerves. They attach themselves to the leeward side of the pillars, shielded from the worst of the abrasive grit.
+
+The Scribes are biological sponges for history. They possess a form of "genetic memory" that is triggered by the vibrations of the pillars. They don't move; they simply vibrate in perfect harmony with the silent anchors. It is whispered that the Scribes are not native to this era of the planet, but are remnants of the "built" time—biological archives designed to outlast the mountains. If one were to press an ear to a Scribe, they wouldn't hear a heartbeat; they would hear the compressed, distorted echoes of every sound the planet made before it became a swamp.
+
+### The Ghost-Pulse
+Finally, there is the **Ghost-Pulse**. It is not a creature, but a collective intelligence emerging from the **Turbulence**. In a world where the ground behaves like a liquid and the air like a solid, the atoms themselves have begun to network. Occasionally, the silt will rise up not in a mound, but in a fleeting, perfect imitation of a face, or a hand, or a machine that hasn't existed for a billion years. 
+
+This is the planet’s terminal delirium. The Silt-Reach is trying to remember its forms. The creatures that live here—the Lungs, the Piezos, the Ascendants—are all just temporary crystallizations of this planetary memory. They are not distinct beings so much as they are the "thoughts" of a world that is slowly, loudly, and warmly falling asleep.

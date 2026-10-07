@@ -1,0 +1,15 @@
+In this place, the horizon is a concept rather than a sight. You are standing within a continental-scale mechanism of living tissue, a dark, humid expanse where the distinction between a forest and a factory has been completely erased.
+
+The ground beneath you is not soil, but a vast, wet mat of compressed vascular fibers—a "plant-substrate" that stretches for thousands of miles in every direction. It is soft but resilient, like walking on a damp lung. Underneath this surface, a steady, low-frequency vibration suggests the movement of massive volumes of fluid. The elevation is low and uniform; there are no mountains here, only the rhythmic rise and fall of the great "Pistons"—towering, vertical stalks of hyper-dense cellulose that reach miles into the black sky.
+
+The scale is staggering. These botanical structures are so large they generate their own micro-climates. Mist doesn’t fall as rain; instead, it weeps from the undersides of gargantuan, oily leaves that are the size of city blocks. The atmosphere is thick, warm, and saturated with the scent of sweet decay and ozone. It is a world of constant condensation, where every surface is slick with a thin, nutrient-rich film of water.
+
+Despite the "Industrial" nature of the landscape, there is not a single bolt, wire, or sheet of metal. The technology here is biological. The "engines" are massive, translucent bladders that pulse with a slow, mechanical regularity, pumping pressurized sap through translucent pipes that are as rigid as glass and as sharp as surgical steel. These pipes form a dense, interlocking grid across the landscape, sharp and un-eroded, as if they were grown only yesterday. The world feels new, yet it operates with the cold, unchanging precision of an ancient clock.
+
+It is absolutely dark. The leaves above are so dense and so dark that no light from an exterior sun could ever penetrate. The only way to perceive the landscape is through the heat it radiates—a pervasive, biological warmth—and the occasional, faint shimmer of bio-luminescent fluids moving through the transparent conduits.
+
+The most striking feature is the silence. For all its industrial scale and mechanical complexity, the world makes almost no sound. There are no animals to cry out, no wind to rustle the heavy, wax-coated foliage, and no friction in the biological joints of the great machines. The only sound is the occasional *thrum* of a valve closing or the rhythmic, muffled *squelch* of fluid moving through a miles-long vein. It is a quiet so heavy it feels pressurized.
+
+Time here has no teeth. There are no seasons, no days, and no growth spurts. The ecosystem reached its peak efficiency in the distant past and has remained in a state of perfect, frozen equilibrium ever since. The plants do not grow larger; they merely maintain their immense, crystalline shapes. The pumps do not speed up or slow down. 
+
+It is a silent, dark, and wet factory of life that produces nothing but its own continued existence, a vast and lonely masterpiece of organic engineering that requires no architect and brooks no change.

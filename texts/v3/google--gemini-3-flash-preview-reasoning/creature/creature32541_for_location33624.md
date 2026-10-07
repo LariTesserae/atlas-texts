@@ -1,0 +1,21 @@
+In this roaring teal twilight, the inhabitants are not born so much as they are precipitated. They are the frantic children of friction and pressure, shaped by the same non-Euclidean geometry that warps the horizon.
+
+**The Resonators**
+The most visible denizens are the *Resonators*, creatures that look like a violent collision between a deep-sea crustacean and a clockwork music box. Their bodies are composed of the same black obsidian as the seabed, polished to a mirror sheen by the abrasive brine. They have no eyes—light is a secondary, unreliable sense here—but are covered in thousands of fine, copper-wire cilia that vibrate in sympathy with the Great Hiss. 
+
+They do not swim; they "tune" themselves to the frequency of the industrial pistons. By shifting the tension of their internal plates, they catch the sound waves like sails, allowing the panoramic roar to propel them through the brine at terrifying speeds. When they congregate near the massive flywheels, they do so to feed on the cavitation bubbles, snapping at the white light with mandibles that sound like hammers striking anvils. They are the living debris of the machines, scavenging the kinetic energy that the refineries bleed into the environment.
+
+**The Vitreous Harvesters**
+Moving through the shivering thickets of vascular kelp-glass are the *Harvesters*. These are long, ribbon-like entities, thirty feet of translucent membrane that hums with a sickly chartreuse glow. They are the nervous system of the forest. They lack a centralized brain; instead, their intelligence is distributed across a network of silicate nodules that process the ions exchanged from the brine. 
+
+The Harvesters are the only things that "tend" the machines, though not by choice. They are symbiotes of the iron giants. You will see them coiled around the brass pumping stations, their thin, muscular bodies pulsing in time with the pistons. They act as organic heat-sinks, drawing the scorched-copper fever away from the metal to fuel their own hyper-accelerated growth. In return, the machines’ rhythmic vibrations keep the Harvesters’ internal fluids from crystallizing. They are often caught in the gears, shredded into a glowing pulp that the teal brine instantly recycles into new vines. To a Harvester, being crushed is simply a method of seed dispersal.
+
+**The Static Echoes**
+Deep within the geometric fissures, where the gravity loops and the brine thickens into a gel, live the *Static Echoes*. These are the most unsettling inhabitants—glimmers of humanoid geometry that seem to be made of compressed steam and mint-scented vapor. They are not solid. They are localized atmospheric anomalies that have developed a flickering, vestigial consciousness.
+
+The Echoes haunt the refineries, standing motionless near the venting plumes. They appear to be miming the machines; their "limbs" move with the staccato, linear precision of pistons. They do not communicate with sound—the world is already too loud for speech—but through the rhythmic strobing of their translucent forms. They are the ghosts of the industrial process, manifestations of the fraying reality where the iron and the organic have finally surrendered their boundaries to one another.
+
+**The Mite-Swarms of the Hiss**
+Finally, there is the microscopic life, the *Living Friction*. These are billions of tiny, metallic flecks that permeate the brine. They are the source of the scorched-copper smell. They act as a universal lubricant and a universal solvent, coating every surface. When the machines spin, these mites are flung outward, creating the sparks that provide the valley's bruised illumination. They eat the rust before it can form; they consume the kelp-glass before it can choke the flywheels. They are the balance, the frantic white blood cells of a world that is constantly trying to tear itself apart.
+
+Nothing here sleeps. There is no concept of rest or shadows. The inhabitants are as relentless as the roar that birthed them, locked in a cycle of high-speed evolution and mechanical ruin. They are the fever made flesh, the scream made form, thriving in the beautiful, violent crush of the Great Hiss.

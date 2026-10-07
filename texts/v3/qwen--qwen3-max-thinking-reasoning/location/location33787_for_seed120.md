@@ -1,0 +1,31 @@
+You do not find this place. It finds you. A stumble on a scree slope near a newborn peak—*elevation 2.9, erosion 0.0*—and the mountain breathes inward. A fissure, no wider than your shoulders, exhales warm, wet air. You slip through. The rock seals behind you with a soft click of settling stone. There is no going back. Only *in*.
+
+The chamber is smaller than a burial cairn—*scale 0.1*—yet your body rebels. Your inner ear screams *precipice*. Your knees weaken. Though the ceiling brushes your hair, you feel the dizzying void of a summit ridge, the thin-air vertigo of standing where eagles fear to hover. *Elevation is not measured here. It is felt.* This is the first fracture in reality: *weirdness 3.0*.
+
+Every surface is made. *Built 2.6.* No raw stone remains. Walls are woven from supple, heat-cured willow withes, plastered thick with clay mixed with crushed obsidian that glints like frozen tears. The floor is a mosaic of river-smoothed stones, fitted so precisely a blade of grass cannot slip between them. Mortar is beeswax and pine resin, still soft to the touch in the heat. Fingerprints linger in a fresh patch near the base—a repair made hours ago. *Emerging. Under construction.* The air smells of wet clay, warm sap, and the sharp, clean scent of stone still remembering fire.
+
+Heat presses down, thick and heavy (*temperature 2.8*). It rises from the stones beneath your feet—the mountain’s own blood-warmth bleeding through the craftsmanship. Water weeps not from above, but *through* the walls (*water 1.9*). Beads swell along the clay seams, tracing slow paths down the woven lattice before vanishing into hairline channels carved into the floorstones. Where droplets meet the warmest stones, they vanish in a hiss of steam. The air shimmers with humidity. Condensation pearls on cooler patches of resin, then *rolls upward*, defying gravity to feed a cluster of mosses clinging to the ceiling. *Reality breakdown.* You watch a single drop climb, glistening, and your breath catches.
+
+Life is sparse but vivid (*vegetation 1.8, fauna 1.2*). A tapestry of emerald moss drinks the upward-flowing moisture. Tendrils of moonpetal vine—pale blossoms glowing with their own soft bioluminescence (*light 1.1*)—spiral around a central pillar of bundled reeds. One blossom opens as you watch: a slow unfurling, petals sighing apart to release a puff of silver pollen that hangs in the air like dusted starlight. In the far corner, a single obsidian beetle, no larger than your thumbnail, traces a perfect circle around a steam vent. It stops. Turns. Begins again. Its only purpose, it seems, is the circle.
+
+Sound is a physical presence (*sound 2.1*). Not one noise, but a dense tapestry of them, woven tight by the chamber’s intimacy (*density 2.8*):  
+- *Drip… sizzle… drip… sizzle…* (water meeting heat)  
+- The low, resonant *thrum* of the mountain itself vibrating through the soles of your feet  
+- The creak of willow withes expanding in the warmth  
+- The whisper of moss drinking  
+- A faint, crystalline chime as a falling droplet strikes a hollow reed suspended from the ceiling—a primitive hygrometer, still swinging  
+This is not silence broken. It is sound *packed* into existence. *Dynamic 2.5.* Everything is in motion: steam rising in visible ghosts, pollen drifting, clay slowly settling, the beetle’s eternal circuit. Time feels thick, viscous. You blink, and a new bud swells on the moonpetal vine.
+
+Light bleeds from the living things. The moonpetals pulse faintly, syncing to no rhythm you recognize. Where steam catches the glow, it becomes a veil of liquid pearl. Shadows do not lie flat. They pool in the stone joints like spilled ink, then *crawl* sideways when you look away. *Weirdness deepens.* Stare at the central reed pillar too long, and it is no longer reeds—it is a spine of petrified lightning, humming with latent energy. Look again, and it is merely woven stalks. The chamber breathes. The walls expand a hair’s breadth on the inhale of heat, contract on the exhale of cooling stone. This place is not *in* the mountain. It *is* the mountain’s first conscious thought—a geode of intention cracking open.
+
+There are rules here, written in sensation, not stone:  
+- Do not touch the upward-flowing water. Your finger would break the path; the moss would wither by dawn.  
+- Speak softly. Loud sounds cause the hanging reed-chime to shatter into dust (you see the fine powder beneath it—a previous transgression).  
+- The beetle’s circle is a clock. When it completes seven circuits, the steam vent sighs open wider, and a new droplet begins its climb.  
+- This space tolerates witnesses, but not owners. You feel it: a gentle, insistent pressure against your sternum. *You are passing through. Do not linger. Do not take.*
+
+You notice the tools of making tucked into wall niches: a deer-antler trowel crusted with fresh clay, a stone blade sharp enough to shave willow withes, a coil of sinew thread. *Tech 0.9.* Primitive. Human. Yet the effect transcends craft. This is not a shelter. It is a ritual of reciprocity. A people with stone knives and woven baskets have listened to the mountain’s raw, un-eroded voice (*erosion 0.0*) and built a vessel to hold its first dream. They did not conquer the peak. They midwifed a microcosm into being—a pocket of ordered magic within the chaos of creation.
+
+A final droplet climbs the wall. Reaches the moss. The moonpetal beside it flares once, bright as a captured star, and releases a single note—a clear, cool *ping* that hangs in the steam-thick air. The chamber holds its breath. For one impossible heartbeat, the vertigo of the summit and the intimacy of the room fuse into a single truth: *All elevation is perspective. All creation is collaboration.*
+
+Then the pressure at your sternum firms. The fissure reappears in the wall—not where it was, but where you now *need* it to be. Warm air sighs outward. The mountain is releasing you. You step back into the scree slope, the sun hot on your skin. Behind you, the rock is seamless. But on your palm, where you braced against the chamber wall, clings a single, impossibly cool bead of water… and the faint, lingering scent of blooming moonpetal. The place is gone. The making continues.

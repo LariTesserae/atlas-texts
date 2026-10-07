@@ -1,0 +1,27 @@
+In the Hekla Basin, life does not merely exist; it *vibrates*. To inhabit this place is to be a tuning fork struck by the hammer of the world. The creatures here have not evolved for silence or stillness, for in the Basin, stillness is a precursor to death by freezing or crushing.
+
+### The Litho-Somatic Resonators
+The dominant sentience in the Basin is a species of humanoid post-biologicals known as **The Resonators**. They are tall, gaunt figures whose skin has the matte, non-reflective quality of charcoal. They do not possess ears in the traditional sense; instead, their ribcages are exposed, delicate lattices of bone-like crystal that act as massive tympanic membranes. They "hear" the sub-sonic thrum of the great grey rings with their entire torsos, tilting their bodies toward the humming spires as if basking in a sun that never rises.
+
+They do not speak. To attempt speech in the Basin would be to have the words torn from your throat by the percussive wind. Instead, they communicate through rhythmic striking—using heavy, basalt-capped staves to hit the vitrified ridges. By timing their strikes to coincide with the "valleys" of the gravitational shears, they send signals through the ground that can be felt for miles. They are the gardeners of the violet moss, tending to the vibration-feeding flora with a slow, deliberate grace that contrasts sharply with the chaotic environment.
+
+### The Kinetic Megafauna: The Sunder-Hulks
+Deep within the spray-choked sluices live the **Sunder-Hulks**. These are massive, six-limbed beasts the size of industrial haulers, covered in a shaggy, oil-slicked coat of black needle-fur. Their skeletons are not made of calcium but of a flexible, cartilage-like carbon that allows them to survive the "hammer-blow" waterfalls. 
+
+They spend their lives in the path of the most violent descents. They do not drink the water so much as they absorb the kinetic energy of its impact. A Sunder-Hulk will stand directly beneath a gravitational shear, its massive body absorbing the force of a thousand-foot drop, its fur acting as a turbine to distill oxygen and nutrients from the pulverized mist. When they move, they do so with a terrifying, jerky speed, their suction-tipped claws cracking the basalt as they haul themselves from one impact zone to the next.
+
+### The Lattice-Weavers (Atmospheric Parasites)
+High above the peat-bogs, in the spaces where the freezing fog organizes into geometric shapes, live the **Lattice-Weavers**. They are translucent, kite-like organisms, barely thicker than a sheet of mica. They are almost invisible until the fog crystallizes; then, they anchor themselves to the corners of the floating geometric lattices, feeding on the specialized ions created by the spires of solidified light. 
+
+They are the only creatures that seem to enjoy the wind. They do not fly so much as they ride the vortices, their bodies vibrating at such a high frequency that they emit a faint, ghostly whistling—a soprano counterpoint to the basin’s bass roar. When the lattices shatter, the Weavers fall like shards of glass, only to catch a new updraft inches before hitting the jagged slate.
+
+### The Root-Network (The Deep Purple Hive)
+The "vegetation" is perhaps the most active inhabitant. The **Dark-Purple Moss** is not a plant, but a collective neural network. Each waxy frond is a sensory organ, and the ropy lichen is the cabling. The moss feeds on the sub-sonic frequencies of the grey rings, converting the sound into chemical energy. 
+
+This network acts as the Basin's memory. Because the landscape is in a constant state of "hyper-active transition," the moss serves as a stabilizing force, its deep, multi-layered mattress binding the crumbling basalt together. It is said that if a Resonator stands still for too long, the moss will begin to hum in resonance with their heartbeat, slowly weaving its ropy fibers around their limbs, incorporating their rhythm into the larger song of the Basin.
+
+### The Glint-Striders
+The multi-legged ungulates mentioned in the geography are the **Glint-Striders**. They are the frantic pulse of the basin. Their eyes are oversized and multifaceted, capable of seeing into the infrared to track the heat-signatures of the bioluminescent ribbons in the trenches. They move in "shiver-herds," thousands of them flowing over the ridges like a single, dark liquid. They are the primary prey of the Sunder-Hulks, yet they breed with a speed that matches the Basin’s chaotic pace. Their hooves don't just anchor them; they are shaped like chisels, and a passing herd will leave the basalt ridges etched with complex, accidental runes.
+
+### The Ghosts of the Punctures
+Finally, there are the "Presences" within the light-spires themselves. No one has ever seen them, but the Resonators treat the spires with a terrifyingly precise reverence. When the physics of the Basin warps—when water flows uphill or gravity inverted—it is believed that something *inside* the light is shifting its weight. These are the Architects, or perhaps the Prisoners, of the Basin. They are the source of the roar, the masters of the frequency, and the reason why everything in this cold, dark cradle lives at the speed of a scream.

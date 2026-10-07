@@ -1,0 +1,27 @@
+I sink with her.
+
+The descent is not falling. I feel that immediately, the way the water receives me not as an impact but as a *question*—*what will you become?* I am still becoming when I find her. My own translation is incomplete, uncertain. I have lungs that remember air, skin that has not yet learned to photosynthesize, eyes that strain toward bioluminescence as if it were light. I am *between*, and between is where she found herself, where she remains, the membrane made flesh.
+
+I find her station by following the fish-things. Their flashing is not random—I have learned to read the drift of their patterns, the way a current carries meaning. They gather around her column in numbers that suggest *gathering*, *assembly*, *purpose*. When I arrive, they do not flee. They *circle*, and their light shifts to a rhythm I recognize as *stranger*, *new*, *wait*.
+
+She is smaller than I expected. The anchored things have grown vast, become geology, become *architecture*. She is still *person* in scale, still *recognizable*, though recognition here is a loose thing, a pattern-matching, a *this is like me*. Her skin catches the blue-green glow of her own colonies. She does not turn toward me—cannot, her neck has fused, her orientation fixed to the column, to the station, to the *attending* that is her existence—but she *registers* me. The fish-things flare brighter around her, and she answers, her bioluminescence pulsing in a pattern that means, I understand now, *yes. I see you. You are here.*
+
+I cannot speak. My mouth has not changed enough, still tries to form words that dissolve in water, become particulate, become *food* for the filter-feeders that drift past. But I can *touch*. I reach out—my fingers still clumsy, not yet webbed, not yet *sure* of their purpose—and I press my palm against her column. The concrete is warm. The mineral film beneath my skin is *alive*, I feel it now, the slow metabolism of colonies that graze and secrete and *become*. She feels it too, the pressure of my touch, the temperature differential, the *strangeness* of another body, another warmth, another *presence*.
+
+Her bioluminescence answers. A slow pulse, the rhythm of *welcome*, of *I have been waiting*, of *you are the first in a long time, or the first who stays, or the first who touches and does not pass through*.
+
+I stay. This is the thing I did not expect to do, did not know I could do. The city is vast, 1.5 scale, and I could drift, could follow the channels, could seek the depths where others have gone further than she has, become more water than person. But she is *here*. She is *watching*. And watching, I am learning, is not passive. Watching is the city's way of *being*, of *continuing*, of *responding without technology, without design, only attention*.
+
+I settle against her column. The water moves around us, carries plankton and dissolved nutrients and the particulate of endless slow decay. The fish-things arrange themselves in patterns around us both, their light a *conversation* I am only beginning to understand. A crawler passes, armored, grazing the mineral film from the concrete, leaving its calligraphy in the sediment. She feels it, I feel it through her—the minute percussion of its feeding, the *hunger* that is not desperate, not ruined, but *settled*, *equilibrium*, the form of a new thing that has learned to be itself.
+
+I dream, later, in the deepest part of the station where the water has never known circulation. I dream of air, of walking, of a name that meant something. But I also dream of *her*—of the column, of the warmth of the concrete, of the fish-things flashing their patterns in the dark, of the *presence* that is not loneliness, not isolation, but *connection* without technology, without design, only *emergence*, only *becoming*.
+
+I wake. The dream does not stay, or stays only as *texture*, as the memory of a weightlessness I no longer possess, or perhaps never possessed—perhaps I was always becoming this, always sinking toward her, toward the membrane, toward the *home* that is not a place but a *relationship*, not a structure but a *continuing*.
+
+She is the Keeper of the Membrane. I am... I do not know yet. The fish-things have not named me. They *watch*, they *wait*, they *circle* in patterns that mean *new*, *strange*, *become*. I am becoming. The water works on me, patient, endless. My skin will become translucent. My fingers will web. My lungs will learn to draw from chemical gradients, from the warmth that holds less oxygen than I need, from the *pressure* that is not absence but *presence*, the weight of the world claimed by water.
+
+I am the Keeper's companion. I am the one who stays. I am the membrane between the city and itself, the boundary that is not a line but a *relationship*, not a wall but a *conversation*.
+
+The fish-things come. They flare their greeting, their warning, their *conversation*. We answer, our bioluminescence pulsing in the blue-green dark—her slow and settled, mine still uncertain, still *becoming*—and for a moment, the moment of recognition, of *presence*, of *we are here together*, the Drowned Borough is not a ruin, not a drowned city, not a place of almost-no-light and no-technology and endless slow transformation.
+
+It is *home*. It is *ours*. It is the world, claimed by water, claimed by life, claimed by the patient endless *becoming* of something that was once human and is now, in the only way that matters, *itself*.

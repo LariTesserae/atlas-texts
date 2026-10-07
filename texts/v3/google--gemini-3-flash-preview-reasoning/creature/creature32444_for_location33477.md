@@ -1,0 +1,25 @@
+To inhabit the Roof of the World is to be an accessory to a rhythm. Nothing here exists in isolation; every living thing is a gear, a lubricant, or a byproduct of the Great Pistons’ slow-motion industry.
+
+### The Great Pistons: The Living Cathedrals
+At the center of all life are the **Pistons** themselves. They are not merely animals; they are localized climates of grinding brass and throbbing heat. Their "skin" is a composite of biological brass—a high-density, copper-enriched chitin that oxidizes into a protective verdigris patina. Between the shifting plates of their carapaces, one can see the **Amniotic Lubricant**: thick, bioluminescent oils that serve as both blood and hydraulic fluid. 
+
+These titans do not possess brains in the traditional sense. Instead, their intelligence is distributed across a **Neural Lattice** of silver filaments that spider-web through their internal gears. They do not think; they calculate the tension of the earth, the pressure of the sun, and the exact caloric value of the minerals they crush. When two Pistons pass within a dozen miles of each other, they communicate not with sound, but through **Seismic Canticles**—low-frequency vibrations sent through the vitrified sand that can shatter glass but sound like a deep, humming lullaby to those who live upon their flanks.
+
+### The Commensal Clockwork
+Living within the crevices and vents of the Great Pistons are the **Valve-Tenders**. These are the parasites and symbionts of the plateau. Imagine creatures shaped like bellows, with translucent, accordion-like bodies made of heat-resistant silica-film. They cling to the venting chimneys of the Pistons, inhaling the shimmering, non-toxic exhaust. They act as living filters, scrubbing the Piston’s internal systems of mineral grit. In exchange, they are kept warm by the Piston’s radiant core, their translucent bodies glowing a dull cherry-red in the desert nights.
+
+Along the grinding joints of the primary drive-gears, one finds the **Oil-Sippers**. These are spindly, multi-limbed arthropods with needle-thin proboscises. They drink the excess lubricants that weep from the Piston’s bushings. They move with a terrifying, jittery speed, their movements synchronized to the Piston’s cycle; if they miss a beat, they are crushed instantly into a fine metallic paste.
+
+### The Children of the Fray
+Because physics is "weathered" here, the most elusive inhabitants are the **Echo-Stalkers**. These are entities born from the non-linear time and detaching shadows. They appear as flickering, two-dimensional silhouettes that pace the salt-flats. They have no mass, but they possess a sort of "temporal weight." An Echo-Stalker might be the shadow of a Piston that hasn't arrived yet, or the visual residue of a rock formation that eroded a thousand years ago. 
+
+They are scavengers of causality. They gather in the pockets of distorted geometry where the light bends into impossible angles, feeding on the "static" produced when the laws of reality rub against one another. To look at one is to feel a vertigo of the soul, a sense that you are seeing a moment of time that has been folded and tucked away.
+
+### The Scavengers of the Grind: The Mill-Mites
+Beneath the thundering feet of the Pistons, where the rock is pulverized into alkali dust, live the **Mill-Mites**. They are flat, armored discs, no larger than a dinner plate, that skim across the vitrified sand like stones skipped across water. They have no mouths; they absorb nutrients through osmosis from the mineral-rich dust the Pistons leave behind. They are the cleanup crew of the plateau, turning the "waste" of the great machines into a fine, sterile powder that the wind eventually carries to the edges of the world.
+
+### The Silence-Breathers
+Finally, there are the **Static-Kites**. These are perhaps the only things that truly fly in this pressurized sky. They are vast, gossamer membranes, miles long and thinner than a soap bubble, that drift in the upper reaches of the crystallized atmosphere. They are held aloft by the intense thermal updrafts and the ambient static electricity. They have no organs, no limbs, and no motion of their own. They are simply living solar sails, soaking up the white-hot glare of the sun, drifting like ghost-ships above the mechanical roar of the plateau.
+
+### The Cycle of the End
+Nothing truly dies on the Roof of the World; it merely seizes up. When a Great Piston finally exhausts its internal ores, its gears slow and eventually lock. The "corpse" does not rot. It becomes a **Monument-Hive**. The brass skin hardens into a permanent shell, and the internal cavities become a sanctuary for the smaller creatures to breed and wait for the next tectonic shift. Over eons, the wind carves these husks into the aerodynamic fins that dot the landscape—rusting, hollow cathedrals that serve as the only record of a life lived in the service of a relentless, beautiful, and meaningless motion.

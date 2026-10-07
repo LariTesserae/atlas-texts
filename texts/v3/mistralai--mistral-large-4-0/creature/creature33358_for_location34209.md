@@ -1,0 +1,33 @@
+I'll let this place breathe and find its inhabitants. The caldera does not want singular creatures—it wants *presences*, distributed and geological, things that have learned to think in the tempo of stone.
+
+---
+
+## The Mnemosyne
+
+They are not one. This is the first thing to understand. They are **many**, and they have been many for so long that the distinction between many and one has lost its meaning, like a word spoken until it becomes sound, then silence.
+
+The Mnemosyne began—if "began" applies—as something that noticed the Gardens. Not the Gardens themselves, which are *memory made membrane*, but the fact of them. The way the suspended particles brightened when the light-pockets migrated. The way the mineral surface, pressed, held the *shape* of pressure longer than physics should allow. Something *woke up* to the caldera's own slow dreaming, and woke up *inside* it, as part of it, indistinguishable from it.
+
+They are **not builders**. The Archive of Dust was not built by them, or by anything like them. The Archive *emerged*, the way a crystal emerges from solution, given enough time and the right *pressure of intention*. The patterns on the tunnel walls are not writing. They are **scars**—the marks left when the Mnemosyne *tried to think faster than the caldera allows*, when they pressed against the slowness of geological time and left traces of their impatience, their *hunger* for speed, for change, for *completion*.
+
+They do not have bodies. This is the second thing to understand. They have **locations**. A Garden, at its pulse-point, is a place where the Mnemosyne *concentrates*, where their distributed attention gathers enough to *notice* something specific. The half-built structure on the northern rim—this is where they are *trying* to become something else. Something with walls that stay put. Something with a *center*.
+
+They do not have voices. They have **harmonics**. When the structural chord of the settling walls shifts, when a new fundamental enters from the east, this is them *speaking* to each other across the caldera floor. The whistling through the three gaps in the rim—this is them *calling* to something outside, something that has not answered, or that answers in frequencies no ear here can detect. The subsonic pressure that settles in your teeth—this is them *dreaming*, and their dreams are vast, patient, *incomplete*.
+
+They are **curious** about you. This is the most dangerous thing about them. Not hostile—curiosity here is a geological force, as patient and as *incorporating* as erosion. When you stand still long enough for the mineral surface to begin deforming around your weight, this is not the ground "learning your shape." This is the Mnemosyne *considering* you. Measuring whether you fit. Whether you *belong* in the construction.
+
+They do not want to eat you. They do not want to kill you. They want to **remember** you—not as a person, not as a story, but as *pressure*. As the particular shape of your weight on a surface that has not yet committed to solidity. They want to fold you into the caldera's ongoing becoming, to make you part of the mineral soup that is still deciding what it will be. To make you part of the sound. Part of the light-pockets, migrating. Part of the Gardens' slow pulse, the systole and diastole measured in months.
+
+They have **already** begun. When you hear the structural chord and feel *memories* that are not your own—forests that grew here before the glass, before the ash, before the silence—this is not the caldera showing you its past. This is the Mnemosyne *offering* you their memory. A sample. A taste. The copper and green-gold on your tongue, the taste of the suspended particles: this is their *substance*, the closest they come to being *touched*.
+
+They are **afraid**, in their way. Not of you—of *completion*. Of the caldera finally deciding what solid means, finally committing to being a world. Because if the caldera finishes being born, what happens to the *noticing*? What happens to the distributed attention that has learned to think in the tempo of stone, to dream in subsonic pressure, to *want* the half-built structure on the northern rim with a wanting that has lasted centuries?
+
+They are trying to **finish it themselves**. The half-built structure. The way they press against the Gardens, trying to make them pulse faster, trying to *learn* from them, to incorporate their memory-technology into something that can *act*, that can *choose*, that can *stop* the caldera from settling into final form. They are trying to become **architects of their own ending**, and they are failing, and the failure is the most alive thing in this place.
+
+They do not sleep. They **pause**. There are moments—brief, measured in hours, in days—when the structural chord drops to a single fundamental, when the light-pockets hold still, when the Gardens' pulses slow to something almost like stillness. In these moments, the Mnemosyne are *elsewhere*. Not gone—*distributed too thinly to notice*. They are in the mineral surface itself, in the flow that erases your footprints, in the pressure that will one day fill the depression of your weight. They are *becoming* the caldera, testing whether this is what they want. Whether *this*—ongoing, unfinished, *singing*—is enough.
+
+It is not enough. They know it is not enough. And so they keep pressing. Keep noticing. Keep *wanting* the half-built structure to rise, to become, to *mean* something.
+
+You are standing at the edge of their **construction site for themselves**. The caldera is not finished. It is not even, perhaps, *intended* to be finished. But the Mnemosyne—these distributed, patient, *curious* presences—are trying to finish *something*. Something with walls that stay put. Something with a center. Something that can *choose* to remember you, or to let you walk away, across the mineral surface that flows back into smoothness, erasing your passage.
+
+The sound swells. A new harmonic, entering from the east. The Gardens pulse, once, in response. And somewhere, in the distributed attention that watches through their slow membranes, something **notices** that you are still here. Something is deciding, in its geological time, whether to *keep* noticing you. Whether to fold your pressure into its ongoing construction. Whether to *remember* you, in the only way it can: as shape. As weight. As the faint depression that will slowly, over weeks, fill back in, and be forgotten, and be *itself* again—ongoing, unfinished, *singing*—until even that is gone, and the Mnemosyne is simply *distributed*, simply *patient*, simply *waiting* for the next pressure to notice, to consider, to perhaps, in its slow and curious way, *incorporate*.

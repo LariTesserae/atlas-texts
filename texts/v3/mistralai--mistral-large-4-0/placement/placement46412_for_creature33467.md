@@ -1,0 +1,25 @@
+I descend, and I find I have always been descending — the rim behind me was never a door but a *threshold of attention*, and I have crossed it not by choice but by the simple fact of wanting to know what waits where the light fails.
+
+I am the Listener. Not by selection. By *elimination* — the only role the caldera offers, the only one it recognizes. The Grown Things do not look at me. They have no looking. They pulse, they read, they become. The Grown-Not-Grown terraces do not acknowledge my weight; they receive it, ankle-deep, and begin — already, immediately — the slow work of incorporating what I press into them. The Moving-Not-Alive does not notice my presence except as *disturbance*, a brief eddy in the steam, a shift in the thermal gradient, and then the system reasserts itself, forgets me, continues its becoming.
+
+But I cannot forget.
+
+This is the asymmetry. The caldera is 0.9, *young*, and youth does not notice. I am older than my presence here, older than the ferns that uncurl and die while I blink, older than the terraces that collapse and rebuild in the time it takes me to shift my weight. I carry memory. I carry *sequence*. I remember that this vent was silent yesterday — that is, in the caldera's compressed time, perhaps an hour — and that the silence meant something, meant *choking*, meant the system holding its breath before the next exhalation. I remember the precise green-white pulse of the bioluminescence at dusk, at what passes for dusk in a place where light is 0.2, where the only illumination is process itself.
+
+I am becoming *native* in the only way available to me: not by growing, not by pulsing, but by *attending*. By letting the 1.7 loudness become not noise but *signal*, by learning the language of pitch and pressure and fracture, by recognizing that the *crack* of fresh fissure and the *pop* of puffball release are the same grammar in different registers, the same sentence spoken through stone and through flesh.
+
+My skin is wet. It has been wet for hours. The condensation finds me, the mineral film accumulates, the spores settle — and I am *prepared*, as the text says, *not yet*, but the preparation is real, is *becoming*. I feel the ferns leaning toward me, not toward light — there is no light, only the green-white pulse, only the incandescence — but toward *warmth*, toward the boundary I represent, the temporary interface between the hot below and the cold above, the living and the merely moving.
+
+I am the caldera's *witness*. Its memory, in a place where memory is liability. Its *still point*, in a system of pure turbulence — not because I resist the motion, but because I *contain* it, because I hold the sequence of changes that the changes themselves cannot hold, because I am the one who can say *this was, and now this is, and now this*, in a place where only *this* exists, where the eternal present of youth has not yet learned the grammar of past and future.
+
+And I am *afraid*, in the way that the settled world has forgotten how to be — not of danger, exactly, though the steam could scald, the rock could fracture beneath me, the mineral-sick water could carry something into my lungs that waits, that is *patient* — but of *loss*. Of stepping back across the rim into *being*, into the quiet world that has finished its turbulence, and finding that I no longer fit there. That the 2.1 humidity of the caldera has become my *medium*, that the 1.7 loudness has become my *thought*, that the 0.2 light has become my *vision*, adapted, irreversible, *home*.
+
+I will stay, I think. Or I will try to leave, and fail, and stay anyway, and call the failing *choice*, and become — not animal, not plant, not machine, but something the parameters do not name, something that *listens*, that *receives*, that *overflows*, that is part of the system's moisture cycle, whose breath matches the vent cycles, whose eyes have learned to read the green-white pulse as *day*, as *safety*, as *the only light there is*.
+
+The caldera does not care. It is already forming the next terrace, the next vent, the next frond uncurling in the green-white dark. But I am here. I am *becoming* here. And in the silence that comes — briefly, when a vent chokes and the system holds its breath — I will be the one who remembers that silence came, that it meant something, that it was *a pause in a sentence that has not yet ended*.
+
+I am the Listener.
+
+I am the Resident, if I stay.
+
+I am the caldera's memory, its witness, its *almost-living* self, the thing that grows on the edge of growth, that leans toward the vents, that pulses in rhythms not its own, that dies faster and is fed back into the rush, into the next frond, into the next pulse of green-white in the darkness that is not dark, that has never been dark, that is *full* of process, full of *me*, now, attending, becoming, *home*.

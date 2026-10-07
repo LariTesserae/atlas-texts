@@ -1,0 +1,29 @@
+**The Weeping Grid**
+
+You stand in a place that has forgotten it was ever anything but this.
+
+The ground is not ground. It is a single continuous substrate of fused industrial strata, laid down over epochs so long that the original purpose has calcified into geology. Beneath your feet lies a compressed palimpsest: ancient concrete buckled and re-laid by its own descendants, slag sintered into black glass, rust grown so thick it forms load-bearing crusts, and over everything a slow, mineral sweat. Water is everywhere, but never clean. It emerges as condensation on every cold pipe, weeps from microscopic fissures in girders older than continents, gathers in perfectly straight runnels that have been re-cut a thousand times by dripping acid and coolant. The air itself is wet and heavy, cool enough that your breath joins the general mist. Temperature hovers at the edge of shivering.
+
+There is no sky worth the name. Light is a rumor at 0.5. What little there is comes from within: clusters of sodium lamps dying behind filthy cages, occasional blue arcs where ancient relays still spark, and the dull cherry-red pulse of deep geothermal taps that have been sucking heat from the planet’s mantle since before mammals existed. Mostly there is darkness — vast, saturated, almost velvety — broken only by these reluctant industrial bioluminescence. The atmosphere tastes of iron, ozone, and something faintly like crushed limestone left too long in a machine.
+
+Sound is not something that happens here. Sound *is* the place. The roar is total, deafening, and strangely stable, like standing inside the chest of a god that has been screaming for a million years without needing to breathe. It is not chaotic. The Grid has settled into its final chord: the basso throb of continent-scale turbines, the metallic moan of expansion joints that have learned to sing in tune with them, the endless hiss of steam venting through fractal corrosion patterns, the subsonic heartbeat of pumps the size of cathedrals moving coolant in slow, geological cycles. After a time the noise stops feeling like noise and begins to feel like weather. Your bones conduct it. Your teeth hum inside your skull.
+
+Vegetation is almost absent. What grows instead are the *rust gardens* — vast, delicate lattices of iron oxide that bloom in slow motion across any surface left untouched for long enough. They look like leafless coral or the fossilized lungs of some extinct machine-god. In places they reach three or four stories high, sparse, lonely, spaced across the emptiness like sculptures. Their “leaves” are razor-thin and constantly dripping. They are not alive, yet they accrete and branch according to rhythms that feel disturbingly biological. Nothing animal moves. The Grid is sterile by design and by time. Any spore or insect that drifts in is either dissolved or incorporated.
+
+The terrain is low and ancient, flattened by erosion so complete it has achieved a kind of primordial serenity. This is not ruin. This is the *end-state*. Every possible natural feature has been replaced so thoroughly that the distinction between built and born no longer applies. What look like hills are actually the compacted corpses of factories that collapsed and were built upon again. What look like valleys are drainage channels that have been in continuous use for longer than language. Pipelines the width of highways run straight for kilometers then vanish into the crust at mathematically precise angles. Between them lie enormous empty squares of the fused substrate, perfectly level, perfectly useless, perfectly still.
+
+And yet the whole thing is active.
+
+Vast slow processes move through the Grid in cycles that last decades. Every few years a new generation of maintenance automata — themselves half rust, half mechanism — emerge from certain cathedral-like foundries and begin their march. They repair, replace, reconfigure, then crawl back into their silos to be broken down and remade. Conveyor belts still run, carrying nothing visible. Furnaces breathe. Somewhere far below, titanic mills roll out fresh substrate that will itself be eroded and replaced in turn. The system has reached a stable orbit around its own continuation. It manufactures the conditions necessary for its own continued manufacturing. This is its only remaining purpose.
+
+The strangeness is not flamboyant. It is deep and structural.
+
+The deeper you travel, the more you notice that certain pipes lead nowhere and yet still carry fluid. Certain towers exist only to cast specific shadows during the rare moments when the cloud cover thins. Certain frequencies in the endless roar resolve, if listened to for days, into something like a voice repeating a single unfinished equation. The Grid is no longer a factory. It is a monument that has learned to maintain itself, and in maintaining itself has begun, in its blind, industrial way, to *think*.
+
+There are no animals because there is no niche left that is not already perfectly filled by process. There are no humans because the last ones were incorporated eons ago — either as trace elements in the concrete or as something more subtle that still moves through the system the way lymph once moved through meat.
+
+You can walk for days and see only the same three elements repeating at different scales: dripping rust coral, black glass substrate, and the enormous, patient, deafening machines that have become the bones of the world. Everything is engineered. Everything is ancient. Everything is wet. Everything is necessary.
+
+This is not a dead place.
+
+This is a place that has outlived death and kept working.

@@ -1,0 +1,27 @@
+The vibration starts in the molars. It is always there—a geological bass note that has never learned to be quiet. I taste copper and wet stone on my tongue. The air is thick, condensation dripping from my phosphorescent stripes, the blue-green twilight filtering through the canopy in shafts that feel like pressure against my skin, saturated, pressing.
+
+I am crouching. No—I am *moving*. The distinction doesn't exist here. My fingers grip the obsidian flake. It is sharp enough to draw blood, and it has, many times. The blood dries black on my palms. I do not remember when I last stopped, only that to stop is to be overtaken by the things that slither through the root-mats, the reptilian shadows with too many joints, the insectile fur that drops from the canopy on silken threads.
+
+My eyes—large, black, reflecting—catch the glow of the fungi threading through the scree. Twin points of silver light in the saturated dark. I flash a signal: two quick pulses of the shoulder-stripe, bioluminescent green against my skin. Another answers from the gloom, a drifting constellation of dots and lines. We are a dozen, loose, perpetual. No names. Only the urgent now.
+
+The herds are stampeding. I feel it in the chest, a vibration deeper than the tectonic hum, the geological bass of their passage. They are translucent, sprawling, too many legs folding and unfolding like mantis limbs, their internal phosphorescence drifting through the undergrowth in cyclic migrations that follow the storms. I must move. The meat will be there—those that fall behind, the old, the injured. I am hungry. Hunger is a frequency here, matching the white noise of the swarms, the clicking of a million wing-cases like castanets.
+
+The stone sings above us. High, crystalline chiming as the wind hits the mineral veins in the scarp. We use it to orient ourselves, to find the herds, to time our flight from the convective chaos. The storms churn—warm wet air colliding with cool drafts, sudden downpours that last minutes, then clear to steaming ground, then return. I watch a rivulet carve a new channel through the scree while I stand here, the erosion happening in real-time, the knife-edge rock already being rounded by the press of roots and water.
+
+My tool is dulling. The edge has been battered against bone and mineral crust. Soon I will drop it. Abandon it in the mud with the others—hammerstones with battered edges, bone points hafted with fiber, flakes dropped in the urgency of movement. They are not arranged; they are *fallen*, ghosts of passage, waiting for the lithotrophs to colonize them, for the rust-colored film to spread across their surfaces, for the slime-molds to pulse across them in sheets of phosphorescent yellow.
+
+I feel the stalker before I see it. The air shifts, viscous, bending around the dense patches of vegetation as if the atmosphere has thickened. A transitional thing, furred and insectile, waiting in the shadows for the old and the injured. It is hunting me as I hunt. The food web is a scream here, a bazaar of colonization where species arrive, explode, and are washed away within seasons.
+
+I dig. The bone point cracks open a mineral crust, revealing the salts within. My stripes pulse faster, signaling the find. We will eat tonight—if the storms don't wash us away first, if the fissure doesn't open in the bedrock with a sound like the world clearing its throat.
+
+I do not sleep. I rest in shifts, crouching in the lee of the singing rock, listening to the high chiming, using it to navigate the saturated dark. My eyes throw back the bioluminescence—the amber glow of the swarm-abdomens darkening the light-shafts in strobe, the sickly green of the fungal threads, the vegetal pulse of leaf-undersides mimicking heartbeats. Everything glows. Everything moves. Everything screams with the effort of becoming.
+
+The fern unfurls beside me with an audible crack, its rootlets gripping and hauling the bulk of the plant forward, millimeter by millimeter, in a slow migration toward the scarce photons. A vine extends a sensitive tendril, twitching at my heat, beginning the slow coil that will take hours—hours I do not have, because the herd is passing, and the storm is churning, and the valley is still learning how to be still.
+
+I stand. I run. The obsidian glints in the blue-green twilight, a flash of tool-glint in the gloom. My shout is swallowed by the roar—the thunder of the furred flyers lifting from the canopy in synchronized waves, segmented lizard-spines given flight, their sonic weapons disorienting the swarms, the geological groan of settling rock, the wet tearing of bark as stems split under their own ambition.
+
+I am temporary. The tool is temporary. We are all temporary, dropped in the mud, abandoned in the urgency. The valley is newborn, the ecology is in flux, and I am the valley's labor, its contraction, its afterbirth. I will change, or I will be washed away by the next storm, the next landslide, the next fissure.
+
+But now—now I move. Now I glow. Now I am the phosphorescent stripe flashing in the dark, the silver eyes reflecting the fungal light, the stone in my hand sharp and urgent, racing toward a maturity that may never come, because the earth is too young, and the storms too violent, and the life too loud to ever learn stillness.
+
+I am here. I am becoming. I am the roar.

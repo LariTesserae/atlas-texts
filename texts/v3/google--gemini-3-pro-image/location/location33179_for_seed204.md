@@ -1,0 +1,21 @@
+The location is an architectural secret clasped within the high, jagged teeth of a recently birthed mountain range. It is incredibly high up, where the air is thin and bites with a persistent, pervasive cold. The surrounding peaks are not worn down by time; they are violently sharp, a chaotic assembly of obsidian splinters and basalt knives pushed up from the crust only recently in geological terms. There is no soil here, and absolutely no plant life. It is a stark binary of black rock and grey sky.
+
+Yet, nestled deep within a massive vertical fracture in the highest peak—a cleft so narrow it is invisible from the surrounding mountains—lies a hidden city.
+
+It is a pocket metropolis, an urban environment scaled down to fit entirely within a canyon fissure that might be only a few hundred meters across, but kilometers deep. The scale feels intensely intimate despite the vertiginous drops; you are always enclosed by walls, never exposed to the open horizon.
+
+The dominant sensation is wetness. The altitude is such that clouds do not float above this place; they drift *through* it. A perpetual, chilling mist saturates the canyon. Every surface—both the raw, fractured rock of the cliff face and the sleek materials of the built structure—is coated in a slick film of cold water. It doesn't rain in drops; the air itself simply condenses against everything it touches. Water bleeds constantly from the rock faces, weeping in freezing rivulets that pool on architectural ledges before spilling over in silent curtains.
+
+The architecture itself is bafflingly advanced, seamlessly integrated into the vertical geology. Structures do not jut out precariously; they are fused into the stone, following the violent cleavage lines of the canyon. The materials are dark, matte composites that refuse to reflect light, making the city feel like a natural extrusion of the mountain. There are no windows in a traditional sense, only seamless panels that occasionally glow with a faint, internal amber light, suggesting activity within.
+
+Despite the cold stillness of the rock, the place is dynamic. The city is a machine actively managing its hostile environment. You hear it before you see the details: a low-frequency thrum, felt in the teeth as much as heard, vibrating through the damp stone. This is the sound of massive geothermal pumps buried deep in the mountain's root, pulling heat from below to keep the structures just above freezing.
+
+Evidence of this energy exchange is everywhere. Vents strategically placed along the structures release plumes of high-pressure steam. These hot clouds blast into the freezing mist, creating immediate, violent turbulence—swirling vortices of fog that rise rapidly before cooling and collapsing back into dampness. The entire canyon is a churning cycle of steam rising and cold vapor descending.
+
+The density is peculiar. The structures themselves are complex and layered, suggesting a significant population or automated capacity hidden behind the walls, yet the spaces between them are vast drops of empty, wet air. Bridging structures are rare; travel seems to be internal or vertical.
+
+The light is diffused and even. The sun never truly pierces the canyon floor directly; it is filtered through layers of high-altitude cloud and the constant steam exhaust, creating a flat, grey illumination that reveals every wet texture with clinical clarity.
+
+Life is almost entirely absent. There is no moss on the wet rocks, no lichen clinging to the cold metal. The environment is sterile. However, very rarely, a small, specialized creature might be glimpsed. It looks like a segmented slate fragment, a lithoid scavenger no bigger than a hand, that moves slowly across the sheer, wet rock faces on hundreds of microscopic gripping legs, feeding on mineral leachates brought to the surface by the constant water flow. It moves silently, blending perfectly with the stone, the only organic speck in a world of cold mineral and heat-managing machinery.
+
+The silence is heavy, broken only by the hiss of escaping steam, the constant, rhythm-less drip of water falling from great heights onto metal and stone, and that deep, underlying geological hum of the city's power source. It is a hidden place of high technology and raw, cold nature locked in a damp embrace.

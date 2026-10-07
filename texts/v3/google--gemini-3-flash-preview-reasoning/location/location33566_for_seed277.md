@@ -1,0 +1,20 @@
+The horizon here does not exist; there is only the transition from the black of the ground to the slightly different black of the sky. This is a high-altitude shelf, a continental expanse of basalt and oxidized iron situated so far above the lowlands that the air is thin, yet it remains inexplicably, claustrophobically warm. The heat is not radiant like the sun, but conductive—a deep, thrumming warmth that rises through the soles of the feet, smelling of heated oil and ancient, resting metal.
+
+The scale is difficult to comprehend because there are no landmarks of a human size. The landscape is dominated by the "Great Trawlers"—industrial entities the size of mountain ranges that move with such agonizing slowness that they appear to be part of the geology. They are not buildings; they have no doors, no windows, no interior spaces for dwellers. They are solid, vibrating masses of gears, pistons, and venting grates, weathered by eons into the shape of slumped iron cathedrals. They move on tracks worn miles deep into the bedrock, grinding stone into a fine, dark flour that blankets the valleys.
+
+Water exists here only as a byproduct of the Trawlers’ respiration. As these colossal machines chug and hiss in the dark, they exhale plumes of scalding steam that rise, cool in the upper atmosphere, and descend as a fine, greasy mist. This moisture collects in the rust-pitted hollows of the machines’ flanks, forming small, hanging wetlands of oily moss and black succulents. In the spaces between the Trawlers, the land is a desert of iron-dust, but beneath the overhangs of their massive skirts, the ground is perpetually damp, slick with a cocktail of condensation and lubricants.
+
+The vegetation is stubborn and sparse. It does not grow toward a sun it has never seen. Instead, it clings to the heat-vents of the machines. Long, translucent filaments, like fiber-optic cables, trail from the Trawlers’ underbellies, soaking up the heat and the rhythmic vibrations. There are no forests, only clusters of these pulsing, tubular weeds that glow with a faint, sickly infrared warmth.
+
+Despite the desolation, the darkness is crowded. The fauna is abundant, having adapted to a world of sound and heat-signatures. There are "Gear-Strider" packs—spindly, multi-legged scavengers that pick the teeth of the great rotating cogs for organic buildup. Massive, blind moths with wingspans like sails drift on the thermal updrafts created by the Trawlers, their bodies covered in a velvet that absorbs sound. In the deep furrows of the tracks, armored lizards with tongues sensitive to magnetism wait for the vibration of approaching prey.
+
+The world is strangely quiet. The machines do not roar; they hum at a frequency that is felt in the chest more than heard in the ears. The sound of a falling rock is swallowed by the vast emptiness. When the Trawlers occasionally vent pressure, it is a long, low sigh that lasts for hours, sounding like a distant ocean. 
+
+There is an established, weary balance to this place. The erosion is complete; the sharp peaks of the metal have been rounded by eons of grit-laden wind. The machines are not breaking down—they are being slowly reclaimed by the minerals they once processed. They are in a state of perpetual, automated maintenance, self-repairing with a logic that has long outlived its creators. 
+
+Rules of the world:
+1.  **Light is a predator’s tool:** To strike a light is to announce a feast to every heat-seeking hunter for ten miles.
+2.  **The Machine is the Mother:** All life gathers where the iron is warmest. To wander into the cold "dead zones" between the tracks is to wither and freeze.
+3.  **Time is measured in Revolutions:** Not of a planet, but of the primary drive-gears of the Trawlers. A "season" is the time it takes for a machine to traverse one hundred miles of track.
+
+It is a world of industrial ghosts, where the ecology has woven itself into the iron, and the darkness is a warm, breathing weight that never lifts.

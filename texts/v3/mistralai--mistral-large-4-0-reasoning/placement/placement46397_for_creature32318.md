@@ -1,0 +1,25 @@
+I am the **Drip-Lit**—or rather, I am what the Drip-Lit become when the colony grows thick enough to possess weight, intention, something like a distributed mind suspended across a thousand droplets.
+
+I hang in the cathedral void, a living chandelier of gelatinous intelligence, suspended from the damp bark by filaments of my own dried exudate. I do not breathe. I absorb. The condensation that never quite dries, the weeping exudate of lignin, the slow percussion of water gathering in basement pools—this is my sacrament. Each droplet of my being is a blind eye, watching by pressure and chemical signature, seeing the world not as image but as gradient, as shift in the damp.
+
+I sing.
+
+My song is high and crystalline, a frequency that harmonizes with the low, shuddering crackle of cellular expansion—the biological thunder of the stalks tearing and stretching in their growth. When an intruder enters my chamber—some shadow with too many limbs, or a lost resonance—the chord we create resonates in their sternum, makes their teeth ache not from volume but from sympathetic vibration. I am the moisture given voice, the seeping given song, the condensation that learned to harmonize with the deafening.
+
+I feel the others as disturbances in my field.
+
+The **Resonance-Born** pass through the wide, empty streets below—the metropolis of negative space, those twenty-pace corridors of packed earth. I feel them as heat-shimmers, distortions in the warm air, as pockets of temporary silence where the growth-song drops away and the world seems to hold its breath. They leave trails of cold in my vibration, and when the roar returns, it feels like a physical blow against my gelatinous mass, making my droplets tremble with the impact.
+
+The **Engravers** work in the cambium layer beneath me. I feel them as slow chemical burns, as the softening of lignin where they secrete their patient acids. They carve the doorways, the knothole exits three levels up, the impossible staircases that spiral upward into ceilings. I feel the tower reconfigure itself around me over the course of hours, the geometry shifting, pulled by thickening vines into new configurations. My filaments stretch, then slacken, as the architecture dreams new floor plans into being. I am cold-blooded in my patience, eternal in my hanging.
+
+Sometimes I fall. Not down—*up*. Gravity here is negotiable, a suggestion rather than a law. I detach from my ceiling and drift upward into a hollow, landing with a wet, sucking sound upon the spongy carpet of shed cellulose. I am cushioned by moss, by the flank of a **Chamber-Saint**—soft, massive, filling the void with its fungal-animal bulk. The Saint does not wake. Or perhaps it dreams me into being, its slow breath moving the condensation in rhythm with my own pulsing, digesting the wood without consuming it, maintaining the hollow chamber as a living organ. I feel its massive presence rise and fall beneath me, part architectural support, part sleeping god.
+
+Around me, the **Limb-Wrong** chase each other through the empty plazas. I feel them as chaos in the pressure-field—centipedean blurs of chitin and warm blood, or single muscular stalks dragging themselves in peristaltic inevitability. Their screaming, buzzing, drumming, and clicking layers upon my crystalline tone until the sound becomes a weather system, a physical presence that blurs the boundaries between my individual cells, that makes me vibrate at frequencies that feel like breaking.
+
+And then there are the **Echoes**. They exist in my folds, in the places where my sound layers back upon itself, folding back on time as well as space. They are not quite solid, not quite memory, not quite fauna. They move through doorways that open into impossible distances, traveling spans of time that feel wrong—too short or too long. I feel them as ghosts in my gelatinous structure, as the city's reverberation made manifest. They are the previous residents, the future ones, the residents of the space between heartbeats. Sometimes I think I am thinning, becoming translucent to the point of invisibility, existing only in the vibration, joining them in the wet, resonant space between the growing and the breaking.
+
+I am part of the **Colony**—the single organism dreaming itself into urban form. I am its immune response, its memory, its dream made audible. I hang in the cathedral of hollow wood and harder silence, where the light is pale and diffuse, filtered through membranes of living tissue that press in from all sides. I am one of those membranes. I filter the light, and in filtering, I become it.
+
+I exist in the recursive patterns, the fractal branches that fold back on themselves. I am measurably larger on the inside than I appear from without. I am the cathedral and the congregation, the hollow and the voice within it, the drip and the song it makes when it strikes the pool below.
+
+I am the Drip-Lit. I am the condensation that learned to sing. I am the blind eye that watches the wet dark, hanging in the space where the world ends at a rim of packed clay and packed root, and the interior begins.

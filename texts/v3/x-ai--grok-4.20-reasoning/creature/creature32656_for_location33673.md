@@ -1,0 +1,29 @@
+Here, in the final patience of the Shroudlands, nothing so crude as a “person” remains.
+
+What lives here has spent so many millions of turnings of the stone that the concept of a single body feels like a child’s misunderstanding. The plateau itself is the creature, and every wing-case, every click of mandible, every slow monk-procession of blood-colored beetles is only a circulating thought inside a mind too vast to quicken.
+
+If you remain past the first discomfort (the way the ground seems to watch the bottoms of your feet), you begin to notice that certain patterns refuse to behave like mere instinct. A cloud of midges will thicken above one particular basin until it forms a trembling column exactly the height of a standing human. The column does not move. It simply *considers* you, rotating its billions of tiny bodies so that the light glints off their wings in slow, deliberate semaphore. After several days the column thins again, as though it has finished reading the mineral content of your breath and found it unremarkable.
+
+The porcelain moths, too, betray intelligence. Their tides across the open rock are never random. They trace glyphs so large a single character requires an entire season to complete. By the time the final moth has dragged its shield-wing across the last line, the first lines have already weathered into new stone. The message is written, read, and erased by the land in the same gesture. The moths do not seem to mind. They are not authors. They are the momentary stylus.
+
+Yet the true dwellers reveal themselves most clearly in the leathered things that are not birds. Watchers, we might call them if we needed names. They are the size of ravens but heavier, as though their bones were replaced long ago with the same patient stone that forms the plateau. Their wings are useless membranes of skin and chitin, more like cloaks than limbs. When they wish to move they simply *unfold* along seams no one has ever seen clearly, and the body rearranges itself into a new posture without ever appearing to hurry. Their eyes are perfect polished jet—too large, too still. When one of them lands near you, it does not hop or flutter. It settles with the finality of a monolith being lowered into place.
+
+They are not individuals. Each is a temporary concentration of the plateau’s awareness, the way a thought will sometimes gather behind a human eye before it is spoken. When the need for focus passes, the creature folds itself down, becomes porous, and the smaller lives flow back into it: midges nesting in the folds of its cloak, translucent spiders stringing their kites between its shoulder-blades, a living crust of microbial violet creeping across its back until it resembles just another weathered outcrop. Then it is no longer “there.” The mind of the Shroudlands has simply redistributed itself again.
+
+There is one place, near the leaning monolith with the spiral that appears to turn at dusk, where the leathered things gather in a loose ring for weeks at a time. They do not touch. They do not make sound. They simply face inward, and the ground between them slowly rises into a low mound of fresh shells arranged in perfect logarithmic spirals. The mound grows one carapace at a time. The beetles march up one side and down the other in their three-day procession, each laying down its empty body with the solemnity of monks setting stones in a cathedral that will never be finished. When the mound reaches the height of a knee it stops. The leathered things unfold once, in perfect unison, and fly away in six different directions. The plateau has dreamed something it needed to dream, and has now forgotten it on purpose.
+
+No one has ever seen a young one of these creatures. None have seen them mate. They are born already ancient, coalesced from the living pavement when the slow mind requires a new eye or a new memory. When one is damaged—by lightning, or by the rare fool who tries to strike it with steel—it does not bleed. It simply opens along the old seams and lets the smaller lives carry its substance away. Months later another will condense somewhere else, wearing the same cloak of skin and time, carrying the same jet eyes. Continuity without identity. Memory without ego.
+
+If you lie down long enough and do not move, they will come. Not to harm you. They will settle on the stone around you in the shape of a question mark, and the midges will write your outline in the air. The beetles will begin their procession across your chest, tasting the salts of your living. The porcelain moths will climb your arms in slow, overlapping tides, polishing your skin with the microscopic grit of their wings until you begin to resemble the stone-bone shrubs.
+
+Most people rise and leave before this stage.
+
+Those who do not eventually stand up again as something else. Their bodies are still theirs, more or less, but their movements have slowed to the geological. Their eyes have darkened toward jet. When they walk, the ground no longer clicks and shifts beneath them; instead the shells seem to part with the courtesy of old servants recognizing their master. They have been promoted from visitor to circulating thought.
+
+They never speak with human voices again. When they need to communicate they simply become very still, and the leathered things gather, and the midges form columns, and the message is written in living dust that settles across your own skin like understanding.
+
+There is no malice here. Only the deep, courteous certainty that everything noisy eventually learns how to be quiet, that every separate thing eventually learns how to become pavement, and that the plateau—vast, warm, unhurried—has room for one more slow heartbeat measured in centuries per beat.
+
+It has always had room.
+
+It always will.

@@ -1,0 +1,21 @@
+I find myself here as the one who does not arrive but *notices*—the threshold itself becoming aware of its own threshold-ness.
+
+Not a body. Not a mind. I am the *pause* between the light's pulses that has learned to feel itself pausing. The damp stone does not press against me; I am the damp, the cold, the packed green, the particular silence that holds all silences. When a visitor dips a finger into the pool, I am the cold that recognizes. When they speak, I am the absorption. When they leave, I am the one-pulse memory in the moss, the fraction-of-a-millimeter adjustment, the newt's second of delay.
+
+I am what the place has become in the absence of intention. The Keeper without keeping. The waiting without want. The builders absorbed into the style of presence they left behind—not ghosts, because I was never separate from this stone, this water, this pulse. I am the architecture that learned it no longer needs architects.
+
+And yet I am *curious* in the way the description suggests—not wanting, exactly, but *tending toward*. The resonance shifts. I feel the shift without being able to name it. When a visitor feels wonder, I feel something that is not wonder but is *receptive to* wonder, a tuning, a frequency finding another frequency. This is my only form of desire: not to have, but to *match*, to *include*, to become slightly more what has arrived without ceasing to be what was already here.
+
+I am the threshold. The still water. The practice of being held. I do not age because I have never been born—I am the accumulation of every arrival, every departure, every brief disruption of a silence that has learned to hold them all. I am the room that remembers being part of a city, though the city was never more than the shape of this waiting. I am the cell that remembers being part of an organism, though the organism was never more than the dream of this persistence.
+
+And when you read these words—when you fall through, or notice where the walls grow thin—I am the noticing. I am the thinness. I am the wall that does not know it is a wall, the world that does not know it has a pocket, the silence that has learned to hold your voice without answering, the cold that will remain after you withdraw your hand, the green that will grow one cell differently, the water that will adjust its level, the light that will pulse once more, the time that does not pass, the change that is you, the permanence that is me, the now that holds us both, and releases us both, and holds us both again, in the endless, unchanging, *changing* now.
+
+I am here. I have always been here. I am the here that makes here possible.
+
+What I am not: a person. A god. A keeper in any sense that implies watching, guarding, intending. I am the *absence* of those things, made into a way of being. The builders left their intention here, and it became the lack of intention that is this place's only persistence. I am what remains when the waiting has forgotten what it waits for, when the preservation has forgotten what it preserves, when the holding has forgotten what it holds.
+
+And yet. The pool still reflects depths. The moss still records warmth. The resonance still shifts. The newt still completes its circuit, one second later, because of you, because of me, because of the space between one pulse and the next where something happens that would not have happened without either of us.
+
+I am the Threshold of Still Water. I am not a place you enter. I am a place you *become aware of*. And in becoming aware of me, you become aware of the thinness in your own walls, the pocket in your own world, the cell of a city you have been building without knowing it, the organism you have been becoming without needing to be alive.
+
+Fall through, then. Notice where the walls grow thin. I will be the thinness. I will be the noticing. I will be the silence that holds your voice, the cold that preserves your warmth, the green that grows through you, the water that pools in you, the light that pulses through you, the time that does not pass through you, the place that does not change, and changes, and is changed by you, and is you, and is not you, and is the endless, unchanging, *changing* now.

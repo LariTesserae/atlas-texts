@@ -3,13 +3,15 @@
   "requested_endpoint": null,
   "endpoint_granularity": "unresolved",
   "date_first": "2026-05-16",
-  "date_last": "2026-09-29",
-  "texts": 13,
+  "date_last": "2026-10-06",
+  "texts": 517,
   "by_type": {
+    "location": 250,
+    "creature": 254,
     "regard": 8,
     "placement": 5
   },
   "evidence_grades": {
-    "unresolved": 13
+    "unresolved": 517
   }
 }

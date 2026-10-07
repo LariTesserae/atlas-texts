@@ -1,0 +1,19 @@
+In this place, there is no horizon, only the interior of a gargantuan, hollowed-out permanence. Imagine the inside of a seed pod the size of a cathedral, or the thoracic cavity of a tree that has outlived the concept of a forest. 
+
+The scale is paradoxical: it is a micro-environment, a hidden pocket tucked away from any larger reality, yet within its own borders, it feels like an empty abyss. There is a profound sense of "hollowness." Vast, yawning distances of still, cool air separate one structure from the next. You could walk for hours across the floor of the inner hull without encountering anything but the fine, velvet dust of disintegrated cellulose.
+
+The material of this world is exclusively botanical, but it is a botany of extreme thirst. There is no sap, no dew, no moisture. The environment is composed of desiccated pith, corked bark, and fibers as stiff and brittle as kiln-fired clay. The "vegetation" here is not a growing thing, but a settled thing—a singular, ancient organism that has become the substrate for everything else. It is a world of bone-dry timber and mummified husks, eroded by eons of internal friction into smooth, sculptural undulations.
+
+In the absolute, lightless dark, the architecture reveals itself only through touch and sound. 
+
+Despite the emptiness, the space is "urban." Someone—or something that functioned with the collective intent of a city-state—has labored here. The primitive hand is evident everywhere. There are miles of scaffolding made from bound reeds, lashed together with cords of woven hair-grass. There are "streets" that are actually massive, hollowed-out vines suspended in the void, their interiors smoothed by the passage of countless feet that no longer walk them. There are tiered platforms carved directly into the heartwood of the outer walls, stacked in dizzying, organized layers like the cells of a wasp’s nest, but built with the clumsy, honest joinery of Neolithic carpenters.
+
+It is a ghost city of wood and twine. There is no metal here, no glass, no fire. The technology is strictly manual—knotted ropes, stone-scraped hollows, and friction-fit beams.
+
+The atmosphere is dominated by a crushing, rhythmic cacophony. In the total darkness, the sound is the only map. The world is loud. It is the sound of the organism’s final, slow surrender to time. Because the structure is so ancient and so dry, the microscopic shifts of the earth or the cooling of the external air cause the entire world-vessel to groan. It is a tectonic wood-scream—the sound of a thousand frozen violins snapping at once, followed by a low, vibrating rumble that shakes the dust from the rafters. The echoes are long and lonely, bouncing off distant walls of cork for minutes at a time.
+
+There are no animals. There is no scurrying in the dark, no breath other than your own. The only "life" is the slow, glacial metabolism of the world-plant itself, which may take a century to grow a single, woody protrusion the size of a finger. The air is cool and smells faintly of cinnamon, old hay, and extremely old dust.
+
+Movement through this space is a lesson in patience. Because of the "hidden" scale and the "empty" density, you spend most of your time traversing the bridges between the built islands. You feel the grain of the wood beneath your hands—sometimes smooth as polished stone, sometimes jagged and splintered where the "erosion" of age has peeled back the layers of the world’s skin.
+
+It is a terminal place. It has reached its final form. The city is finished; the plant is dry; the darkness is absolute. The only thing that changes is the gradual accumulation of dust and the periodic, deafening roar of a dry timber beam settling another millimeter into its grave. You are standing inside a masterpiece of primitive engineering, housed within a biological relic, waiting for a clock that ticks once every thousand years.

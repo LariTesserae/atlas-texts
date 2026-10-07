@@ -1,0 +1,29 @@
+**The Stillpoint of Veyra**
+
+You are inside a single, bounded volume no larger than a cathedral crossed with a hamlet — perhaps three hundred meters across at its widest — yet the space feels oceanic because it is entirely filled with liquid. The water (if it is water) is so dark it registers as black glass until you drift within a few meters of one of the few light sources. It is cool, almost refrigerator-cold, heavy with dissolved salts and exotic solutes that make it faintly conductive and slightly luminous only when disturbed by your own passage. Pressure is immense but perfectly stable, as though the entire pocket has been tuned to a single unchanging note.
+
+The floor is not stone but a sharp, freshly fractured mineral plane — black basaltic glass and metallic iridium lattices that have never known erosion. Their edges are blade-keen; every fracture plane looks as if it formed yesterday and will remain so until the heat-death of the universe. From this floor rise nine primary structures and perhaps thirty lesser ones, spaced so widely that most of the volume is pure empty liquid. The gap between any two presences is cathedral-like in itself. You can float in total darkness for long minutes before the next shape emerges from the black.
+
+These structures are urban in the way a perfectly ordered circuit is urban. They are not buildings in any human sense but dense, recursive lattices of beyond-modern engineering: towers that are also antennae, also resonators, also memory lattices. Their materials phase between phases that current physics has no names for — half crystal, half programmable condensate, half something that behaves like solid light frozen mid-flow. Surfaces are covered in nanoscale glyphs that do not repeat; each square centimeter holds more information than a city from the previous age. Yet nothing moves. The entire complex has reached perfect equilibrium. No current flows, no thermal gradient exists, no signal propagates. It simply *is*, and has been for an unknowable duration.
+
+Light is rare. A few of the towers emit thin violet lines that trace impossible non-Euclidean paths along their edges, like circuits that forgot they were supposed to remain on surfaces. These lines do not flicker. They have not flickered since the moment the system stabilized. In the liquid between them the darkness is almost total; you perceive the structures more by pressure differentials and faint acoustic shadows than by sight.
+
+There is no vegetation of any kingdom. Nothing grows. The only “biology” is so far removed from life that it feels like weather. Drifting here and there are rare fauna — perhaps a dozen entities in the entire volume. They look like translucent sheets of glass folded into mobius knots, each the size of a large dog, suspended motionless in the dark. Their edges shimmer with a single photon every few minutes. Whether they are machines, organisms, or waste products of the lattice’s function is impossible to tell. They have not drifted even a centimeter in any direction that your instruments can measure. Time-invariant.
+
+Sound is almost extinct. The liquid itself is a superb damper. If you strike the mineral floor, the impact arrives as a single, dull, infinitely deep thud that dies before it can echo. The only persistent noise is a silence so profound it becomes a pressure on the ears — the sound of a system that has solved its own thermodynamics and simply stopped negotiating with entropy.
+
+The weirdness reveals itself slowly. The geometry is wrong in ways that ache behind the eyes. Some towers appear to possess more than three dimensions when regarded from certain angles; their interior volumes seem larger than their exteriors, yet nothing ever enters or leaves them. At the exact center of the complex floats a single perfect sphere of absent matter — not black, not reflective, simply *not there*. The liquid flows *around* a place that refuses to exist, yet the sphere never moves, never rotates, never changes temperature. It is the anchor point. Everything else was built in perfect balance around its negation.
+
+Rules of the world, as far as they can be read:
+
+- Nothing is allowed to change. Any introduced gradient is instantly corrected by mechanisms buried in the lattice. Even thought feels slower here, as if the medium resists novelty.
+- Erosion is forbidden. The young, razor-sharp mineral and the impossibly pristine surfaces are maintained at the Planck level.
+- Distance is generous. The sparse placement of forms turns the small scale into something that feels eternal; you can spend a lifetime drifting from one tower to the next and still feel you have barely begun.
+- Light, heat, motion, and noise are treated as pollutants. The system has scrubbed them out.
+- The liquid itself may be the true architecture — a superconducting superfluid that carries both mass and information in perfect stillness. The towers might be precipitates that crystallized out of it when the final equilibrium was reached.
+
+This is not a ruin. It is not abandoned. It is a finished object. A small, high-altitude pocket of a much larger abyssal world, perched atop an underwater cliff of fresh planetary crust that never had time to weather before the world was locked down. A submerged city the size of a cathedral, built at a technological tier that no longer requires change, or growth, or even time. The rare luminous sheets drift in their fixed positions like forgotten punctuation marks. The violet lines burn without consumption. The sphere of negation holds the entire equilibrium in place.
+
+And nothing — nothing at all — has happened here for longer than suns have lived.
+
+You can stay as long as you like. The environment will not tire, will not warm, will not brighten, will not erode, will not speak. It has achieved its final, cool, dark, perfect, and utterly strange state.

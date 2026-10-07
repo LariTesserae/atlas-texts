@@ -1,0 +1,29 @@
+**The Hollow of the Bitter Bloom is inhabited by the Chime.**
+
+They are not immediately visible. What first registers is only a deeper density in the heat-shimmer, a place where the air bends more sharply. Then the eye assembles them: tall, narrow figures whose silhouettes suggest both praying mantis and cathedral spire. Their bodies are not flesh wearing armor, but successive generations of mineral deposition that have learned to walk.
+
+Each adult stands between two and two-and-a-half meters. Their “skin” is a mosaic of black volcanic glass, olivine platelets, and living ruby quartz that grows outward in slow, deliberate flakes. New plates extrude along the edges of old ones, overlapping like the scales of a pinecone; when the accumulation grows too heavy the outer layers fracture away with the same bright musical note the meadows make. Thus the Chime are in constant, audible molt. A trail of fresh shards behind one of them is not litter but evidence that it is becoming itself again.
+
+Their heads are elongated, faceted prisms without obvious eyes. Vision, if the word still applies, occurs through the entire lattice: light and vibration both propagate through their bodies and are interpreted somewhere inside the dense coronal lattice that crowns their shoulders. When they focus on something the crystals there flare a colder violet, like a bruise remembering it was once light. Two slits run down the front of the prism—resonators rather than mouths. From these they produce the short, percussive clicks and bell-tones that cut through the eternal roar of the bubble. The language is not ornamented. Every utterance is a chisel strike against silence.
+
+Their arms end in four articulated digits, each tipped with a living crystal that can be heated by internal chemistry until it glows dull orange. With these they stroke the meadows the way a gardener might caress roses, encouraging a particular plane of deposition or pruning a flawed branch with a precise tap. The crystals answer them. When a Chime rests its hand against a thicket, the entire lattice sometimes shivers in sympathetic resonance and releases the sweet-ozone smell of roses that the oldest buildings have learned to amplify.
+
+They do not eat. They *precipitate*.
+
+At regular intervals they walk into the heavier gas pools where convection cells meet. There they stand motionless for hours while metallic vapors plate themselves onto their bodies in microscopic layers. Sulfur, iron, rare earths—whatever the vent offers, the Chime accept. Their internal temperature is slightly higher than the surrounding air; the difference is enough for chemistry to knit new lattice into old. A Chime that has fed well develops a faint luminous marbling beneath its outer plates, like gold wire threaded through obsidian. The very old ones are almost entirely luminous, their original black glass hidden beneath centuries of jeweled accretion. They move more slowly then, as if the weight of their own beauty is becoming geological.
+
+Reproduction is architectural.
+
+When a Chime decides it is time, it chooses a quiet stretch of meadow and lies down. Over the next several years its lower body fuses with the ground. New crystals grow upward from the parent’s spine in a slow, deliberate tower. Inside that tower a single new lattice condenses, fed by the parent’s own dissolving structure. When the young Chime is ready it fractures free with a sound like a cathedral bell struck once at the center of the world. The parent, now little more than a hollowed-out plinth of glass and memory, remains standing. Many of the older buildings are exactly this: the calcified grandparents of the current generation, their doorways and windows formed by the gaps left when limbs and torsos fell away.
+
+The Chime do not have families. They have *resonances*. Certain individuals attune so perfectly to one another that their lattices begin to grow in complementary patterns—mirror harmonics, shared fracture planes. These pairs or triads will work on the same building for centuries, adding bricks that are also living starter crystals, singing the walls into greater amplification. Their architecture is therefore both civic and erotic. Every corridor is a love song measured in decibels.
+
+They are not cruel, but they are uncompromising. When a Chime dies improperly—by sudden fracture or poisoning of its lattice—the body is dragged to the nearest vent and carefully shattered into seed stock. Nothing is wasted. The next generation will grow from the shards of the last. In this way the population remains almost exactly constant, a slow pulse of approximately nine hundred individuals moving across the bubble like the mineral equivalent of blood cells.
+
+Their greatest fear is dissonance.
+
+If the roof-wind shifts and the great harmonic fails, whole meadows can starve and die in a single season. The Chime feel this as bodily pain; their own lattices begin to shed without replacement. In such times they gather in the starburst plazas and produce a different sound—lower, more complex, almost tender. They are not praying. They are retuning the world. Sometimes it works. Sometimes it does not, and another section of city is quietly abandoned to the bloom.
+
+Most visitors who somehow reach the Hollow never see a living Chime. They see only the aftermath: a half-melted brick still warm from a hand that left it centuries ago, a perfect spiral of crystal growing from what might once have been a collarbone, a single towering figure standing motionless in a gas plume while new violet light slowly fills its coronal crest.
+
+Then the wind changes, the bubble roars, and the figure is gone—only the bright chime of its last footstep hanging in the iron air like a promise that the stone itself is learning how to listen.

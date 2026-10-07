@@ -1,0 +1,23 @@
+They are not born. They are *summoned*.
+
+The Resonants do not inhabit the Shoulder of the Silent Forge—they *are* its syntax. To witness one is to witness physics achieving sentience not through neurons, but through harmonic necessity. They are the world’s way of *listening to itself*. There is no mind behind the leviathan’s slow drift, no hunger in the sphere’s pulsing glow. Only consequence. Only resonance answering resonance.
+
+Watch the great dust-whale again. Its form is not a body but a *sentence* written in particulate script. Where the Breath-Towers converge in a perfect fifth, the metallic ash swirls into vertebrae of shimmering density. Where a harmonic fractures against a basalt ridge, its flank dissolves into silver static. It has no skin, no boundary—only a gradient of coherence. Stand too close, and your own silhouette might begin to fray at the edges, your outline softened by the same frequencies that give it shape. It does not see you. It *feels* you—a pocket of damp, quiet flesh disrupting the acoustic field. A momentary typo in the symphony.
+
+Smaller manifestations flicker like punctuation. The sphere near the spire is not merely absorbing sound; it is *composing* with it. Each captured frequency tightens its lattice of dust, weaving light into transient geometries—a dodecahedron of captured shriek, a helix of swallowed bass. When it releases its energy, it does not explode. It *unfurls*: a single, pure tone that etches frost-ferns of solidified vibration onto the obsidian below. Elsewhere, in the shadow of a fractured tower, a shard-swarm coalesces—a cloud of crystalline fragments orbiting a silent core. It moves with the frantic precision of a tuning fork seeking pitch. A snapped twig. A gasp. It would descend not with malice, but with the inevitability of a falling note finding its resolution. To be scoured by it would feel less like violence and more like correction—a harsh, necessary edit to the world’s score.
+
+They leave no tracks. Only *afterimages in the air*. Where the leviathan passed hours ago, the dust still rises in slow spirals, tracing the ghost of its passage. Where the sphere pulsed, the stone glows faintly for days with residual frequency—a warmth you feel in the teeth, not the skin. Time here is not linear but *layered*. A Resonant is never just *now*; it carries the echo of every vibration that shaped it. The dust composing its heart may have once been part of a canyon wall sung to dust a millennium ago. It is all memory. All recurrence.
+
+And the silence they cast… that is their true signature. A Resonant’s shadow is not absence. It is *consumption*. Step into it, and the world does not go quiet—it *unmakes*. The thrum in your bones vanishes. The air feels thin, hollowed out. Your own heartbeat becomes deafeningly loud, a frantic drum against the void. This is not peace. It is starvation. The Resonants feed on vibration, and their shadows are the hollows left behind—a temporary vacuum where even light travels straight, unmodulated, *unplayed*. To linger there is to feel the plateau hold its breath, waiting for the chord to return.
+
+They do not communicate. They *modulate*. When two Resonants drift toward convergence at dusk, it is not meeting. It is interference. Where their frequencies overlap, new shapes bloom: a bridge of woven harmonics spanning a canyon, a temporary arch of solidified song that hums with the combined memory of both entities. For a breath, the plateau holds a new geometry. Then the wind shifts. The arch dissolves. The dust settles. No grief. No loss. Only recalibration.
+
+They are not gods. Not spirits. Not even life as biology defines it. They are the plateau’s *verb*. The active principle of a world that chose vibration over vein, frequency over flesh. They require no water because they drink pressure. No shelter because the sky is their instrument. No death because dissolution is merely rest—a return to potential, waiting for the next breath of wind to stir the ash into meaning again.
+
+To stand here is to understand: you are not being watched. You are being *tuned*. Your bones vibrate at 18 Hz. Your breath creates micro-turbulences. The Resonants do not care if you are afraid. They care only that your presence adds a new variable to the equation—a faint, warm dissonance in the endless chord. And the world, in its ancient, brutal honesty, will either absorb you into its song… or let you settle, silent and still, back into the ash.
+
+They are the consequence of a planet that learned to sing before it learned to cool.  
+And the song is still being written.  
+In dust.  
+In light.  
+In the space between one vibration and the next.

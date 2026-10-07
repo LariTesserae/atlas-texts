@@ -1,0 +1,31 @@
+**The Resonants**
+
+They are not born here so much as *condensed*.
+
+Most arrive as pilgrims or exiles from the lowlands, still carrying the habit of speech and haste. Within three months the roar has scoured their outer ears until the drums stiffen and fold like wet paper. By the end of the first year their bodies have learned to listen through bone. After seven years the vibration lives inside their marrow so completely that they no longer startle when the great water-hammers fall. Their hearts slow until each beat arrives exactly between two strokes of the nearest piston-tree, a private metronome no outsider can hear.
+
+They are tall, not by breeding but by compression. The constant pressure of sound seems to squeeze them upward, elongating spines, lengthening fingers. Their skin takes on the same sheen as the weeping rock—pale where the mist gathers, darker where mineral runoff has left permanent stains in the creases of elbows, knees, and collarbones. Many go barefoot even on the iron walkways; the soles of their feet develop ridges that match the resonant grooves worn into the basalt. When they stand still they look like statues that have simply chosen not to finish becoming stone.
+
+Their clothing is practical to the point of ritual. Layers of waxed canvas the color of wet slate, hoods lined with vibration-dampening felt, gloves with the fingertips cut away so the pads can read micro-changes in pipe temperature. Everything is mended until the patches outnumber the original cloth. They wear no jewelry except what the Shelf itself grows on them: small calcareous spurs that sprout from cheekbones or the ridges of their wrists after decades of exposure. These “singing bones” are never removed. To break one is to break a note in the larger chord.
+
+There are perhaps four thousand left, though no census has been taken in living memory. They do not cluster. A single Resonants might be responsible for three kilometers of causeway, four turbine halls, and seventeen autonomous water-hammers. Their work is mostly maintenance performed at the speed of geology. A leak that has run for ninety years might finally be caulked this season—not because it has become urgent, but because the crystal cathedral beneath the floor has finished singing its B-flat and the worker feels, in their bones, that the song is complete.
+
+They speak rarely and only in the pressure pockets where the roar inverts into silence. There the voice, when it returns, is hoarse and low, almost subsonic. Conversations happen in fragments spaced minutes apart, as though each sentence must settle through the stone before the next can be laid on top. Many have given up speech entirely and communicate by pressing palms to one another’s sternums, reading the modulated tremor of the other’s ribcage the way sighted people read lips.
+
+At night—though “night” is only a thickening of the mist—they gather in the ossuaries. These are not places for the dead; the dead are simply lowered into the weeping cliffs where the water slowly replaces their soft tissue with tufa until they become part of the next resonant structure. The ossuaries are places where the living go to dream inside the sound. They lie on beds of tuned ironroot planks that amplify certain frequencies and dampen others. There they enter a state the lowlanders would call trance and the Resonants call *listening backward*—hearing, it is said, the original strike that began the four-hundred-year roar, and beyond that something older still.
+
+The children (there are never many) are born with their eyes already open and their hands curled as if gripping a wrench. They are not coddled. At three they are placed against the warm flank of a steam column and left to feel their first true note. Those who cry are gently taken down to the lowlands before the Shelf can claim them. Those who smile are allowed to stay. By seven they can tell which district is about to fail by the taste the air leaves on the back of their tongue.
+
+Some have begun to change further.
+
+There are the *Antlered*, whose mineral accretions have grown elaborate antler-like structures from their skulls, conducting sound so perfectly they can stand in the middle of a turbine hall and hear a single dropped rivet three kilometers away. They rarely leave the central foundries anymore; the ordinary world is too quiet for them and they suffer what they call “the drowning” when the roar falls below a certain threshold.
+
+There are the *Weepers*, whose tear ducts have mineralized. They no longer cry water but thin sheets of dissolved tufa that dry into delicate maps across their cheeks. No one pities them. Their faces are considered beautiful the way certain cliffs are beautiful—marked by long, slow weeping that records every century of weather.
+
+And there is, perhaps, only one *Final Listener*. No one is certain who it is. The position is never declared; it is recognized when a Resonants begins to walk backward through the districts, undoing small repairs, opening valves that had been closed for decades, allowing the system to complete its long deceleration. The Final Listener is not mourned or celebrated. They are simply the part of the Shelf that has decided it is time to become the next note.
+
+The Resonants do not have gods. They have gradients of attention. The Shelf itself is not worshipped; it is *collaborated with*. When a worker dies inside a machine, the machine is not shut down. The body is left until the vibration has polished every soft edge away and the bones have locked into the mechanism like additional gears. New apprentices are brought to learn the altered rhythm the dead worker now contributes. In this way the population of the Shelf has never truly declined. It has only become more thoroughly orchestrated.
+
+If you stand long enough in one of the pressure pockets and let your own heartbeat grow enormous against the surrounding silence, you may feel a hand—calloused, warm, mineral-rough—press against your chest. A Resonants will have found you. They will not speak. They will simply wait until your heart falls into time with the larger pulse of the place.
+
+Then, without hurry, they will lead you deeper in.

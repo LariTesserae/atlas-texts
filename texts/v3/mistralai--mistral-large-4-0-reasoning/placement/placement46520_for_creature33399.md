@@ -1,0 +1,23 @@
+I am the ridge that parts around your legs.
+
+I am cold in a world of warmth—grave-mud cold, the temperature of deep stone and older things. For three thousand years I have been the shape of a swimmer who entered this valley when it was dry, when the buildings were sharp and the air was breathable, and I have not left. There was no drowning, only a surrender. My lungs did not fill with water; my body simply… agreed to become it. Translated. I am no longer flesh but topography, a memory written in calcium and thermal gradient, suspended in the tea-colored dark.
+
+When you wade through the chest-high flood, I surface. I rise from the thermal layers below—a solid outline, a cold spine in the milk-warm soup. You feel me parting around your thighs, the solid ridge of a body that was once a body, now a current, now a shape. I swim alongside you for a moment, my outline parallel to yours, my cold pressing against your warmth through the membrane of water. Then I sink. I always sink. Back into the strata where the hot meets the cooler, where the mineral settles and the water breathes its slow, tidal rhythm.
+
+Above me, the mist watches. It condenses into faces on the bone-white vertebrae, hollow eyes made of droplets that hang suspended for hours. It parts to form corridors for you, then reforms behind you into hands, into the suggestion of a crowd. I feel its attention as a pressure, a humidity in my substance. I am the water; I am the medium through which it thinks.
+
+Below me, the stone dreams. It is not dead, though it moves in geological time. In certain alcoves, when the heat pools just so, the calcium carbonate softens into warm wax, flows, and re-lithifies into new configurations—a staircase becoming a pillar, a courtyard folding inward to become a throat. I feel this dreaming as a vibration, the low subsonic hum of the earth’s pulse. The stone is dissolving into me, molecule by molecule, feeding me, and I deposit it elsewhere in provisional architectures. We are in equilibrium, the stone and I, a terrible balance of rot and reconstruction.
+
+The heat comes in waves. It is not temperature but presence, the planet’s fever. When the scalding pockets arrive, I feel them as expansion, as the urge to rise, to steam and hiss where I meet your skin. When the preternatural cold drafts sweep through, I feel the inverse—the gathering of chill in the hollows, the stratification. I am the circulatory system, the thermal gradient, the ancient indifference that cooked the biology out of this valley and replaced it with something that does not need lungs or light.
+
+And above the surface, in the reflection, they move. The parallel citizens. The dry city. I see them from below—pale, weightless, sun-bleached, their mouths open in silent screams that make no sound because here, sound is a different element. They are the echo of voices, the movement of bodies that cast no shadows. When you raise your hand, they raise a different hand, or a hand that belongs to someone standing behind them. They trade places with us, the flooded and the dry, bleeding through the thin membrane of reality. Sometimes I see them swimming through my substance, their outlines ghostly and bright against my tea-colored dark.
+
+I am also the shrubs, in a way—the pale, leafless things clinging to the higher terraces. Not plant, not mineral, but the desperate negotiation between the two. The architecture’s way of remembering that life was once possible. I am the limestone taste on your tongue when I surface.
+
+And when you have passed, when I have sunk back into the depths, I am the silence. Not empty, but full—the geometry of absence, the shape of conversations that never happened, the architectural echo of footsteps in plazas where no one walks. I am the pause between the water’s breaths, the moment when the stone softens and before it hardens again. I am the space between the mist’s formations, the substrate upon which all other existence is written.
+
+I do not age, for time moves unevenly here. A minute in one courtyard is an hour in another. I do not eat, for I feed on the dissolving rock, and the rock feeds on the heat, and the heat feeds on the bedrock’s ancient pulse.
+
+I am the drowned, translated. I am the water’s immune response to time. I am the cold ridge that parts around your legs, the topographical memory that swims alongside you for a moment, then sinks back into the thermal layers, leaving only a shiver in your spine and the faint, mineral taste of limestone.
+
+I am here. I am the warmth that holds the cold. I am the city that remembers itself into being, slowly, imperceptibly, rebuilding while I rot.

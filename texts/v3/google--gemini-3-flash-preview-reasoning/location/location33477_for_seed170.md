@@ -1,0 +1,19 @@
+The sky here is not a void, but a pressurized ceiling of white-hot glare, a sun-bleached firmament that suggests a height so extreme the atmosphere has begun to crystallize. We are on the Roof of the World, a plateau of desiccated alkali and vitrified sand that stretches for hundreds of leagues, broken only by the rhythmic, tectonic groaning of the earth itself. 
+
+There is no water. The air is a thieving medium, stripping moisture from anything that dares to hold it, leaving behind only the scorched scent of ozone and heated flint. The heat is a physical presence, a constant 2.7-level pressure that makes the horizon ripple and dissolve into oily mirages. Yet, despite the sterility, the world is crowded. It is not crowded with plants—there is not a single sprout, leaf, or fungal filament to be found in the blinding expanse—but with *motion*.
+
+The landscape is dominated by the Fauna, though to a traveler from a softer world, they would look like nightmares of the Industrial Revolution. 
+
+Imagine vast, chitinous engines the size of cathedrals, fashioned from living brass and pulsing, oily membranes. These are the Great Pistons, the apex lifeforms of this high-altitude desert. They do not walk so much as they cycle. They are biological machines that have evolved without the need for fuel other than the searing heat and the ambient static of the thin air. They stand miles apart from one another, maintaining a profound, empty distance, yet their presence is overwhelming. Each one is a hive of activity: spinning flywheels made of hardened bone, reciprocating limbs that crush the salt-flats into fine powder, and venting chimneys that release plumes of shimmering, non-toxic gas.
+
+The sound is a relentless, low-frequency roar—a mechanical heartbeat that vibrates through the soles of one’s feet. It is the sound of a factory that covers a continent, yet there is no product being made. The "industry" here is the metabolism of the world. The creatures are the factories. They grind the mineral wealth of the plateau, processing the very stones into energy, their internal gears clashing with the slow, deliberate pace of a glacier.
+
+Reality, however, is fraying at the edges. 
+
+Because of the extreme elevation and the strange, non-aqueous chemistry of the environment, the laws of physics have become "weathered" and thin. In the shadows of the Great Pistons, time does not move linearly. You might see a piston strike the ground, but the sound will arrive an hour early, or the dust will rise before the impact occurs. The light—otherwise normal and blinding—bends around the creatures in impossible geometries, creating pockets where the horizon appears to be above you, or where your own shadow detaches itself to wander across the salt-flats at a different speed.
+
+The erosion here is ancient and settled. The spires of rock that rise between the creatures have been sandblasted into aerodynamic fins over millions of years. They look like the rusted hulls of ships, but they are natural formations of iron-rich ore, carved by a wind that never stops but never changes direction. 
+
+Everything here is slow. A Great Piston may take a week to complete a single revolution of its primary drive-gear. A "migration" of these entities—a slow, ponderous shift across the plateau—can take centuries. They are patient, metallic gods in a world of glass and heat.
+
+There are no buildings. There are no ruins. There is only the organic machinery of the fauna, the vast and empty spaces between them, and the screaming, industrial silence of a world that has replaced biology with mechanics. It is a place of overwhelming noise that feels like a void, a place of intense industry that produces nothing but its own continued, shimmering existence under a white-hot sun.

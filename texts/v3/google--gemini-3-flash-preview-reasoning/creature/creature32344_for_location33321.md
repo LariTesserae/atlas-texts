@@ -1,0 +1,19 @@
+To live here is to be an extension of the stalemate. 
+
+The inhabitants are not biological in any sense that requires a pulse, a breath, or a transition between states. They are the **Lithates**: low-slung, heavy beings who possess the texture of fired terracotta and the patience of the silt. They do not move against the landscape; they emerge from it, their bodies composed of the same dark minerals and alkaline salts that form the basin floor. 
+
+At rest, a Lithate is indistinguishable from one of the slumped mounds of dust or a particularly large, rounded cobble. Their skin is not a soft membrane but a thick, desiccated rind, cracked into geometric plates that mirror the parched earth. They have no eyes; instead, their entire upper surface is a mosaic of heat-sensitive pits, allowing them to "see" the world as a topographical map of thermal radiation. To them, the basin is a cathedral of subtle gradients—the "bright" warmth of a deep-seated thermal vein, the "shadow" of a cooling scrub bush.
+
+Their movement is a secret kept from time. A Lithate may take a century to extend a single, three-jointed limb. To a human observer, they would appear as statues, but in the long, infrared memory of the basin, they are constant, slow-motion pilgrims. They do not eat; they are endothermic, drawing their meager energy directly from the heat of the ground through the obsidian-hard pads of their feet. They are living batteries, slowly charging off the planet’s dying core.
+
+The "manual labor" found across the basin—the stone slabs, the shaved wood, the chipped flints—is the result of their singular, eternal preoccupation: **The Arrangement.**
+
+Because they do not need to hunt, build shelters, or compete for mates, the Lithates have dedicated their existence to a form of geological curation. They are the ones who chipped the volcanic glass into hand-axes, not to kill, but to precisely prune the silica-heavy scrub bushes. They shave the wood into curls of bone-white fiber to test the sharpness of a blade, then leave the shards in a pile that will remain undisturbed for ten thousand years. 
+
+They are obsessed with the "correctness" of the landscape. They move stones from one tract of dust to another, seeking a perfect, silent balance that only they can perceive. If a stone is a fraction of a degree cooler than the dust beneath it, a Lithate will eventually arrive to turn it, or to stack a smaller flint atop it, seeking a thermal equilibrium that matches the stillness of the air. They are the gardeners of entropy.
+
+They are not entirely solitary, though they never speak. When two Lithates meet, they may press their broad, flat palms together and remain that way for a millennium, sharing heat until their temperatures are identical. This is their only form of communion: the achievement of a shared, unmoving state.
+
+There are no young among them. There is no evidence of birth. It is possible they were formed all at once, when the sea first vanished, crystallized out of the receding brine like the salt crust itself. They are as finite as the heat beneath them. 
+
+As the ground very slowly cools over the eons, the Lithates grow even slower. Their movements, once perhaps as fluid as a tectonic plate, have dithered down to the speed of a cooling kiln. They are waiting for the moment when the last of the infrared glow fades to black—when the thermal pressure from below matches the heavy air above. When that final equilibrium is reached, they will cease their Arrangement, settle into the dark silt, and become the very mounds and cobbles they once tended, leaving behind only the sharp, glass edges of their tools as a testament to a labor that had no goal other than to be finished.

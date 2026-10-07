@@ -1,0 +1,21 @@
+The horizon does not exist here. Instead, there is only the **Aethel-Ridge**, a vertical continent of razor-sharp obsidian and unweathered basalt that thrusts upward into a sky the color of a bruised plum. Because the erosion is so young, the geography is a nightmare of geometry: perfect ninety-degree cliffs, needles of stone that have not yet had time to crumble, and canyons so narrow they feel like the closing of a wound. 
+
+Everything is massive. The scale is so vast that the clouds do not pass over the mountains; they are birthed within them. Great, swirling nebulae of warm, amber-tinted mist get trapped in the jagged teeth of the peaks, creating a permanent state of high-altitude dampness. It does not rain in the traditional sense. Instead, the air is heavy with a pressurized humidity that coats every surface in a fine, slick film of condensation. 
+
+The atmosphere is warm—a thick, sweltering heat that feels like the breath of a large animal. Despite the heat and the damp, the light is failing. A dim, perpetual gloaming persists, as if the sun is a guttering candle held behind a thick curtain of industrial smog.
+
+Here, the distinction between biology and machinery has collapsed. 
+
+The vegetation is lush, but it is a **mechanical verdure**. Thick, emerald-colored vines, heavy as anchor chains, pulse with a rhythmic, hydraulic throb. They don't just grow; they *deploy*. You can see them ratcheting up the cliff faces, their leaves—shimmering plates of iridescent, semi-organic copper—unfolding like solar arrays to catch the faint, dim light. The "forests" are dense thickets of piston-like stalks that rise and fall in a slow, agonizingly quiet sequence, pumping mineral-rich fluids from the deep, hot core of the mountains up to the high ridges. 
+
+There are no buildings. There are no ruins. There is nothing "built" by hands, and yet the entire landscape functions with the brutal efficiency of a factory. The "industrial" nature of the world is innate. The tech is in the marrow of the stones. Giant, rotating gears of solid granite, miles wide, grind slowly beneath the surface, their friction generating a low-frequency hum that vibrates in the teeth of any living thing. 
+
+The fauna is abundant but unsettling. Hexapedal creatures with shells of matte-black carbon fiber skitter through the shadows, their movements jerky and frame-rate broken, as if reality cannot quite track their position. Large, leathery flyers—part bird, part hang-glider, part radiator—drift on the thermal updrafts created by the heat of the planet’s internal "engines." They are silent, save for the occasional hiss of steam venting from their wing-joints.
+
+Reality here is turbulent and thin. 
+
+Because the landscape is so young and the "industry" of the planet so hyperactive, the world is in a constant state of self-assembly. A mountain peak might suddenly liquefy into a shimmering pool of mercury, only to flash-freeze into a new, even sharper spire moments later. Gravity is a suggestion; in the pockets of deepest density, moisture doesn't fall, it orbits. You might step across a narrow crevasse only to find the distance has expanded into a mile-wide gulf mid-stride, the geography stretching like taffy under the influence of unseen, tectonic gears.
+
+It is a quiet place, but not a peaceful one. The sound is a "heavy" quiet—the muffled sound of a heartbeat heard through a wall. It is the sound of immense power being restrained. The only breaks in the silence are the occasional *clack-hiss* of a biological valve releasing pressure or the distant, tectonic groan of the world’s internal clockwork shifting another inch.
+
+You stand on a ledge of fresh, unscarred glass, looking out over a canyon that shouldn't be possible. Below you, the dense, green-metal canopy of the forest heaves like an ocean. The air smells of ozone, wet copper, and rotting orchids. Everything is moving, everything is growing, and everything is working toward a purpose that requires no inhabitants. It is a vast, high-altitude engine of flesh and stone, churning in the dim, warm dark.

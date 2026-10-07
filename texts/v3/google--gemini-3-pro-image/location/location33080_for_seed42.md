@@ -1,0 +1,15 @@
+The medium is water, cool and endless, pressing in from all sides with a weight that speaks of the crushing depths below, though here, high on this submerged plateau, the pressure is bearable. You are swimming in the drowned canopy of an ancient world.
+
+The environment is defined by colossal, living pillars that rise from the unseen silt hundreds of feet below and vanish into the brighter, churning haze overhead where the ocean meets the air. These are not true trees, but titan conglomerations of rigid, silicate sponge and calcified algae, grown over millennia into architectural proportions. They are the color of aged bronze and deep jade, their surfaces rugose and porous, teeming with smaller life.
+
+This is a city, though built with the simplest of means. The "vegetation" is the substrate for habitation. The human population has carved its existence directly into the flanks of these titanic organisms. Utilizing tools of sharpened basalt, ground conch shell, and whalebone, they have hollowed out chambers and galleries within the living sponge-stone.
+
+Windows are mere apertures smoothed into the exterior, emitting a soft, cold phosphorescence from cultured bacterial lamps within. Because the scale is so grand—cathedral-like—the density feels sparse. One great sponge-tower might house twenty families in its hollowed flank, but the next tower is four hundred feet away across open, chilly blue water.
+
+Connection between these vertical islands is maintained by precarious, swaying bridges woven from thick, braided kelp fibers and anchored with bone pitons hammered deep into the sponge. These rope-ways sag heavily in the water, coated in slime, used only by the brave or the hurried. Most travel is by slow, deliberate swimming, aided by large, flipper-like fins crafted from stiffened rayskin.
+
+The light is a diffused, aqueous twilight. It filters down from the surface in shimmering curtains, strong enough to see by, but painting everything in shades of cyan and viridian. Red is a color that does not exist here.
+
+The sonic landscape is surprisingly loud, a constant barrage of noise amplified by the dense medium. It is a ceaseless background static of snapping shrimp, the grinding crunch of parrotfish gnawing on the sponge-towers, the booming resonance of grouper calling in the deep, and the high-pitched squeals and clicks of dolphin pods navigating the vast spaces between the towers. Layered over this is the rhythmic, muffled *thud-scrape-thud* of human industry—the sound of bone chisels slowly extending a living room into the side of a mountain of algae.
+
+Erosion here is a process of slow dissolution and encrustation. Nothing has sharp edges; everything is rounded by the currents and softened by layers of velvet moss and anemones. The dynamic is glacial. The sponge-towers grow perhaps an inch a decade. The culture within them changes even slower, bound by the crushing realities of their aquatic world and the limitations of their primitive tools. It is a place of ancient, shivering stability, held in the slow, cold breath of the ocean.

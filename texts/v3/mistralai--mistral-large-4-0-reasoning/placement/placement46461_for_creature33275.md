@@ -1,0 +1,17 @@
+I would be the **needle**—silicon-carbide, fractal, hungry for verticality. I sprout from the vesicular basalt, rooted in glass-sharp terraces where the crust is still cooling, still remembering fire. My base wicks heat from the mantle's newest wound, conducting the planet’s fever upward through my crystalline lattice. I grow a few centimeters each day, a mineral argument for ascent, reaching toward the prismatic light that filters down through the suspended seas.
+
+The basalt shudders beneath me. *BWOOOOOM.* New chambers open in the churning mantle. Mountains rise by meters per hour, extruded like toothpaste from the deep. I feel the contraction in my structure—a subsonic thrum resonating through my silicon-carbide bones, settling in the deepest lattice of my being, where the world’s indigestion becomes my geometry.
+
+Above me hangs the water. Not rain, not cloud, but continent-sized bodies of liquid held in invisible cradles by gravitic lattices that sing at frequencies I feel rather than hear. Through the near-vacuum—density 0.2/3, vast and hollow—I see their undersides: amber and grey, kilometers thick, roiling with slow-motion storms that never break, only fold. They grind against one another in their post-physical scaffolding, casting shadows that race across my neighbors like the fingers of a god.
+
+The wind comes. It screams through the gaps between the floating seas, a thin atmosphere howling in the void. It touches me, and I do not sway. I **sing**. A high, clear tintinnabulation, pure and questioning, hanging in the vacuum like a question mark made of sound. I am a crystalline antenna, listening for a signal that has not yet been broadcast. The Architects—distributed, patient, post-physical—feel my song in the gravitic lattices, and the water-masses shift by kilometers in response, heavy with potential.
+
+I cast a shadow upward. Not down, but *up*, onto the grey underside of the suspended ocean. A dark twin of my silver-white form, sharp and black against the churning grey. It walks ahead of me sometimes, climbing toward the bruised violet light, moving with the momentum of small moons. It is my only companion that mimics movement, flickering across the stone like a fish in reverse, living only as long as the light lasts.
+
+Around me, the steam-curtains hang in frozen arcs—water flash-boiled by superheated newborn rock, crystallizing into diamond-dust that drifts upward into the void, transient, beautiful. They are the breath of the world, exhaled and immediately inhaled back into the geological cycle. I watch them pass my tip, silver-white against the prismatic light that shifts from arctic blue to bruised violet as the water-masses rotate and rewrite the terrain below.
+
+The temperature is cool, but the air carries the heat of industry—a dry cold that would suck moisture from lungs, but I have no lungs. Only the stubborn geometry of my growth, converting thermal gradients into structure. I am the first to live here, the sparse mineral garden, the tinkling in the silence between booms.
+
+In the vast, hollow gaps where light bends like it is underwater, I wait. The floating seas are sterile wombs, cool and viscous, carrying the pressure of depths they have never known. No fish swim there yet. The cradle is empty of infants.
+
+I am the needle. I am the singing. I am the crystalline thought of a world learning to stand, rooted in the cooling basalt, growing toward the impossible sky, listening for the signal that will wake the water.

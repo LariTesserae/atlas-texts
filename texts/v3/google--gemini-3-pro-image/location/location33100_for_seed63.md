@@ -1,0 +1,17 @@
+The location is high, an exposed caldera rim thrust up into a tenuous atmosphere. It is a place of oppressive heat, where the air shimmers not with moisture, but with thermal distortion and suspended mineral dust. The darkness is profound, a heavy, suffocating blanket only partially relieved by the deep, sanguine glow emanating from fissures in the basin floor below. There is no water here, nor has there ever been. The chemistry of this world is anhydrous; the "rivers" were flows of molten silicate, long since cooled into smooth, glassy channels that weave through the landscape.
+
+The scale is intimate, a bowl-shaped depression perhaps five hundred meters across, hemmed in by steep, inward-curving cliffs of polished obsidian and basalt. These walls are ancient, their sharpness long since abraded by aeons of dry, hot wind and the slow grind of tectonic settling. They suggest a geology in its twilight phase, where major upheavals have ceased, leaving behind a fixed, baked topography.
+
+Scattered around the rim and occasionally jutting from the basin floor are the remnants of construction. They are not buildings, but eroded megaliths carved from the native black rock—stubby pillars and rounded cairns polished so smooth they reflect the dim red earth-glow like dark mirrors. They seem organic in their wear, fused almost seamlessly with the bedrock, their original purpose lost to deep time. There is no technology; the silence is not broken by machinery.
+
+The defining characteristic of this basin, however, is the density of life within it.
+
+From the rim, looking down into the red-lit gloom, the floor of the caldera appears at first to be a shifting mosaic of oily black cobblestones. But it is not stone. The entire basin, from edge to edge, is packed with a seething, interlocking carpet of fauna. There is no bare ground.
+
+The creatures are chemosynthetic grazers, armored arthropods roughly the size of a human hand. Their carapaces are dark, iridescent, and incredibly hard, evolved to withstand the intense ambient heat and the friction of constant crowding. They possess dozens of tough, stubby legs that allow them to crawl over and under their neighbors in an endless, slow-motion churn.
+
+They feed on the mineral efflorescence that crusts around the geothermal vents in the floor, a dry, crystalline "uprising" that serves as the sole energy source in this ecosystem. The ecology is a closed loop of terrifying simplicity: the geothermal vents push up mineral nutrients; the creatures at the bottom graze; the creatures above wait their turn, cycling slowly downward in a massive, living convection current.
+
+Despite the overwhelming density and constant movement, the basin is eerily quiet. There are no vocalizations, no chirps or roars. The creatures communicate, if at all, through pheromones or tactile shifts transmitted through the packed horde. The only sound is a pervasive, dry hiss—like sand pouring over metal—the collective noise of billions of chitinous shells rubbing against one another and the glassy rock beneath them.
+
+It is a dynamic, churning ocean of solid bodies in the dark heat. A glimpse of a forgotten marker stone on the basin floor shows the tide flowing around it, the rock polished to a frictionless sheen by the passage of countless armored feet over millennia. It is a world of pure biological pressure, a silent, hot, crowded engine of life fueled by the planet's dying core.

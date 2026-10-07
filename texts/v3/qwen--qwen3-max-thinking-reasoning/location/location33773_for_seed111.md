@@ -1,0 +1,21 @@
+You do not find this place. It finds you.  
+
+A hairline fracture in the spine of the world—a cleft no wider than a cathedral nave, bitten deep into the wind-scoured heights of a newborn mountain range. The plateau above is all sharp granite and thin, biting air, but here, in the fissure’s throat, the world folds inward. You stand where the earth recently tore itself open. Jagged basalt teeth line the walls, fractured so freshly their edges gleam like obsidian shards. No soil cushions your steps—only scree of angular fragments that shift with a glassy whisper beneath your boots. This is geology mid-breath: a wound still weeping.  
+
+Moisture is a ghost here. Not rivers, not streams—only the slow exhalation of the stone itself. Condensation beads along cold seams in the rock, gathering in thumb-sized basins on ledges. After rare highland rains, silver threads streak the walls for an hour before vanishing, leaving behind the scent of wet iron and crushed stone. The air rests cool against your skin, carrying the mineral tang of deep rock and the faint sweetness of decay.  
+
+Darkness is not empty. It is thick, textured—a velvet pressure against the eyes. Yet life insists. Bioluminescent fungi stipple the walls in constellations of sickly jade and bruised violet: *star-moss* clinging to damp cracks, pulsing faintly as if breathing. Between them, the stone *moves*.  
+
+Fauna overwhelms. Not in size, but in presence. Pale, blind millipedes—each no longer than your thumb—flow in slow tides across the rock face, their chitinous segments clicking like falling pebbles. Wingless crickets rasp a deafening chorus from every crevice, their chirrs amplified by the narrow stone throat until the sound vibrates in your molars. Delicate, many-limbed scavengers the color of bone skitter over fungal blooms, harvesting spores with needle-tipped appendages. In one damp hollow, a colony of gelatinous, eyeless slugs pulses rhythmically, their translucent bodies revealing the slow passage of glowing fungi within. Every viable surface is claimed, layered, contested. A single handprint-sized patch of wall holds three species feeding, breeding, dying in silent, crowded communion.  
+
+This is where strangeness takes root. Press your palm to the rock: in places, it hums with a low-frequency thrum, a resonance that travels up your arm like a second heartbeat. Some fungi glow in sync with the drip-rhythm of distant water—a slow, hypnotic morse code. The scavengers move not randomly, but in rippling waves, as if guided by vibrations in the stone only they perceive. One patch of wall breathes: a soft, rhythmic expansion and contraction of pale fungal tissue, exhaling air that smells of ozone and wet clay. Time feels porous here. You glimpse a slug dissolving into spores; moments later, the same pattern of light re-forms inches away. Is it rebirth? Migration? The rules are written in chemistry and vibration, not sun or season.  
+
+Sound is a physical force. The *plink* of a water drop echoes like a struck bell. The collective skitter of ten thousand feet becomes a dry rustling tide. A sudden cascade of scree triggers a wave of chirrs that swells to a frantic crescendo before subsiding into watchful silence. Yet all this noise unfolds within profound slowness. Water wears a spoon-shaped hollow in solid rock over centuries. Fungal networks advance a hair’s breadth per season. The creatures live in cycles measured in moisture and mineral—not days. A fallen millipede is consumed, dissolved, and reborn as spores within a single lunar cycle you’ll never witness.  
+
+No tool has shaped this place. No fire has warmed it. No footprint but yours (and soon, even that will be erased by shifting stone) breaks its purity. This is a cradle and a tomb in one breath: a pocket universe born of fracture, sustained by breath-moisture and starlight fungi, governed by the slow mathematics of drip and decay. To linger here is to feel the mountain’s pulse beneath your feet—a patient, alien consciousness waking in the dark. You are not an observer. You are a temporary warmth in its stone lungs. A flicker in its long, slow dream.  
+
+And as you turn to leave, a single drop of water falls.  
+*Plink.*  
+The fungi flare.  
+The tide of millipedes shifts.  
+The mountain breathes on.

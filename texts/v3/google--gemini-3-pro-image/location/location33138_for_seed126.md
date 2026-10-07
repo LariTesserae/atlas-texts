@@ -1,0 +1,19 @@
+The horizon here does not curve; it stretches flat in every direction, a vast expanse of uniform brightness that defies an origin point. There is no sun, only an omnipresent, searing white luminance that permeates the sky—if it can be called a sky. It is more like an infinite ceiling of glowing plasma, hanging heavily over the landscape, casting no distinct shadows, only a pervasive, shadowless clarity.
+
+This is the Datum Plane.
+
+There is no natural substrate here. You are not standing on rock or soil. The ground, infinitely wide and terrifyingly deep, is a geology of obsolescence. It is entirely constructed, a staggering aggregation of hyper-advanced technology that has persisted long enough to become topography.
+
+It is an ocean of engineering that has dried up and settled. For millions of miles, the surface is a patchwork of seamless materials—iridescent ceramics, metallic glasses that feel warm to the touch, and polymer alloys harder than diamond. But time has been the only weather here for eons. The "erosion" is profound. The sharp angles of incomprehensible machinery have been smoothed down by cosmic dust and micrometeorite impacts into rolling, dune-like formations. Canyon floors are not carved by water, but are the slumped depressions of collapsed city-continents beneath the surface. Mountain ranges are the rounded husks of orbital elevators or energy projectors, their purposes lost, their surfaces polished to a mirror sheen by the slow friction of eternity.
+
+The air is thin, completely devoid of moisture, and tastes faintly of ozone and vaporized copper. It is warm, a steady, pervasive heat radiating upward from the core of the world-machine beneath your feet.
+
+Despite the smoothness of the horizon, the environment is incredibly dense. It is a density of layering. If you look closely at the "sand" beneath your boots, it is not silica, but trillions of microscopic optical processors, ground down into glittering dust. Fissures in the smooth ground reveal dizzying depths—layer upon layer of compacted circuitry, crushed conduits, and fossilized server racks extending downward for miles, fused by pressure and heat into a sedimentary bedrock of computation.
+
+Life here is rare, sparse, and adaptive to the total lack of water. The "vegetation" consists of fractal crystalline growths that sprout from junction points in the buried grid. They look like intricate chandeliers of spun quartz and silicon, siphoning ambient thermal energy and the intense light from above, slowly growing impossibly complex lattice structures that chime faintly in thermal drafts.
+
+Fauna is scarcer still. Occasionally, you might see a motion on a distant ridge of polished alloy. It might be a scavenger—a creature evolved from self-repair nanites that has coalesced into a multifaceted, crab-like form, scuttling across the hot surfaces to harvest rare isotopes from exposed conduits. They move in near silence.
+
+Indeed, the quiet is heavy here. The scale of the place suggests thunderous processes, but the soundscape is hushed. The only noises are the subtle groan of thermal expansion across continental plates of metal, the whisper of the processor-dust shifting in unseen currents, and, if you press your ear to the smooth ground, a very deep, very faint vibration—the thrum of reactors still running far below, maintaining the structural integrity of this infinite, ancient floor.
+
+The world is active, but on a geological timescale of technology. A "tectonic shift" might be a sector of quantum computing substrate settling a millimeter over a millennium, releasing a puff of trapped noble gas. The dynamic nature of the Datum Plane is the slow, grinding churning of a machine that has forgotten its purpose but refuses to stop being.

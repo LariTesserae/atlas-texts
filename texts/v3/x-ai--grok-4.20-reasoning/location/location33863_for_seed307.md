@@ -1,0 +1,27 @@
+**The Weeping Fold**
+
+You find it only by accident, high on a ridge so new the mountain still cracks and steams from its own birth. The peak is barely cooled from whatever cataclysm shoved it into the sky; its flanks are glassy, black, razor-sharp, unclimbable in half the directions. Wind screams past the exposed spines of rock, yet there is one place where the scream suddenly stops. A vertical cleft, no wider than a coffin, opens like a wound that has not yet decided whether to close. 
+
+Step inside and the world forgets its own scale.
+
+The pocket is tiny—no more than thirty paces across—yet it feels bottomless. The air is so saturated that water does not fall so much as *decide* to fall. Droplets nucleate in mid-air, hang like trembling mercury, then streak downward or sideways or, occasionally, upward again. Every surface weeps. The walls, floor, and jagged ceiling are composed of fresh obsidian and rhyolite still warm from the planet’s guts. Scalding water seeps from countless pores, runs in thin silver threads, flashes to steam, condenses again. The heat is ferocious, 2.9 in every breath, yet the extreme elevation keeps the pocket sealed inside a sleeve of frigid outer air. Only this hidden chamber, this blister in reality, is hot.
+
+There are no plants. Not a filament of lichen, not a spore. Life here began somewhere after mineral and before leaf. In their place the rock itself has grown ornate, fractal crusts—silica lattices that mimic the branching that plants might have attempted if they had ever been invited. These are not alive. They are only the scaffolding.
+
+The scaffolding, however, is *crawling*.
+
+Fauna saturates the volume until the pocket feels stuffed. Shatterlings—thumb-sized things like animated chips of stained glass—move in layered clouds so dense you must push through them. Their bodies catch the normal daylight that leaks from the fissure above and fracture it into colors that have no business existing: a green that tastes of iron, a violet that leaves after-images shaped like teeth. They make almost no sound. Only the faintest crystalline *tick* when two collide, quickly swallowed by the thick, wet air.
+
+Between them glide the steam eels—long, translucent tubes of superheated vapor given temporary flesh. They pulse in slow predator-prey spirals around the central vent, swallowing shatterlings whole with a soft *hiss* that might be digestion or simply the sound of water turning to steam inside a body. Larger presences—slow, mountainous things that look like living folds of cooled lava—crouch against the walls and open seams in their backs so that smaller creatures may crawl inside and be remade. The ecology is closed, violent, and almost perfectly silent.
+
+The only persistent sounds are geological and meteorological: the soft perpetual weeping of the rocks, the low, velvet roar of steam forcing itself through fissures, and the irregular *plink* of condensate pearls striking glassy surfaces. Everything else is quiet enough that you can hear your own blood.
+
+Yet the place is not still. It is young—geologically minutes old—and still arguing with physics. This is where reality has not finished knitting itself together. Cause sometimes follows effect by half a second. Shadows detach from their owners and continue walking after the bodies have frozen. A shatterling you crush beneath your boot may still be seen, unharmed, drifting near the ceiling an instant later, as if probability itself shrugged. Gravity is polite but inconsistent; a droplet may orbit your wrist before remembering to fall. The air occasionally forgets which way “down” is for three heartbeats, then corrects itself with an audible *pop*.
+
+The creatures have already invented primitive technology. Some shatterlings carry hooked slivers of volcanic glass they have flaked with microscopic mandibles. Others weave silica filaments extruded from their own bodies into delicate nets no thicker than spider silk. These tools are temporary, dissolving back into the weeping walls after a single use, as though the pocket itself refuses permanence. There are no built structures—only the rock’s own fresh, savage architecture.
+
+At the center lies the Fold’s heart: a knee-deep pool of clear, near-boiling water that never quite steams away. Its surface is perfectly reflective yet shows things that have not yet happened. Around it the layered swarms orbit in slow, tidal currents—predator, prey, scavenger, and midwife—all engaged in an endless, wordless negotiation of matter. When one is consumed, its substance is immediately re-expressed elsewhere as another creature, as though the pocket maintains a fixed number of living shards and simply rearranges them.
+
+This is not a place that tolerates visitors for long. The longer you remain, the more you begin to feel yourself becoming another layer—another dense presence per volume—until the distinction between your body and the weeping rock, between your breath and the condensing air, grows uncomfortably thin. The mountain is still growing. The Fold is still forming. And in the profound, dripping quiet, something that has never seen a plant or a mammal is deciding what shape it will wear next.
+
+Stay much longer and it may decide to try *you*.

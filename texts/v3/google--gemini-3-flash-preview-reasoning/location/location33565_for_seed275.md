@@ -1,0 +1,19 @@
+The world is not made of stone, but of wood—dry, ancient, and endlessly recursive. You are standing in the *Endo-Arbor*, a subterranean hollow so vast that the curvature of the ceiling is lost in a pale, atmospheric haze. Here, the concept of "ground" is a polite fiction; the floor is a compressed strata of desiccated peat, cork, and lignified fibers, packed so tight by time that it rings like ceramic under a boot.
+
+There is no water. The air is cool and impossibly crisp, smelling of old library books, cedar shavings, and the sharp, metallic tang of ozone. In place of rain, the atmosphere carries a fine, silvery silt—a dry mineral dust that the vegetation filters directly from the air. 
+
+The vegetation is the architecture, the geology, and the substrate. Everything you see is alive, or was once. Massive, pillar-like trunks, miles wide, stretch from the floor to the unseen ceiling, serving as the load-bearing bones of the world. Between these titans, the space is not crowded, but curated. The density is sparse; there are miles of open, rolling plains of grey moss that feel like walking on velvet-covered bone. The scale is regional, a valley of giants where a single fallen leaf might be the size of a city plaza, its serrated edges forming a natural fence.
+
+Embedded in this biological expanse is a sprawling, industrial urbanity. This is not a primitive forest, but a mechanized one. 
+
+Clinging to the sides of the great trunks are refineries and factories built of hardened amber and dark, cold-forged iron. You can see the rhythmic movement of massive wooden pistons—sections of living vine trained to pulse in airtight sleeves of copper, driving gears that turn with a slow, heavy *thrum*. The technology is tactile and mechanical: long, suspended rail systems made of tensioned silk-cables carry ore-buckets between the trunks, and giant bellows of stitched leather groan as they pump air into the deep-tissue kilns of the city.
+
+The city is layered. Higher up, accessible by spiral staircases carved directly into the bark, are the residential districts—complex, woven honeycombs of willow-thin laths and translucent resin windows. Below, in the "emerging" zones, the world is still under construction. Here, the vegetation is raw and embryonic. Pale, translucent shoots as thick as skyscrapers push slowly out of the peat, their surfaces soft and wet with a non-aqueous, oily sap that hardens into "rock" within days. The "erosion" here is additive; the world is not being worn away, but is constantly crystallizing into new forms.
+
+The light is steady and pervasive, a "normal" daylight that has no sun as its source. Instead, the very air seems to glow, a byproduct of the massive industrial chemical reactions taking place in the refineries above. It casts long, soft shadows across the bark-plains.
+
+Fauna is abundant but strangely hushed. Large, six-legged grazers with exoskeletons of polished mahogany move across the moss-fields, their hooves making no sound. Small, clockwork-like birds with wings of iridescent chitin flit between the gears of the factories, picking off the mineral-slugs that grow near the heat-vents. Everything moves with a deliberate, biological pace—a synchronized motion of predator, prey, and machine.
+
+It is a quiet world. The massive scale of the caverns swallows sound, leaving only the distant, rhythmic heartbeat of the industrial pumps and the occasional, crystalline *crack* of a new branch sprouting miles away. 
+
+In this dry, cool dark, the city does not fight the forest; it harvests the growth. The inhabitants have mastered the art of the "graft-machine," plugging engines directly into the high-pressure circulatory systems of the world-tree. There are no pipes for water, only conduits for dust and gas. The world is a masterpiece of dry engineering, a living clockwork subterranean empire that is still, even now, growing into the emptiness.

@@ -1,0 +1,17 @@
+This is a place defined by an oppressive intimacy; a hidden pocket universe where light has never struck. You are high up—the thin air outside the entrance suggests a mountain peak near the cloud ceiling—but inside this chamber, the altitude is meaningless. You have crawled into a geological blister, a womb of rock heated by deep, ancient veins of geothermal energy.
+
+The darkness here is absolute, a thick, physical weight against the eyes. To know this place, you must touch it, breathe it, and let its intense density press against your skin.
+
+The air is not just humid; it is a suspended ocean. It is hotter than blood, thick and cloying, coating the lungs with every shallow breath. There is no wind, no circulation. The temperature is locked in a perpetual, stifling fever. Because of this heat and saturation, every surface is slick with a heavy, viscous condensation that refuses to evaporate and rarely gathers enough weight to drip. It just clings.
+
+The geology is bizarre, a frozen explosion of mineral growth. This is not a cave formed by water wearing away stone over eons. This is a void created by expansion, and it is furiously attempting to fill itself. The "walls" are a chaotic, interlocking thicket of mineral teeth and crystalline spears thrusting inward. They are incredibly dense, emerging from every angle—floor, ceiling, sides—so tightly packed that there is barely room to turn your body without scraping against them.
+
+These formations feel raw, terribly sharp, and chemically unstable. They are not smooth stalactites; they are jagged, unfinished things, like a geode turned inside out and arrested mid-growth. They feel brittle yet unbreakable, coated in that perpetual slime. There are no smooth surfaces, only points and razors crowded together in the suffocating heat.
+
+There is almost no life here, the environment too hostile and energy-poor for most things. Yet, if you run a hand carefully along the slicker crystal spears, your fingertips might detect a slightly thicker texture in the slime—mats of extremophile bacteria thriving on the chemical vapor and heat, the only "vegetation." Rarer still, perhaps once in a lifetime of stillness, you might sense the slow, blind movement of something else: a translucent, chitinous speck, no larger than a grain of rice, grazing sluggishly on the bacterial film, adapted perfectly to a world without light or time.
+
+Despite the rawness of the geology, nothing is changing. The heat and moisture have reached a perfect, paralyzed equilibrium. The crystal teeth are not growing; they are held in an eternal moment of becoming.
+
+Yet, something else has been here. Wedged tight between two serrated ridges of quartz-like mineral, near where a human hand might rest for balance, there is an anomaly. It is a shard of obsidian, crudely knapped into a scraping tool. Around its base are the fossilized, blackened remnants of twisted fiber binding. It is stuck fast, calcified into place by the mineral sweat of the cave. Someone, perhaps thousands of years ago, crawled into this sweltering fissure, perhaps seeking a vision in the dark heat, and left their tool behind. It has become part of the chamber's frozen anatomy.
+
+The soundscape is near zero. The density of the air and the crowding of the crystals swallow noise instantly. You hear the thudding of your own overheated heart, the wet slide of your skin against the rock, and the incredibly faint, high-frequency hiss of super-saturated steam escaping microscopic fissures—a sound so constant it becomes silence.

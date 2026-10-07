@@ -1,0 +1,26 @@
+The inhabitants of the Eye are defined by the same "empty density" as the mountain itself. To live here, one must be composed of equal parts tensile strength and absolute lightness. There is no room for the heavy or the slow; the wind would either shatter them against the basalt or pluck them into the abyss.
+
+### The Sky-Swifts (The Kinetic Spark)
+The most visible residents are the **Sky-Swifts**, though to call them birds is to ignore their strange, reptilian elegance. Their four wings are not feathered in the traditional sense, but are covered in iridescent, silicon-hard scales that overlap like shingles. This armor protects them from the "brittle" air and the sand-like grit of high-altitude ice crystals. 
+
+They are creatures of pure momentum. Because the Eye is a vertical wind tunnel, the swifts have evolved to sleep while spiraling within the central void, locking their wings into a rigid X-shape and allowing the updrafts to keep them aloft in a state of semi-conscious suspension. They do not sing; they *vibrate*. When thousands of them dive into the Eye simultaneously, the friction of the air against their scales adds a metallic, shimmering overtone to the mountain’s own bass thrum. They feed on "aerial plankton"—microscopic spores and frozen bacteria carried up from the lowlands by the thermal vents.
+
+### The Moss-Walkers (The Glass-Grip)
+Deep within the neon-violet mats of moss live the **Glass-Grip Tardigrades** and their larger cousins, the **Prism-Crabs**. These crustaceans are no larger than a human thumb, with shells as clear as the water film they inhabit. They are the gardeners of the rim. They move with agonizing slowness, their multi-jointed legs ending in microscopic hooks that interlock with the basalt’s grain. 
+
+They spend their lives grazing on the liverworts, but their primary function in the ecology is the management of the "upward rain." As the heavy droplets roll sideways and upward across the stone, the Prism-Crabs use their fans to redirect the water into the roots of the cloud-ferns, ensuring the moss doesn’t become oversaturated and slough off into the void. At night, they bioluminesce in a soft, rhythmic pulsing that matches the sub-bass frequency of the mountain, turning the emerald ring into a glowing halo visible from the clouds below.
+
+### The Breath-Seekers (The Fragile Architects)
+The makers of the cairns and the copper spikes are not permanent residents, but they are the only ones who truly *understand* the Eye. They are the **Sibilants**, a reclusive, nomadic species of tall, spindly humanoids with skin the color of wet slate. Their bones are honeycombed and filled with air, making them incredibly light but fragile—a fall would not just break them, it would shatter them.
+
+They climb the needle once every generation, not to dwell, but to "breathe the heights." They are the ones who braided the cloud-fern fibers into the safety lines. They move across the rim in a rhythmic crouch, always keeping three points of contact with the stone. They treat the Eye as a holy site of sensory overload. To a Sibilant, the "shriek" of the swifts and the thrum of the wind are a form of language. They carve the geometric ripples into the floor to track the movement of the "glories"—the circular rainbows. They believe that if a Seeker can stand in the center of a glory without blinking as the sun sets, their spirit will become as thin and eternal as the air itself.
+
+### The Void-Kite (The Silent Apex)
+High above the swifts, almost invisible against the glare of the troposphere, hangs the **Void-Kite**. It is a singular, massive organism—a living sail of translucent membrane stretched over a flexible, cartilaginous frame. It has no legs and no mouth; it absorbs nutrients directly through its skin from the moisture-rich clouds passing through the Eye.
+
+The Void-Kite is the Eye’s only true silent inhabitant. It acts as a stabilizer for the mountain’s micro-climate. By shifting its massive, kite-like body, it alters the aerodynamics of the hollow core, preventing the wind from reaching speeds that would strip the moss from the bone of the mountain. It is a symbiotic god, a living roof that occasionally descends to rest its edges upon the rim, covering the emerald ring in a canopy of veined, pulsing silk.
+
+### The Hidden Life of the Core
+Finally, in the lightless gashes deep inside the central shaft, there are the **Aolian Weavers**. These are spiders with legs like needle-thin wires, who spin webs not to catch prey, but to catch *sound*. Their webs are tuned to specific frequencies of the mountain's thrum. When the wind hits a certain pitch, the webs vibrate, shaking loose the condensed minerals from the damp air, which the weavers then harvest to build the anchors for the cloud-ferns. 
+
+Everything here is a circle. The water feeds the moss, the moss anchors the ferns, the ferns provide the rope for the Seekers, and the Seekers’ copper spikes provide the mineral trace the weavers need to keep the entire vertical world from falling apart. It is a frantic, wet, and beautiful clockwork, ticking away at the very ceiling of the world.

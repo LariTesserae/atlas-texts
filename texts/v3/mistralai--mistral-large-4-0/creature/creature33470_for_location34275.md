@@ -1,0 +1,45 @@
+I need to describe who or what lives in the Churning Veil. This is a place without conventional fauna—nearly mythical, barely glimpsed. But the prompt asks me to describe the inhabitants, the living things that dwell here. Let me work with what the text gives me and what it implies.
+
+The inhabitants would be:
+
+**The Vegetation Itself** — not plants as we know them, but a single distributed organism, perhaps, or a colony of organisms that have merged into something indistinguishable from the landscape. The "resident organisms," the slow, patient, cold-adapted things that eat resinous exudates. They have no leaves, only surfaces. They twitch. They breathe. They are the valley.
+
+**The Fauna of 0.7** — something that moves through lower hollows, something thick and patient, adapted to eating what the vegetation exudes. Tracks in a season of searching. Never seen. Perhaps mammalian in origin, perhaps not. Perhaps something that has become more like the plants it feeds upon.
+
+**The Spores** — not quite life, not quite weather, but the reproductive medium, the communication, the presence that fills the air. Millions of them, rising at dusk, creating pressure-waves. They are the valley's voice, its breath, its way of being present without source.
+
+**The Water** — not alive, but agent. The film, the pools, the floods. It carries, it undercuts, it enables. It is the valley's memory, stored under pressure for years, released in cascades.
+
+**The Incorporated** — those who stayed. Those who became mineral deposits, became substrate, became part of the woody matrix. The valley's archive of the temporary.
+
+**The Storm-State** — not an inhabitant but a condition, a phase, a way of being that the valley enters and exits. The turbulence. The fracture. The ice that encases and then releases.
+
+Let me write this as a description of the inhabitants, letting them emerge without settling too early.
+
+---
+
+What lives here does not assemble. It accumulates. It does not move through the valley so much as *become* the valley, a process of becoming that has been ongoing for longer than the stone shoulders remember, longer than the cold has been cold.
+
+The primary inhabitant—if inhabitant is the word—is the **Mass**. Not a plant, not a colony, not a superorganism in any category you brought with you. The Mass is what happens when growth outpaces decay, when the cold preserves what the warmth would consume, when centuries of exudate harden into structures that outlast the bodies that produced them. It has surfaces where you expect leaves: vast, folded membranes of deep teal, almost blue-black, that photosynthesize in light too thin to warm, that twitch with slow muscular movements to shed the weight of their own success. It breathes—expanding in the rare afternoon warmth, contracting into fissures when the temperature drops, a peristalsis so vast that you feel it in your sternum before you understand it. Its "wood" is cellulose shot through with silicates, with the frozen precipitates of centuries of mineralized water, harder than some stones, more brittle, more hungry for the next cycle. The Mass does not flower. It *exudes*—resinous compounds that harden in the cold into amber-like structures, into the fossil-gardens that become substrate for descendants not yet conceived. It is a slow combustion spread across centuries, a metabolism that makes your heartbeat seem frantic, desperate, temporary.
+
+Within the Mass, and indistinguishable from it, live the **Slow Ones**.
+
+You will not see them. The fauna at 0.7 is nearly mythical—you might find, in a season of searching, the tracks of something that moves through the lower hollows, something that has learned to eat the resinous exudates and has grown thick and patient as the plants themselves. But you will not see it. The vegetation has made the world too dense, too layered, too full of hiding places that are not hiding places at all but simply *structure*. The Slow Ones are what happens when an animal stays too long in a place where nothing rushes, where the cold is absolute in its patience, where the food is abundant and the metabolism must match the temperature. They have become more like the Mass than like their ancestors—thick, slow, their internal chemistry shifted to match the deep teal of the light that reaches them. They do not hibernate. They do not migrate. They *wait*, in hollows that are not hollows, in the spaces between woody structures that are not spaces but *architecture without architects*. When a section of the living slope detaches—when the ice fractures, when the water floods, when the mass below becomes saturated and heavy and begins to flow—the Slow Ones do not flee. They are *caught*, held, *absorbed* into the general mass, or they ride the slow avalanche down the high gradient, coming to rest hundreds of meters below, where they will colonize what has fallen, where the wound becomes a pool, a surface, a new substrate. They are not survivors. They are *incorporated*, again and again, into a system that does not distinguish between living and dead, between self and substrate, between the eater and the eaten.
+
+Above them, or through them, or *as* them, move the **Spores**.
+
+Always spores. The air at 2,400 meters carries them—thin, sharp, and something else too. They are not quite life, not quite weather, but they are the valley's voice, its breath, its presence without source. Millions of them, timed to the humidity spike of dusk, creating a pressure-wave that registers more as a change in the air than as sound. They rise when the storm builds. They thicken the film of water on every surface. They are the reproductive medium, the communication, the way the Mass extends itself into the thin cold air, into the brief windows of stability, into the light that scatters from too many angles at once. When you stand in the valley and feel the air *thicken*, full of the almost-visible presence of metabolic process, that is the spores. They are the valley's attempt to become more than itself, to reach, to colonize, to continue.
+
+And beneath all of them, enabling all of them, moving through them, is the **Water**.
+
+Not alive, but agent. The film that glazes the world each dawn, black and still and strangely warm, warmed by the metabolic heat of the Mass below. The rivulets that form when the cold fury comes, thirty minutes of vertical rain that transforms the film into channels, into brief torrents that exploit the living gutters the plants have evolved to create. The water that is stored under pressure in the porous superstructure, released in localized floods when a fracture begins, a sound like a glacier calving but slower, but *alive*. The water does not run. It *films*. It finds the slightest depression in the vegetable architecture and pools there, waiting, persistent, the secret engine of the place. It is the valley's memory—centuries of condensation, of rain, of melt, stored in the woody matrix, released in cascades that undercut, that saturate, that enable the slow flow of saturated earth. The water is the valley's industry—pumps that are valves that are capillary networks, processing thousands of liters per day through a system optimized over evolutionary time. It is not a resource. It is a *rate*, a process, a way of being that makes the valley a machine for being alive at the edge of death.
+
+Finally, there are the **Incorporated**.
+
+Those who stayed. Those who were temporary and became permanent, not by choice but by physics, by the patience of cold, by the hunger of the Mass. Your body will feed the slow cycle. Your bones will become mineral deposits in the woody matrix. Your water will join the film, the pools, the sudden floods. Nothing is wasted. Nothing is *left*. The Incorporated are the valley's archive—layers of the temporary, pressed into structure, into substrate, into the fossil-gardens that will support the next generation. They are not dead. They are not alive. They are *incorporated*, part of a system that does not distinguish, that does not mourn, that simply continues—to churn, to grow and fracture and incorporate and grow again.
+
+The valley is not a container. It is a *rate*. And what lives here lives at that rate—slow, patient, cold-adapted, a turbulence so vast and so slow that it has become, for all practical purposes, *geology*—but geology that breathes, that hungers, that will outlast the stone shoulders that frame it, that will climb them eventually, given centuries, given the patience of cold.
+
+The storm is building. The spores are rising. The woody structures are singing their low, subsonic song. Somewhere in the middle distance, a fracture has begun, and the water is moving, finding its channels, preparing to run.
+
+What lives here does not need you. But it will have you, eventually. The incorporation has already begun.

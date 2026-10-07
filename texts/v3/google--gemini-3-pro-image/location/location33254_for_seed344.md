@@ -1,0 +1,15 @@
+This place is a blister beneath the skin of a larger, unseen structure. It is a tight, submerged pocket-environment, accessed perhaps only by a forgotten maintenance crawlway or a narrow fissure in concrete foundations. You have to hunch to exist here.
+
+The air is incredibly aggressive. It is thick, motionless, and intensely hot—a humid heat that feels heavy in the lungs, tasting faintly of copper and spoiled sulfur. Every surface is sweating. Water doesn't pool so much as it clings; a perpetual, slick sheen coats the walls, the floor, and the machinery. The atmosphere is so supersaturated that the air itself seems to be condensing, hanging in a shimmering, translucent fog that refracts the harsh, functional light from a single, wire-caged bulb bolted to the ceiling.
+
+Dominated by a relentless, deafening noise, the space is small but the sound is immense. It is a cyclical, industrial cacophony: the deep, resonant *thrum-shudder* of a massive, hidden pump engaging every twelve seconds, followed by a violent hiss of escaping high-pressure steam that screams through a faulty valve. The sound leaves no room for thought; it vibrates in the teeth and chest stone.
+
+Occupying the center of this cramped chamber is a single, complex piece of industrial apparatus. It looks like a hybrid of a heat exchanger and a hydraulic press, covered in a patina of scab-red rust and oily grime. Despite its state of apparent neglect, it functions with terrifying power. Pistons gleam momentarily before plunging back into grease-black cylinders.
+
+Because of the heat and the mineral-rich steam venting from the machine, the environment is geologically active in a strange, accelerated way. The surrounding walls—originally poured concrete or rough-hewn rock—are no longer recognizable. They are covered in a burgeoning growth of sharp, crystalline formations.
+
+These formations are the "vegetation" of this place. Needle-like spires of orange and toxic-yellow sulfates sprout from every crack in the metal and masonry. They are terribly fragile and razor-sharp, breaking at a touch and reforming over weeks in the humid oven. The floor is a treacherous crust of brittle mineral sheets that crunch underfoot, layered over a slick mud of rust slurry.
+
+There is absolutely no animal life here; the heat and chemical air would cook soft tissue in minutes. The only organic presence is a sparse, hardy film of thermophilic bacterial slime—slick, dark green patches that thrive on the hottest sections of the venting pipes, feeding on the sulfurous output.
+
+The dynamic here is slow, despite the violence of the sound. The machine hammers away, untended, perhaps for decades. The rust blooms gradually, eating the iron millimeter by year. The sharp crystals extend their reach with agonizing patience. It is a fixed loop of heat, pressure, and slow chemical accretion, hidden away in the dark, screaming at itself forever.

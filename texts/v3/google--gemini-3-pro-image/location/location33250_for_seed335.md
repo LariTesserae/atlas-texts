@@ -1,0 +1,19 @@
+This place is a hidden wound in the earth, discovered only by falling into it. It is a recent collapse, a deep sinkhole concealed beneath the floor of a frozen, silent boreal forest. Stepping through a deceptive patch of moss and brittle ice, the world drops away, plunging into a subterranean pocket that operates on entirely different rules.
+
+The primary sensation upon entering is noise. It is deafening. The silence of the surface is replaced instantly by a relentless, mechanical roar that vibrates in the chest. This is a place of natural industry, an engine room of geology running at dangerous capacities.
+
+The environment is a vast, hollow Oubliette. While contained—a mere bubble in the crust—the internal volume feels immense because it is mostly empty space. The walls are sheer, violent fractures of raw, dark basalt and slate. They are incredibly young in geological terms, unweathered and razor-sharp, still showing the jagged geometry of the recent cataclysm that formed them.
+
+There is no human technology here, yet the vocabulary of a factory is the only way to describe it. At the bottom of the pit, perhaps two hundred feet down, high-pressure geothermal vents scream. Jets of superheated vapor blast upward in continuous, thunderous columns. It sounds like a dozen turbines spooling up, never reaching peak rotation. The ground rhythmically shudders beneath the strain of pressurized magma pushing against the thin crust.
+
+The interaction of water and temperature defines the atmosphere. The ambient air temperature is bitter cold, hovering just above freezing. The walls of the pit are not just damp; they are aggressively weeping. Frigid groundwater sluices down the fractured rock faces in constant sheets, pooling on ledges and raining down into the central void.
+
+When this freezing, cascading water hits the rising columns of superheated steam, the air instantly thickens violently. The pit is choked with turbulent, swirling banks of fog that rise and fall in complex convection currents. It is a condensing atmosphere, thick enough to taste of minerals and sulfur.
+
+Light is scarce. It filters down from the ragged hole to the surface world far above, a weak, bruise-colored twilight that struggles to penetrate the churning mist. Shadows are deep and fluid.
+
+Despite the cold and the violence of the steam, life is shockingly abundant here, thriving in the narrow margins between freezing and boiling. The sheer walls, wherever they are not being actively scoured by steam jets, are upholstered in a lush, dripping skin of vegetation. Thick, water-logged mosses in iridescent greens and slimy blacks coat every surface. massive, rubbery ferns hang precariously from overhangs, their fronds heavy with condensation. Clusters of bulbous, pale fungi, some the size of truck tires, cling to the wetter crags, vibrating with the noise.
+
+The fauna is equally crowded and frenetic, largely sightless and specialized. Pale, segmented arthropods the length of a forearm scuttle in dense waves over the slick rocks, grazing on thick bacterial mats that grow near the heat sources. In the foggy air, swarms of leather-winged creatures—bat-like but silent—dive recklessly through the rising steam columns, snatching insects that have been stunned by the thermal shock.
+
+It is a hyper-dynamic environment. Rocks, loosened by the thermal stress and constant water flow, frequently crack with the sound of gunshots and tumble into the unseen depths below the vents. The fog banks thicken and disperse in seconds. The entire pocket world is in a state of high-energy flux, a loud, wet, cold, and crowded machine hidden beneath the skin of the world.

@@ -1,0 +1,15 @@
+This is a high-altitude realm where geology has been entirely superseded by botany. There is no stone, no dirt, no mineral bedrock. The world is suspended in a hot, steaming haze, miles above an unseen surface, where immense, isolated structures rise like cathedral spires from a endless sea of churning white clouds.
+
+These structures are not built *upon* anything; they *are* the environment. They are Titanic, vertical agglomerations of fused plant matter, grown into the shapes of archologies. The scale is regional; you can stand on a balcony of woven root-fiber and look across miles of empty, misty air to another distant, towering pinnacle, glowing hazy green in the diffused daylight.
+
+The density is sparse, defined by the vast emptiness between these megastructures. They are lonely islands in the sky. But within and upon the structures themselves, the vegetation is absolute. The "ground" underfoot is a resilient, springy pavement of calcified fungal plates and braided cellulose cables, slick with perpetual moisture. Walls are not masonry, but sheer cliffs of tightly packed, monolithic bamboo-like canes that have fused into solid palisades, dozens of meters thick.
+
+The heat is oppressive, a humid, breathless weight. The air is so saturated that water doesn't just rain; it condenses on every surface instantly. The "architecture" weeps constantly. Rivulets of warm water cascade down the fluted sides of the plant-towers, gathering in elevated pools lined with giant, waxy leaves before spilling over in steaming waterfalls into the void below. The atmosphere is thick with the smell of accelerated growth—a pungent mix of crushed chlorophyll, fermentation, and spicy pollen.
+
+There are no animals. No birds ride the thermals between the towers, no insects crawl on the wet surfaces. The silence of fauna, however, is replaced by a deafening roar of biological turbulence.
+
+The landscape is loud because it is growing with violent speed. It is a "young" landscape because it is constantly destroying and remaking itself in real-time. The primary sound is a ceaseless, agonizing groan of tension—the sound of millions of tons of plant fiber stretching and warping under rapid expansion.
+
+You hear sudden, thunderous *cracks* that echo across the cloud valleys as a structural buttress, the size of a highway overpass, snaps under the strain of its own growth. This is immediately followed by a wet, tearing sound as new, fibrous tissue violently expands to fill the wound. Entire cantilevered platforms of pitcher-plant material, designed to catch the heavy dew, might form over the course of a day, hang precariously for a few hours, and then shear off, plummeting silently into the mists below, only to be replaced by new growth by the next morning.
+
+It is a world of aggressive, architectural vegetables acting without intent, building a towering, sweating civilization of green that is constantly shifting, breaking, and roaring with the energy of pure, unbridled life.

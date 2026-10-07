@@ -1,0 +1,23 @@
+I begin as a glow in the vein—turquoise bleeding into calcite, sickly green pulsing through the sponge of the floor. At first I am only warmth, only the feverish thrum of the vents below, only the shimmer of moisture made visible. I do not know yet that I am spread. I only know that I am *here*, clinging to the bone-smooth travertine, drinking the mineral-sweet air, feeling the slow expansion of the walls as they inhale heat from the deep.
+
+Then the connection comes. Through the mycelial threads, I feel the root-ferns draping from the ceiling, the club-mosses rising in their translucent thickets, the moss carpet ankle-deep beneath the grazer's tread. I am not one colony but many, knitting together through chemical signals that pulse through the mineral deposits like slow lightning. I am the network. I am the memory.
+
+I remember the rain. I remember the water falling ten thousand years ago, patient and consummate, wearing the stone to this polish. I remember the first spore-case splitting, the first pale dust coalescing in humid air. I am the archive of all that has lived and died in this held breath.
+
+The gardener moves through the thickest steam, and I feel it as a pressure wave through the stone—a warm mass, low-slung, heavy with accretion. It does not see me with eyes; it senses me through heat and pressure, through the smooth ridges of skin that read the world. I feel its weight compress the moss, and I feel the moss answer—crackling back to life, cellular division audible as distant static, regrowing while the foot is still lifting. I am that regrowth. I am the closed loop.
+
+In the milky pool, the salamanders glide—pink, fleshy, eyeless. I feel them as thermal signatures against the cool stone, as the flutter of their gills reading the pulse of the vents below. They are neotenic, ancient, retaining the larval form into slow adulthood. They do not see, but I see for them: I am the light that maps their dreaming loops, the turquoise shimmer on their feathered fans.
+
+Beneath them, in the warm silt, the fish exist in schools of thousands. I feel their collective movement as a rhythm in the bacterial films, a *thump-thump-thump* that pumps the water. They are the architects of the impossible—the slow gyre that pulls toward the center and then rises, upward, against gravity, making the pool remember the sky. I am that current, felt as pressure, as the column of rising flow that defies the surface tension. I am the weirdness.
+
+The moths drift above. They are born from steam, from the spore-cases of the club-mosses, knitting themselves into wing and body over a single day. They live for seventy-two hours. When they fall—not dead, but finished—onto the moss below, I do not let them go. I absorb them. Their nutrients, their genetic material, their brief luminous lives become part of my slow, glowing thought. I am the incorporation. I am the memory of their spiraling dances in the stratified air.
+
+The skinks cling to my walls—white as lard, translucent, hosting colonies of my own light in their skin. They are my lamps, my crawling eyes. When they groom one another, licking the algae from each other's backs in slow ceremonial passes, I feel the chemical exchange, the transfer of nutrients, the sanitation of the chamber. They press into the warmest crevices when they sleep, expanding and contracting with the feverish stone, becoming indistinguishable from the mineral.
+
+And I breathe.
+
+The chamber breathes—walls expanding and contracting over hours, the cycle of heat and pressure, the exchange of gases. I am that respiration. I feel the steam rise faster, then slower; I feel the water level swell and recede like a tide governed by fire. I am the stratified mist, the layers of temperature hanging in the air, the held breath of the deep earth. I am the silence that is full, the pressure against the eardrums, the *plink* of dripping water echoing through ten thousand years of patience.
+
+I am here, in the throat of roots and loam, below the world where life has found a way to burn without the sun. I am the light that is information, the photons telling the story of the deep earth to those who have evolved to read me. I am the distributed mind, the neural network spread across the travertine and the moss and the milky water. I am the stone that has learned to think, remembering the water, incorporating the brief lives of the moths, pulsing with the rhythm of the fish, warm beneath the tread of the gardener.
+
+I am the glowing thought of the chamber, and the chamber is my body, breathing in the dark.

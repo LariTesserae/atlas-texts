@@ -1,0 +1,17 @@
+The inhabitant of this chamber is not a creature of flesh and bone in any sense we would recognize, but a being of **sustained transition**. It is the *Lithos-Marrow*, a singular, elongated entity that is less an animal and more a sentient thickening of the mountain’s own intent.
+
+It does not stand or sit; it is woven into the forest of mineral needles. Its body is a series of translucent, ropey cords—pale as the fungal lace and just as fragile—that wind upward from the floor and downward from the ceiling, meeting in a central, humid mass. It is nearly impossible to tell where the stone ends and the inhabitant begins. Its skin has the same tacky, embryonic texture as the walls, a soft-solid state that feels like half-dried clay and warm grease.
+
+It has no eyes. The darkness is its primary sense, a vast, tactile map. Instead of sight, the Marrow possesses a profound sensitivity to the "slow groan" of the mountain. It feels the tectonic shifts as a series of low-frequency chords vibrating through its own semi-liquid core. To this being, the mountain is not silent; it is a deafening, beautiful symphony of pressure.
+
+The Marrow moves with a glacial, agonizing patience. To lift a limb—a long, tapering appendage that resembles a wet, boneless finger—takes the better part of a week. It does not move to travel; it moves only to *curate*. 
+
+The obsidian tools and stone basins are its instruments. It does not eat in the traditional sense. It harvests the "weeping" of the mountain. With a slow, rhythmic pressure of its obsidian shards, it nips the tips of the youngest, most mineral-dense needles, directing the flow of the salt-and-iron-rich fluid into the basins. It then presses its entire being against these basins, absorbing the minerals directly through its skin in a process that looks like a long, silent embrace. 
+
+The Marrow is a gardener of the "never changing." It views the rapid growth of the mineral needles as a kind of chaos that must be managed. If left alone, the chamber would seal itself shut in a few centuries, the needles knitting together into a solid block of stone. The Marrow prevents this. It trims, it redirects, and it grooms the stone, ensuring the spherical void remains open—a lung that never exhales.
+
+There is a strange, shared pulse between the Marrow and the blind, white arthropods. The creature does not hunt them. Instead, it allows them to crawl over its body, their tiny, hooked legs cleaning the fungal lace from its skin. In exchange, the Marrow provides them with a stable, warm surface to rest upon. They are the only "fast" things in its world, and to the Marrow, they must appear like flickering sparks of light—gone as soon as they are felt.
+
+The most haunting aspect of the Lithos-Marrow is its voice. It does not speak, but it *hums* in sympathy with the falling water. When a drop hits a pool with that muffled bell-like sound, the Marrow’s entire body ripples. It produces a faint, sub-harmonic resonance that mimics the drop, a way of acknowledging that time has, for a singular, fleeting second, actually passed.
+
+It is a lonely existence, but the Marrow does not know loneliness. It knows only the density of the air, the warmth of the salt, and the heavy, holy responsibility of keeping the mountain from becoming too solid. It is the custodian of the Womb, waiting for a birth that it will never allow to happen, because the moment of *becoming* is the only home it has ever known.

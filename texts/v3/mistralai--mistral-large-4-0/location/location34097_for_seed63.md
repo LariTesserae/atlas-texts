@@ -1,0 +1,29 @@
+I'll let this place emerge from the tensions in its parameters — the near-absence of water and vegetation against overwhelming fauna, the darkness against heat, the small scale against crushing density.
+
+---
+
+**The Hollow That Breathes**
+
+You descend. Not far — the scale is wrong for distance, *right* for depth. A vertical world, a throat. The walls are not rock but something calcified, something that grew in layers like a wasp's nest built in slow reverse, each chamber a former lung of some vast and patient thing that died before naming itself. The material is warm to the touch, almost feverish, 2.6 degrees of heat radiating from stone that has never known cooling. There is no water here — not as absence, but as *law*. The chemistry runs on something else. Ammonia tides in sealed pockets. Sulfuric breath. The dry heat of a world that sweated out its oceans ten million years ago and forgot to mourn them.
+
+And yet: life.
+
+The density is not crowd but *saturation*. Every surface is occupied. The walls move with them — millions, billions, packed into the spaces between the calcified chambers. They are small. Each one no larger than a fist, no smaller than a seed. They have no eyes that you can recognize as eyes, no limbs that you would call limbs, but they *press* outward, they *flow* across surfaces in films of motion, they fill the hollows and retreat and fill them again. They are warm. They are not hostile — the concept doesn't apply — but they are *hungry for position*, hungry for the next available surface, the next thermal gradient, the next faint vibration in the stone.
+
+The darkness is not empty. It is *full*. Your light — if you bring any, and the scattered structures suggest someone once did — reveals only what it touches. Beyond: the press of bodies, the sound of their movement like rice pouring, like rain that never fell. The sound parameter says mostly quiet, but that is for ears that expect *silence*. These creatures make no calls. They make *presence*. A pressure in the air. You feel them before you hear them.
+
+The structures — scattered, partial, faint — are not built *by* anything that remains. They are built *into*. Niches carved by erosion that has reached its own equilibrium, its own settled form after 1.6 measures of time. In some, the creatures have gathered into denser configurations, almost patterns, almost *architecture* made of living density. You might call them altars. You might call them traps. The distinction requires intentions you cannot verify. The tech level is not zero but *near* — these are marks, residues, the abandoned tools of a process that no longer operates or never began. One chamber contains what might be a lever, mineralized, fused to the wall. Another: a depression worn smooth by ten thousand bodies passing through, again and again, in cycles you can almost perceive but not name.
+
+The elevation is high in a way that matters less for air — there is little — and more for *pressure*. The weight of the world above you, pressing down, has compressed everything into this cathedral-scale throat. The fauna are pressure-adapted. They do not need lungs in any sense you would recognize. They exchange through surfaces, through membranes, through the slow diffusion of chemistry across skins that are also stomachs, also senses, also *everything*. They are overwhelming not in number alone but in *lack of boundary*. Where does one end? The question dissolves. They are a tissue, a film, a weather system of flesh that happens to be discrete enough to move, to flow, to *fill*.
+
+The dynamic is real. The whole hollow breathes — not metaphorically. Thermal cycles. The stone expands in the false day, contracts in the deeper dark, and this pumping drives the movement of the creatures, the migration of chemistry through sealed channels, the slow turning of a world that has no rotation you can detect but *moves* nonetheless. Predator and prey? The distinction blurs. Some of the bodies are larger — fist-sized becomes melon-sized becomes the size of a human head — and the smaller ones flow *around* them, *through* them, in patterns that might be digestion or might be symbiosis or might be *language* in a medium of touch and heat and chemical gradient.
+
+You cannot stay. The density presses. Not violently — there is no aggression here, only *occupation* — but you feel the absence of your own space, the way a single fish might feel in a school, the way a thought feels in a mind that is not yours. The weirdness is strange in the way that deep time is strange: not wrong, but *other*. A biology that never needed water, that built itself from the exhaust of geology, that reached overwhelming abundance in a world that offered almost nothing.
+
+The sound, when you listen carefully, is not silence. It is the sound of *saturation itself* — millions of small movements, too dense to resolve into individual events, creating a bed of noise below hearing, felt in the teeth, in the sternum, in the places where your own body keeps its quiet.
+
+You climb back up, or you find another throat, or you stay and become part of the film, part of the press, part of the breathing hollow that has no name for itself and does not need one.
+
+---
+
+*Rules of this world:* No water, in any phase you would recognize. Heat is constant and *structured* — gradients, not uniformity. Life exists as distributed presence, not individuals with boundaries. Time moves in thermal cycles, not days. The built structures are *excavations*, not constructions — they are what remains when something else has passed through and worn the stone into usefulness. Nothing here is alone. The concept of solitude does not apply.

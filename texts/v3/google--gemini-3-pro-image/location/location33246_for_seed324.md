@@ -1,0 +1,13 @@
+The first thing that registers is the sound. It is not merely loud; it is a physical quantity, a relentless, crushing roar that vibrates in the marrow and obliterates thought. It is the sound of immense mechanical violence contained within a small space.
+
+This space is a hidden pocket, a forgotten access chamber buried deep within the upper reaches of a colossal superstructure that pierces the clouds. There is no natural world here. The concept of "ground" is replaced by heavy-gauge, galvanized steel grating, slippery with oil and water. Through the gaps in the metal floor, a torrent of black, freezing water rushes past in a concrete sluice with terrifying speed, churning white where it hits unseen baffles.
+
+The "walls" are towering facades of brushed aluminum and riveted polymer composites, sweating profusely. The air is biting cold and choked with moisture—a dense, swirling fog of atomized water and escaping steam that instantly condenses on every available surface. It is a perpetual, indoor rain. Everything drips. The atmosphere tastes metallic and sharp.
+
+The source of the deafening noise and the pervasive wetness dominates the center of the chamber. It is a massive hydraulic exchange array, a piece of industrial brutality that seems too large for the room it occupies. Because it is new—the edges of the metal are razor-sharp, the fittings gleaming and untouched by corrosion—its movements are precise and violent. Great pistons, coated in shimmering hydraulic fluid, hammer downward into the rushing water below with explosive force, cycling three times a second. With every stroke, geysers of freezing spray erupt upward, hitting the high ceiling and raining back down.
+
+The lighting is abysmal. A few caged, explosion-proof bulkhead lamps are bolted to the distant walls, casting a sickly, jaundiced glow that barely penetrates the steam. The light catches the frantic motion of the pistons, creating strobing shadows that make the entire room feel unstable.
+
+There are no animals; nothing with ears could survive here. The only nod to "vegetation" is a sparse, slick coating of dark green algal slime that has managed to colonize the underside of the coldest, wettest return pipes, feeding on the mineral-rich aerosol spray.
+
+It is a high-altitude compression chamber working at maximum capacity, a hidden, freezing, deafening organ essential to a larger machine, existing entirely apart from the natural world.

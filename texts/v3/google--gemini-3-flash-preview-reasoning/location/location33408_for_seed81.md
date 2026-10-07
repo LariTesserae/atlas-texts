@@ -1,0 +1,21 @@
+The air at this altitude should be thin and freezing, but instead, it is a thick, sweltering soup. You are standing on the **Aethelgard High-Flats**, a series of jagged basalt plateaus that sit far above the clouds of the lower world, yet remain trapped under a second, much heavier layer of permanent, slate-colored vapor. 
+
+The heat is not radiant; it is conductive. It lives in the moisture that clings to your skin and the slick, dark stone beneath your feet. The environment is relentlessly wet. Water does not fall as rain so much as it *exudes* from every surface. The massive basalt cliffs, weathered into smooth, undulating shapes over eons, constantly weep. Rivulets of hot, mineral-rich water trace vein-like paths down the rock faces, feeding wide, shallow pools that sit stagnant and steaming on the flats.
+
+There is no green here. The concept of a leaf or a stem feels alien to this mineral kingdom. In place of vegetation, the ground is colonized by lithic crusts—hard, calcified mats of orange and deep violet that crunch slightly underfoot, though they are more stone than plant. In the crevices where the water is hottest, pale, translucent filaments of thermophilic fungi wave sluggishly in the currents, looking like ghost-hair caught in the drain of the world.
+
+The scale of the landscape is deceptive. Because the air is so dim—a perpetual, bruised twilight filtered through miles of overhead steam—distances are hard to judge. You stand in a vast, open bowl of high-country, miles across, but it feels strangely claustrophobic. This is due to the **Density: 0.0**. The space is profoundly empty. It is a vacuum of presence. Between you and the next landmark, there is nothing but the flat, steaming expanse of weeping stone. 
+
+And then, there are the Monoliths. 
+
+Despite the emptiness, the landscape is heavily "built," though not for the comfort of anything living. Spaced miles apart, connected by sagging, rusted conduits the size of subway tunnels, are the Industrial Husks. These are gargantuan, windowless structures of corrugated iron and cast-off alloy, rising hundreds of feet into the gloom. They are the "urban" element—a city that has been stretched until it snapped, leaving its organs scattered across the plateau. 
+
+You might walk for two hours across a silent, wet plain of obsidian glass only to come upon a single, massive piston the size of a cathedral, pumping with a slow, tectonic rhythm: *thrum-hiss... thrum-hiss.* 
+
+The technology here is heavy and archaic. Thick power lines, caked in white mineral deposits from the constant steam, drape between the far-off towers like the webs of a metal spider. There are no lights on these structures, no signs of life, yet they are active. You can hear the internal groan of turbines and the gurgle of boiling water being moved through the guts of the earth. The sound is a low-frequency vibration that you feel in your teeth more than you hear in your ears.
+
+Fauna is nearly non-existent, save for the "Skimmers"—long, multi-jointed creatures with chitinous shells the color of wet iron. They move with a terrifying, silent grace, their many legs clicking softly against the basalt as they move between the industrial pipes, scavenging for the salt crystals that form where the steam vents hiss. They ignore you; you are not part of the machinery.
+
+The rules of this world are dictated by the cycle of the steam. Periodically, the pressure beneath the plateaus reaches a critical point, and the "weeping" of the rocks turns into a violent, screaming exhale. The Monoliths begin to moan as they struggle to process the surge of heat. The dim light turns a dull, flickering copper as the friction of the rising vapors creates static discharges in the upper mist.
+
+It is a place of paradox: an industrial metropolis with a population of zero; a mountain peak that feels like a boiler room; a landscape that is both ancient, eroded stone and freshly forged iron. You are an intruder in a conversation between the cooling crust of a planet and the machines built to bleed it dry. The silence here is not peace—it is the sound of a very large engine idling in a very big room.

@@ -1,0 +1,31 @@
+**The High Lattice of Veyr-Keth**
+
+You are standing on what remains of a mountain range so old it has forgotten it was ever violent. Erosion has had its way for longer than most biospheres exist; 2.6 billion years of patient abrasion have planed the stone down into a high, gently undulating plateau that still feels like the roof of the world. Elevation is punishing. The air is thin enough that every sound arrives sharpened. Temperature sits in that narrow band of cool that makes metal sweat and lungs work harder—never freezing, never warm, a permanent late-autumn-of-the-soul.
+
+There is no water.
+
+Not a single molecule moves in the liquid phase anywhere you can perceive. The ground is a pale, bone-dry amalgam of ancient feldspars, quartz ghosts, and glassy impact residues, all of it dusted with a fine, electrically active powder that behaves like static snow. Where Earth would have soil, here there is only this mineral parchment, cracked in vast polygonal patterns like the skin of a creature that died while trying to remember its own name.
+
+And yet the vegetation is total.
+
+It does not grow *on* the stone. It has replaced the very concept of substrate. What looks at first like a low carpet of moss is actually a single, planet-scale organism—thousands of species fused into one living lithosphere. Its “roots” are fractal lattices of conductive polymer and silicate tubule that sip trace volatiles from the regolith and drink sunlight so efficiently they can operate at 1% of Earth-normal insolation. The dim light (perpetual bruised twilight, as though the sun has been wrapped in gauze) is enough. These plants manufacture their own non-aqueous solvents in microscopic vesicles—long-chain siloxanes, exotic fluorocarbons, things that remain liquid at these cool temperatures and do not evaporate. They do not need rivers. They *are* the sealed environment.
+
+The plants fill everything, yet the overall impression is one of sparsity. Between the continuous living mat lie kilometers of open mineral pavement where the ground-cover grows only millimeters high, luminous gray-green, pulsing with slow internal light like breath. Rising from this living floor at irregular, town-sized intervals are the *Keth*—the urban structures. They are not buildings colonized by plants. They are plants that learned architecture so long ago the distinction collapsed.
+
+Each Keth is a colossal, slowly breathing lattice: trunks thick as apartment blocks, branches that function as elevated causeways, leaves the size of theater curtains that fold and unfold according to algorithms older than language. The architecture is layered, organic, and impossible. Internal channels carry not sap but streams of engineered nanomachinery that constantly reconfigure vascular walls, move nutrients across fifty-kilometer distances, and maintain structural integrity against the thin, cold wind. Some towers have grown spiral galleries that function as resonance chambers; others have developed hollow cores where entire districts of smaller, house-sized growths have self-organized into neighborhoods. The tech woven into them is so far beyond modern that physics itself seems embarrassed by its own rules. Local spacetime inside certain vaults is fractionally more permissive. Entropy is politely asked to wait outside.
+
+The fauna is abundant and loud.
+
+Things that look like glass insects the size of dogs skitter across the living mat in glittering hordes, their legs generating a constant high-frequency chiming. Larger predators—sleek, six-limbed things that might be descended from something like a pterosaur crossed with a mantis crossed with a drone—hunt them from the upper galleries of the Keth. Their calls are immense, metallic brays that carom across the open spaces and return changed, as though the plateau itself has tuned the echo. When a hunting pack moves through a lattice-tower, the structure answers with deep infrasonic groans that you feel in your teeth. The soundscape is never below the level of a busy factory. It is the sound of a living city that has never known silence and has begun to enjoy its own noise.
+
+Everything is active.
+
+The ground-cover ripples in slow waves as chemical signals propagate. The great lattice-towers shift their branches by centimeters per hour, reconfiguring footpaths and balconies according to needs no human mind can parse. Dust-devils laced with charged pollen spin across the mineral flats, depositing new genetic material in fractal patterns. Every few days a “weather” front of ionized gas drifts across the plateau, glowing faint violet, and the plants open every membrane at once to drink it. The ecosystem has reached its final stable form and yet remains furiously, noisily alive inside that stability. It is the biological equivalent of an old master who has achieved perfect technique and now spends eternity improvising.
+
+There is strangeness here that deepens the longer you remain.
+
+Some of the Keth have grown faces—not decorative, not symbolic, but actual sensory arrays that track movement across the entire visible plateau. Others have developed interior spaces where gravity is optional. Certain fauna appear to phase between solid and luminous states when unobserved. The living mat writes temporary glyphs in bioluminescent spore-trails that last exactly seventeen minutes before being reabsorbed; xenolinguists have been trying to decode them for nine hundred years and have only discovered that the messages are addressed to someone who has not yet arrived.
+
+This is not a ruined world. It is a completed one. An ancient, high, dry, loud, dim, plant-saturated, machine-dreaming city that has settled into its final form so perfectly that finality itself has become a kind of frantic, ongoing motion.
+
+You can walk for days across the luminous gray-green mat between one living tower and the next. Your boots will leave no lasting print; the lattice drinks even the pressure of your steps and incorporates the data. Above you, the branches slowly rearrange themselves like the fingers of an enormous hand deciding what to play next on an instrument made of distance, cold, and time.

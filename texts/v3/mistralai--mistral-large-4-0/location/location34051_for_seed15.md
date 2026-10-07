@@ -1,0 +1,39 @@
+I'm underwater, but not in any ocean I recognize. The water here is *still*—no current, no pressure gradient that makes your ears ache. It's warm, 2.5 on your scale, and it fills a space that shouldn't hold it: a room. Or a series of rooms. The elevation parameter said 0.5, below surface, and that's literally true—I'm standing on a floor that sits beneath a ceiling of water, held there by something I can't see. The water doesn't spill. It doesn't need to.
+
+The architecture is total. Everything is made. The floor is poured from something pale and slightly luminous, like compacted shell or a ceramic that grew in molds rather than kilns. Walls rise around me at intervals, waist-high, creating channels and chambers. The builders used simple tools—there are telltale ridges where a blade was dragged through still-soft material, spiral patterns pressed in by a thumb or a found object, a coiled rope's texture fossilized in a corner. Pre-metal, but not crude. They understood *containment*.
+
+Light comes from everywhere and nowhere. 2.9, bright, but there's no sun here. The walls themselves glow faintly, phosphorescent minerals mixed into the pour, or colonies of something bacterial that the builders encouraged. The water catches this light and throws it back in slow, shifting patterns. When I move, the patterns move with me, and the sound follows.
+
+Sound is 2.1—loud. Not the crash of waves but something more intimate: the *hum* of water moving through constructed channels, a constant low thrum like a distant engine, like blood in a vast mechanical ear. There are pumps. I can hear them, rhythmic, pushing water through pipes that run inside the walls. The builders made a circulatory system. The whole place breathes, very slowly, water in and water out through vents I haven't found yet.
+
+Vegetation is sparse, 1.2, but not zero. In the corners where two walls meet, in the deliberate depressions the builders left, there are plantings. Something like kelp but stiffer, more structured, fronds that hold their shape against the water's weight. They don't sway. They *stand*. A single species, or maybe two, tended. The builders are gone—or they never were here in bodies, only in intention—but their gardens persist, fed by the same pumps that keep the water moving.
+
+Fauna: nothing. 0.3. No fish, no worms, no drifting plankton visible. The water is too *managed* for life to enter uninvited. I press my hand to a wall and feel the vibration of the pumps, steady as a heartbeat, and I think: this place was built to *exclude* the living world. To replace it. A garden without animals. A sea without ecology.
+
+Erosion is young, 1.1. The edges are still sharp. Where a wall meets the floor, there's a crisp angle, no sediment accumulation, no rounding from time. This place emerged recently, or was revealed recently, or was *finished* recently. The water hasn't had time to wear it down. The builders' tool marks are still visible. I run my fingers along a spiral impression and feel the pressure of someone's thumb, centuries maybe, or yesterday.
+
+The scale is hidden, 0.5. This is not a landscape. It's a pocket. I can hear the boundaries of it—the pumps' resonance changes pitch near the edges, a higher overtone that tells me there's *outside* even if I can't see it. The rooms repeat. I walk through a low archway, turn a corner, and find the same spiral pattern, the same pale wall, the same hum. A labyrinth of sameness, or a single room folded back on itself. I lose my sense of direction. The water offers no landmarks.
+
+Density is 0.6—sparse, much space between presences. The rooms are mostly empty. Water, light, the sound of pumps. Occasionally a structure: a table, if that's what it is, with a shallow basin and what looks like a drainage hole. A shelf with three objects on it—tools, maybe, or offerings, or mistakes left behind. A niche in a wall holding something wrapped in a fabric that has gone stiff with mineral deposits. I don't touch it. The place feels *curated*, even in its abandonment.
+
+The dynamic is 1.7, active. Nothing alive moves, but everything else does. The water circulates. The light shifts as the phosphorescence pulses, very slowly, in waves that take minutes to pass. The pumps cycle through phases—I can hear one begin its stroke, a rising pressure, then release, then silence, then another pump somewhere else takes over. A weather inside the walls. A climate of water and hum.
+
+I find a door. It's not a door, really—a slab of the same pale material, fitted so precisely into its frame that it seems grown there, but it moves. It turns on a pivot of braided plant-fiber, still flexible after all this time, or replaced recently by someone I haven't met. Beyond it: more of the same. But the sound changes. The hum drops to a whisper, and I hear something else. Dripping. Water falling through air, somewhere, in a shaft or a cavern I can't see. The builders made a place where water *falls*, even though this room is submerged, even though water shouldn't fall here.
+
+I close the door. The hum returns. The light returns to its slow pulse.
+
+This place was built to be *inhabited*, but not by animals. By something that needed water as medium, as solvent, as sustainer. By something that found the dry world hostile and made an ocean indoors. The tech is primitive—hand tools, simple fabrication, no metal that I can see—but the *understanding* is sophisticated. Osmosis. Pressure. The chemistry of preservation. They knew what they were doing.
+
+Or they were learning. The erosion is young. The mistakes are still visible. A patch in a wall where the pour was uneven, where a bubble trapped and left a cavity now weeping mineral stains. A channel that dead-ends, sealed off, abandoned mid-construction. The place is unfinished, or it's a prototype, or the builders left before they could complete their vision.
+
+I stand in the center of a room and feel the water press against me, warm and still and *held*. Above me, if above means anything here, the ceiling of water meets the ceiling of the room in a seam I can't quite see, glowing faintly, leaking light. I breathe—I can breathe, somehow, the water gives up its oxygen or I don't need it, the rules here are not the rules I know. My lungs fill. I exhale bubbles that rise and vanish against the upper surface, absorbed, recycled.
+
+The garden in the corner shifts. Not swaying—*shifting*, as if something inside the fronds moves, a peristalsis, a slow digestion. The plants are processing. Taking in nutrients from the circulating water. Growing, maybe, or maintaining themselves against the entropy of their containment. The builders made a forest that doesn't need soil, that drinks from the engineered sea.
+
+I hear a new sound. Not a pump. Not dripping. A *voice*, or a resonance shaped like one, vibrating through the water, through the walls, through the floor beneath my feet. Low, continuous, a note held so long I can't tell when it began. The builders left a message, or a warning, or a prayer, encoded in the frequency of their pumps, in the size of their chambers, in the way the water moves through this submerged world.
+
+I stay until the light changes, until the phosphorescence dims to a glow and I can see my own hand clearly, outlined in pale radiance. The voice doesn't stop. It becomes part of the water, part of the warmth, part of the held breath of this place.
+
+It is a tomb, or a womb, or a machine for dreaming. It is normal, 0.1 weirdness, and that is the strangest thing. Someone made this. Someone needed it. The need persists in the pumps, the gardens, the voice that doesn't stop speaking.
+
+I leave through the same archway I entered. The water doesn't notice. The light doesn't notice. The voice doesn't stop. Behind me, the door turns on its fiber pivot, settling back into place, and the room returns to its slow breathing, its warm dark, its endless bright hum.

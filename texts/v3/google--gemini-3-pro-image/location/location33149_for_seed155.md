@@ -1,0 +1,17 @@
+The atmosphere hits you first—thin, cold, and saturated with a metallic dampness. You are very high up. Below lies a sea of textured clouds, grey and rolling, that occasionally swells upward to engulf the landscape in freezing mist. When the clouds recede, they reveal that there is no earth here. The mountains that once scraped this altitude eroded eons ago, their rock turned to dust and blown away on the jet stream.
+
+What remains is the root structure that held those ancient peaks together, now grown titanic and self-supporting.
+
+This landscape is a vast, suspended lattice of botanical matter, a miles-deep tangle forming a pseudo-continent in the sky. The "ground" underfoot is calcified timber, bark as hard as iron, and spongy, water-logged moss carpets that could swallow a boot to the knee. Everything is plant. The architecture isn't built *on* the environment; it is carved *from* it or grafted *into* it.
+
+It is an urban space, but sparse. Great distances separate the clusters of habitation. You look out across wide chasms of open air, bridged by massive, swaying tendrils of braided vine that serve as highways, to see districts miles away. The scale is immense, a horizon of colossal burls and sweeping canopy-ridges under normal, pale daylight that filters through the upper cloud layers.
+
+The city—if you can call this sprawling bio-mechanical organism a city—is loud. A relentless, thrumming vibration travels through the wooden substrate, shaking the dew from the underside of leaves the size of mainsails. This is the sound of industry fighting a losing battle against botanical reality.
+
+Brass pipes, thick as sewer mains, run like varicose veins across the surface of ancient branches, sweating cold condensation. They plunge into the living wood, tapping into high-pressure currents of sap that flow with the force of a whitewater river. Massive, grinding pumping stations are built into hollowed-out galls, their pistons hammering with a rhythmic, deafening clang that echoes across the empty spaces. Steam vents shriek, venting vapor that smells bizarrely of ozone and boiling chlorophyll. The industry seems focused on harvesting the lifeblood of the structure itself, processing the potent, semi-magical fluids that keep this impossible hanging garden alive.
+
+The weirdness of the place is not subtle. It’s in the way the geometry doesn't quite hold up. You look across a gap at a distant refinery tower formed from a spiral of hardened pitcher plants, and it seems miles away. Yet, you blink, and it feels claustrophobically close, as if space itself is folding like a wilted leaf. The industrial machinery occasionally hiccups, gears turning backward for a second, or smoke pouring *into* a smokestack rather than out, before correcting itself with a shuddering crunch.
+
+There are almost no animals. The niche of "fauna" has been subsumed by the more aggressive flora. Some of the smaller, cilia-covered plants scuttle away when your shadow falls on them. The "static" structures breathe; the floor beneath you rises and falls in a slow, tidal respiration that takes an hour to complete a cycle.
+
+It is a cold, wet, noisy world at the end of time, where machines parasitize an immortal, senescent plant-god suspended in the upper atmosphere.

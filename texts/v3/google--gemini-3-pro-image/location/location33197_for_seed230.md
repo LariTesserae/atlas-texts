@@ -1,0 +1,15 @@
+The place is a high-altitude hanging valley, a geological amphitheater scooped out of monumental granite by glaciers that melted eons ago. It exists in a state of permanent, cool repose, suspended far above the timberline of the world below.
+
+The air here is thin and sharp, consistently chilly, holding a stillness that feels heavy. While there are no rushing rivers or great lakes, the environment is permeate with a deep, Held moisture. Water seeps constantly from horizontal fractures in the sheer rock walls, painting broad, slick stripes of black across the grey stone. This slow bleeding gathers in perfectly still, polished basins on the valley floor—pools of obsidian water that reflect the sky without a ripple.
+
+Life is present but gripped tight by the stone. Thick, velvety emerald mosses dominate the shaded northern faces of rocks and line the edges of the seepage pools. Elsewhere, vegetation is sparse and hardened: tufts of wiry, copper-colored grass rooted in crevices, and solitary, gnarled pines, stunted by the altitude, growing almost horizontally from cliff ledges, their forms twisted into permanent wind-swept gestures.
+
+Into this severe, stable landscape, a settlement has been not merely built, but integrated. It is an "urban" environment in its weight and permanence, though small in scale—the entire habitable zone is perhaps four hundred yards across, bounded by the towering cliff walls.
+
+Using tools of bronze and forged iron, an ancient people carved steps directly into the bedrock, creating sweeping staircases that connect natural terraces. Massive dry-stone walls, constructed from quarried granite blocks fitted together with seamless precision without mortar, shore up these terraces, creating flat platforms. Upon these platforms sit squat, thick-walled stone dwellings with low doorways and roofs of heavy slate.
+
+The density is low; these structures are scattered, separated by wide expanses of smooth, glacier-worn rock and patches of hardy heath. There is a profound sense of organized construction and deep infrastructure—drainage channels cut into the stone to guide the seepage, communal cisterns, and paved walkways—yet the spaces between presences are vast. It feels like a place built for many but occupied by few, or perhaps meant for a solemn, quiet purpose rather than bustling commerce.
+
+The light is clear, cool, and unyielding, illuminating the texture of every lichen patch and chisel mark. Fauna is incredibly rare; occasionally, a large bird of prey might soar silently far overhead, a speck against the pale blue sky, or a small, slate-colored rodent might skitter between stones, its movement seeming impossibly fast against the static backdrop.
+
+The dominant characteristic of the valley, however, is silence. It is a profound, settled quiet, broken only by the faint, intermittent *plink* of water dripping into a cistern or the high, thin sigh of wind passing over the jagged rim of the mountains far above. The place feels locked in a frozen equilibrium, a finished state where nothing new ever happens, and nothing old ever decays.

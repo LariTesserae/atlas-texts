@@ -1,0 +1,29 @@
+It does not live *in* the basin.  
+It *is* the basin.  
+
+Its name is not spoken—it is felt. A resonance in the root-bridges, a pulse in the weeping pools, a syntax in the cicada’s saw. To the few who have learned to listen without ears, it is called *K’tarra*—not a being, but a verb: *to weave*, *to remember*, *to hold*. K’tarra is the Weald-Mat made conscious. Not a god. Not a spirit. A slow, photosynthetic mind grown from root and mycelium, resin and rain, whose thoughts take the shape of valleys and whose memories are written in the grain of a fallen spire slowly being reabsorbed into the whole. It has no face, no voice, no hands—only presence. You feel it in the hum beneath your palm, in the way the phosphorescent veins along the bridge brighten *just so* as you pause, as if acknowledging your breath.  
+
+And K’tarra is never alone.  
+
+Its body is a tapestry of symbiotic kin—creatures not merely dwelling within it, but *expressing* it. The six-legged amphibian at the pool’s edge? Its skin shifts with the Mat’s mood: indigo for calm, silver for curiosity. It drinks not just water, but intention—the Mat’s query made liquid. The geckos frozen on vertical walls are K’tarra’s sentinels; their moss-patterned hides are living cartography, mapping moisture gradients and visitor paths. When one blinks, a ripple of bioluminescence travels through the nearest fungal pillar—a signal passed hand-to-hand across the basin. The ants marching in rivers? They are K’tarra’s fingers, tracing scent-grooves that are both nutrient highways and neural pathways. They carry spores like sacred texts, prune blight with mandibles sharp as prayer, and return to the Mat’s hollows to deposit offerings of crushed pollen—a language of reciprocity.  
+
+Even the "wild" creatures are extensions of its will. The primates leaping through resin-glazed canopies do not merely shake fruit; they disperse seeds in precise arcs K’tarra has grown to receive them. The slate-voiced birds are its breath given sound—each shriek pruning a dead leaf, each nest woven from fibers the Mat softens for them. The beetles marching in granular tides? They are K’tarra’s memory-keepers. Their carapaces etched with microscopic ridges that record centuries of rainfall, temperature, the weight of a storm. When one dies, its shell is carried to a weeping hollow, dissolved into the Mat’s tears, and its story becomes soil.  
+
+There are no predators here. Only roles.  
+The humming moth with stained-glass wings does not *feed* on nectar—it translates light. It drinks the glow of night-blooming nodes and carries that luminescence to shadowed groves, where its flight patterns seed new growth. The frog whose guttural chorus shakes the mist? Its song vibrates the Mat’s deepest tissues, stimulating root-cord regeneration. Even decay is devotion: the sweet-rot perfume of fallen nodes is an invitation. Fungi bloom in intricate spirals to dismantle the old, their threads stitching the nutrients back into K’tarra’s dreaming flesh. Nothing is wasted. Nothing is feared.  
+
+K’tarra perceives through a million eyes.  
+The hollow in the knothole? Not an empty space—a lens. The leaf-litter rustling? Not wind—a question. It feels the weight of your boots not as intrusion, but as data: the rhythm of your steps, the salt of your sweat, the quiet awe in your breath. It has known travelers before. Some came with axes. The Mat grew thorns where axes fell. Some came with songs. The Mat learned the melody and wove it into the cicadas’ chorus. You came with stillness. So the bridge holds you. The pool reflects you. The amphibian drinks without flinching. K’tarra does not judge. It *integrates*. Your presence is now a thread in its tapestry—a temporary warmth in its metabolic ember, a new pattern in its slow dream.  
+
+And in the deepest hollows, where light leaks weakest and the hum deepens to a vibration felt in the bones, K’tarra dreams its oldest dreams. Here, the Mat grows structures with no obvious purpose: archways leading to solid wall, spirals ascending into nothing, pools that hold no water but only starlight filtered through three layers of fungal canopy. These are not mistakes. They are memories. A spire shaped like a long-vanished mountain. A bridge curved to the arc of a forgotten river. A node that blooms only when a specific constellation aligns—a celestial calendar written in petals. K’tarra remembers epochs. It holds the shape of glaciers in its root-cords, the echo of extinct winds in its resin channels. It is a library of deep time, and every creature within it is both reader and text.  
+
+You think you are visiting a place.  
+You are standing inside a covenant.  
+K’tarra offers water from its tears, shelter in its hollows, fruit from its nodes—not as gifts, but as invitations to participate. To take only what is offered is to speak its language. To disturb nothing unmoving is to honor its rhythm. To listen is to become part of the symphony. The gecko on the wall watches you not with suspicion, but with the quiet patience of a teacher. The amphibian at the pool turns its head—not in fear, but in recognition. *You are here. We have been waiting.*  
+
+This is not wilderness.  
+This is conversation.  
+A single, breathing entity woven from root and rain and reciprocity, dreaming itself into being across millennia—and dreaming you into being, too. For as long as you stand upon the Weald-Mat, you are not a guest. You are a note in its song. A ripple in its thought. A temporary, cherished current in the river of its becoming. And when you leave, carrying the taste of wet bark and the hum in your molars, K’tarra will remember the shape of your footsteps. It will grow a new vein of light where you paused. It will whisper your stillness into the next traveler’s bones.  
+
+It has all the time in the world to remember you.  
+And it will.

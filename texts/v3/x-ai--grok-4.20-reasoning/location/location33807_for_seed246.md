@@ -1,0 +1,25 @@
+**The Hollow Choir**
+
+You descend into it through a narrow defile no wider than a cart-track, yet the moment you step past the final guardian spur of rock the world opens outward and downward at once. The basin is small—scarcely larger than a cathedral close or a modest hamlet—yet the emptiness inside it is so complete that distance feels distorted. Every footfall arrives late, as though sound itself must cross a private ocean before it returns.
+
+The stone is older than oceans. Erosion has worked it for so long that the usual drama of cliffs and peaks has been rubbed away into something gentler and more terrible: low, rounded forms that suggest architecture without ever having been built. Half-domes rise like the roofs of buried halls; long, parallel ribs of rock stand like the walls of roofless nave and transept; flat plazas tilt at imperceptible angles, polished by wind and the slow tongues of glaciers that have come and gone a thousand times. Nothing here was quarried or stacked. The planet itself settled into these shapes the way a dying fire settles into its final bed of coals. The forms feel urban the way a skull feels like a face—memory without intention.
+
+Water is never loud here, only persistent. It arrives as mist that condenses on the cold stone overnight, as beads that slide down every curve and gather in shallow bowls no deeper than a cupped hand. Occasionally a thin rain falls, almost apologetic, and for an hour the entire basin glitters with thousands of separate mirrors. Then the wind returns, lifts the moisture into drifting veils, and the mirrors vanish. In places the rock is dark and wet for a meter above the true waterline, stained by generations of lichen that drink the damp the way other plants drink light.
+
+Where the moisture lingers longest the vegetation has answered with a fierce, almost indecent lushness. Thick mats of moss—some black-green, some the violent orange of rust—cloak the north faces of the stone ribs. From these mats rise forests of tiny ferns no taller than a finger, each frond edged with frost even at midday. In the deepest bowls grow fleshy, pale succulents the color of moonlight, their leaves so fat with stored water they look half-frozen and half-melted at once. These gardens are shockingly vivid against the empty stone, yet they are islands. Between them lie wide lawns of nothing but cold, ringing rock. The contrast makes the basin feel both overcrowded and abandoned.
+
+The cold is absolute but clean. It does not bite so much as erase. Breath becomes visible for only a moment before the wind snatches it. Skin tightens. Metal would scream if there were any. There is none. No tool, no shard, no carved mark. Even the idea of tools feels like an obscenity here.
+
+Sound, however, is king.
+
+The wind has discovered that the stone ribs and half-domes function as organ pipes. It moves through them in slow, deliberate cycles, producing a constant, cathedral-scale drone that rises and falls but never ceases. Sometimes it sounds like distant choirs singing in a language that has no vowels. Sometimes it sounds like breathing—vast, stony lungs that have been breathing since the first ice. When the occasional rain arrives the drops strike the hollows at different pitches, turning the whole basin into a percussion instrument. The loudness is not violent; it is simply too large for the space. Your own heartbeat feels like an intruder.
+
+Fauna is rare and therefore startling. A single alpine chough may wheel overhead for an hour, its wings whistling, before vanishing over the rim. Once or twice in a day you might see a pale, translucent spider the size of a coin scuttle across the open stone, legs ringing like tiny bells. That is all. The emptiness has been perfected.
+
+Yet the place is not dead. It is active in the way an ancient forest is active—on timescales just slow enough to feel like sorcery. Ice lenses grow and shatter the rock with audible clicks at dawn. Moss colonies migrate a millimeter per decade, following seams of moisture. The mist rearranges itself into new veils every few minutes. Every few centuries, perhaps, an entire “building” of stone will finally lose its last supporting arch and collapse into fresh rubble that the wind will begin polishing again immediately. The basin is in its final, settled form and still changing, both conditions true at once.
+
+There is a strangeness deeper than the architecture-like stone. The geometry is too coherent. The ribs align with solar noon in ways that feel intentional. The moss sometimes grows in exact parallel bands that mimic the strata beneath, as though the stone were teaching the living things how to remember. And when the wind drops completely—rare, but it happens—the silence that replaces the choir is not silence at all. It is a pressure, a held note, as if the basin itself were listening for the next thing it will become after it has finished becoming itself.
+
+You can walk its entire length in twenty minutes.
+
+You can spend a lifetime there and never feel you have arrived.

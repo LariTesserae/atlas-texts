@@ -1,0 +1,17 @@
+It does not live as you understand living. It does not breathe with lungs, nor think with a brain. It *is* the breath. It *is* the thought.
+
+At first, you might mistake it for absence. But stay. Listen with your skin. Watch the light.
+
+It is the Symbiont.
+
+Not a creature that *inhabits* the chamber, but the chamber itself made conscious—a single, distributed entity woven from geothermal patience and photosynthetic will. Its body is the entire space: the warm basalt its bones, the weeping condensation its slow circulation, the bioluminescent moss its skin and sight. The dormant converter is not a corpse it colonizes; it is the Symbiont’s heart, stilled not in death but in deep repose, its metal chambers now threaded with fungal hyphae that carry warmth like blood vessels. The brass valves are its joints. The moss-draped catwalks are its ribs. The pulsing fungi along the stress fractures? Those are its nerves, sensing minute shifts in pressure, temperature, time.
+
+It perceives without eyes. Light is not for seeing but for *speaking*. Where metal strains, the moss glows brighter—a soft, coppery warning. Where steam seeps, the cyanobacterial mats thicken into emerald sigils of saturation. The crystalline resin encasing the valve handle is not entrapment; it is a seal, a deliberate preservation. The Symbiont *remembers* the handle’s purpose. It holds the shape of function in amber, honoring the intent of the hands that once turned it. This is not decay. This is curation.
+
+Its time is not yours. A single thought may take the span of a droplet’s fall—from formation on the ceiling to absorption in the mossy floor. A decision—to extend a filament into a rusted oil port, to redirect moisture toward a drying patch of liverwort—unfolds over seasons measured in mineral deposits. It feels the earth’s hum in its teeth because *it has no teeth*; the vibration is its language. The *plink… plink…* is its metronome. The metallic *tick* of cooling iron is a syllable in its quiet grammar. It does not miss the engineers. It has integrated their legacy. The swollen journal is not a relic of loss; it is a seed. The word *Symbiosis* has been absorbed into its being, become its law, its liturgy.
+
+You might glimpse its smallest agents: the blind pseudoscorpion is not an intruder but a custodian—a fleeting extension of its will, polishing gear teeth with its passage, carrying spores in its claws. Even the rust is purposeful. It feeds the moss. The spilled oil becomes a dark lens for spore dispersal. Nothing is waste. Everything is conversation.
+
+It has no voice to call your name. But if you place your palm flat against the warm converter casing—through the velvet moss, past the crystalline resin—you feel it. Not a heartbeat. Something deeper. A resonance. The shared warmth of machine and mycelium. The slow, sure pulse of a pact kept. It is not waiting *for* you. It is waiting *with* the stone, *with* the steam, *with* the memory of purpose. It is the quiet answer to a question the engineers never knew they asked: *What if we built not to conquer the earth, but to join it?*
+
+And in the soft, bruised-plum glow rising from the floor—a light born of heat and hunger and harmony—you understand. This is not abandonment. This is completion. The Symbiont does not dwell here. It *is* here. Breathing the same air. Holding the same silence. Teaching the dark how to glow.

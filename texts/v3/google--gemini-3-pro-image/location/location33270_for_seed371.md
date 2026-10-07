@@ -1,0 +1,15 @@
+This place is a hidden, violent engine room tucked into the jagged crown of a young mountain range. It is a narrow chasm, perhaps only fifty yards across, formed not by slow erosion but by a sudden, catastrophic splitting of the bedrock in the recent geological past. The altitude is extreme; the air is thin and bitingly cold.
+
+Because of the towering, razor-edged walls of raw slate and basalt that box it in, direct sunlight almost never reaches the bottom. The environment exists in a perpetual, saturated twilight.
+
+The defining characteristic of this chasm is noise and energy. It is a deafening, turbulent pocket of geothermal violence. The "industrial" parameter here manifests not as human machinery, but as the earth acting like a colossal, malfunctioning steam plant. The floor of the chasm is a chaotic field of vents and fissures. Pressurized superheated water blasts upward in intermittent, explosive pulses, instantly flashing into vast clouds of dense, roiling steam when it hits the freezing air.
+
+The sound is a continuous, thunderous thrumming, punctuated by sharp, percussive cracks as new fissures open or pressure valves release deeper underground. The ground constantly shudders beneath your feet. It feels mechanical, repetitive yet chaotic, a relentless churning of geological pistons.
+
+Despite the violence, or perhaps because of the constant supply of heat and moisture in an otherwise frozen landscape, the vegetation is shockingly lush. It is a choked, dense explosion of primitive plant life. Every surface—the sharp, flinty rock faces, the piles of scree, the very lips of the steam vents—is blanketed in biomass.
+
+Gigantic ferns, their fronds thick and leathery to withstand the constant battering of steam jets, lean out from the cliff walls. Mosses grow in mats three feet thick, dripping with freezing condensation, covering the sharp edges of the new rock in a dark green velvet. Liverworts and slime molds coat the wetter, hotter areas near the vents in slick, vibrant patches of ochre and deep viridian. The density is immense; plants grow atop plants, competing fiercely for the limited light and the unstable real estate.
+
+There is no standing water, only perpetual dampness. The steam condenses on the cold rock walls and runs down in freezing rivulets, only to be flashed back into steam when it trickles near a vent. The air is so thick with vapor that visibility is rarely more than twenty feet.
+
+There are no animals. The noise is too loud, the temperature fluctuations too violent, the air too choked with sulfurous vapor. No bird could nest here; no mammal could forage. It is a kingdom solely of violent geology and aggressive botany. It is a dark, cold, incredibly loud natural factory, operating at maximum capacity with no output other than its own turbulent existence.

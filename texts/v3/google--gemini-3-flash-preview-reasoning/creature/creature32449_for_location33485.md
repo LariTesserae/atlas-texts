@@ -1,0 +1,22 @@
+The life in the Cradle does not inhabit the space so much as it is an extension of the machinery’s metabolism. Everything here—from the smallest spore to the largest sentinel—functions on the rhythm of the Industrial Weeping, a biology dictated by pressure, lubrication, and the slow, heavy pulse of the pistons.
+
+### The Pulse-Feeders
+The **Steam-Skimmers** are the most visible, yet they are barely more than ghosts of the mist. Their leathery, translucent wings are not meant for flapping; they are sails designed to catch the thermal updrafts of the venting steam. Lacking eyes, they possess sensitive, vibrating pits along their snouts that allow them to "hear" the temperature of the brass pipes. They congregate where the metal is hottest, pressing their bellies against the scalding surfaces to scrape away the thick, orange fungal "rust" that grows there. They move with an agonizing, glacial grace, their heartbeats synchronized to the minutes-long stroke of the pistons. To see a Skimmer move quickly would be a sign of a catastrophic pressure failure; in the Cradle, speed is a symptom of death.
+
+### The Lithic Parasites
+Down in the crevices of the basalt plates, where the oily condensation pools into dark, viscous sumps, live the **Sump-Striders**. These are heavy, segmented creatures resembling trilobites cast in dull lead. They do not eat organic matter; they filter-feed on the microscopic metal shavings and heavy grease shed by the groaning machines. Their shells are geometric, mirroring the sharp facets of the volcanic rock, making them nearly invisible until they shift. They are the janitors of the Cradle, their many-jointed legs clicking rhythmically against the metal grating as they migrate toward the sound of a fresh leak.
+
+### The Vegetation’s Vengeance
+The flora here is not passive. The **Plum-Fronds** (the waxy ferns) possess a rudimentary nervous system keyed to the vibration of the pistons. When a piston retracts, the ferns unfurl, exposing their undersides to catch the scalding spray; when the piston thrusts and the pressure drops, they curl shut with a wet, muscular snap. 
+
+The translucent vines hanging from the pipes are known as **Drip-Chords**. They are hollow, acting as external veins for the moss mats. They don't just catch water; they actively seek out the heat of the brass joints, wrapping around them in tight, constricting coils to leach the warmth. If one were to cut a Drip-Chord, it would not bleed sap, but a lukewarm, mineral-heavy slurry that smells of ozone and wet iron.
+
+### The Resident: The Valve-Tender
+Behind the lead-and-glass door, or perhaps wandering the moss-slick catwalks, is the **Valve-Tender**. It is unclear if there is only one, or if it is a succession of beings, but its presence is felt in the precise calibration of the gauges.
+
+The Tender is a creature of heavy, stooped proportions, draped in layers of sodden, oil-stained canvas and cured Skimmer-hides. It does not speak, for its lungs have long since adapted to the pressurized steam, resulting in a voice that is nothing more than a wet, low-frequency hiss. Its movements are as deliberate as the machinery it serves. It carries no tools; its fingers have become calloused and elongated, tipped with hardened, blackened nails shaped specifically to fit the slots of the brass recessed screws.
+
+The Tender does not sleep in a human sense. Instead, it enters a state of "stasis-watching," standing motionless for hours in front of a single amber gauge, its own breathing slowing until it matches the minutes-long stroke of the redwood-sized pistons. It is a symbiotic relationship: the Tender keeps the Weeping from becoming a terminal explosion, and in return, the machines provide the only warmth in a cold, dying exosphere.
+
+### The Unseen
+Finally, there is the **Marrow-Hum**. It is not a creature one sees, but a collective consciousness of the fungi and moss. It permeates the grease and the rust. It is a slow, cognitive process that takes decades to form a single "thought." This intelligence is what directs the growth of the vines toward the leaking valves, ensuring that the moisture is distributed where the friction is highest. It is the ghost in the iron, the biological soul of a place that shouldn't exist, whispering through the shriek of the steam that as long as the pistons move, the Cradle will never grow cold.

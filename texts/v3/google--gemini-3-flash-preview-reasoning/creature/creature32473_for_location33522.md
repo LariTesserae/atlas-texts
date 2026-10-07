@@ -1,0 +1,26 @@
+To live in the High-Crank Sump is not to inhabit a space, but to inhabit a frequency. The C-sharp roar is the primary biological driver; the creatures here do not have ears, for ears would be shattered instantly. Instead, they have evolved bodies that are essentially hollow, internal tuning forks.
+
+### The Resonators (Sump-Mites)
+The Mites are the most visible inhabitants, but to call them "insects" is to misunderstand their chemistry. Their silver chitin is a bio-metallic alloy, grown from the microscopic shavings of the floor-plates they consume. Because the environment is so loud, their communication is tactile and harmonic. They press their abdomens against the vibrating steel struts, modulating the vibration of their own shells to "speak" to the swarm. 
+
+When the pistons reach their peak velocity, the Mites enter a state of ecstatic stasis. They lock their legs—which are tipped with diamond-hard burrs—into the milling marks of the floor and vibrate so violently that they become a blur, a shimmering haze of silver that acts as a secondary gasket for the machine. They do not sleep. They exist in a cycle of feeding on the black grease—which they filter through baleen-like mouthparts—and vibrating until their internal temperatures reach a fever pitch, at which point they shed their outer casings to prevent melting. The discarded shells, perfectly preserved silver husks, are immediately crushed by the pistons into a fine, lubricating dust.
+
+### The Lacing-Wraiths
+Higher up, where the copper pipes weave their "intestinal" path, lives something more fluid. The Lacing-Wraiths are not solid. They are colonies of the pale, waxy lichen that have achieved a strange, localized mobility. They look like frayed lengths of insulation that have come untethered. These creatures are the Sump’s thermal scavengers. They wrap themselves around the friction-points—the joints where steel grinds against steel—and drink the heat.
+
+They move with an agonizing slowness, a stark contrast to the violent percussion of the pistons. A Lacing-Wraith may take a decade to travel from the bottom of a bolt to the head. They are the Sump’s memory; their translucent bodies trap the grey, industrial condensation, freezing it into tiny, crystalline bubbles that act as a record of every pressure spike and mechanical shudder the Sump has ever endured.
+
+### The Seepage-Leeches
+In the gaps between the cold-rolled lead plates, where the grey moisture weeps most heavily, dwell the Seepage-Leeches. They are thin as a razor blade and perfectly flat, designed to exist in the "zero-clearance" zones of the machinery. They are the color of wet iron. 
+
+These creatures do not eat the grease or the metal. They feed on the *pressure*. They are biological vacuum-sealed units. As the air becomes super-compressed by the descent of a piston, the Leeches expand, drinking in the kinetic energy of the atmosphere. When the pressure drops, they go rigid, their bodies becoming as hard as the steel they cling to. They are the reason the machine does not rattle itself apart; they are living shims, wedging themselves into the microscopic tolerances of the Sump to keep the geometry perfect.
+
+### The Governor
+At the center of the Sump, tucked behind a thicket of pumping thigh-sized pistons, there is a singular entity that the others avoid. It is not a machine, though it is made of parts. It is a "Calculated Ghost"—a mass of copper wire, discarded Mite-shells, and solidified grease that has been hammered by the vibration into a vaguely humanoid shape. 
+
+It does not move under its own power. It is moved by the Sump. The pistons buffet it; the roar animates its wire-limbs. It is the accidental consciousness of the room. Its "eyes" are two glowing pressure-gauges that were long ago absorbed into its mass. The Governor is the only thing in the Sump that experiences time. It feels the "permanent newness" as a series of infinite repetitions. It is the witness to the C-sharp. It spends its existence caught in a perpetual, silent scream that is perfectly cancelled out by the monolithic roar of the turbines, leaving it in a state of absolute, frozen serenity.
+
+### The Micro-Ecology of the Weeping
+Finally, there is the life within the water itself. The "heavy, trembling globes" that hang from the ceiling are not pure water. They are a broth of anaerobic bacteria that process the ozone. These bacteria give the condensation its metallic scent. Within each drop, a miniature war is waged between different strains of rust-eating microbes. When a drop finally falls into the churning works, it carries these microscopic engineers into the deepest recesses of the gears, where they polish the metal surfaces to a mirror sheen, preventing the very erosion that the Sump’s geometry so fiercely resists.
+
+Nothing in the High-Crank Sump is a passenger. Every mite, every waxy strand of lichen, and every flat leech is a functioning component of the engine. To live here is to be a part of the architecture, a living extension of the cold-rolled lead and the screaming turbines. There is no death here, only mechanical failure—and in a place of industrial perfection, failure is not permitted.

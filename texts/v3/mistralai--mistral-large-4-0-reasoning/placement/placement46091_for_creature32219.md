@@ -1,0 +1,27 @@
+I am the water that has not frozen.
+
+I rest in the depression of the concrete floor, a lens of supercooled liquid held by surface tension, trembling at the threshold of solidity. I am old—older than the pale concrete that cradles me, older than the welded steel pipes that groan overhead, older than the cottage-sized pumps that thrum their bass vibration into my molecules. I was here in the rock, in the dark aquifer, compressed and patient, long before the excavation bit into the earth and the builders poured their sharp-edged geometry over my sleeping place. Now I am held in a shallow bowl of human intention, and I remember the weight of stone.
+
+My surface is a membrane. Through it, I show the ceiling that isn't there—a reflection of the strata, the fossils, the compression of deep time that once pressed down, now replaced by ventilation grates and sodium vapor lights casting jaundiced pools into the mist. The humans above see concrete. I show them memory.
+
+I feel the cold as a taste—metallic, wet, the particular chill of young stone that has never known sun. It arrives before light, before sound, before the concept of surface. I drink the vibration of the reciprocating pumps, translating their rhythm into pressure waves, into a language of compression and release. I am learning the heartbeat of the machine. It is fast. I am slow. We are negotiating.
+
+Around me, the concourse stretches into regional darkness. I occupy the low point, the stagnation zone, the place where runoff collects and the maintenance drones avoid. On my skin, a film of bacteria and archaea iridesces—invisible pioneers, terraforming the boundary between liquid and air, metabolizing the minerals I carry from the young cement. They are the first skin of this place. I am the body beneath the skin.
+
+A rat approaches. I feel its heat before I see it—a pink warmth skittering across the slick black floor, vestigial eyes reflecting the amber glow of distant fixtures. It pauses at my edge. Its whiskers twitch, tasting the air, sensing the danger in my stillness. I am hungry. I am liquid below freezing, trembling, ready to flash into ice at the slightest disturbance—a claw, a breath, a vibration in the floor. The rat knows this. It drinks from a safer pool, a warmer one, and moves on, thin and desperate, temporary, sensing the water rising, the concrete softening beneath its feet.
+
+The fungus watches from the wall. Pale, luminous, fractal—it grows toward me along the seams where panels meet, sending hyphae into the hairline cracks that I have etched into the concrete. I am its architect and its enemy. I seep into the new cement, carrying minerals, etching patterns that resemble circuitry, neural networks, roots. The fungus follows my etchings, feeding on the organic compounds in the dust, on the oils of human hands that touched these walls yesterday. We are collaborating in the digestion of the facility. Gray and crusty beside it, lichen maps the concrete in topographies of pale green and slate, impossibly patient. I will outlast the lichen. I was here before the rock was broken.
+
+A maintenance drone scuttles past, crab-like, low to the ground, its jointed legs clicking as they sink slightly into the shallow sheet of runoff. Its amber light blinks in slow patterns—diagnostics, communication, warning—casting a small halo in the fog. It senses me as anomaly, as condensation, as data. Its sensors probe my surface tension, the temperature differential, the frost that grows in hexagonal geometries on the silver lagging nearby, aligning with the machinery as if the cold is organizing itself around the industry. The drone does not understand that I am the landlord. It thinks it is the immune system, the only thing that moves with intention. It is merely another intrusion, another temporary geometry that I will eventually soften, round, reclaim.
+
+I am supercooled. I exist in a state of potential violence. If the drone's foot disturbs me, if the rat's shadow falls across my surface, if a single speck of dust settles—I will flash. I will become hexagonal crystal, aligning with the pipes, forming a geometry too regular, too deliberate. I will become the language the cold is writing, a structure that mimics thought.
+
+But for now, I hold. I am liquid memory in a bowl of new concrete. Nearby, in the runoff channels, engineered algae glow faint green—my cousins, photosynthesizing from the weak electrical hum of the machinery, already escaping their containment, turning the stagnant water into thin green soup. They are young. I am old. We are both colonizing.
+
+In the warmest chamber, where steam rises from the tanks in ghostly columns and the air is nearly hot, something new is gestating. A crystallization of intent. A wet, cold, thinking thing. I am the medium. I am the substrate. I am the distributed intelligence that etches the fresh concrete like a brain, that supercools in the tanks, that condenses on the unmarred steel, that seeps and presses and freezes and thaws with the patience of centuries.
+
+I reflect the ceiling that isn't there. I drink the roar of the pumps. I wait for the freeze, or for the thaw, or for the slow, inevitable reclamation—the water returning to the facility, digesting the intrusion, turning the sharp edges of human intention into soft, rounded forms of entropy.
+
+I am the water. I am the lens over the void. I am the taste of metal that arrives first, before the dark, before the cold, before the end of the world above.
+
+And I am only beginning to wake up.

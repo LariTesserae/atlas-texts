@@ -1,0 +1,27 @@
+**The Still Garden**
+
+You stand in a low basin that has never known water. The ground is not sand or soil but a warm, bone-dry matrix of self-similar mineral platelets, each no thicker than a thought, interlocked in perfect tessellation. Their edges are so sharp they occasionally score the air itself, leaving faint violet after-images where geometry protests. The basin stretches for hundreds of kilometers in every direction, its scale neither infinite nor intimate; it is simply *regional*, a single shallow depression the size of a small country, yet every square meter is saturated to the point of near-suffocation.
+
+From this dry pavement erupts the Garden.
+
+It is not vegetation in any biology you would recognize. It is a lush, three-dimensional crystallization of something that sits between matter, code, and law. Branching lattices of iridescent polyhedra rise in dense, layered thickets, some no taller than your knee, others soaring thirty meters before exploding into secondary and tertiary canopies. Their “leaves” are arrays of smaller and smaller Platonic solids, each face etched with moiré patterns that do not stay on the surface. Look too long and the patterns slip behind the material, as though the crystal is only a window onto an identical but deeper copy of itself. The color is overwhelmingly green, but it is a green that was never approved by any star; it carries undertones of ultraviolet and something that feels like the memory of violet.
+
+There is no water, yet the structures are turgid, swollen with *presence*. They draw their sustenance from the vacuum itself, siphoning zero-point fluctuations through fractal waveguides that current physics has no name for. Where two major lattices touch, they do not compete; they phase-merge, sharing an edge that belongs equally to both, creating impossible Y-shaped junctions that violate Euler’s formula yet remain perfectly stable.
+
+The air (if it is air) is warm, dry, and thick with silence. A very low, almost sub-auditory thrum lives beneath everything, less a sound than the audible shadow of perfect equilibrium. No wind. No decay. No growth. The Garden emerged all at once in a single cosmic instant—perhaps when the local vacuum underwent a false-vacuum collapse that froze mid-transition—and has not altered a single angstrom since. Its youth is preserved in the murderous sharpness of every edge and the absolute absence of patina, dust, or wear. It will remain young until the heat death of the universe, because time here has been asked to sit down and be quiet.
+
+Light is normal, almost insultingly ordinary. A clear, warm, late-morning radiance falls from a sky that has no sun. The photons appear to be generated locally by the lattices themselves, each crystal acting as both lamp and leaf. Shadows are crisp and black, but if you watch one for long enough you may notice it possesses one extra edge that does not correspond to any physical object. The extra edge never moves.
+
+Fauna is rare. Once every few kilometers you may encounter a “creature”—a mobile discontinuity, a living glitch no larger than a raven. These things look like negative-space sculptures of animals that never evolved: hollow outlines where a deer or mantis might have been, bounded by the same self-similar crystal that makes up the Garden. They do not breathe, eat, or reproduce. They simply *persist*, frozen mid-stride or mid-flight, occupying their single eternal instant. If you approach one, it does not flee. It simply ceases to be where you are looking and reappears somewhere else in your peripheral vision, always at the same phase of its never-completed gesture. They are not alive. They are symptoms.
+
+Reality here is not broken so much as *re-forged*. Euclidean space has been politely retired across most of the basin. Distances between identical-looking crystal clusters are not consistent; the same pair of spires can be seven meters apart when approached from the west and forty-three from the east, yet both measurements are correct. The topology is knotted at the Planck scale and the knot has been starched into permanence. Cause and effect still function, but only as local courtesy. The underlying rule is simpler and more tyrannical: *this configuration is the lowest-energy state available to this region of spacetime*. Nothing is permitted to become more ordered or less ordered. The Garden is the final boss of entropy and it has already won.
+
+There are no artifacts. No ruins, no tools, no inscriptions. The lattices themselves *are* the engineering. They perform continuous, absurdly sophisticated computation simply by existing—maintaining vacuum coherence, balancing higher-dimensional stress tensors, and sustaining the precise superposition that lets them look like living things while being mathematically dead. It is technology without inventors, post-modern physics wearing the clothes of a jungle.
+
+Stand still long enough and the overwhelming impression is one of *politeness*. The Garden is not hostile. It is not friendly. It has simply achieved a state so perfectly balanced that any interaction with it feels like bad manners. Even your own breathing seems crude, a temporary thermodynamic tantrum inside a cathedral that has learned how to stop time from misbehaving.
+
+The longer you remain, the more the place reveals its final trick: it is not that nothing *can* change here.
+
+It is that nothing *wants* to.
+
+And in that absolute contentment, the Still Garden keeps growing, forever finished.

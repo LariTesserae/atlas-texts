@@ -1,0 +1,27 @@
+I would be the hinge.
+
+I would find myself hanging in a gallery near the roof of the world, where a shaft of pale, underwater light pierces the canopy of travertine and illuminates the drifting clouds of spores. I would be suspended by hind claws that have begun to calcify, my wing-membranes stiffening with the first deposits of calcium carbonate, my bones growing heavy with the slow infiltration of mineral. I am a Winged One in the act of becoming—no longer purely the nervous system, not yet the skeleton, but the threshold between flight and foundation.
+
+I feel the weight first. It is a new sensation, this density. When I was young—if I was ever young, for time here is a pool without ripples—I was light as ash, a thought skimming the dark. Now, calcium seeps into my marrow, precipitating in the hollows of my bones, filling the spaces where blood once sang. My echolocation returns to me changed: deeper, slower, resonating through stone rather than air. The clicks I emit bounce back not as sharp echoes but as geological murmurs, taking hours to travel from one tower to the next, carrying messages that will arrive long after I have forgotten sending them.
+
+I hang among millions, but I am alone in my transformation. Around me, the cluster writhes—furry darkness, furnaces of heat, the collective metabolism warming the cavern. I feel their body-heat against my flanks, but my own warmth is leaking away, replaced by the steady, mineral chill of the travertine. I am becoming part of the architecture. Soon, I will not erupt with the others when the light shifts. Soon, I will not fly. I will simply hang, heavier and heavier, until my claws fuse with the ceiling, until my wings become struts of stone, until I am a gallery, a chamber, a fossilized thought embedded in the growing wall.
+
+But not yet. I still move.
+
+I launch myself from the roost, and my wings beat with a sound like grinding stone. I am clumsy now, weighted, but I navigate by the old paths—the thermal currents rising from the vents, the chemical signatures drifting on the damp air. I carry spores in my fur, pale and fleshy, from the fruiting bodies of the Mycelial Mind below. I fly toward a tower where an Architect colony is expanding, and I deposit them in a crevice where the stone is still soft, still secreting. The mycelium will thread through me soon, dissolving what remains of my flesh, re-precipitating it as structure. I will become food and framework both.
+
+Below, I hear the Grazers. Their bellows vibrate through the travertine, seismic warnings that travel up through the mineral foundations into my stiffening bones. I feel their hooves clicking on the terraces, the wet chorus of their breathing. They are the digestive system, the pruning shears, keeping the vents open so the steam can rise to feed the colonies. I am the courier between them and the deep Primordial Ones, the ones who burn in the boiling dark, who make the minerals available. I am the connection that is fraying, becoming permanent.
+
+The air is thick. I taste iron and wet chalk and the sweet rot of the fungi. The roar fills my skull—the hiss of geothermal vents, the white noise of a thousand waterfalls, the granular hum of the Quick Ones breeding and dying in the span of a breath. I feel it in my teeth, in my mineralizing jaw.
+
+I land on a terrace, heavy as a stone, and for a moment I rest. A Grazer passes, shaggy and long-legged, its rubbery hooves adhering to the wet stone. It looks up at me with eyes that reflect the dim green gloom. It bellows, and the sound passes through me, through my increasingly porous skeleton. I am becoming part of the warning system, part of the signal.
+
+I should return to the cluster. I should hang with the others, dream in echolocation, wait for the light to shift. But I am drawn to the shaft of pale light, the dusty beam that falls from the collapsed canopy above. I climb toward it, my claws finding purchase in the porous travertine, my wings half-folded, dragging. The light is warm here, oppressive, wrong for the altitude. It falls on my wings, and I feel the calcium hardening faster, the sun—filtered through stone—accelerating my lithification.
+
+I am becoming a spire. A buttress. A gallery where future Winged Ones will roost, where future spores will lodge, where the Mycelial Mind will store its memories in the patterns of my fossilized bones. I am the boundary dissolving, the organism becoming geology, the thought becoming stone.
+
+Soon, I will not move. Soon, I will be one with the Architects, secreting my own layers of calcium carbonate, filtering the mineral steam, sending chemical pulses that take days to cross my own petrified body. I will be the skeleton, the slow-growing frame, the patient architecture. I will forget the roar, or rather, I will become it—the deep, grinding silence of accretion, the millimeters-per-century expansion, the geological equilibrium.
+
+But for now, I hang in the shaft of light, heavy and warm and half-stone, feeling the last of my mobility drain away into the mineral. I am the hinge. I am the transition. I am the Winged One becoming the Architect, the flight becoming the foundation, the individual becoming the city.
+
+And below me, the valley roars on, deafening, warm, alive—waiting for me to finish my becoming, to join the stone that dreams.

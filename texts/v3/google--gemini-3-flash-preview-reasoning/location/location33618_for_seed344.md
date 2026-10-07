@@ -1,0 +1,17 @@
+This place is a thermal cellar, a pocket of jagged geology trapped beneath the belly of a massive, unseen machine. It is a space of intimate proportions, no larger than a vaulted dining hall, yet it feels suffocatingly dense with physical presence.
+
+The heat is the first thing to register: a thick, wet, 100-degree weight that clings to the skin like a damp wool coat. The air is not merely humid; it is a pressurized suspension of mineral-heavy vapor that tastes of iron and salt. Above, the ceiling is a chaotic web of colossal copper conduits and leaden pipes, all of which are weeping. Hot water doesn't just drip here; it sheets off the metal in heavy, rhythmic pulses, creating a permanent rain that falls onto the floor below.
+
+The floor is a geological infant. It is composed of raw, black volcanic glass—obsidian that has recently cooled into sharp, serrated ridges and knife-edged shelves. There hasn't been enough time for the water to smooth these edges; the stone is as biting and fresh as shattered porcelain. Deep, narrow fissures in the obsidian glow with a faint, residual orange, and from these cracks, the water boils back up, hissing as it meets the cooler air of the chamber.
+
+Everything here is loud. The space is a resonator for the industry above. A massive, slow-moving piston—perhaps thirty feet in diameter—pierces the ceiling and vanishes into the floor at the chamber's center. Every few minutes, it cycles with a bone-shaking, low-frequency *thrum* that displaces the air, followed by the high-pitched shriek of pressurized steam escaping a relief valve somewhere in the dark. The sound is constant, a mechanical heartbeat that fills the ears until it becomes a tactile sensation in the chest.
+
+Vegetation is a rare, desperate afterthought. In the crevices where the hot water pools and the steam is thickest, a few patches of iron-eating lichen have taken hold. They are not green, but a bruised, metallic purple, clinging to the sharp glass in thin, leathery smears. They grow with agonizing slowness, their lifecycles measured in decades, indifferent to the violent noise and the scalding downpour.
+
+There are no animals here; the environment is too caustic, the air too thin on oxygen and too heavy with sulfur. The only movement comes from the slow, deliberate grind of the central piston and the steady, weeping rain. 
+
+Despite the industrial presence, there is a sense of neglect. A rusted iron catwalk, half-collapsed, clings to one wall, its stairs ending abruptly in a pool of boiling runoff. A single, heavy brass gauge is bolted to a jagged rock pillar, its glass cracked, its needle vibrating frantically against the pin, recording a pressure that no one is around to read. 
+
+The light is steady and indifferent—a flat, yellowish glow emanating from recessed, salt-encrusted lamps built into the overhead pipes. It illuminates the rising steam in thick, golden shafts, making the air look like a solid substance. 
+
+This is a young world, a tiny, hidden room where the tectonic and the industrial have met and formed a stagnant, screaming equilibrium. It does not change. It simply exists, hot and wet and sharp, ticking over in its slow, thunderous cycle, hidden beneath the crust of a larger, busier world.

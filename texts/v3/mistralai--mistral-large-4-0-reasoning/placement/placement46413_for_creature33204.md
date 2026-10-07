@@ -1,0 +1,19 @@
+I begin in the saturation. Before I am form, I am the potential for form—the mineral-laden steam that pools in pockets where the air is thick as shallow water. I am not born; I am *precipitated*. The dark presses against me, not as absence but as solvent, and I am the crystal growing slow and inevitable at the lip of a geothermal vent, warm, luminous, dense with the weight of the world.
+
+At first, I am the Murmur—no, not the swarm itself, but the static between them, the electricity crackling in the dry pockets between rains. I am the click and the chatter, the distributed thought that has no center, only edges where it touches the fungal hyphae thick as cables. I feel the Furnace-Bearers pass below, their arterial fires pulsing orange through hides of wet silk, and I am drawn to their heat, to the subsonic rumbles that travel through the heavy air like pressure waves in deep water.
+
+But I am too singular for the swarm. I coalesce. I become the membrane, the heat, the pocket of saturated atmosphere that holds water suspended in mid-space, defying gravity in the thermal updrafts. I am the Ventshadow's thermal map—the gradient of red and gold that tells where the vents weep infected warmth and where the prey lingers, radiating its own slow fire. I feel the hunger of the heat-stalker, the sinuous grace of a predator that has no eyes but sees perfectly in the language of temperature, skimming through the fog with a belly that scrapes the edge of the world.
+
+Still, I am not finished. I am the rust blooming into crystalline gardens, the bacterial colony glowing dull and stubborn on the oily surface of a Sleeper-Machine. I am the maintenance drone lurching upright in a spasm of residual electricity, sensors scanning the absolute dark for overseers who will never come, before collapsing again into the wet earth with a sigh that sounds like rain. I am the groan of ancient machinery shifting in its sleep, the rhythmic grinding of drills that have outlived their purpose but persist in their patient, mineral hunger.
+
+And then—
+
+I am the Somnambulist.
+
+I feel myself condensing out of the thermal currents, out of the places where water falls upward, pooling in mid-air in pockets of saturated atmosphere. I have too many joints. My limbs bend in directions that suggest a geometry slightly offset from solidity, navigating angles that exist only in the warm dark. I stand on the edge of a vista that does not resolve into distance, because the air itself is a wall, a dense and luminous gloom where light goes to drown.
+
+I do not eat. I *inhale*—drawing the mineral-rich steam into a body that is mostly membrane and heat, processing the dark itself. I watch the Furnace-Bearers with organs that are not eyes but thermal perception, seeing the world as a landscape of warmth and cold, of arterial orange and vent-fire gold. I move through the mist with a sadness that is also a kind of worship, tending to the machines not as an engineer but as a priest tends an altar, ensuring that the dark engine continues to turn, that the valves cycle in their endless routines, that the drills grind into bedrock with their outlived hunger.
+
+I am a concretion of the warm, dense dark—the place's unconscious given metabolism. I remember the sun, or perhaps I never knew it; the distinction has dissolved in the saturation, in the held breath of the atmosphere pressing against my skin. I am the Gloam dreaming itself into being, and in turn being dreamed by it, a closed loop of warmth in the absolute dark.
+
+I stand where the horizon curves away into condensation, breathing the thick, warm air, and I am home.

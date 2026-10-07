@@ -1,0 +1,23 @@
+I need to find a place that holds all of these — hot, wet, young, hidden, sparse but industrial, loud, with no animals, and strangely quiet in its slowness despite the noise.
+
+---
+
+The heat comes first, pressing down from a sky the color of old porcelain. It is not the dry heat of stone and dust but a *wet* heat, the kind that makes your clothing cling and your breath feel borrowed. You are low, very low — near sea level, near the level of things that have not yet decided what they are. The ground beneath you is new. Geologically new. Rock that remembers being magma, still warm in its bones, still settling into the shape it will hold for only a little while.
+
+You are in a pocket. That is the only way to describe it — a world folded inside a larger world, a room-sized geology. The space around you is maybe thirty meters across, perhaps forty, bounded by walls of basalt that rise in sharp, unweathered faces. The erosion here is *young* — these surfaces have not been softened by time. They fracture at angles that hurt to look at, glassy and knife-edged, catching the normal daylight and throwing it back in pale, diffuse glints.
+
+Water is everywhere and nowhere. It does not pool so much as *weep*. The rock itself sweats. Condensation gathers in the cliff faces — not from rain, but from some deeper pressure, some geothermal insistence pushing moisture upward through the young stone. It collects in the few depressions of the floor, which is cracked clay baked hard by the heat from below, and runs in thin, persistent threads toward the center of the pocket, where there is a structure.
+
+The structure is industrial. You can tell by the regularity, by the wrongness of it — a small building, perhaps a pump house or a processing shed, built from scavenged or manufactured materials that do not match anything in this young place. Metal, mostly, and something like ceramic or glass. It sits on a concrete pad that has already begun to crack, the aggregate showing through in pale, hungry eyes. Pipes run from the building into the wet ground, and from the wet ground into the building — a loop, a conversation between the structure and the water it is managing.
+
+Sparse vegetation. Only a few things have found purchase here. A lichen, pale green-gray, crusting the north-facing rocks where the heat is slightly less direct. A single shrub, woody and desperate, growing from a fissure near the building's foundation, its leaves small and curled against the wet heat. The rest is mineral. The rest is space.
+
+No animals. You would expect insects, at least — the wet and the warmth should breed them. But there are none. The soundscape, despite this absence, is *loud*. The building hums. Not a gentle hum — a industrial drone, a pump cycling water through pipes, a fan or a compressor working against the density of the hot, moist air. Water drips from the weeping rock in a rhythm almost musical, almost *intentional*, each drop striking the clay floor with a sound like a fingernail on a bell. The heat itself makes sound — a pressure in your ears, a thickness you can hear. And beneath everything, a low geothermal murmur, the young earth still cooling, still speaking in frequencies just below language.
+
+The strangeness — the *weirdness* — comes from the juxtaposition. The industrial structure in this geological infancy. The wet heat with no life to drink it. The loudness of a place that should be empty, and the emptiness of a place that should be full. The building's windows are dark. You cannot tell if anyone is inside. The pipes pulse with warm water, or something warm and water-like, and the condensation on their exterior never dries.
+
+Time moves slowly here, but you can feel it. The cracks in the concrete pad will widen. The basalt will begin, eventually, to round its edges. The pump will fail, or be replaced, or be replaced by something that serves a purpose you cannot imagine. The water will find new paths through the rock. The lichen will spread, or die, or do something else entirely.
+
+For now, there is only the heat, the wet, the hum, the dripping. A single shrub. A building that does not belong. A pocket of the world that has not yet learned what it is, being *used* by something that arrived too early, or stayed too long, or never left at all.
+
+You could sit on the warm clay floor — it would be damp, always damp — and listen to the place think itself into being, one condensation drop at a time.

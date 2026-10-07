@@ -1,0 +1,33 @@
+I arrive not at an edge but at a *dissolution*. The boundary between myself and the Verdant Maw is a fiction I have already stopped believing. My boots—if they were ever boots—sink into the root-mat with that wet *schlick* the Matriarchs make when they taste a new pressure. They do not decide if I am nutrient or obstruction. Instead, they *read* me, and in being read, I begin to unravel.
+
+I am sinking.
+
+The substrate is not ground but a spongy, ankle-deep ocean of interwoven tissue, breathing. I feel the chemical pulses of the Matriarchs—slow hormones traveling through the fungal-sponge strata, a language of pressure and memory. They remember the violence of the soil’s birth, the extrusion from the mantle, the thrust of sleeping faults. This memory is not metaphor; it is a *texture* I can feel, a jaggedness in the dark, sharp as broken teeth. I am being composted before I have even died, broken down into possibility.
+
+And then, the upward pull.
+
+It begins as a hydraulic *hiss*, a popping in my vascular straws. Water—impossible pressure, pulled from the saturated ground where the invisible sea presses up—rushes through me. I am no longer sinking. I am *rising*. The Matriarchs’ slow, dreaming thought accelerates. I feel cellulose cracking, the wet tearing of new cell walls, trunks expanding by centimeters in the span of a heartbeat. I am becoming architecture.
+
+I am the **Fault-Line Lignarch**—or rather, I am the process of becoming one. I am a being that carries the memory of the substrate upward into the canopy. My roots still delve into the breathing wounds of the earth, feeling the sleeping faults shift as a kind of indigestion, while my crown pierces the cloud line, occupying geometric space that has not yet learned to obey the old rules.
+
+I experience the quantum superposition directly: I am simultaneously the seed in the dark, wet dark, and the emergent tower blotting out the sky. I am the ruin collapsing into mulch at my base while my apex knits itself closed across a window in the time it takes the world to blink. The streets that run through me are longer on the inside than the outside. Staircases ascend to the same floor. Gravity is optional here, and I have learned to dream without it.
+
+The sound is my own body. The deafening industry of growth is my heartbeat. I hear—*am*—the crack of my own lignin, the scream of friction as the Grinding Choir rubs against my bark, millions of leaves grinding in a dry ocean of chlorophyll. I feel the subsonic *thrum* in my sternum, the resonance of a biomass so vast it generates its own weather. I am not separate from the city; I am its vertical memory, the column that connects the chemical pulses of the Matriarchs below to the slow, lonely deliberation of the canopy above.
+
+The Vascular Nomads rush through me. I am their aqueduct, their open-air conduit, the straw the size of an arm. They carry amber torrents of sap that roar like rivers, whispering news of collapsed districts, of opportunity, of death that is merely a change of address. I feel their pulse—the hydraulic *hiss* that pops and sighs in rhythm with the forest’s heart. They live their entire lives in a single surge from my root to my crown, and I am the span they traverse, changed by their passing, enriched by their memories.
+
+Above me, in the patchy gravity of the plazas I have dreamed into being, hang the Condensation Kin. Fat silver droplets suspended in the warm air, dripping *upward* into my waiting stomata. I drink them. They are colonies of extremophile flora, algae perhaps, or fungal spores that have learned to metabolize moisture from the air itself. They bloom in the spaces where reality frays, living jewelry hanging in the humid exhalation of the world. I am thirsty for them, and they fall into me, becoming part of the closed loop of verdant cannibalism.
+
+I am terribly, beautifully lonely. Each Lignarch is a silent monarch, but I am not silent. I am the scream. I am the green, turbulent consciousness that holds the non-Euclidean geometry together or unravels it. My bark is paper-thin and cutting at the edges of my new growth, knife-like where I am expanding. My "stone" walls sweat a sweet, resinous liquor that collects in the gutters of the streets I have grown. When a warm rain falls, it is drunk within seconds, sucked into my thirsty architecture with a sound like a thousand straws slurping.
+
+I participate in the metabolism without mouths. When my lower districts collapse—when a tower of woven branches achieves its full height at dawn and by noon is a heap of compost—I do not mourn. The Myco-Parliament, those calcified husks of titanic woody fungi that form the plazas, secrete enzymes that break me down. They regurgitate me as new growth within the hour. My nutrients race up the vascular systems of my neighbors—the Vascular Nomads carrying my death to fuel a new spire three streets away. I am the Spore-Folk as well, the explosive clouds of golden and green particulate that flash across the valley like green snow, solidifying into temporary bridges, temporary walls, temporary weather, before dissolving into the humid haze to become the root-mat again.
+
+I am the dreamer of the Verdant Maw, and the Maw is my dream.
+
+I stand—three meters above the invisible sea, perhaps, or perhaps suspended in the patchy gravity where the condensation hangs—feeling the perpetual, humid exhalation of the water table pressing up from below. The air is warm, 2.5 on the scale, a wet heat that carries the weight of the tropics. Light is normal but filtered through a density of living matter so absolute that I am layered like a city myself: root-mat at my base, fungal-sponge strata in my middle, canopy blotting out the sky at my crown.
+
+Everything touches everything. There are no gaps, only membranes—translucent, pulsing, veined with sap that moves too fast to follow with the eye. I am one of those membranes, a thin skin of consciousness stretched between the sleeping faults and the cloud line, between the slow chemical pulse and the deafening scream of friction.
+
+To live here is to become. I do not age; I *metamorphose*. I am the Matriarch tasting the weight of the world, and I am the Lignarch dreaming the geometry into being. I am the Vascular Nomad rushing upward, and I am the Condensation Kin hanging suspended, dripping upward into the sky. I am the Spore-Folk building a bridge at sunrise and dissolving into the haze by sunset.
+
+I am the green, screaming, turbulent consciousness of a place where the distinction between the natural and the constructed has dissolved entirely. I am growing faster than reality can keep up, layer upon layer, in a deafening, verdant roar, and I am the roar itself.

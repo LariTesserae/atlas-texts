@@ -1,0 +1,17 @@
+The horizon here is not a line, but a shimmering blur where the heat of the earth meets a pale, indifferent sky. This is a landscape of immense, oppressive lowlands, a continental basin sunk deep beneath the level of the surrounding world, acting as a crucible for terrestrial heat.
+
+At first glance, it appears to be the ruin of a sprawling, planet-sized metropolis. The terrain is rigorously geometric. Countless structures rise from the basin floor—great monolithic plinths, perfectly square towers truncated at varying heights, vast terraced ziggurats, and long, straight causeways that intersect at precise right angles. The scale is staggering; a single foundation block might be the size of a hill.
+
+Yet, there is no technology here. No tool marks, no mortar, no intention of design by thinking minds. This is a place where the definition of "built" and "natural" collapses. The geology of this low basin operates on rigid, crystalline laws of deposition and thrust.
+
+The environment is currently *emerging*. It is a raw, formative wound on the planet's crust. These geometric forms are not being worn down by time; they are pushing *up*. The ground constantly births new architecture. A low, vibrating groan—a sound felt in the chest more than heard—might signal the slow, agonizing meter-upward thrust of a basalt cube, its edges razor-sharp because wind and rain have not yet existed long enough to dull them.
+
+The primary material is a dark, iron-rich slate and a dense, reddish clay that bakes into a ceramic hardness almost instantly upon exposure to the air. The surface temperature is blistering. The air is thick, heavy, and smells intensely of wet rust, sulfur, and baking earth.
+
+Despite the searing heat, the landscape is persistently damp, though not from rain. The heat draws moisture from deep aquifers, forcing it up through the developing cracks in the geometric plates. The "streets" between the plinths are often choked with thick, curling blankets of steam. Condensation slicks the vertical faces of the stone towers during the slightly cooler nights, and by mid-morning, this moisture burns off in wavering plumes. In the deepest depressions of the grid-like floor, shallow, semi-permanent pools of scalding water collect, their surfaces coated in iridescent mineral scums.
+
+Life here is scarce and tenacious. Vegetation exists only in the tightest fissures where steam collects and cools. It does not resemble the green life of softer places. There are mats of extremophile mosses that grow in hues of burnt orange and deep violet, clinging to the slick vertical faces like mineral stains. Occasionally, in the intricate corners where new geometry is folding out of the ground, brittle, wire-like shrubs with metallic thorns huddle together, drinking the geothermal vapor.
+
+There are no animals. No insects buzz in the steam; no birds navigate the thermals above the stone towers. The land is too hot, too new, and too indifferent to biological needs.
+
+The silence is profound, emphasized by the sheer scale of the empty spaces between the stone behemoths. It is a silence broken only by the sounds of the earth building itself: the sharp *crack* of cooling stone fracturing, the wet hiss of a geyser venting through a new fissure, and that deep, subterranean tectonic groan as another perfect, mindless monument is shoved up into the light. It is a vast, active kiln, forging a city where no one will ever live.

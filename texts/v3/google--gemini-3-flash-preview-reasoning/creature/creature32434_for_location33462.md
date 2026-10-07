@@ -1,0 +1,24 @@
+The inhabitants of the Great Lignin are not so much a population as they are a specialized extension of the landscape’s own metabolic process. Because the world is a single, dying organism, those who dwell upon it have become either its symbiotic menders or its industrial parasites, their very physiology dictated by the rhythmic thrum of the heartwood.
+
+### The Lignin-Wrights (The Anchorites)
+The most visible residents are the Lignin-Wrights, the engineers and operators of the Sap-Canneries. They are human in silhouette only. To survive in a world where perspective is a suggestion and reality frays at the edges, the Wrights have undergone a process of "stabilization." Their clothing is not fabric, but heavy, articulated plates of tarnished copper and lead, bolted directly into their own calcified, wood-like skin. These suits act as anchors; without the weight and the metallic resonance, a Wright might simply drift into one of the "thinned" zones and vanish, becoming a permanent, suspended fixture of the sky like the phantom cranes.
+
+They move with a slow, deliberate jerkiness, their gait timed to the massive, subterranean beat of the world-tree’s pistons. They do not speak with voices, for the air is too thin to carry much sound over the grinding of the mills. Instead, they communicate by striking the silver-grey floor with brass-tipped staves, sending vibrations through the petrified grain—a tactile language that can be felt through the soles of the feet for miles.
+
+### The Pulp-Serfs
+Below the Wrights in the hierarchy of the mills are the Pulp-Serfs. These are beings that seem to have been grown rather than born, birthed from the damp, pressurized vats of the Fiber-Mills. Their skin is the color of wet sawdust, translucent and fibrous, revealing a circulatory system that pumps a thick, amber-colored resin instead of blood. 
+
+They are the ones who scramble along the vertical ridges and hang from the underside of the fern-brakes, their fingers elongated and hooked like harvesting tools. They possess a terrifying, singular focus: the collection of moisture. They carry wide, shallow copper basins on their backs to catch the heavy thuds of condensation, moving with a silent, insectile grace that defies the heavy gravity of the industrial zones. They have no eyes, only sensitive, frilled membranes along their foreheads that "see" the temperature of the mist.
+
+### The Flicker-Folk (The Transposed)
+In the zones where reality has begun to unspool, there are the Flicker-Folk. These are the casualties of the Great Lignin’s "2.6 magnitude of weirdness." They are individuals—perhaps former Wrights or travelers—who have been caught in a perspective shift and never quite returned. 
+
+They appear as shimmering, semi-transparent outlines, often seen standing perfectly still atop a six-inch "mountain" range or suspended mid-air in a valley of soft rot. They are "translated" into a different frequency of existence. You might see one reaching for a tool that existed fifty years ago, or fleeing from a storm that hasn't arrived yet. They do not interact with the living; they are like static on a screen, echoes of a presence that the Lignin has forgotten to erase. Sometimes, a Wright will leave a bowl of fermented sap at the edge of a thinned zone; by morning, the sap is gone, replaced by a perfectly carved knot of wood that shouldn't exist in three dimensions.
+
+### The Scour-Wrights
+While the Scour-Wisps are natural distortions, there are those who "shepherd" them. The Scour-Wrights are solitary figures who wear veils of fine brass mesh to protect their senses from the ozone. They follow the wisps, using long, tuning-fork-like instruments to guide the distortions toward areas of the wood that are becoming too jagged or overgrown. They are the gardeners of this petrified plain, ensuring the landscape remains a "flattened, silver-grey mirror." They are the most reclusive of all, often going decades without seeing another soul, living in the hollows of the iron-beetle harvesters.
+
+### The Great Lignin Itself
+It would be an error to exclude the tree from the list of inhabitants. The Great Lignin is sentient, though its consciousness moves at the speed of petrifaction. The machines—the pumps, the pistons, the gears—are not merely tools used *on* it; they are a crude nervous system built *by* it through the proxy of the Wrights. The tree allows the parasites to tap its sap because the vibration of the machinery keeps its own ancient, sluggish hum from falling into the silence of total death. 
+
+In this world, life is a slow, rhythmic negotiation between the metal that anchors and the vegetable matter that sustains, all under a sky that watches with a pale, unblinking eye.

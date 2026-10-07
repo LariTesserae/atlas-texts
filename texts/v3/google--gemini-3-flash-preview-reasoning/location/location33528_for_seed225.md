@@ -1,0 +1,17 @@
+The light here does not fall; it occupies. 
+
+It is a Sun-Cistern, a vast, shallow bowl carved into the limestone crust of the world, dropped twenty meters below the surface of the surrounding scrubland. The scale is that of a collapsed cathedral, perhaps a hundred meters across, but it feels infinitely larger because of the vacuum of its contents. The density is near zero; there is nothing to break the sightline from one weathered wall to the other except for the air itself, which vibrates with a relentless, scouring brightness.
+
+The light is a 2.9—a near-blinding, shadowless white that reflects off the bleached, calcified walls until the distinction between the floor and the sky is lost in a haze of glare. Despite this radiance, the air remains only comfortably warm, a steady, pulsing heat that feels like the breath of a large, sleeping animal.
+
+The erosion here is "settled." The walls are not jagged or fresh; they have the melted, fluid quality of old wax or river-stones. There are no sharp edges. Every shelf and niche has been smoothed by eons of wind that rarely rises above a whisper. The ground is a fine, pale silt that holds the memory of footprints for years because nothing moves fast enough to disturb them.
+
+Water is a rare, rhythmic guest. It does not flow; it beads. It is a "damp" environment in the most literal sense—the walls "sweat" in the early morning as condensation clings to the cool stone before the sun reaches its zenith. This moisture collects in tiny, isolated thumb-bowls in the rock, sapphire-colored pockets of wetness that exist as islands in the vast, dry emptiness. 
+
+Vegetation is a lonely affair. A single, spindly species of pale, leafless succulent grows in the cracks of the basin, spaced ten or twenty meters apart. They look like frozen lightning, white and brittle, reaching toward the glare. They do not seem to grow so much as they seem to crystallize, their progress measured in decades.
+
+Yet, the fauna is abundant. The cistern is alive with a quiet, frantic energy. Translucent, six-winged insects, nearly invisible in the bright air, hover over the damp spots. Small, flat-bodied lizards with skin like polished opal skitter across the silt, their movements so fluid they look like spilled mercury. They are silent. Everything here is silent. The only sound is the occasional *tink* of a cooling stone or the rhythmic, low-frequency hum of the wind passing over the lip of the cistern far above.
+
+There are signs of a primitive presence—not residents, but visitors. Near the center of the void, where the light is most intense, there are "tools." They are not built, but selected: heavy, smooth grinding stones placed in a circle, and long, thin shards of volcanic glass driven into the silt to track the slow movement of the sun. There are no structures, no walls, no shelters. The inhabitants or pilgrims of this place evidently have no need to hide from the light.
+
+The world moves at a glacial pace. A single bead of water might take six hours to travel an inch down the wall. The lizards can remain motionless for days, staring into the brilliance. It is a landscape of profound, bright stasis—a hollowed-out room in the earth where the air is empty, the stone is old, and the light is a physical weight that holds everything in a state of quiet, shimmering balance.

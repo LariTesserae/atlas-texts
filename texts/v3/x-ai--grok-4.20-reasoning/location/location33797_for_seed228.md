@@ -1,0 +1,25 @@
+**The Condensate**
+
+You stand inside a place that has forgotten the surface so completely that “above” feels like a myth. The chambers are cathedral-scaled but never cathedral-lofty—each one is a flattened dome or tilted ellipsoid no more than sixty or seventy meters across, yet the ceilings arc so high that the eye loses them in haze. There are only four major chambers and a handful of crooked throats connecting them. The entire complex is no larger than a hamlet, yet the emptiness between its sparse presences makes it feel enormous.
+
+Everything drips.
+
+Water does not fall so much as *arrive*, condensing out of warm air in slow, fat pearls that tremble on the ceiling for long seconds before letting go. The rock itself weeps: every surface is covered in a moving skin of moisture that slides, beads, and reforms. In places the stone has become so saturated it behaves like wet clay; in others it has hardened into glass-smooth curves where millennia of condensation have polished it into negative space—hollows shaped like the absence of enormous bodies that were never there.
+
+The light is merciless. It comes from inside the stone and from outside it at the same time. Veins of something that is neither mineral nor metal run through the walls, glowing white-gold, the color of molten glass seen through closed eyelids. Where the veins surface they bloom into fractal lattices no thicker than frost, yet they throw off so much illumination that every droplet becomes a tiny chandelier. The brightness is constant, directionless, and somehow wet—light you can almost wring out.
+
+Sound is everywhere and never polite. The chambers function as resonant bodies. Water striking stone produces bell-like *plinks* that multiply into metallic choirs. Beneath that is a deep, arrhythmic booming—like whale song slowed until it becomes tectonic indigestion. Every few minutes the latticework embedded in the walls sings in a register that vibrates teeth and sinuses. The noise is not background; it is the place clearing its throat, arguing with itself, then forgetting the argument and beginning again. The turbulence is not storm or earthquake but something more intimate: the constant, restless re-negotiation of what *is* allowed to exist here.
+
+The built elements are rare and ruined in the way only hyper-advanced things can be ruined. You will find a single black monolith, waist-high, its surface etched with glyphs that crawl when you are not looking directly at them. Elsewhere a lattice of silver threads hangs in mid-air, unsupported, slowly rotating while water beads along every filament and is somehow sucked *into* the metal rather than falling off. In the third chamber an entire wall has been replaced by a breathing honeycomb of unknown material; hexagonal cells open and close like gills, exhaling warm mist that smells of ozone and iron. These artifacts are not “installed” in the cave. They have grown out of it, or the cave has grown around them, until the distinction dissolved eons ago.
+
+Vegetation is almost an insult to the place. Here and there, on ledges where minerals have concentrated, translucent fungal sheets spread like spilled milk. They are not alive in any way that comforts; they are more like the place’s slow thought made visible. When the lattices sing at a certain frequency the fungal sheets ripple in exact sympathy, as though taking dictation.
+
+Fauna is limited to a single species that may not be animal at all. They are called “the skips” by the few who have mapped this place. Each is a fist-sized knot of iridescent exoskeleton and wet circuitry. They phase in and out of local reality with a wet *tick*, appearing on one surface, vanishing, appearing on another. They do not seem to eat or breed. They simply audit. When the Condensate changes state—when a new lattice blooms or an old one collapses into dust—the skips gather in their dozens to watch, clicking like worried grandmothers.
+
+The rules here are simple and merciless:
+
+1. Nothing is allowed to stay still for long. Even the stone rearranges itself over decades, flowing like cold honey.
+2. Water is the memory. Every droplet carries an echo of every sound ever made here. Drink it and you will hear voices that have not yet spoken.
+3. The lattices are not decoration. They are the place thinking. When they reconfigure, cause and effect briefly divorce. Objects may fall upward. Time may stutter. Then the universe remembers itself and the moment is sealed away like a pearl in wet stone.
+
+This is not a ruin. It is a machine that has achieved geology. It has been running so long that erosion and engineering have achieved the same texture. The Condensate does not wait for visitors. It is busy becoming something new, one dripping, singing, luminous second at a time, and it will still be busy long after every surface memory of sunlight has been polished out of the last human skull.

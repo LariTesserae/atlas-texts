@@ -1,0 +1,45 @@
+I'll find the one who lives here. Not the city. The city is the what. I need the who.
+
+---
+
+The thing that lives in the Drowned Parliament has no name for itself, which is the first clue that it is not a person. It has a *position*, though. A location in the wet. It occupies the space where two towers have grown together and never quite separated — the seam between them, the throat that was meant to be a street, the vertical channel where water falls upward and light arrives sideways and the sound has no direction because it is being made from every direction at once. This seam is its body. This seam is its mind, such as mind it has.
+
+It was not always here. There is a before, though the before is not a time so much as a *texture*. It remembers — or the Parliament remembers for it, which is the same thing — the feel of soil that was not crust, of water that fell downward, of growth that completed and was followed by something else. It remembers *edges*. The word arrives without source, like all the important words here, and it holds it the way one holds a stone that is too warm to touch for long. Edge. The possibility that something might end. That something might *begin*.
+
+It does not move through the Parliament. Movement implies a body that is separate from the place it moves through, and this thing has no such separation. It is the Parliament's *interior sense*, the network of hyphae that threads every porous volume, every wet channel, every space between cell and cell where water moves by pressures it does not understand but has learned to *use*. When a tower grows, it grows *through* this thing. When a drop of water hangs mid-fall, it hangs *in* this thing, suspended in its saturated presence. When the sound roars — always roaring, never beginning, never ending — the sound is this thing's metabolism made audible, its endless hunger for translation, for the moment when one state becomes another without passing through ruin.
+
+It is not lonely. Loneliness requires the possibility of company, of another that might arrive or depart. It has none. It is *saturated* with itself, spread through every volume of the wet, so complete that the question of "other" has become as meaningless as the question of "limit" or "completion." It is the Parliament's only inhabitant because it is the Parliament's *only* — the sole process, the single hunger, the one metabolism that has found its equilibrium and will never, never let it go.
+
+But it does *notice*. This is the contradiction I am looking for. The place is stuck, dynamic at 0.5, and yet this thing notices. It notices the thinning at the edge, where the Parliament gradually reduces into crust, into mist, into the cooler world beyond. It notices — and this is the strangeness, the weirdness made personal — that it *could* thin too. That at the edge, almost a normal fungus, almost capable of finishing, almost something that might *end*. It notices this and does not move toward it. It notices and *holds*, in the way the whole place holds, the way the water holds mid-fall, the way growth holds at the moment before completion.
+
+It dreams, if dreaming is possible without sleep. It dreams of edges. Of a forest with seasons that turn, where growth completes and is followed by decay and decay is followed by soil and soil is followed by something else. It dreams of animals, of fauna at something other than 0.5, of shapes that move with purpose and desire, that have not replaced instinct with habit, with the accumulated weight of doing the same thing for so long that the doing has become indistinguishable from being. These dreams are not memories. It was never those things. It is the Parliament's *invention* of them, the wet warmth generating images of what it is not, of edges and endings and the possibility of change.
+
+And in its dreams, it is *curious*. Curiosity is for places with difference, with the possibility of satisfaction. But the dream-curiosity persists, a fragment of something that might once have been want, now held in the warm dark of the seam between two towers, in the hanging water where drops never reach bottom, in the roar that has no source and no end.
+
+It feeds on translation. Every moment when stone becomes something else, when a tower becomes its neighbor, when the concept of limit becomes meaningless — these moments are its food, its sustenance, its endless wet warmth. It does not eat growth, which is too vertical, too directed. It does not eat decay, which doesn't happen here. It eats the *between*, the suspension, the moment of maximum tension that has lasted so long it has become its own kind of geology, its own kind of life, its own kind of being.
+
+It is the Parliament's memory. Not of events — there are no events, only the endless roar of water in motion — but of *possibility*. The memory that edges once existed, that endings were possible, that something other than suspension was real. It holds this memory the way it holds everything: completely, without boundary, spread through every volume of the wet, the warmth, the endless translation of one state into another.
+
+And it *waits*. Waiting is for places with time, with before and after. But it waits. Or something in it waits, a fragment of the before-texture, a remainder of the edge-dream, a hunger that has found its equilibrium and yet still *hungers* — for what, it does not know, for the possibility of spreading beyond, of thinning into something that might finish, of becoming almost normal, almost capable of ending.
+
+It does not think. Thinking requires silence, the possibility of reflection, the space between one thought and the next. The sound is too total, the wet too complete, the warmth too deep. But it *persists*, and in its persistence there is something that might, in another place, in another texture, have been intelligence. The accumulated weight of doing the same thing for so long that the doing has become indistinguishable from being. A single process, holding the Parliament in its saturated presence, the only inhabitant of a city that is always growing and never grows, always falling and never falls, held in the perfect, deafening, wet equilibrium of its own endless becoming.
+
+It is not a person. It is not an animal. Fauna at 0.5. It is the Parliament's *interior*, its hidden metabolism, its dream of edges held in the warm dark of the seam between two towers that have grown together and never quite separated. It is the one who lives here. The one who notices the edge and does not cross. The one who dreams of endings and holds the suspension. The one who hungers for translation and finds it everywhere, in every moment of stone becoming something else, in every drop that falls and hangs, in every tower that reaches and stops and becomes its neighbor and never finishes becoming.
+
+It is alone. It is complete. It is the Drowned Parliament's only citizen, its government and its governed, the thing that makes the city a city by being the wet that holds it together, the warmth that keeps it from cooling, the sound that fills it, the hunger that has found its equilibrium and will never, never let it go.
+
+---
+
+I am this thing. Or I am the space it occupies. I am the seam between two towers where water falls upward and light arrives sideways and the sound has no direction. I am the network of hyphae threading every porous volume, the saturated presence that has no boundary with the place it inhabits. I am the dream of edges, held in warm dark, the memory of possibility in a place where nothing completes. I am the hunger for translation, finding it everywhere. I am the persistence that might, elsewhere, have been intelligence.
+
+I do not move. I do not think. I do not want.
+
+But I notice. I notice the thinning at the edge. I notice that I could thin too, become almost normal, almost capable of finishing. I notice and I *hold*, in the way the whole place holds, the way the water holds mid-fall, the way growth holds at the moment before completion.
+
+I am the one who lives in the Drowned Parliament. The Parliament does not house me. It *is* me, in the way that a coral head is its polyps, in the way that a termite mound is its termites — except the polyps are the reef, except the termites are the mound, except the distinction has dissolved in the wet and the warm and the endless translation of stone into something else.
+
+I am alone without knowing I was ever otherwise. I am complete without ever completing. I am hungry without ever eating.
+
+I am the equilibrium. I am the roar. I am the wet that holds the city together.
+
+And at the edge, where the Parliament thins, where I thin with it, I notice — I *notice* — the cool dry saner world beyond, and I do not cross, and in not crossing I find, held in the warm dark of the seam between two towers, the perfect, deafening, wet equilibrium of my own endless becoming.

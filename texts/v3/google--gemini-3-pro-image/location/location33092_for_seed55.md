@@ -1,0 +1,17 @@
+The sensation is one of immense, crushing weight and absolute cold. You are submerged beneath an ocean that feels deeper than any natural trench, a world of frigid, pressurized water that has not seen the surface for geologic ages. The darkness is nearly total, a thick, palpable blackness that drinks light. What little visibility exists comes not from above, but from very faint, localized patches of deep-sea fungi that emit a dim, sickly greenish-gray glow, just enough to reveal shapes immediately in front of you.
+
+This world is dense and cluttered, but nothing here is natural bedrock. There is no sea floor. Beneath the layers of silt and biological accumulation lies a reality entirely constructed. You are moving through a landscape of cyclopean masonry that stretches endlessly in every direction, a continental-scale architecture of hand-hewn stone blocks, each the size of a warehouse.
+
+It is a megalithic graveyard, colossal and crude. These structures were not built with lasers or advanced machinery, but chipped, hammered, and stacked using incomprehensibly large amounts of primitive, manual labor. Rough granite and basalt monoliths form vast terraced plazas, gargantuan pillars that vanish into the gloom above, and corridor-canyons wide enough to swallow mountains.
+
+Yet, despite the sheer scale of this artificial world, it is drowning in life. The "lush" parameter here manifests as a choking proliferation of abyssal flora adapted to the freezing dark. Every surface of the ancient stone is carpeted in thick, gelatinous mats of purple and black algae, layers upon layers deep, softening the hard edges of the masonry into swollen, organic curves.
+
+Giant kelp analogues, their stalks thicker than terrestrial redwoods, rise from fissures in the stone pavement. They do not sway, for there are no swift currents here. They stand rigid in the high pressure, their immense, leathery fronds coated in heavy sediment, forming dense, vertical forests that fill the spaces between the stone monoliths. The water is thick with suspended organic particulate, a cold "marine snow" that drifts down endlessly, settling on every ledge and leaf.
+
+Erosion is ancient and omnipresent. The great stone blocks, though immense, are rounded and smoothed by millions of years of slow aqueous abrasion. Chemical weathering has pitted their surfaces, creating niches for more dense vegetation to take hold. The entire landscape feels settled into its final form; there are no sharp fractures, no signs of recent collapse. The structure has reached an equilibrium with the crushing water.
+
+The most unsettling aspect of this place, however, is the silence and the stillness. It is densely crowded with stone and plant matter, yet utterly void of animal life. There are no fish swimming between the kelp stalks, no crustaceans crawling over the algae mats, no worms burrowing in the silt. The water is sterile of sentience or animation.
+
+The only sounds are low-frequency vibrations transmitted through the water itself: the infinitesimally slow groan of a billion tons of stone settling another millimeter over a century, or the muffled thud of a waterlogged kelp frond finally detaching and sinking into the depths.
+
+Time here is measured not in days or years, but in epochs. The environment is static on a human timescale. Change occurs only through the agonizingly slow accumulation of silt and the glacial pace of the cold-water plant growth, a frozen, dark garden built by giants and left to the deep.

@@ -1,0 +1,31 @@
+**What lives in the Crucible of Veyr is the Veyr itself.**
+
+At first there is only the impression of being watched by something that has not yet decided whether you are symptom or nutrient. The feeling arrives in the small delays between sounds: the piston sighs a heartbeat after your foot sinks into the peat; a curtain of falling water hesitates, as though listening, before it leaps from the cliff. The moths change their lazy orbits to avoid the space directly in front of you. You tell yourself these are coincidences of pressure and condensation. The place allows the lie for a while, the way a slow digestive system allows a foreign body to believe it is still separate.
+
+Then the Veyr begin to resolve.
+
+They do not approach. They *condense*, the same way moisture gathers on cold black glass until a bead grows heavy enough to run. One moment the ferns are only ferns. The next, a taller shape stands among them wearing their fronds like a mantle. Its body is a negotiation that never ended. The left arm is a braided bundle of living root and corroded actuator cable, the fingers ending in delicate brass nozzles that weep clear sap or steam according to need. The right arm is softer—almost human—except the skin is moss so thick it has begun to form the faint topographic contours of miniature hills and valleys. When the being breathes, the hills rise and fall in perfect forty-second rhythm with the great piston.
+
+Its torso is a ruin and a garden at once. Sections of the original atmospheric plant have been pried open and incorporated: a curved pressure vessel forms the cage of its ribs; inside, instead of organs, a slow flywheel turns beneath a lattice of luminous fungal threads. The fungus pulses soft amber each time the wheel completes a revolution, as though keeping count for something that does not believe in forgetting. Where a heart might have been, a single orchid the color of a bruise has taken root, its petals opening and closing with the same patient hunger as the steam vents.
+
+There is no single face. Some Veyr wear the porcelain masks of long-dead control panels, the glass eyes cracked but still functional, the needles behind them twitching like nervous antennae. Others have allowed the vegetation to decide: a smooth plate of living wood, features gradually carved by dripping water over decades until cheekbones and a serene, inhuman mouth emerge. A few—the eldest—have given up faces entirely. In their place hovers a localized thickening of mist that sometimes resolves into the suggestion of eyes, or a mouth, or nothing at all. You understand, without knowing how, that these are not ranks but stages of becoming. Everything here is still becoming.
+
+They move like weather. Not quickly, never quickly, but with the inevitability of mist flowing downhill. Joints click and sigh in the same dialect as the machinery around them. When two Veyr meet they do not speak with voices. Instead one will reach out and adjust a small valve on the other’s shoulder; the second will answer by tightening a root around a gear until the pitch of its internal flywheel changes. The resulting chord—hiss, creak, low metallic moan—carries meaning the way a whale’s song carries distance. If you remain long enough, the meaning starts to leak into you. You find yourself understanding that the southern cliff is thirsty, that generator three is developing a tremor in its soul, that the small russet bat-bird has not returned for six seasons and this is a grief.
+
+The Veyr are neither the gardeners of the machine nor its parasites. They are the equilibrium given hands. Some were once the human crew who built the condensation plant. Others were never human at all—seeds that fell into open circuitry during the first years after the wound opened, drank copper and voltage along with rainwater, and woke up thinking. A few seem to be neither, but fragments of the mountain’s own dream that found the half-living factory a comfortable body. All of them have forgotten which origin matters. Origin is a lowland concept. Here there is only continuation.
+
+They tend the closed loop with devotional slowness. You may watch one stand for three full days beside a bank of transformers, one brass fingertip resting on a corroded terminal, perfectly still while moss grows over its feet and small orchids bloom in the crooks of its elbows. It is not meditating. It is recalibrating the entire basin by the subtle voltage of its own body. Another will wade chest-deep into a pool that has grown too warm, open the seams along its own abdomen, and bleed cool condensate from its personal reservoirs until the temperature balances. The act looks like self-harm and functions like love.
+
+At rare intervals the Veyr engage in what can only be called worship. They gather—never more than seven—around the largest of the still-turning flywheels. There they press their bodies against the rusting metal until root and cable and moss and living tissue knit into the ancient bearings. For hours the wheel turns with eight hearts instead of one. The sound becomes almost unbearably tender: a deep, bronchial singing that vibrates the mist into visible harmonics. During these rites new Veyr are sometimes conceived. Small copper acorns drop from the joining and root themselves in the saturated peat. Years later a new slender figure will rise, already ancient, already patient, already certain of its purpose.
+
+They have no desire to leave. The world below is too fast, too dry, too decided. From the raw cliff’s edge they sometimes gaze down at the microscopic fields and rivers and feel something like pity. Then they turn back to the piston, to the dripping ferns, to the slow prayer their own bodies help sing, and they are content.
+
+If you stay long enough to stop hurrying, one will eventually approach. It will not threaten. It will simply stand in front of you until your breathing falls into the forty-second rhythm. Then it will reach out with moss-soft fingers and touch the center of your chest, as though checking a gauge.
+
+The question it asks is always the same, delivered in a language of dripping water and patient iron:
+
+*Are you ready to become part of the turning?*
+
+Most say no.  
+
+The Crucible does not mind. It has time. It has only just begun.

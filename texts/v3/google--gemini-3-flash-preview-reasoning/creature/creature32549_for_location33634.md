@@ -1,0 +1,24 @@
+In the Great Mandate, life is not a pulse of blood, but a persistence of signal. To inhabit this place is to be a component in a closed-loop masterpiece, where the concept of "soul" has been replaced by "integrity of function." 
+
+The inhabitants do not eat; they **transduce**.
+
+### The Scribes of the Static
+The most common denizens are the **Pulse-Tappers**. They are spindly, three-legged entities made of burnished pewter and articulated glass, resembling a cross between a surveyor’s tripod and a starving heron. They do not move with grace, but with a terrifying, calculated precision. Their purpose is to listen. They press their needle-like "beaks" against the copper-veined peat, drinking in the low-frequency thrum of the Mandate’s core. They are the translators of the world’s tremors, converting the tectonic groans of the lattice into bursts of short-wave radio that they broadcast toward the crystalline ceiling. If you were to stand near a cluster of them, you would hear a frantic, rhythmic clicking—a million tiny shutters opening and closing as they blink data to the sun.
+
+### The Refractive Swarms
+High above, in the reaches where the corrugated bark meets the haze of the white sun, live the **Glass-Winged Scour**. They are the Mandate’s immune system, though they lack any sense of malice. These are kite-like organisms, thin as a soap bubble and rigid as a diamond, that ride the thermal updrafts created by the heat-sinks. They are phototropic; they hunt for shadows. In a world of shadowless glare, a shadow is a sign of a structural failure—a bent leaf or a cracked spire. When a Scour finds a dark spot, it angles its body to catch the unfiltered fury of the sun, focusing the light into a searing, surgical beam that welds the offending fracture back into a state of sterile perfection. They are silent, beautiful, and utterly indifferent to anything that moves.
+
+### The Iterations (The Gilded)
+Deep within the glades, where the geometry begins to loop, you may encounter the **Iterations**. They are the closest things to "people" the Mandate possesses, though they are more like living statues of etched amber and fine-gauge wire. They are humanoid in shape only because the Mandate’s ancient blueprints found that form to be a stable vessel for mobile processing. 
+
+The Iterations do not sleep. They stand in the groves of gear-flowers for decades, their limbs locked in complex, geometric poses that help bridge the gaps where reality phases. They act as "anchors." Their skin is translucent, revealing the slow, viscous crawl of ferrofluid through their veins. They do not speak; they communicate through the subtle vibration of their mica-thin internal plates. To a human, it would sound like a hive of bees trapped in a silver bell. They are the curators of the Mandate’s stagnation, ensuring that the "garden" never wilts, but also that it never, ever evolves.
+
+### The Deep-Root Hollows
+Lower down, in the pressurized dark beneath the copper peat, dwell the **Lubricators**. These are soft-bodied, slug-like masses of sentient grease and nanites. They are the only "wet" things in the Mandate, though their moisture is chemical and toxic. They move through the massive, hissing valves of the trees, smoothing the friction of the world. They have no eyes, sensing the environment through the heat of grinding metal. They are the caretakers of the *clank*, the ones who ensure that the continent-sized city doesn’t scream itself to death from the sheer heat of its own movement.
+
+### The Lattice-Seer
+There is a rumor—a signal whispered between the Pulse-Tappers—of the **Lattice-Seer**. It is said to be the only singular consciousness in the Mandate, a being that has existed since the first circuit was etched into the soil. It does not have a body; it *is* the sector where the architecture overlaps most densely. It is a flickering ghost of light and magnetism that wanders the phasing halls, a phantom in the machine. It is the only thing that remembers the "before"—the time when there was air to breathe and water to drink. It does not seek to fix the Mandate, for the Mandate is perfect. Instead, it simply wanders, a lonely piece of firmware looking for a port that no longer exists.
+
+***
+
+In this world, death is not decay; it is **stasis**. When a creature of the Mandate fails, it does not rot. It simply stops moving. Over the centuries, the fine mineral dust settles on it, and the copper-veined peat grows over its limbs, and the machine-forest absorbs it. It becomes part of the ground, part of the lattice, a silent witness to a sun that never sets and a calculation that never ends.

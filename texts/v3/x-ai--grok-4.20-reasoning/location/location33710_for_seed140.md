@@ -1,0 +1,27 @@
+**The Hollow of the Final Veil**
+
+You stand at the threshold of a space that has forgotten what “outside” means. The fissure you passed through—little more than a crack in the smoothed flank of an ancient plateau—seals behind you with the soft finality of stone that has had four billion years to settle into its last possible shape. No wind follows. Only warmth, thick and moist, presses against your face like breath held for geological ages.
+
+The chamber is cathedral-scaled yet feels oceanic in its emptiness. From wall to wall it is perhaps a kilometer across, but the volume is so hollow, the distances so uninterrupted, that every presence feels like an afterthought. A single colossal pillar of fused vegetation and machinery stands two hundred meters away and still seems lonely. Another, farther off, is almost lost to the dark. Density here is not measured in objects per square meter but in the sheer, patient air between them.
+
+There is no light. Not starlight, not moonlight, not even the memory of a sun. The parameter is absolute: 0.0. Yet the dark is not dead. It is warm (just over 31 °C), saturated, and constantly condensing. Water weeps from the ceiling—three hundred meters of black stone smoothed by time into gentle, breast-like curves—as if the rock itself has learned to sweat. Each droplet forms over centuries, grows pregnant with dissolved minerals and microscopic machines, then falls. When one finally strikes the floor, the sound is shockingly loud: a wet, bronze gong that rolls outward, reflects, folds back on itself, and becomes a chorus of overlapping booms that never quite dies. This is the loudness the Hollow keeps. The dripping never stops and never hurries. The acoustics have been tuning themselves since the first microbes learned to eat stone.
+
+The vegetation is lush in the way only something that has never known drought or season can be. It does not carpet the floor. That would be too crowded for the emptiness. Instead it grows in isolated, extravagant groves that rise like slow green explosions from the bedrock. Massive, pale trees with bark like cooling obsidian lift enormous umbrellas of fronds that never see light. Their roots drink the weeping stone and the faint, sour-sweet leakage from the scattered tech. Between the groves hang curtains of lianas and epiphytes so dense they appear to be living architecture. Every surface glistens. Every leaf trembles with collected moisture that will take another hundred years to become heavy enough to fall.
+
+The fauna matches the vegetation in abundance but obeys the same law of spacing. You do not see hordes. You see, far off, the silhouette of something vast and slow lifting its head to drink from a droplet the size of a dinner plate that has been falling for longer than your species has had writing. You hear the low, organ-deep calls of creatures that navigate by sound alone—calls so powerful they register in your sternum before your ears. Smaller things drift in the black air on membranes like living sails, riding the thermal columns created where warm condensation meets cooler stone. Everything moves as if underwater, even on land. The dynamic here is 1.1. Muscle contracts over minutes. A heartbeat may take an hour. Predation is less an event than a centuries-long negotiation.
+
+Scattered among the groves and across the flawless, near-flattened floor are the Built. They are not ruins in any conventional sense. Most look like single black monoliths the height of redwoods, their surfaces covered in fractal engravings that are also circuitry, also veins, also fossilized thought. Some have partially melted into the stone over unthinkable time, becoming half-mountain, half-engine. Others remain almost pristine, emitting a subsonic thrum that the local fauna seems to treat as scripture. One of them is actively growing new vegetation from its own substance—slow green crystals budding from a material that should not be able to support biology. The technology is beyond modern in the truest way: it no longer distinguishes between machine, organism, and geology. It simply continues, past the point where any original purpose could still be remembered.
+
+This is the end-of-life landscape. Erosion has won so completely that the stone has achieved a kind of enlightenment—rounded, stable, almost tender. The primordial plateau above has been worn down to a high, flattened tableland, and this Hollow is one of its last interior chambers, a pocket where the final stable state was allowed to become lush instead of sterile. The rules of the world are simple and mercilessly patient:
+
+- Nothing is ever truly finished.
+- Nothing is ever truly rushed.
+- Decay itself has been slowed until it resembles reverence.
+- Sound is currency. Light is irrelevant.
+- The dark does not hide things. It spaces them out so they can be properly heard.
+
+If you stay long enough (and time will try to stop you from leaving), you may notice your own pulse beginning to match the dripping. You may catch yourself standing motionless for what feels like days, simply becoming another moist, warm presence between the monoliths, listening to the loud, slow music this place has been composing since the first mountains rose and then forgot why they ever bothered.
+
+The Hollow does not want visitors.  
+It has simply outlived the concept of wanting.  
+It only continues, vast and intimate at once, weeping, humming, growing, and waiting in the perfected dark for the next droplet to fall.

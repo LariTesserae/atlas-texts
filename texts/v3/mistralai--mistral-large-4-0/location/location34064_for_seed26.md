@@ -1,0 +1,71 @@
+I'll let this place emerge from the tensions in the parameters—especially that strange gap between water near the surface and a nearly-total built environment, between cold and everything being made, between dim light and loud sound.
+
+---
+
+**The Condensate Works of Lower Vrem**
+
+You descend first. The elevation parameter doesn't lie—you begin below the surface, or what used to be surface, before the builders came and made surface into a historical accident. The stairwell is prefabricated concrete, poured in 2047 or thereabouts, and it sweats. Not metaphorically. Water weeps from the ceiling in threads, in rivulets, in the occasional cold slap against your neck. The condensation is *engineered*, you realize after a while. The whole place is designed to keep the air at the precise humidity where water wants to leave it. The walls are cold enough, the machinery warm enough, and between them flows this perpetual, managed rain that never quite falls.
+
+The scale opens up as you descend. Each level is a valley. You can see across them—three, four, sometimes seven kilometers of constructed wetland, if "wetland" is the word. The builders call them *cells* or *sumps* or *breathing chambers*. They are vast and shallow, and the water in them is never still. It moves. It moves because something is always pumping, always circulating, always *extracting*. The place is a machine for making water do something. You are not certain what. The signs are in a language that uses too many acronyms.
+
+**Terrain and Materials**
+
+Everything is made, as advertised. But "made" here has layers. The deepest substrate is still stone—granite, gneiss, the old bones of the continent—but it has been *excavated* into shapes. Terraced. Vaulted. The builders hollowed out a mountain's worth of rock and then built *onto* that absence, filling it with platforms, walkways, the skeletal remains of structures that collapsed or were demolished or were never finished. Rust everywhere. Not the romantic rust of abandoned places, but *active* rust, rust that grows in the condensation, that stains the concrete the color of old bruises, that flakes off in sheets when the maintenance drones—when they come—pressure-wash too aggressively.
+
+The platforms are steel grating, mostly. You walk on sound. Every step rings, clangs, *resonates* through the open spaces. The grating is perforated, of course, because water must pass through, must drip down, must be *managed*. Below your feet, always, the sound of water in motion. Not the gentle sound of a stream. This is industrial water—water under pressure, water in pipes, water being forced through membranes and filters and separators. It hisses. It *sings* in frequencies that make your teeth ache.
+
+Between the platforms, the built environment grows strange. Vegetation is sparse, as promised, but where it appears, it is *wrong*. Mosses that glow faintly, phosphorescent or bioluminescent or simply reflecting the dim, sodium-vapor light that never quite brightens or dims. Fungi in the corners where two walls meet at angles that shouldn't exist. Small, pale things that might be plants but might be *growths*—fungal colonies that have learned to metabolize the sealants, the lubricants, the chemical runoff from the machinery. They are not supposed to be there. The maintenance protocols are supposed to prevent them. But the place is too large, too complex, too *wet* for complete control. Life finds the condensation.
+
+**Atmosphere and Light**
+
+Dim, and getting dimmer as you descend. The light comes from above—skylights that are themselves *made*, translucent panels that show only gray, only the permanent overcast of the world above. But there are other lights. The machinery glows. Not warmly—cold glows, indicator lights in green and amber and that particular alarm-red that flickers when something is about to fail or has just failed. The glow of welding, occasionally, when repairs are underway. The blue-white flash of electrical discharge through humid air.
+
+The atmosphere is *dense*. Not thick, exactly—there's plenty of space, the scale is open—but *present*. You feel it on your skin. The condensation settles on everything, and you become part of the cycle. Your breath joins the moisture. Your body heat creates micro-climates. The place is trying to reach equilibrium, and you are a perturbation.
+
+And it is *loud*. The sound parameter doesn't exaggerate. This is not the quiet of caves, the soft absorption of stone. This is a machine, and machines make noise. The pumps—always the pumps, massive things the size of houses, thrumming at frequencies you feel in your sternum. The ventilation, moving air through ducts that whistle and moan. The water itself, everywhere, in every state: dripping, rushing, spraying, *boiling* in the heat exchangers. Distant sounds that you cannot locate—impacts, crashes, the groan of stressed metal. And always, underneath, the *hum*. The electrical hum of a system that never fully sleeps, that runs on power generated somewhere above, transmitted through cables thick as your thigh, distributed to every cell, every sump, every breathing chamber.
+
+You would think the open scale would let sound dissipate. It doesn't. The place is *designed* to carry sound. The vaulted ceilings, the hard surfaces, the water itself—all of it conducts, reflects, *amplifies*. You can hear machinery operating three kilometers away as clearly as the pump beside you. The place has *acoustics*. Terrible, industrial, overwhelming acoustics.
+
+**Ecology and Fauna**
+
+Fauna is rare, as stated. But "rare" doesn't mean absent. It means *scattered*, *surviving in niches*, *adapted to conditions that would kill most life*.
+
+You see them if you watch the water. Small, pale fish in the sumps—genetically modified, probably, or simply *selected*, bred over generations for tolerance to whatever chemicals the machinery releases. They move in schools that seem almost mechanical, turning in unison, their bodies translucent enough to show the dark shapes of organs that shouldn't work in this water but do. They are *filtering* something. You don't want to know what.
+
+Rats, of course. But wrong rats. Hairless, or nearly so, with eyes that reflect the indicator lights in strange colors. They move along the grating with a confidence that suggests they *own* the place, that the human builders are the intruders. They are large. Some are the size of cats. They do not fear you. They have never learned to.
+
+And the things in the deep cells. The ones the workers don't talk about, the ones that appear in maintenance reports as "biological contamination, unspecified" and are then redacted. You see them only as movement in peripheral vision, or as *stains* that move, or as the reason a drone went offline and had to be retrieved by a team in sealed suits. They are rare. They are sparse. But the place is vast, and sparse things in vast places become *present* in aggregate. You feel watched, sometimes. You are not wrong.
+
+The vegetation, where it grows, is *strange*. The weirdness parameter finds its home here. Lichens that form patterns—geometric, almost *linguistic*, though no one has deciphered them. Fungi that release spores in visible clouds when disturbed, spores that glow, that *drift* in the updrafts from the machinery. Small flowering things, pale and scentless, that grow only at the interface between metal and water, between the built and the wet, and that die if removed from that boundary. They are not supposed to exist. The ecologists who've studied them—the ones who've been allowed to study them—say they have no evolutionary history. They appeared. They persist. They *adapt* faster than anything else in the place.
+
+**Rules of the World**
+
+This is a place with *rules*, and the rules are *enforced*.
+
+The first rule: **Water must move.** Stagnation is failure. The entire purpose of the place—whatever that purpose is, whatever it was when the builders designed it—requires circulation, requires flow, requires the constant exchange of water between states. Ice to liquid to vapor and back again, in controlled cycles, in managed paths. You see this in the architecture: the slopes that direct drainage, the pumps that never stop, the sensors that monitor moisture content at ten thousand points. The place is *obsessed* with water, and that obsession is structural.
+
+The second rule: **Everything must be accounted for.** This is a place of inventory, of tracking, of *logistics*. Every drop of water has a serial number, in a sense. Every piece of machinery has a maintenance schedule. Every biological anomaly is cataloged, tagged, monitored. The density is sparse, but the *attention* is dense. You are always being watched by systems—cameras that don't always work, sensors that sometimes fail, but *enough* that the place *knows* where you are, what you're doing, whether you're authorized to be there. The built environment is total, and total built environments *surveil*.
+
+The third rule: **The cold is intentional.** The temperature is low, but not lethal. It is *preserved*, maintained, a condition for the processes that happen here. The condensation is not a problem to be solved—it is a *feature*. The place needs to be cold enough for water to condense, warm enough for machinery to function, wet enough for the biological components (the ones that are supposed to be there, the filters, the cultures, the *processes*) to thrive. The cold is a *boundary condition*, a limit that defines what can happen.
+
+The fourth rule: **Sound is information.** In a place this loud, silence is *meaningful*. Silence means failure, or shutdown, or something being hidden. The workers—the ones who still come, though fewer each year—learn to read the soundscape. The rhythm of the pumps tells them flow rates. The pitch of the ventilation tells them pressure differentials. The *absence* of expected noise tells them something is wrong, something is being concealed, something is *happening* that shouldn't. The place *communicates* through sound, and to be here is to be in constant conversation with a machine that speaks in frequencies, in rhythms, in the language of moving water and stressed metal.
+
+The fifth rule, the one that emerges only after time: **The place is young.** Erosion is early-formation, sharp-features, fresh. You see this in the concrete that hasn't yet weathered, the steel that hasn't yet rusted through, the *sharp edges* of collapse and demolition and reconstruction. The place was built fast, built *recently* in the timescale of stone, and it is already showing the strain. Not decay, exactly—*adjustment*. The mountain is settling around the excavation. The water is finding paths through seals that were supposed to be permanent. The machinery is wearing, is being replaced, is being *improved* in ways that make the old sections obsolete, abandoned, *haunted* by their own obsolescence. The place is *learning*, in a sense. It is adapting to its own purpose, finding efficiencies and failures that the builders didn't anticipate.
+
+**The Dynamic**
+
+This is an active place. Nothing here is static.
+
+The water cycle is *accelerated*. What would take a season in the world above happens in hours here. Evaporation from the warm machinery, condensation on the cold surfaces, collection in the sumps, pumping to the next stage, processing, release, recapture. The place *breathes* water. You can see it in the mist that rises from the warm zones, that drifts through the open spaces, that settles on everything, that *is* the atmosphere.
+
+The machinery is *active*. Not all of it—some sections are dark, silent, abandoned to the condensation and the slow growth of the strange lichens. But enough is running, enough is *working*, that the place has a pulse. A rhythm. You can feel it in the vibration of the grating under your feet, in the pressure changes as massive pumps cycle on and off, in the *beat* of the place that is almost musical, almost alive.
+
+And the biological component—the sparse, strange, *wrong* life that has colonized the margins—is *active*. It grows. It spreads. It *adapts*. The maintenance drones come, and they remove, and they seal, and they poison. But the condensation returns. The warmth returns. The nutrients return. And the life finds a way. It is *persistent*, this life, this strange ecology of the margins. It is *patient*. It is *waiting* for the machinery to fail, for the pumps to stop, for the place to become something else.
+
+Because it will. That is the final rule, the one that emerges from the young erosion, the recent construction, the sharp edges of a place that hasn't settled into itself. **The place will change.** It is not finished. It is not stable. It is a *process*, a massive, water-obsessed, sound-saturated process of extraction and transformation and *becoming*. And you are inside it, walking on grating that rings with your footsteps, breathing air that is being recycled, listening to a machine that never sleeps, in a cold that is intentional and a wetness that is *engineered*, in a place that is *strange* and *made* and *alive* in ways that the builders didn't plan and can't control.
+
+Above you, the world continues. Rain falls on the translucent panels. The overcast persists. The place above is *ignorant* of what happens below, or *indifferent*, or *dependent*—you cannot tell, from here, in the dim light and the loud sound and the cold wet air that never dries.
+
+But the place below knows. It knows the water. It knows the cold. It knows the sound of its own machinery, the rhythm of its own processes, the *hunger* of its own strange ecology, growing in the dark, waiting for the light to fail completely, waiting for the pumps to stop, waiting for the *end* of the world that the builders made, so that something else can begin.
+
+You walk on. The grating rings. The water drips. The pumps thrum. And somewhere, in the deep cells, something that might be alive and might be *made* and might be *both* turns in the current, and watches you pass, and *waits*.

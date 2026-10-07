@@ -1,0 +1,29 @@
+In the Bottom of the Hissing Sump, life does not "survive" in the traditional sense; it persists as a functional byproduct of the machinery. The inhabitants are not tenants of the Sump, but rather moving parts of its architecture—flesh-integrated components that have drifted into the shape of animals.
+
+### The Lubricants (The Micro-Fauna)
+The most numerous inhabitants are the **Scuttle-Taps**, tiny, multi-articulated crustacea that resemble a cross between a trilobite and a brass watch-movement. They lack mouths; instead, their undersides are porous sponges of organic felt. They scurry over the rounded landmasses in frantic, shimmering carpets, absorbing the weeping oil from the ground and secreting it back onto the joints of the pulsing bone-pistons. 
+
+They are the Sump’s friction-reducers. Without their constant, rhythmic rubbing, the "trees" would seize, the metal screaming until it fused into a solid, silent block. The Scuttle-Taps are driven by a singular, frantic neurosis: they can feel heat. When a piston grows too hot from friction, thousands of them swarm the site, sacrificing their own bodies to act as a living, oily paste until the temperature drops.
+
+### The Filament-Grazers
+Larger and more solitary are the **Volt-Moths**, though they are moths only in the way they gravitate toward the flickering arcs of electricity. Their wings are wide, heavy sheets of translucent, conductive membrane that trail behind them like wet capes. They do not fly through the thick, indigo vapor so much as they wade through it, using their long, copper-wire antennae to "hook" onto the static discharges of the grass. 
+
+They feed on the excess energy of the world. As they graze, their bodies glow with a sickly, oscillating violet light, and their movements are stuttered—a result of the non-linear time pockets they inhabit. You might see a Volt-Moth fold its wings and vanish, only to hear the wet *thwack* of its landing several minutes later, or see its shadow dancing across the slush while the creature itself remains perfectly still, frozen in a three-second loop of the past.
+
+### The Piston-Shepherds (The Lumen-Eyes)
+The creatures described as "swarming like rats" are the **Sync-Hounds**. These are the primary predators, though their "prey" is not meat, but rhythm. They have spindly, needle-thin legs made of a black, carbon-fiber-like bone that allows them to move across the compacted clockwork ground without making a sound. Their lamp-like eyes are not just for sight; they project narrow beams of high-frequency light that stabilize the "soft geometry" in front of them, hardening the taffy-like space into a bridge they can cross.
+
+They hunt the things that fall out of rhythm. If a gear-mound slows or a piston begins to pulse at a dissonant frequency, the Sync-Hounds descend. They use their chitinous, saw-toothed mandibles to prune away the malfunctioning tissue or jammed cogs, screaming in a high-pitched steam-whistle frequency that recalibrates the local environment. They are the Sump's brutal, unconscious maintenance crew.
+
+### The Leviathans (The Great Sludge-Hearts)
+Deep in the grey-blue marshes, the **Masticator-Whales** move. These are mounds of biology so vast they are often mistaken for shifting islands. They are composed of thousands of internal gears, visible through a skin of translucent, weeping membrane. They do not hunt; they simply exist as massive, mobile filters. 
+
+As they plow through the slush, they ingest the rusted clockwork of the ground, their internal furnaces grinding the metal back into its elemental ores. They vent the resulting heat through massive, rib-caged blowholes, creating the volcanic fissures of slag that dot the horizon. They are the Sump’s metabolism, the organs that turn the "discarded" back into the "functional." To be near one is to feel the gravity turn liquid; their sheer mass warps the indigo vapor into swirling, upward-falling whirlpools.
+
+### The Drowned (The Echo-Minded)
+Rarely, one encounters the **Echo-Minded**—the closest thing the Sump has to sentience. They are humanoid only in the most generous sense, their bodies having long ago been hollowed out and refilled with the indigo vapor and cooling lubricants. Their skin is the color of a bruise, stretched tight over a skeleton of copper tubing.
+
+They do not speak; they reverberate. Because of the non-linear time of the Sump, the Echo-Minded exist in a state of permanent "overlap." When they move, they leave a trail of translucent after-images that linger for hours. If you were to speak to one, it might answer a question you haven't asked yet, its voice a metallic rasp that sounds like two rusted plates sliding together. They are obsessed with the "Sound"—the wall of noise that permeates the Sump. They can be found standing motionless for decades, their hands pressed against a vibrating hydraulic trunk, trying to find the "Key" to the machine—the single note that would explain what the Sump is actually manufacturing.
+
+### The Parasitic Clocks
+Finally, there are the **Gear-Ticks**. They are not animals, but self-replicating glitches. They look like small, perfect silver spheres. They attach themselves to any moving part—a Sync-Hound’s leg, a Masticator’s vent, a traveler’s boot—and begin to grow. They sprout tiny, ticking hands and brass teeth, slowly turning the host into a mirror of the Sump itself. A Gear-Tick doesn't kill; it *integrates*. It slowly replaces the host’s organic functions with rhythmic, mechanical ones until the host is no longer a creature, but just another churning, purposeless piston in the infinite indigo dusk.

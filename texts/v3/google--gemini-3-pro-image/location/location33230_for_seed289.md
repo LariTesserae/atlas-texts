@@ -1,0 +1,19 @@
+You arrive only after a long, uncomfortable descent through fissures in cold, uncaring granite. The journey prepares you for tight spaces, but not for this. You squeeze through a final constriction, a throat of stone barely wide enough for shoulders, and tumble into a cavity that feels less like a cave and more like the inside of a forgotten, buried lung.
+
+It is shockingly, blindingly bright.
+
+This is a micro-environment, a pocket universe no larger than a modest bedroom, entirely sealed away from the surface world. Yet, it shines with a frigid, intense luminescence that rivals a surgical theatre. The source is enormous and singular: occupying the center of the chamber is a pulsating, pillar-like organism, a towering aggregate of gelatinous flesh and crystalline lattice that reaches from floor to ceiling. It emits a blazing blue-white light that flattens shadows and renders everything with hyper-real clarity.
+
+The air is cool, almost cellar-cold, and thick with the smell of wet minerals and ozone. It catches in the throat. Moisture is omnipresent here, not as flowing water, but as a perpetual, heavy sweat. Every surface gleams with condensation. Beads of water cling stubbornly to ceilings and walls, refusing to fall, held in a strange suspension.
+
+There is no bare rock. The geology is raw, embryonic, as if you have stumbled upon a geode the moment after its crystals finished precipitating from superheated fluids. The walls are a violent snarl of quartz, calcite, and strange, brittle metalloid formations that terminate in razor-sharp points. They look unfinished, a construction site of geology abandoned mid-shift.
+
+And every millimeter of this sharp, wet surface is occupied.
+
+The density of life is suffocating. The primary inhabitants are crustaceans of a sort—thumb-sized creatures with translucent, mineral-hard shells that refract the central light into prismatic shards. They cover the crystal walls in a living carpet, thousands upon thousands of them, packed carapace to carapace. They are the source of the sound: a relentless, deafening cacophony of clicking, scraping, and high-pitched grinding that reverberates off the hard surfaces, creating a wall of white noise that makes thought difficult.
+
+Sparse vegetation—pale, wire-thin fungal strands and mats of slick, grey slime mold—eeks out an existence in the deepest crevices between the crystals, overwhelmed by the mineral and animal presence.
+
+Amidst this chaotic density, there are signs of something else. Scattered throughout the chamber, tucked into alcoves or built precariously upon jutting crystal shelves, are small structures. They are hive-like aggregations made not of wax or mud, but of carefully harvested crystal shards glued together with an opaque, resinous paste. Some are no bigger than a fist; others are complex little towers a foot high. They seem abandoned, or perhaps they are simply part of the landscape now, ancient artifacts of the creatures that swarm over them without notice. There is no technology here, only the raw manipulation of the environment's sharpest elements.
+
+The strangest aspect of this bright, loud, crowded little room is its stillness. Despite the deafening noise of the creatures and the raw look of the crystals, nothing moves. The crustaceans are locked in place, their legs tensed, their antennae frozen mid-quiver, creating the *sound* of movement without the *act* of it. The beads of water on the ceiling never drop. The intense light of the central pillar does not waver. The chamber is a screaming photograph, a moment of intense, chaotic biology and geology locked forever in a perfect, unchanging equilibrium.

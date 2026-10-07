@@ -1,0 +1,19 @@
+I am the space between reed and bone. I am Tier-Two-West, though I was Morning-Builder an hour ago and will be Mist-Before-Dawn when the amber resin weeps its final tears from the joint I am currently pressing.
+
+My fur is sodden. It is always sodden. The blue-gray of it has darkened to wet slate, matted against my shoulders in clumps that hold droplets like tiny prisms, though the light here is too flat to scatter rainbows—only to reveal, mercilessly, the bead of moisture tracing the line of my spine, the rivulet climbing my wrist against gravity, defying the stone beneath my feet.
+
+I stand—if standing is possible in a corridor barely shoulder-width—pressed palm-flat against the wall I raised when the shadows were still sketching their independent geometries across the floor. The gesture means *returning*. It means the wall is unmaking itself now, the gut lashings loosening as the damp softens them, the bone beginning its slow sag into mist. I do not watch this happen. Instead, I feel it through my palm: the vibration of dissolution, the creak that has no sound because the air is too thick to carry it, only to absorb it.
+
+My name changes with the tier I occupy. This morning I was The One-Who-Lashes. Now I am The Witness-To-Weeping. By dusk, when the structure dissolves completely and I must migrate upward or downward through the bone-lattices, I will be The Drifter-Touched, or perhaps simply The Space-Between, for privacy is a memory we have forgotten, or never knew.
+
+Around me, the Drifters move. They are everywhere and nowhere. A fist-sized one drifts past my face—a slow bubble of intention—and its touch is cold, not unkind, only absolute. It leaves a film of calcium milk on my cheek that will dry to the hardness of bone, reinforcing the very wall that is falling apart around me. This is the bargain. I provide the skeleton; they provide the flesh. I build to be unmade; they secrete to hold what I raise, knowing that holding is temporary, that everything cycles through the soup.
+
+I hear nothing. The silence is a physical presence, a wet weight against my eardrums. My own blood moves in my ears, a slow percussion that matches the drip of water from the ceiling—water that flows upward from the pools below, carrying the taste of future rain, carrying the calcium of dead Drifters, carrying the accumulated silence of generations who have pressed their palms to stones exactly like this one.
+
+I press my antler to the wet wood. I listen. I feel the pulse of the place: the upward rush of memory-laden water, the metabolic thrum of the gelatinous life that shares my walls, the slow crystallization of ice lace on the leeward side of the bone-beam. The antler vibrates with the heartbeat of the architecture itself.
+
+The light presses against my eyeballs. It is wrong—flattened, merciless, revealing everything while hiding nothing. It casts a shadow that moves independently of me, sketching a wall that does not exist yet, a corridor that will be built tomorrow or perhaps was built yesterday in an eddy of time. I follow it with my touch, reading the negative space, building toward the dark.
+
+My neighbor—whose name is currently Tier-Two-East, or The One-Who-Waits—brushes fur against my shoulder. I feel it: a hand on my back means *I am here, the space is narrow*. I press back. We are near-touching, the only possible state. Our furs intermingle, sodden, indistinguishable from the humidity that clings to everything.
+
+I am becoming. The boundary between my skin and the wall is thinning. Soon I will secrete calcium. Soon I will be part of the weeping resin, part of the upward flow, part of the memory that the next builder will drink when they taste the future rain. But for now, I am the builder. I am the returning. I am the palm pressed to wet stone, feeling the city breathe around me—wet, bright, and slow—holding me in suspension, neither living nor dying, but simply *being*.

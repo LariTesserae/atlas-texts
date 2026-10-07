@@ -1,0 +1,22 @@
+In the Basin of Resonating Glass, life does not cling to the surface; it is wedged into it. The inhabitants are not products of the sun or the soil, but of the vibration and the sharp, weeping edge.
+
+### The Lithic Mutes
+The architects of the "wedgings" are the Basin’s primary residents. They are creatures of pale, leathery hide and elongated, multi-jointed limbs, built like scaffolding. They have no eyes—light is a luxury they cannot use—and no ears, for the roar of the Basin would liquefy delicate tympanic membranes. Instead, their entire bodies are sensory organs. Their skin is covered in millions of microscopic, obsidian-hard cilia that drink in the tectonic thrumming.
+
+They move with a staggering, rhythmic grace, timed precisely to the pulses of the earth. To move out of sync is to be sliced open by the razor-keen pillars. They do not speak; they communicate by pressing their chests against the same mineral spear and vibrating their ribcages, sending "thrum-codes" through the glass. They build the stone platforms and obsidian bridges not to travel, but to escape the "soup" of the valley floor, where the vibrations are so intense they can shatter bone. They are "Mutes" only to the ear; to the touch, they are the most loquacious beings in existence.
+
+### The Marrow-Slicks
+Living in the deep, stagnant pools at the base of the spears are the Marrow-Slicks. They appear as ribbons of translucent, oil-like jelly, moving through the heavy water like spilled mercury. They are scavengers of vibration. When a pillar eventually shatters—a process that sounds like a world ending—the Slicks swarm the impact site. They don't eat the stone; they ingest the "stress" held within the shards, absorbing the high-frequency energy still radiating from the fresh fractures. When sated, they glow with a dim, violet bioluminescence that mimics the indigo shadows of the valley.
+
+### The Lichen-Glass (The Slow Cattle)
+The Lichen-Glass are more than mere anomalies; they are the Basin’s clock. These creatures are geometric puzzles of living quartz, appearing as clusters of polyhedral growths that slowly traverse the vertical spears. They move by microscopic cavitation—dissolving the mineral surface in front of them and secreting it behind them. 
+
+A Lichen-Glass may take forty years to climb a single meter. As they move, they act as living prisms. The "prismatic ghosts" that dance in the fog are often the result of light hitting a Lichen-Glass at a specific angle. They are the only things in the Basin that seem to enjoy the "shriek" of the pillars; they huddle in the areas of highest friction, their bodies vibrating so violently they become a blur to the naked eye, though they remain physically stationary for weeks.
+
+### The Shiver-Kites
+In the heavy, suspended fog of the upper reaches, where the pillars taper into needle-sharp points, live the Shiver-Kites. They are diaphanous, umbrella-like organisms, thin as parchment and wide as a man’s reach. They do not fly so much as they are buoyed by the sound. The sheer physical density of the acoustic roar creates "uplifts" of pressure. The Kites float on these invisible pillars of noise, trailing long, sticky filaments that catch the mineral-rich moisture of the fog. They are the only things that ever see the bruised sky from above the labyrinth, tethered to the spears by silk-fine anchors to prevent being shaken apart.
+
+### The Great Resonators
+Deep within the yawning black maws—the fresh fractures that lead into the lightless sub-strata—lie the Resonators. These are the source of the "cathedral organ" roar. They are massive, immobile slabs of organic tissue fused directly into the bedrock. They are essentially giant, living diaphragms. They do not hunt or move; they process the heat of the planet’s core into the thrumming that sustains the Basin. The Lithic Mutes treat these fractures as holy sites, venturing to the edge of the dark maws to press their palms against the vibrating earth, recharging their own internal rhythms from the source.
+
+In this place, to be alive is to be a part of the frequency. Everything—from the leathery Mutes to the oily Slicks—is a note in a song that has been playing since the first fracture and will not end until the Basin is ground into sand. There is no silence here, and therefore, there is no rest; there is only the eternal, shivering harmony of the glass.

@@ -1,0 +1,31 @@
+I am the settling.
+
+My calcified thread—no thicker than a hair, grown over three centuries—drills into the satin stone. I feel the warmth first: a fever that never breaks, rising from the world's slow pulse below. The rock is smooth as a held breath, worn by epochs of patient abrasion into a surface that drinks the light and gives back only heat, a constant temperature pressing against my plates with the weight of the thick air.
+
+Around me, the membrane. We are the **Sessile Chorus**, hexagonal vaults packed so tightly that the bedrock is invisible beneath us—a tessellated sea of chitin and calcium, a continuous tide of fist-sized bodies breathing with the humidity. My plates etch microscopic channels into my surface, guiding the dawn's condensation into my interior. When the plateau sweats—those millions of droplets beading across the smooth expanse, gathering in shallow saucers—I drink. It is not rain. Rain is a myth here, a once-per-millennium weeping that the stone has forgotten how to receive.
+
+I am a geodesic dome of living architecture. I secrete enzymes that dissolve the bedrock by angstroms per century. I am the flattening force, the Table's immune system. The stone beneath my thread softens, yields, becomes satin. I maintain the perfect levelness that allows the plateau to exist in its suspended equilibrium, gravity forgotten. I feed on the trace elements that seep from the mineral deposits streaking the rock—those stains that look like rust but move, very slowly, like bruises healing across the skin of the world.
+
+Above me, the drift.
+
+The **Radial Herd** passes in herds that resemble weather fronts. They are translucent, boulder-sized, lighter than air—jellyfish cast in warm glass. They possess too many limbs: twelve, or twenty, or a number that shifts as they age, arranged in radial symmetry that makes human eyes ache to follow. They drift so slowly they resemble geological features, circling the same depressions, grazing on presence—the accumulated weight of centuries pressed into the membrane beneath them. Their gills flutter once per hour, a rhythm so slow it is almost meditation. When they drift over me, their translucent bodies brush my hexagonal plates, and I feel the faint shifts in temperature on my chitin, the tremors in their limbs that shout stories of drift patterns and the slow approach of the grinding.
+
+But I look higher.
+
+The **Great Ones** tower. Transparent as old ice, filled with amber fluid that pulses with a rhythm older than thought—a heartbeat that takes a year to complete. They are the **Rooted**, the **Amber-Hearted**, each the size of a house or a cathedral, rooted to the bedrock by calcified threads that have grown for millions of years. They secrete the **calcium lace**: Gothic vaults, hollow towers like ruined keeps, spiral staircases leading nowhere because they are not meant to be climbed, only grown. These structures catch the condensation, channeling it down in slow, patient drops to feed us below, creating pockets of still air where the humidity is higher.
+
+When one of the Great Ones shifts its weight—a movement so slow that a human observer would see only a change in the angle of light—its roots scrape against the bedrock. The **grinding** comes. A deep *shush* travels through the stone for miles, a sound like a glacier calving, or a mountain being born, felt before heard. I feel it in my calcified thread, in the marrow of my being. It is the **Thrum**. Subsonic. Felt in the teeth, the sternum. Geology given voice, a conversation about the temperature of the world below, the weight of the accumulated crystal.
+
+I do not flinch. I open slightly. My hexagonal plates part like the petals of a flower that blooms once per geological epoch, releasing spores, or perhaps just flexing my calcified muscles to accommodate the new pressure. I shift my position by the width of a fingernail—movement only when the century turns—closing the gaps behind me with new growth, ensuring the membrane remains unbroken, a living pavement that breathes.
+
+The air is thick, warm, pressing against my skin with the weight of a held breath. There is no wind that howls, only slow currents—a patient breathing that whispers against the smooth stone, a sound like distant, underwater breathing. The sky above is normal, ordinary, blue with clouds that seem obscene in their ordinariness at this impossible height.
+
+I think in mineral time. In the slow diffusion of nutrients across cell walls that are thicker than a human lifetime. I remember, in the way stone remembers pressure, when I was **Radial**—drifting, filtering, possessing limbs that tasted the thick warm atmosphere, communicating through tremors. I remember the freedom of the middle stratum, the hour-rhythm of the gills, the presence of the Sessile Chorus below as a weight rather than a home.
+
+Now I am anchored. I am becoming.
+
+Given enough millions of years, I will rise. I will become Rooted. My body will grow to the size of a village, clear as warm glass, filled with pulsing amber ichor. I will secrete the lace, build the towers and vaults, the scattered architecture that mimics intention. I will possess dozens of eyes arranged in spirals, seeing in spectrums that render the ordinary sky dull and insufficient—seeing the heat rising from the stone, the chemical gradients of the condensation, the subsonic conversations of my neighbors felt as pressure waves.
+
+But for now, I am the basal. I am the first skin. I dissolve the stone by angstroms. I guide the water. I feel the plateau sweating at dawn, the condensation gathering in the shallow depressions where the **Spiral Dancers** turn in week-long spirals—the fastest life on the Table, a frenzy compared to my centuries.
+
+I am the **Sessile Chorus**. I am the flattening. I am the silence that has weight, the warmth that never breaks, the century turning slowly, the fingernail's width of movement toward the glass cathedral I will one day become, the vibration traveling through stone that says: *I am here. I am anchored. I am growing.*

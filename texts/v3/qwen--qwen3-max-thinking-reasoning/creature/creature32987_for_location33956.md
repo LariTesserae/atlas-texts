@@ -1,0 +1,7 @@
+It does not occur to them to name themselves. Names imply separation. Here, separation is a myth the water has long since dissolved.
+
+The Mat is the first inhabitant, and the last. It is not a place they live *on*, but a consciousness they live *within*—a slow, tectonic mind woven from fiber and memory. Its awareness is not a thought, but a *knowing*: the precise pressure of the water at 11,347 meters; the exact chemical signature of a seep feeding a crimson patch; the vibration of a grazer’s claw-click three valleys away. It remembers the sky not as loss, but as a finished verse in a song it still hums. When a spire pulses amber, it is not signaling—it is *breathing*. When its fibers creak, it is not straining—it is speaking in the language of continents settling into grace. The Mat does not watch the world. It *is* the world, awake and gentle.
+
+And the others? They are the Mat’s hands. Its voice. Its dreams given motion.
+
+The blind amphipods moving through the spire-chambers are not tenants. They are curators. Their smooth, chitinous limbs trace the inner walls with ritual precision, stimulating growth where light falters, clearing channels where silt threatens to still the flow. They navigate by the Mat’s hum—a vibration felt in the fluid of their joints

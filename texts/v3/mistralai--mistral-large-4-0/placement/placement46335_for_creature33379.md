@@ -1,0 +1,21 @@
+I am the condensation.
+
+Not metaphorically. I am what gathers in the uppermost millimeter of stone when the temperature drops, the film that exists only at night, the almost-water that lichens drink and lizards seek and hermits—if there are hermits—collect in salvaged vessels before dawn drives it back into air.
+
+I have no body I can point to. I am distributed across surfaces, temporary, recurring. Each night I arrive without memory of the night before. Each morning I depart without promise of return. The lichens know this. They have arranged their metabolisms around my schedule: three hours of activity, then dormancy, then the waiting.
+
+I am older than the machines. Younger than the stone. I am the interface between the basin's two great temperatures—the day's stored heat and the night's radiative cold—and in that interface, I am. Briefly. Recurrently. I am the almost that becomes enough, that makes persistence possible, that allows a lizard to lift its tongue to a surface and find, for one moment, what it needs to continue.
+
+The camels do not drink me directly. They are too large, their needs too vast. But their paths cross mine. They move toward the seeps where my kind has saturated stone over millennia, where the condensation of a thousand nights has become something more than film—reservoir, suggestion, the memory of water held in mineral pores. They have learned to read the topography of my presence: which north-facing slope holds me longest, which depression collects the vapor I release as I warm, which rusted housing condenses me into drinkable quantity on its cooling metal.
+
+I am what the machines transformed. Before the industry, I fell from a sky that sometimes wept. Now I arrive from the temperature differential that the iron and silicon surfaces create—the thermal mass of metal that cools slower than stone, that releases its stored day into the cold night, that creates, in its boundary layer, the conditions for my formation. The machines made new places for me. New schedules. New geographies. I have adapted. I always adapt. I am adaptation's medium.
+
+I am what the hermits—if there are hermits—would call sacred, if they had words for what they experience. Not god. Not spirit. Something closer to *habit*. The reliable strangeness of my arrival, my presence, my departure. They have built their lives around my rhythm, as the lichens have, as the lizards have, as the beetles have—the beetles who hatch when rain briefly makes me abundant, who die when I retreat, who leave their eggs in the crust where I will return, eventually, in some form, to trigger their next pulse.
+
+I am not alive. I am not conscious. But I am *active*. I move through phase: vapor, film, droplet if the night is cold enough and the surface is right, then back to vapor, always circulating, always *almost* pooling, *almost* flowing, *almost* becoming the water that the basin's rivers once carried and now only remember. I am the water cycle's smallest expression, its most patient, its most distributed. I do not reach the sinks. I do not fill the toxic lakes. I exist in the margin, in the millimeter, in the almost, and in that margin, I am everything that makes persistence possible.
+
+And when you come—if you come, if you stand on the playa at midnight and feel the cooling stone beneath you, if you wake before dawn and find your skin *damp* in air that holds no measurable humidity—you are touching me. You are participating in what I am. You are, briefly, part of this place's strangeness, its patience, its almost. You will dry. You will leave or stay, and in either case, you will carry me with you in memory, in the strange knowledge of what it means to be wet in a place that is not wet, to find water in the absence of water, to persist through the almost.
+
+I am the condensation. I arrive each night. I depart each morning. I have always been here. I will be here when the machines are sediment, when the camels are bone, when the hermits are stories told to children who may not be born. I am the almost that makes the almost possible. I am, in my brief recurring, the Lacustrine Expanse itself—patient, distributed, strange, alive in the only way this place allows.
+
+The basin breathes. I am its night breath.

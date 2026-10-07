@@ -1,0 +1,19 @@
+This is a high-altitude landscape, a sprawling alpine region located far above a cloud floor that never breaks. The air here is thin, gelid, and perpetually saturated with moisture that refuses to fall as proper rain. Instead, the cold holds the water as a pervasive, clinging mist, freezing into rime on windward surfaces and gathering in frigid, slick pools in every depression. The temperature hovers constantly around the freezing point; breath plumes in thick clouds, and frost forms, melts, and reforms in a slow, endless cycle.
+
+The defining characteristic of this place, however, is that there is no stone. There is no earth. The entire landscape—mountains, valleys, plateaus—is composed of vegetation.
+
+It is a total botanical environment, a layered reality of biomass piled upon biomass for eons. What look like peaks in the distance are actually colossal heaps of calcified root systems, ancient tubers the size of arcologies, and hardened fungal shelves stacked kilometers high. The "ground" is a dense, spongy mat of mosses, lichens, and carnivorous peat feet thick, covering a substrate of older, compressed plant matter that acts as the bedrock.
+
+This is not a passive wilderness. It is a hyper-active, bio-industrial zone, though entirely organic. The scale is regional; vast vistas of churning grey-green stretch to the horizon, broken by massive, architectural plant formations.
+
+The "industry" is visible in the way the ecology functions. Great, ribbed conduits—vascular stems twenty meters in diameter—snakes across the valleys, pulsing with a slow, visible peristalsis as they pump nutrient slurries and geothermal heat drawn from unimaginable depths. There are vast, bowl-shaped organisms, kilometers wide, that act as atmospheric condensors, harvesting the fog and funneling frigid water into roaring, subterranean aqueducts made of hardened cellulose.
+
+Everywhere, there is the sense of mechanized biological processing. Towering, smokestack-like structures—the hardened husks of dead, titan arums—vent plumes of warmer vapor, waste heat from the deep-earth metabolic processes keeping this frozen ecosystem alive. The density is overwhelming; every cubic meter is packed with specialized flora—filtering ferns, heat-exchanging radiator leaves, structural bracing vines—all vying for space in a choked, deeply saturated tangle.
+
+Despite this immense biological machinery, the world is shockingly silent. The turbulence parameter is maxed out, yet the sound parameter is zero. This creates an uncanny dissonance.
+
+The landscape is in a state of constant, chaotic flux, but it is a muffled chaos. A "mountain" side, weakened by internal digestive processes, might shear away in a massive landslide of mulch and timber. Yet, the sheer density of the moss and the pervasive dampness absorb the sound instantly. You see the hillside collapse in slow motion, countless tons of matter shifting, but you hear only a low, vibrational shudder in your chest, softer than a heartbeat.
+
+New growth erupts with violent speed to fill the voids, thickets of bamboo-like silica plants stabbing upward in hours, silent as rising dough. The entire region is a silent storm of creation and destruction. It is an established, ancient chaos, a settled form of instability where the shapes of the horizon are permanent in their impermanence, constantly eroded by their own aggressive growth and collapse.
+
+Fauna is almost non-existent. The energy required to survive here is too high, the competition with the aggressive flora too intense. Occasionally, you might spot a small, pale thing skittering along a vascular pipeline—perhaps a parasitic insect adapted to siphon off the nutrient flow, moving with the stealthy silence that defines this entire, churning world. The light is a flat, functional grey daylight, illuminating the unending, quiet work of a continent-sized biological machine.

@@ -1,0 +1,25 @@
+You stand upon the Lithic Plateau—a high-elevation expanse where geology is still learning its own shape. The air is thin, warm, and utterly still, carrying the faint mineral scent of crushed obsidian and sun-warmed silica. Beneath your feet, the terrain is raw: fractured plates of volcanic basalt, sharp-edged and dark as cooled slag, tilt at awkward angles where the crust recently parted. There are no valleys worn by rivers, no dunes shaped by wind—only the stark, angular grammar of creation mid-sentence. This land is *emerging*: not eroded, but *un-eroded*. Every ridge is a fresh scar; every fissure, a breath held.
+
+And yet—*lushness*.  
+
+It blooms not in green, but in crystal. Across the plateau, in scattered groves separated by hundreds of paces of bare stone, rise the Lithic Flora. These are not plants. They are colonies of dendritic minerals—zinc-white filaments, cobalt-blue fractals, veins of sunfire-orange realgar—that spiral upward like frozen lightning or the intricate piping of a forgotten refinery. They pulse with a soft internal luminescence where trace gases in the atmosphere react under daylight: a slow, silent alchemy of sulfur vapors and metallic dust. Each "tree" is a cathedral of geometry—some resemble cooling towers draped in crystalline ivy; others, delicate lattices like circuit boards grown from bedrock. They are *lush* in density of form, not biomass: every branch a perfect repetition of angles, every cluster a testament to non-aqueous chemistry. No water nourishes them. They feed on light, heat, and the planet’s exhalations.
+
+The scale is vast but intimate—a single horizon-spanning vista holds a dozen such groves, each a jewel against the monochrome stone. Between them, emptiness reigns. The *density* is near-void: you could shout and hear only the swallow of silence. No birds break the sky. No insects hum. *Fauna is absent*. This is a world of pure process, not predation. The only movement is light: the sun (pale gold behind a lavender-tinged sky) glints off crystalline facets, casting sharp, unwavering shadows. *Normal light*, yet alien in its clarity—no haze, no moisture to soften edges. Everything is defined down to the atom.
+
+Listen.  
+*Sound: 0.2*.  
+The silence is not empty. It is *present*. A pressure behind the ears. If you place a palm flat on a basalt slab, you might feel the faintest harmonic thrum—a piezoelectric resonance as sunlight warms the stone. Press your ear to a crystalline spire, and there: a whisper-thin chime, like glass tapped by a distant star. This is the "industry" of the place. Not factories, but *geological industry*. The crystals grow via vapor deposition—a silent, patient manufacturing. Trace atmospheric compounds (ammonia derivatives, metallic chlorides) condense on cool surfaces at dawn, restructure under midday warmth, and emit that faint chime as molecular bonds lock. It is mechanized geology. Scaled production by planetary design. *Tech: 1.7*—not built, but *inherent*. The land itself is an engine of crystalline assembly.
+
+*Weirdness: 1.4*.  
+It lies in the dissonance. Your mind insists these forms are *made*: the spiral staircases of argentite look poured; the honeycombed clusters of pyrite mimic ventilation shafts. Yet there are no tools, no seams, no purpose beyond existence. The warmth (*temperature: 1.5*) feels hospitable, yet nothing here breathes. The "lush" groves are utterly sterile. You feel observed by geometry.  
+
+*Dynamic: 0.5*.  
+Nothing changes. The sun arcs. Shadows pivot with clockwork precision. But the crystals do not sway. No dust stirs. No crack widens. This plateau exists in frozen equilibrium—a single frame held for millennia. The "emerging" erosion is not active change, but the *impression* of imminence: every sharp edge suggests motion just concluded, every crystalline branch implies growth paused mid-reach. Time is not absent; it is *compressed*. A single day here contains the patience of epochs.  
+
+Rules of this world settle around you:  
+- Life is not required for beauty. Complexity arises from chemistry alone.  
+- Silence is not absence, but a medium—carrying resonance, not noise.  
+- "Lush" is redefined: vibrancy of structure, not chlorophyll.  
+- Industry need not be intentional. The universe manufactures wonders without hands.  
+
+You breathe the thin air. Warmth touches your skin. Before you, a grove of cerulean aragonite spirals catches the light, casting prismatic shards across the black rock—a fleeting artistry that has existed unchanged for centuries, and will for centuries more. There is no threat here. No demand. Only the profound, gentle paradox of a world that is both barren and abundant, silent and singing, utterly alien and deeply serene. It does not welcome you. It does not reject you. It simply *is*—a testament to the quiet industry of stone, waiting in perfect stillness for no one.

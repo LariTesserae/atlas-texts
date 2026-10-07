@@ -1,0 +1,15 @@
+This place exists only as an interior. There is no outside, no horizon, and no bedrock to anchor it. It is suspended, high above some forgotten surface, a pocket reality constructed entirely by hands that dissolved into dust eons ago.
+
+The first thing to know—the only thing that matters at first—is the roar. It is deafening. A monolithic, unceasing sound that does not fluctuate. It is not the chaotic noise of machinery or weather, but a standing wave of pressure that hits the chest like a physical weight. It is the sound of air being forced through billions of rigid, stone throats, a perpetual, resonant chord that has been playing for geological ages. It is so loud it erases thought, a sonic solid that fills the space completely.
+
+The environment is intensely hot and aggressively dry. The air tastes like antique dust and kiln-fired ceramics, parching the throat instantly. There is no moisture here, not a single molecule of water. It is a sterile, desiccated oven.
+
+Visually, the space is dim, lit only by a faint, coppery luminescence that seems to seep from the materials themselves, offering no real shadows, just a flat, hazy amber glow. The scale is that of a large cathedral nave, but it feels suffocatingly small because it is choked with matter.
+
+Everything is built. There is no natural substrate. The walls, the floor (which is just more layers of structure), and the ceiling are a dense, fractal conglomeration of primitive construction. It is a chaotic yet rigid tapestry of interlocking terracotta bricks, rough-hewn basalt blocks, and smoothed sandstone arches, all fused together without mortar.
+
+It is packed dense. There is barely room to move between the towering stacks of masonry. Pillars thicken until they merge into walls; buttresses collide and become solid masses of stone. It looks like a city built by insane insects, layer upon layer, until all negative space was eliminated. Every surface is covered in repetitive, hand-carved patterns—spirals, zig-zags, and finger-sized notches—that have been worn down by time to mere undulations in the rock.
+
+The "tech" is Neolithic. There are no wires, no metal beyond perhaps some flecks of oxidized copper embedded in the clay, no sleek surfaces. It was all made with stone hammers and bone chisels, an incomprehensible amount of human labor compressed into a small volume.
+
+Nothing moves. The air pressure that creates the deafening roar is constant, a trapped current flowing in an eternal loop. The dust motes hang suspended in the thick, hot atmosphere, locked in place by the sheer amplitude of the sound. This place reached its final configuration millennia ago. The erosion here is not from wind or rain, but from mere existence—the atomic-level smoothing of surfaces that have pressed against each other since before the invention of writing. It is a screaming monument to stasis, a hot, dry, crowded tomb built around an everlasting noise.

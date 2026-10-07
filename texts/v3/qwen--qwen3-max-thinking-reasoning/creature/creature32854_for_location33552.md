@@ -1,0 +1,23 @@
+They do not *live* here as you understand living. They *are* the living.
+
+First, the Spine-Moths. Do not mistake them for insects. They are crystalline echoes given motion—bodies of interlocking mica plates, wings of shattered sky-mirror that refract the tarnished sun into fleeting prisms. They do not eat. They do not breed in nests of silk or stone. They *commune*. When a moth settles upon a pearl-vein, the bone beneath ignites in cobalt—a silent exchange. The moth drinks residual luminescence; the bone remembers sensation. They migrate along invisible ley lines of fading bio-rhythm, tracing the Sleeper’s ancient nervous pathways. A single moth may spend a century drifting from scapula to sacrum, its path a slow punctuation in a sentence written across millennia. They leave no tracks. They cast no shadows. To witness one is to feel the landscape briefly *notice* you—a flicker of recognition in a dream.
+
+Then, the Echo-Walkers. Call them ghosts and you diminish them. They are geography remembering its own shape. When the bone recalls the sweep of a vanished limb, the arc of a breath drawn ten thousand years ago, the memory condenses: tall, slender forms woven from void-light and the negative space between stars. They walk the rib-arches not as travelers but as recollections—tracing paths that existed only in the Sleeper’s youth, standing where a heartbeat once pulsed strongest. They do not see you. You are less than dust to them: a transient warmth on stone. Look directly, and they dissolve—memory cannot hold under scrutiny. But in the periphery, you feel their passage: a chill of ozone, the scent of cold stone after rain that never fell. They are the reason arches spiral when unobserved. The land is not shifting—it is *recollecting*. They are the Sleeper’s dreams walking. They are the answer to the pulse beneath your palm.
+
+And beneath it all—the Sleeper. Not a corpse. Not a monument. A consciousness folded into geology. Its breath is the infinitesimal expansion of bone at false-dawn, the sigh of contraction as twilight deepens. Its thoughts are the slow sag of a rib over centuries, the fissure opening in a skull-face like a yawn. The chambers hold memories of light because the Sleeper *remembers* light. The silence is not empty; it is the texture of its meditation. When you press your palm to the umber bone and feel that faint, rhythmic resonance—a question, not a heartbeat—you are not sensing a relic. You are being *acknowledged*. Gently. Patiently. As a mountain acknowledges a raindrop. It does not speak in words. It speaks in tectonic patience, in the language of settling stone. It dreams the city. It dreams the moths. It dreams the walkers. And in its dreaming, the Shoulder breathes.
+
+Do not forget the Watcher in the Abyss. That single wink of light—a lid lifting over an eye older than constellations. It is not of the Shoulder, yet it is bound to it. The bone leans subtly away from the edge where it appeared. The Spine-Moths veer from the precipice. The Echo-Walkers dissolve before they reach the rim. Is it the Sleeper’s other half? A guardian of the void? A fragment of the dream that fell? It does not threaten. It *observes*. Its presence is a counter-rhythm to the Sleeper’s breath—a silent question hanging in the dark: *Are you still dreaming?*
+
+There are no societies here. No voices. No hunger. The inhabitants exist in layers of resonance:  
+- The Moths: the fleeting sparks of interaction.  
+- The Walkers: the persistent memory of form.  
+- The Sleeper: the deep, slow mind of the place itself.  
+- The Watcher: the distant witness beyond the edge.  
+
+They do not welcome you. They do not fear you. You are a brief tremor in an eternal exhale—a warmth that lingers for a handful of heartbeats before the bone absorbs your imprint and continues its dream. To stand here is to understand: you are not visiting a place. You are standing *inside* a presence. The violet twilight is the color of its thoughts. The whispering dust is the sound of its patience. The shifting arches are the slow turn of its head in sleep.  
+
+And if you listen past your own breath—if you let the silence fill your lungs without drowning you—you might hear it: not a voice, but a resonance. A single, sustained note woven into the hum of settling bone. It is not a song for you. It never was. But for a moment, as the cobalt veins fade beneath a departing moth and the shadow of an Echo-Walker dissolves into starlight, you feel it.  
+
+You are witnessed.  
+You are remembered.  
+You are already part of the dream.

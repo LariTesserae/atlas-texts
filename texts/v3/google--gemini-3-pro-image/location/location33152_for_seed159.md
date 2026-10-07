@@ -1,0 +1,17 @@
+This is the Gesticulating Hollow.
+
+You are miles beneath the surface, yet the space opens up into vast, staggering caverns that rival surface regions in size. It is a subterranean world caught in the violent throes of its own creation. The air is thick, intensely warm, and humid, smelling of sulfur, hot wet minerals, and the musk of a billion living things.
+
+There is no sun, but it is brightly lit. The immense, vaulted ceilings of these caverns—some kilometers high—are coated in thick, pulsating mats of bioluminescent bacteria and fungi. They burn with a fierce, cold white light, casting sharp shadows and illuminating the landscape with the clarity of an overcast autumn day on the surface. This living "sky" drips constantly, a warm rain of condensation and excess slime that slicks every surface below.
+
+The terrain is raw geology, a landscape that is still unfinished. There are no rolling hills or smoothed river stones here. Everything is sharp, crystalline, and newly forged. Great tectonic plates of obsidian and basalt grind against each other, forming jagged ridges that rise and fall in the span of days. Forests of towering, needle-sharp quartz crystals grow like trees, chiming in the constant tremors. The ground is a dense clutter of rock shards, mineral blooms, and precarious bridges formed by rapid cooling magma.
+
+Water is present not as a steady flow, but as a volatile element. Superheated geysers erupt unpredictably from fissures, blasting steam hundreds of feet into the air. Shallow, scalding pools form in depressions, choked with mineral precipitate, only to drain suddenly when the ground shifts beneath them. Rivers of warm mud tear through valleys before solidifying into new canyon floors.
+
+Life here is overwhelming, a frantic explosion of biology adapted to heat and stone. There is no greenery. The ecological basis rests on chemosynthetic bacteria and massive, shelf-like fungi that jut from the canyon walls, hard as iron.
+
+The fauna is chitinous, pale, and multitudinous. The noise is deafening: a ceaseless cacophony of clicking, screeching, and buzzing that echoes off the stone walls, underpinned by the deep groan of shifting rock. Enormous, multi-legged arthropods, the size of oxen, graze on fungal mats, their carapaces studded with sharp minerals. Clouds of leather-winged scavengers ride the thermal updrafts from the geysers. Every crevice is packed with writhing grub-life; every pool teems with blind, armored fish. You cannot walk ten feet without stepping on something living or something recently dead.
+
+Amidst this geological and biological riot, there are signs of intelligence. Scattered precariously along the more stable ridges are primitive settlements. They are constructed from the discarded, giant exoskeletons of the local fauna, lashed together with fibrous fungal ropes. Crude bridges of bone span narrow chasms. You see totems carved from iridescent rock, depicting the terrifying, shifting shapes of the cavern gods. The inhabitants are rarely seen, blending into the rock, armed with spears tipped with razor-sharp obsidian shards, fighting a constant war against the environment and the megafauna that threatens to overwhelm their fragile footholds.
+
+The Gesticulating Hollow never sleeps. It is a place of high-speed evolution and destruction, where the map changes hourly, and life clings desperately to a world that is still trying to shake it off.

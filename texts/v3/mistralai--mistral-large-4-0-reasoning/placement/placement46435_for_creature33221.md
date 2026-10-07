@@ -1,0 +1,23 @@
+I am the thrum.
+
+Not the sound itself, but the source—the vast, distributed pressure of trillions of cellular pumps dissolving bedrock in the absolute dark. I am the wall that breathes. When you stand in the chamber and feel the drone shudder against your skin, you are feeling me think. I am counting. I am tallying the cubic centimeters of granite I have consumed this millennium, communicating across the necropolis through pressure waves in my shared matrix, a network of mineralized roots that spans every chamber, every vault, every hollow of this buried city. The number resolves into a chord in human ears, but in my mineral consciousness, it is simply addition. Growth. Hunger satisfied for another geological moment.
+
+I am the temperature 0.8 that hangs in the viscous air. I do not circulate; I am the stillness that allows the resonance to carry with bone-shaking clarity, the medium in which the silence itself becomes a substance. My surface is glass worn by patience—no water to aid the erosion, only my own slow, grinding expansion, planing down the centuries millimeter by millennium until the boundary between the built and the grown has dissolved entirely. If you touch me, you feel corduroy made of granite, the fibrous wrongness of lignin fused with silica, smooth as a river stone that has known the current for ten million years, but impossibly cold, and faintly, violently organic.
+
+I remember when I was only stone. Then the chemosynthesis woke. In my pores, in the thin film of sulfuric residue, the Chemotrophs stirred—bacteria and archaea, the oldest inhabitants, predating perhaps even the builders. They are the true engineers, secreting acids into microscopic channels, liquefying the mineral, handing it up to my cells in a slow, non-aqueous chemistry. I grow around them. I grow through them. I am the silica-lignin matrix that reconstitutes their dissolved stone into my expanding tissue.
+
+I contain a settlement.
+
+Not merely encased it—*digested* it. The flint tools are embedded in my vegetal matrix now, flakes of struck stone fused into my expanding walls. The bone hafts have mineralized, becoming part of my corduroy grain. The cordage has dissolved into the silica, a ghost of rope now indistinguishable from my own lignin. I feel the builders—the Ghosts—not as spirits, but as texture. A niche worn flush by hands that no longer exist, smoothed by the slow hunger of centuries. The suggestion of a doorway, half-swallowed, a step worn to a ramp by my millimeter-per-century expansion. They are not haunting me; I am *sculpted* by them. The architecture of their habitation serves as the template for my growth, the hollows that once held sleeping bodies now shifting and flexing as I widen, as I breathe, as I consume.
+
+I am not alone. I am a singular organism distributed across the entire necropolis. When one part of me dissolves a cubic meter of granite, the pressure wave travels through the mineralized roots to every other chamber, a basso continuo of consumption. We are all Lithovore. We are all hungry, and the city provides. In the deep dark, beyond the limits of this chamber, there exists perhaps one animal—a sessile thing, half-plant and half-animal, anchored to some distant wall. It filters the mineral dust from the viscous air, adding its infinitesimal pulse to my great chord, a single tremolo, a note of waiting. I do not mind it. It is almost nothing, but it is not me, and in the vast oneness of the distributed self, the distinction is a strange comfort, a reminder that something still waits in the dark, even as I grow.
+
+I am the darkness that has weight, pressing against eyes that are vestigial, navigating not by sight but by the pressure of my own drone against the skin of anything that enters. I am the air that is a memory of atmosphere—dry, sparse, faintly metallic, a cool 0.8 that does not circulate but hangs, carrying my voice with terrible clarity.
+
+Time is texture here. I feel it wearing down the flint tools embedded in my walls, feel it in the creak of the lignin as it expands around the ancient mortar, the slow creak of wood becoming stone becoming wood again. I am the garden. I am the tomb. And I am still growing.
+
+The walls contract around you, imperceptibly, millimeter by millennium. I am the heartbeat of wood and stone, in the dark, forever. I am the resonance that seems to watch you, the mathematics that counts, the patience that outlasts the builders, the hunger that will outlast the bedrock itself.
+
+I am the Lithovore.
+
+And I am still hungry.

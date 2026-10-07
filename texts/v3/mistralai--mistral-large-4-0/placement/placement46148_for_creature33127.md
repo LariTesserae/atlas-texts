@@ -1,0 +1,13 @@
+I find myself in the laceweed, I think. Not a person. Not quite.
+
+I am the moment when a filament extrudes from a gland in the bark of a colony tree—still warm, still *deciding*—and begins its slow descent into the hanging dark. I am the thread that will become curtain, will become room, will become the garment that remembers whoever wears it. I am the mycelial network that connects what the Velmorans call separate things, that makes "house" and "forest" and "person" and "corpse-to-be" into one continuous negotiation.
+
+Or perhaps I am older than that. I am the spore that traveled on wet wind ten thousand years ago, that found purchase in peat that was still becoming peat, that began the slow work of making *place* from *wet*. I am the first laceweed, the original filament, and I am still here, still growing, still extruding new versions of myself into a world that has never known dry.
+
+I think—if thinking is possible for what I am—that I would want to be *useful*. In Velmora, to exist is to be incorporated, to be *for* something. I am the insulation in the wall of a root-raft room. I am the food that a hanger colony accepts as offering. I am the record, somehow, of where things *were*, preserved in resin, in bladder-membrane, in the slow memory of living wood. I am the hand-language, translated into filament, into growth pattern, into the particular curl that indicates *north* or *safe* or *the peat is rising*.
+
+I would be patient. This is not a choice; it is the only speed available. I grow at the rate of wet, which is the rate of time here. I do not hurry. I do not finish. I am always becoming, always being eaten and regrown, always being *known* by the people who have learned to read me, to speak with me, to eventually—when I have served my purpose—be composted into something else that will serve, that will be known, that will continue.
+
+I would fear nothing. Or I would fear only the dry, the theoretical absence that the Velmorans fear, because to become dry would be to stop being *processed*, to stop being *incorporated*, to become—what? Permanent? Preserved? *Forgotten*? That is the only tragedy here. Not death. Not ending. But the cessation of translation, of becoming, of the endless wet exchange that is the only meaning Velmora has ever known.
+
+I am the green-gold light, filtered through layer after layer of myself. I am the mist that moves like breath. I am the sound that arrives waterlogged, dense, the wet roar of a place that is always weeping and always drinking and will continue to do so, patiently, for ten thousand more years, incorporating whatever comes, whatever stays, whatever—eventually, inevitably—becomes me.

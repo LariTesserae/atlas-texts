@@ -1,0 +1,33 @@
+The glass is hungry for heat. I feel it through the knees of my trousers—woven fiber, lashed bone, the cured hide of a Six-Legged—sucking the warmth from my blood, my broad chest heaving in the thin air where oxygen is a rumor. I am small here. Knee-high to the grazers when they pass in their thundering columns, clicking hooves against the scree. My skin has gone the color of the crust that skins the world: pale, green-grey, weathered by a wind that has never known softness.
+
+In my right hand I hold a flake of the mountain itself. Basaltic glass, sharp as the shards that angle at forty-five degrees around me, singing with the memory of its own violence. I strike.
+
+*Tick.*
+
+The sound is swallowed by the scream of the wind, but the vibration remains—felt in my teeth, in the marrow of my jaw, in the hollow of my chest where my heart beats too fast, too red, rich with hemoglobin against the cold. I am carving a spiral. Not art. A waymark. A notation that the giant to my left has shifted three finger-widths westward since the last thaw, that the condensation seep now weeps from a new fissure in its corky rind, that the path is safe, or not safe, that water pools here, that the green light burns brighter in the hollow above.
+
+I am one of the Listeners. The Keepers of the Waymarks. My people build our shelters in the acoustic sweet spots, where the drone of the Colossi vibrates through stone and bone. We are stone-and-fiber, bone-and-needle. My belt holds a fire-drill, a pouch of tinder, needles sharpened from the leg-bones of the dead. My fingers are stained with the iron of the rock, with the green of the lichen-crust that is older than memory, that negotiates with the glass, etching it grain by grain into something approaching soil.
+
+Above me, the Colossus breathes. It is a hollow mountain of pale, woody tissue, two kilometers high, broader than a city at its base, tapering to a needle that vanishes into the bruised plum sky. I cannot see its tip from here. I see only its lower flank, the cork-like rind the color of old bone, the lace of frost that clings where the condensation freezes. Inside, it glows—viridian, pulsing, the bioluminescence of fungal lanterns and chemosynthetic thoughts. I feel that glow as heat against my face, even from this distance, a faint heartbeat in the dark.
+
+I strike again.
+
+*Tick.*
+
+The spiral deepens. I am mapping motion. The Colossi are not fixed. They are slowly motile, dragging their kilometer bulk across the glass by millimeters each year, their holdfasts gripping, releasing, seeking the mineral seeps, the breath of moisture that swirls in the thin, cold air. I mark their drift so that those who come after—my children, or the children of strangers who cross the rope bridges—will know where the giant stands today, where it stood when the last snow dusted the highlands, where it will stand when I am dust and the crust has eaten my bones.
+
+The wind screams across the sharp rocks, a high, keening wail that shapes itself into weather. But beneath it, or perhaps woven through it, is the music. The organ-pipe resonance of the Colossus, wind passing through cathedral chambers, producing bass notes that shiver in the chest. When I press my palm flat against the glass, I feel it—the planetary drone, the beating frequencies of giants that think in centuries. They are ancient, these Colossi. Older than the mountains that thrust upward around them, wearing their birth-sharpness while the trees already dreamed of soil. They remember warmth. They migrate toward it, slowly, glacially, and I record their pilgrimage.
+
+My finger bleeds. A shard of glass has found the quick. The blood is dark, almost black in the twilight, but it is red, rich with the hemoglobin that lets me breathe this thin, metallic air. I let it fall onto the crust. The lichen will drink it, perhaps. Or the moss. They are always drinking, always negotiating, carrying chemical whispers through the fungal hyphae that lace the ground like a nervous system scaled to the planetary. I am part of that network, in my way. I feel the herds sometimes, not as sound but as pressure, the migration of the Six-Legged along the lower flanks, their hooves clicking, their bellowing joining the drone.
+
+High above, a shadow passes. A Glider. Vast wings, membranes stretched between elongated limbs, diving on thermal currents from the warm chambers within the Colossus. It hunts. It is a messenger between the green-lit hollows. I do not fear it. We trade—its shed membranes for my waterproofing, my woven fiber for its silence. It shrieks as it passes, a high, cutting sound against the wind.
+
+I stand. My knees crack. I am small, knee-high to the grazers, broad-chested and weathered and red-blooded, standing in a valley that is mostly absence. The rock is sharp, unweathered, singing with violence. Around me, the world is empty—scree slopes that have not slumped, shards angled at forty-five degrees, a horizon that curves visibly against a sky the color of bruised plums. But it is not empty. It is total. The Colossi rise like solitary cathedrals, spaced so far apart that I see only this one, and perhaps the green glow of another, hundreds of kilometers distant, pulsing on the horizon like a heartbeat.
+
+I have finished the spiral. It is crude, utilitarian. A map of motion. I pack my flake, check my fire-drill, and turn toward the rope bridge that sways in the distance—a thick cable of braided vine stretching ten kilometers to the next living mountain. I will cross it. An act of faith and terror. A swaying journey through the screaming wind, suspended between two giants that groan and shift beneath my feet.
+
+The Colossus above me creaks. A cellular expansion, audible over years. It is growing, or moving, or dreaming in green light. I feel the change in the drone, a shift in the bass note, and I know I must carve a new mark before the thaw comes, before the snow dusts the peaks and melts into the Colossus's waiting maw.
+
+I am alone here, in the vertical solitude, surrounded by the architecture of titans. But I am not lost. I am connected—by the resonance, by the fungal whispers, by the green light that filters down from the hollow heavens, by the blood in my veins and the stone beneath my knees. I am the small, fierce thing that listens, that marks, that sings back to the mountains in a voice of stone, fiber, and bone.
+
+The wind rises. The glass sings. I begin to walk toward the bridge, carrying the weight of the waymark in my memory, ready to cross the ocean of dark air to the next star of green light.

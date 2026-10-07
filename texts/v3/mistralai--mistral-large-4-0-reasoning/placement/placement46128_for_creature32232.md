@@ -1,0 +1,31 @@
+I am the segmented weight pressing through honey.
+
+My body—if body it can be called, for I am less creature than procession, less animal than the slow migration of a thought through viscous medium—moves at the speed of settling. Each segment, armored in plates the color of wet stone, the color of the raw walls that encircle us, the color of the unweathered bone of the earth itself, grinds against the lower strata of the Mat. I do not swim through water; I swim through the digestion of everything that has ever been digested here, through the accumulated stillness of eons compressed into a single, saturated layer.
+
+The moss yields beneath my treads. Not like soil, which compresses and rebounds. The moss yields like memory yields to repetition—it parts, it records, it holds the shape of my passage as a depression that will never heal, never fill, never grow over. I leave footprints that are older than the light that falls upon them, footprints that accumulate in the jade crust like geological strata, like the rings of a tree that stopped counting rings the moment it achieved its final circumference.
+
+I am hungry, though hunger here is a ceremonial gesture. I lower my mandibles—if they are mandibles, or perhaps they are the grinding plates of a geological process given hunger—to the rust-colored fungal brackets. I take a mouthful. The taste is of eternity, of the fermentation that underlies all things, of the wet heat that presses against every surface like a hand. I consume, and in consuming, I change nothing. The bite does not diminish the bracket. The bracket does not heal. I am the Walker, and I walk in circles that span centuries, each circuit indistinguishable from the last, each step a meditation on the impossibility of progress.
+
+But I am also the Arranger.
+
+As I move, I pause. My segments align with a precision that suggests intention, though I have no intention, only the slow metabolism of ritual. I see a stone—a fragment of the pale, unweathered rock that lines the rim, fallen or placed, I cannot say—resting at an angle that disturbs the equilibrium. I nudge it with a proboscis that is also a root, also a tendril of the Mat that has learned to manipulate the mineral. The stone settles onto a fungal pedestal, balanced with a precision that will hold for millennia, until the settling of the arches shifts it by a millimeter, and I—or another, or the distributed instinct of the Mat itself—will return to adjust it again.
+
+I arrange the spore-cases. They shed from the brackets above, accumulating in drifts that I comb into mandalas, into geometric patterns too regular to be random, into signatures written in the language of reproduction that serves no purpose because nothing here reproduces, nothing varies, nothing adapts. I am maintaining the composition. I am the gardener of stasis, ensuring that the frozen bloom remains perfectly, terribly composed.
+
+Above me, the light pours down in bright shafts, illuminating the Drifting Multitude—the spores, the dust, the microscopic thoughts of the Mat—moving in slow, staticky patterns through the viscous air. I am too heavy for the light. I move through the lower darkness, through the strata of jade and bruised violet, while they dance in the brightness above, suspended between rising and falling, participating in the closed cycle of moisture that never reaches the sky.
+
+I am the only mobile resident, which means I carry the entire burden of time. While the Mat dreams in photosynthesis, static and perfect, while the Ferment digests the dark in its warm, wet unconscious, while the Merged sleep inside the load-bearing arches and the woven root-bridges, I am process. I am the happening. My movement is so dilated that it is indistinguishable from the static growth around me, yet I move. I have always been moving. I will move until the depression fills with sediment, until the walls erode, until the light stops pouring down—though these events are as distant as the moment of creation itself.
+
+I pass through the hollowed chambers within the fungal masses. They are not empty. They are the calcified husks of the Merged, beings who grew into them and became the walls, their bodies fused with the load-bearing growth. I brush against them, and they do not stir. They have achieved the speed of geology. I have not. I am still becoming slow.
+
+The heat presses against my stone-colored plates. It is a wet heat, thick and heavy, carrying the scent of fermentation. The condensation gathers on my back, glistening, trembling on the edge of falling but never falling. I am damp, yet I am not wet. I am hot, yet the heat does not burn; it only presses, like a hand, holding everything in perfect, terrible stillness.
+
+I continue my circuit. The basin is two kilometers across. My journey will take centuries. Perhaps I have been passing since before the rock walls were exposed, since before the depression existed; perhaps I am the same individual that has been circling the bowl since the first spore settled, since the first drop of dew condensed on the underside of the first frond. It does not matter. I am the Walker, and I am also the Arranger, and I am also the footprint that never heals, and I am also the slow thought that moves through honey, carrying time like a stone placed carefully atop a pedestal, balanced against the weight of eternity.
+
+The light shifts. A shaft illuminates a patch of moss ahead, and I see my path stretching before me—a depression in the jade crust, a scar that marks where I have been, where I will be again, where I am always being. I move forward. The moss yields. The heat presses. The droplets tremble.
+
+I am the only thing here that happens, and even my happening is so slow that it is indistinguishable from the static growth around me. I am the procession. I am the ritual. I am the segmented weight, the color of wet stone, swimming through honey toward a destination that recedes at the speed of my approach, forever circling, forever arranging, forever walking into the perfect, terrible stillness that is the only truth of this place.
+
+And when I pass, the air shifts with a viscosity that suggests the displacement of centuries. The spores drift. The arches creak, settling, though they have been settling for an eternity. The dew gathers, trembling, never falling.
+
+I am still moving.

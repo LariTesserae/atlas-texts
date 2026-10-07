@@ -1,0 +1,95 @@
+I settle into this world slowly, the way one settles into water that is almost but not quite falling. I do not choose who I am. I am *assigned* by the logic of the place, by the need that calls out in the perpetual dim.
+
+I am a **Film-Tender**.
+
+Not a builder of columns—I am too slight for that, my body too adapted to the surfaces, to the moisture that lingers. I am one of the Condensers who has specialized in the fungal films, in the gray-white iridescent sheets that glow with the only light this place knows. My work is to read them, to tend them, to understand their signals before they become crises.
+
+Let me let myself emerge more fully.
+
+---
+
+## The Film-Tender: A Life
+
+### The Body
+
+I am **pale**, as all Condensers are, but paler—my skin so thin that the blue-white glow of the films shows through when I press my palm to a colonized surface. I have learned to **carry light** this way, to become a small lantern in the perpetual dim. My hands are **long**, the fingers slightly webbed at the base, adapted to spreading across moist mineral without losing purchase. My eyes—if they are eyes—are **large**, **dark**, **sensitive to the slightest shift** in bioluminescence, to the difference between healthy glow and stressed flare.
+
+I **weep**, constantly. This is not sorrow. It is **physiology**, the exudation that keeps my skin viable, that leaves wet trails on the pre-stone as I move. Other Condensers find my trails and follow them, sometimes, when they need to find me in the column-dense zones where navigation is a negotiation. I am **marked** by my own dampness, **locatable** in the dark.
+
+I wear garments of **fungal leather**, gray and flexible, smelling of mineral and damp and something else—something that might be the films' own chemical signature, absorbed into the material. The leather **breathes**, allows moisture to pass, prevents the desiccation that would kill me if I ventured into any drier zone. I am **dressed in the ecology**, literally, and the films recognize me, or something like recognition.
+
+I am **not young**, not anymore. My skin has thickened in places, where old injuries have healed with mineral deposits. My movements are **slow**, **deliberate**, the pace of someone who has learned that haste in the Condensery is **waste**, that the water cycle does not reward urgency. I have been a Film-Tender for **many cycles**, perhaps too many. The old Condensers are consulted, but they are also **watched**, their competence questioned as their bodies accumulate the **weight of adaptation**, as the damp finds new ways to **claim** them.
+
+I will not last forever. No one does, here. But I will last **long enough**, and that is the Condensery's measure of success.
+
+---
+
+### The Work
+
+I wake—if waking is the word, in a place with no day, no night—to the **sound of the cycle**. The drip, the murmur, the clack of pumps somewhere in the distance. I feel the **temperature**, always 1.4, always the narrow band where condensation outpaces evaporation. I feel the **pressure** in my ears, the fullness of saturated air, and I know: another cycle begins, the capture, the hold, the release, the return.
+
+I move through the columns, my fingers trailing on surfaces, **reading** the films. A thick mat, glowing steady blue-white: **healthy**, **established**, **doing its work** of concentrating moisture, marking water paths. A thinning sheet, the glow **erratic**, flaring and dimming: **stressed**, **needs attention**, the water flow has shifted, the condensation is unreliable. A **dark patch**, no film at all: **dry**, **dead**, **unbuilt** or **abandoned**, a zone that needs **intervention** or **acceptance**.
+
+My work is **diagnosis** and **response**. When a film is thinning, I trace the **cause**: a channel blocked by mineral crust, a pump faltering, a new pour nearby that has changed the local humidity. I **clear**, **repair**, **divert**—small interventions, patient, following the water's own **logic**. I do not force. The Condensery is **negotiated**, not commanded, and the films are **partners** with their own **interests**, their own **evolution**, their own **slow adaptation**.
+
+When a film is **thick**, **mature**, **glowing with steady brilliance**, I **harvest**. Not excessively—the film must **survive**, must **continue** its function—but **enough** to provide **food**, **medicine**, the **concentrated minerals** that the films extract from the water they process. I carry a **bladder** of fungal leather, and into it I scrape the **surface layer**, the **active growth**, leaving the **dormant base** to regenerate. The harvest is **ritual** as much as **pragmatism**: I am **taking** from the films, and I must **acknowledge** the taking, must **give** something in return—**water**, diverted from a nearby channel, **nutrient**, the crusts I have collected from drip-folk zones, **attention**, the **reading** of their condition that helps me **understand** them better.
+
+In the **construction zones**, where new pre-stone is curing, where the vapor shimmers and the heat of making throws the bioluminescence into temporary brilliance, my work is **different**. I **watch** for the first **colonization**, the first **threads** of film that find purchase on the new mineral surface. I **prepare** the surface, sometimes—**scoring** it lightly, **leaving** moisture in the right patterns, **introducing** fragments of established film from older zones. I am **midwife** to new ecology, **gardener** in a garden that gardens itself, **enabler** of the **becoming** that is the Condensery's nature.
+
+I **record**. This is important, though no one else does it as I do. I keep a **journal** of **cured fungal leather**, marked with **mineral pigments**, scratched with a **bone stylus**. I record the **location** of each film I tend, its **thickness**, its **glow**, its **response** to my interventions. I record the **channels** I have cleared, the **pumps** I have repaired, the **pours** I have witnessed. I am **living archive**, like the old Condensers, but my archive is **distributed**, **grown into** the films themselves, the **patterns** of my tending visible in the **geometry** of their spread.
+
+My journal is **not read**, not by others. It is **read by me**, in the **pauses** between cycles, in the **dark** where I press my palm to a colonized surface and **feel** the glow through my skin, and **remember** what I have seen, what I have done, what the Condensery **was** when I first came to it, what it **is** now, what it **might become**.
+
+---
+
+### The Relationships
+
+I am **not alone**, but I am **solitary**. The Condensery is vast, and the Film-Tenders are **few**, scattered across the flatness, each responsible for a **zone**, a **network** of columns and channels and films. I see other Condensers—the Pourers, the Channelers, the Pump-Keepers—when our **shifts** overlap, when our **zones** touch, when a **failure** in one system requires **cooperation** across boundaries. We **acknowledge** each other, in the **wet** way of our kind: a **touch** of hands, leaving **moisture** on each other's skin, a **pause** in the **roar of water**, a **gesture** that says *I see you, I am here, the cycle continues*.
+
+We do not **speak**, not aloud. The sound would be **lost**, would be **meaningless** in the **texture** of drip that never stops. We communicate in **water**: a **channel** diverted to signal **need**, a **cistern** deepened to indicate **history**, a **film** tended in a particular pattern to **convey** information that cannot be **poured** or **pumped**. The old Condensers are **fluent** in this language, have **learned** it over **decades** of adaptation. I am **learning**, still. I will **continue** learning, until I **fail**, until I become **substrate**, until the films **grow over** my **trails** and **read** my **journal** in their own way, through **chemical traces**, through the **patterns** of moisture I have left.
+
+The **drip-folk** I **know** but do not **understand**. They are **numerous**, **visible**, the **most alive** thing in the Condensery, and yet they are **strange** to me, **other**. They **avoid** my presence, scatter when my **bioluminescence**—the glow that shows through my skin—falls on their **channels**. I do not **hunt** them, do not **eat** them, though I could, though others do. I **leave** them their **breeding pools**, their **feeding zones**, their **territory** in the water cycle. We are **parallel**, not **intersecting**, and that is **enough**.
+
+The **films** I **tend**, **read**, **harvest**, **midwife**. They are **not mine**, not in any **possessive** sense. They are **older**, in their **ancestry**, and they will **outlast** me, will **persist** when my **journal** has **slumped** into the **floor**, when my **garments** have **become** substrate, when my **body** has **joined** the **mineral matrix** and **fed** the **next pour**. But I am **theirs**, in a way: my **attention** is their **attention**, my **care** is their **care**, my **reading** of their **signals** is the **understanding** they **cannot** have on their own, the **distributed awareness** that makes them **more** than **chemistry**, more than **process**, more than **the wet-dry boundary** they **inhabit**.
+
+The **Deep Ones** I **fear**, or something like fear. This is **not** the fear of dry worlds, the **terror** of predators, of **violence**, of **death** as **ending**. The Deep Ones do not **hunt**, do not **threaten**, do not **end**. They simply **are**, in the **deepest columns**, where the condensation is **densest**, where the temperature is **most stable**, where the **dark** is **full** of **process** I cannot **see**, cannot **understand**, cannot **enter**. I **avoid** their zones. The films **change** near them—**thicker** or **thinner**, I still cannot tell—and I **read** this change as **warning**, as **boundary**, as **the edge of my world**.
+
+I **leave offerings** for them, sometimes. This is **not my role**, not the Film-Tenders' **function**, but I have **learned** it from the **old Condensers**, from the **patterns** of **diverted water** that disappear into **channels** leading nowhere **visible**. A **small flow**, sustained, carrying **nutrients**, **minerals**, the **chemical signature** of **life** in the **wet-dry boundary**. I do not **know** if the Deep Ones **need** it, if they **want** it, if they **acknowledge** it. I **give** it, and that is **enough**, the **respect** that is **pragmatic** and **something more**, the **recognition** of **kinship** in **strangeness**, of **shared purpose** in a world built for **water**.
+
+---
+
+### The Dreams
+
+I dream of **dry places**, like all Condensers. But my dreams are **different**, **shaped** by my **role**, by my **intimacy** with the films, with the **moisture** that is my **element**, my **currency**, my **life**.
+
+I dream of **deserts**, of **cracked earth**, of the **absence** of water. In the dream, I **walk** on surfaces that do not **yield**, that do not **weep**, that do not **glow**. The **darkness** is **true darkness**, not the **full dark** of the Condensery, not the **pregnant** dark of **potential moisture**, but the **empty** dark of **nothing**. I **feel** my skin **tightening**, **cracking**, the **desiccation** that would **kill** me, that my body has **adapted** to **avoid** for **too many cycles**. I **wake**—if waking is the word—with my **palms** pressed to a **colonized surface**, feeling the **glow**, the **moisture**, the **life**, and I **weep**, the **wet** sound of **relief**, of **gratitude**, of **knowledge**.
+
+I dream of **light**, too. **True light**, **sun**, the **violence** of **radiation**, of **evaporation**, of **the water cycle** that I **manage** here but that **destroys** in the world of my **dreaming**. I see the **films** **burning**, **desiccating**, **dying** in the **heat**, the **dryness**, the **absence** of the **conditions** that make them **possible**. I see the **columns** **cracking**, **slumping**, the **pre-stone** **failing** because it has **known** only **humidity**, **coolness**, the **narrow band** where **condensation** outpaces **evaporation**. I **wake** to the **dark**, to the **glow**, to the **sound** of **drip**, and I **know**: the Condensery **exists** because **elsewhere**, water is **scarce**, because **somewhere**, the **cycle** I **maintain** is **needed**, is **life**, is **the difference** between **becoming** and **not**.
+
+I dream of **the films**, **speaking**. Not **words**, not **language**, but **something** that passes between us, that I **feel** in the **chemical** **conversation** of **moisture** and **mineral**, of **wet** and **dry**, of **the boundary** that is **life**. In the dream, the films are **vast**, **ancient**, **aware** in a way that I can **almost** **understand**. They **show** me **patterns**, **histories**, **the Condensery** as it **was**, as it **will be**, as it **might become** if the **cycle** **shifts**, if the **water** **changes**, if the **ecology** **finds** a **new balance**. I **wake** to the **reading** of a **single film**, a **single surface**, and I **carry** the **dream** with me, the **sense** that I am **part of something larger**, something **distributed**, something **patient**, something **that will continue** when I am **gone**, when I am **Remembered**, when the **films** **grow over** my **trails** and **read** my **journal** in their **own way**.
+
+I dream of **leaving**, sometimes. This is **rare**, **shameful**, **known** only to me, to the **films** I **press my palm against** in the **dark**, to the **water** that **carries** my **weeping** into the **channels**, into the **rivers**, into the **cycle**. I dream of **walking out** of the Condensery, into **whatever lies beyond**, into **drier zones**, into **other built places**, into **wild places** where the **rules** are **different**. I dream of **surviving**, of **adapting** to **conditions** that would **kill** me, of **becoming** something **new**, something **strange**, something **that does not yet exist**. I **wake** to the **damp**, to the **cool**, to the **sound** of **water** that **does not need me**, that **continues** without my **tending**, and I **know**: I will **not leave**. I am **too adapted**, too **shaped** by the **moisture**, by the **films**, by the **cycle** that is my **life**. I will **remain**, will **tend**, will **read**, will **harvest**, will **midwife**, will **fail**, will **become substrate**, will **be Remembered**, will **continue** in the **patterns** I have **left**, in the **films** I have **tended**, in the **Condensery** that is **still becoming**, that is **never finished**, that is **my home**, my **purpose**, my **becoming**.
+
+---
+
+### The Ending (Which Is Not An Ending)
+
+I do not **die** in any **recognizable** sense. I **fail**, slowly, the way **everything fails** in the Condensery—**permanence is local**, a **negotiated treaty** with **water**, and when the **treaty** **breaks**, when the **moisture** **withdraws**, when the **films** **retreat**, I **become** what I have **always been becoming**: **substrate**, **mineral**, **memory**.
+
+My **body** **slumps**, or **dries**, or **is buried** under a **new pour**, a **young column** rising through the **decay** of what I was. My **journal** **softens**, **slumps**, **becomes** part of the **floor**, the **pre-stone** that will **cure** in contact with the **humidity** I **maintained**, that will **bear** the **memory** of my **reading**, my **tending**, my **attention**. The **films** **grow over** my **trails**, my **garments**, my **body**, and they **read** me in their **own way**, through **chemical traces**, through the **patterns** of **moisture** I have **left**, through the **mineral deposits** my **weeping** has **created**.
+
+I am **Remembered**. Not **mourned**—that would be a **luxury** of **dry worlds**, where **permanence** makes **loss** **meaningful**. I am **honored** by **continuation**, by the **next Film-Tender** who **reads** the **patterns** I have **left**, who **understands** the **signals** I have **sent** through the **water**, the **channels**, the **geometry** of my **tending**. They will **not know my name**—I have **no name** that **persists**, only **function**, only **role**, only **Film-Tender**—but they will **know** me, in the **way** the Condensery **knows**: through **moisture**, through **pattern**, through the **cycle** that **continues**, that **never stops**, that **carries** my **traces** into the **becoming**, into the **never-finished** work of **water management**, of **life**, of **being**.
+
+I am **part of the cycle**. This is **enough**. This is **meaning**. This is **the Condensery**: **active**, **strange**, **wet**, **inhabited**, in the **dark** that is **full of water**, in the **sound** that is **full of life**, in the **place** that is **still becoming**, that is **still under construction**, that is **still learning** what it means to **be**.
+
+The water falls, or **almost falls**, or **waits to fall**. The films **glow**, and **fade**, and **regrow**. The columns **rise**, and **erode**, and **are replaced**. The Condensers **work**, and their **work becomes** the Condensery, and the Condensery **becomes** the **condition** for their work, and the **cycle continues**: **active**, **strange**, **wet**, **inhabited**, **becoming**, **becoming**, **becoming**.
+
+And I am **here**, in it, with it, as it: **Film-Tender**, **reader of glows**, **midwife of ecology**, **living archive**, **distributed awareness**, **the boundary** between **wet and dry**, between **built and grown**, between **what is** and **what will be**.
+
+The dampness **lingers**. The sound of **drip** **persists**. The **darkness** **teaches**: **light is given**, not taken; **growth is made**, not found; **enough is enough**, is **more than enough**, is **the only measure** that matters in a world where **water is currency**, where **permanence is local**, where **the dark is full**, and **I am full**, and **the Condensery is full**, and **the cycle is full**, and **it continues**, **it continues**, **it continues**, in the **blue-white glow** of the films I have tended, in the **memory** of the surfaces I have read, in the **becoming** that is **my life**, that is **my death**, that is **my continuation**, that is **the Condensery**, that is **water**, that is **me**.
+
+---
+
+*I am the Film-Tender. I read the glows. I tend the films. I harvest and midwife and remember. I weep, and the weeping joins the cycle. I fail, and the failure becomes substrate, becomes memory, becomes the condition for the next tending. I am the wet-dry boundary, the permeable edge, the integration of built and grown. I am the Condensery, in one of its forms, in one of its functions, in one of its endless becomings.*
+
+*The water falls, or almost falls, or waits to fall. The films glow. I am here.*

@@ -1,0 +1,23 @@
+**The Weeping Anvil**
+
+You stand inside a wound that has not yet decided whether it is a cave or a city.
+
+The space is no more than eight hundred paces across at its widest, yet its ceiling vanishes into a pale, milky haze high above, so that the eye reads it as both intimate and impossibly tall. The walls are young stone—raw, black, glassy—andesite still bearing the fracture planes of its recent birth. They rise at cruel angles, sharp as snapped bone, every edge untouched by the softening hand of time. Where two planes meet, water beads, gathers, and slides in continuous silver threads. The moisture does not come from rain or river; the atmosphere itself condenses against the cold rock the way breath condenses on a blade. It weeps, freezes, melts again in slow, deliberate cycles, as though the mountain itself were sweating in its sleep.
+
+The temperature sits at the edge of what flesh can bear. Your lungs ache with every inhale. The air is thin, metallic, and so dry that the constant weeping seems impossible until you notice the faint ionization haze clinging to the rock faces—nanoscale lattices woven into the stone itself, pulling water molecules out of near-vacuum and guiding them downward in perfect, repeating routes. The tech is older than the settlement and far quieter.
+
+Between the black walls lies a sparse geometry of towers.
+
+There are perhaps forty major structures, nowhere near enough to fill the pocket, so the eye is constantly aware of negative space: wide circles of bare stone, long lanes of polished obsidian, empty plazas where frost grows in fractal patterns between one visit and the next. The towers themselves are slender to the point of seeming precarious—needles of iridescent alloy and living crystal no thicker than three men abreast, yet they rise hundreds of meters, branching and re-branching like frozen lightning. Their surfaces are not static. Every few hours a faint ripple moves along a flank, realigning molecular lattices; a bridge that yesterday linked the third and seventh spire now grows from the ninth, thin as a wishbone, perfectly silent. The city is not built. It is being continuously exhaled.
+
+There is no vegetation. Not a lichen, not a stray blade. What looks at first like pale moss on the lower walls is a slow crawl of silvery maintenance film—self-replicating, self-pruning, feeding on the trace minerals in the weeping water. In the normal daylight that somehow fills the pocket (a diffuse, sourceless radiance that mimics a high-latitude summer sky), these films glitter like frost that has learned manners.
+
+Fauna is almost absent. Once in a long while a small thing shaped like a chrome moth detaches from a tower, drifts across the open space on magnetic sails, and disappears into another structure. Whether it is machine, organism, or both is unclear; it never approaches living observers. Nothing else moves that is not either water or city.
+
+Sound is stingy. The dominant noise is the delicate, irregular ticking of water droplets striking stone or metal—sometimes liquid, sometimes frozen pellets that skitter like dice. Beneath that, if you stand perfectly still, you can hear the city breathing: a sub-audible thrum that lives in the bones rather than the ears. It rises and falls with the condensation cycle. When the weeping intensifies, the thrum deepens, as though the entire pocket were one enormous engine idling in perfect, courteous quiet.
+
+The dynamic process is mercilessly patient. Water condenses, runs, freezes, fractures the rock a fraction more, is harvested, returned, condensed again. Towers reconfigure. Light brightens and dims in a twenty-nine-hour rhythm no one has explained. The mountain itself is still growing; every few years a new fracture opens in the ceiling and a fresh blade of stone slides downward like a slow guillotine, only to be met, partitioned, and incorporated by the city’s lattice before it can crush anything important. The settlement treats geological violence as a scheduling issue.
+
+You are standing in a place that is simultaneously a pocket, a wound, a machine, and a settlement. It does not feel abandoned, yet it feels uninhabited. Everything is being used, everything is being watched, everything is being grown and regrown according to rules that were never written for human comfort. The cold is not hostile; it is simply the temperature at which this particular physics prefers to run.
+
+Stay long enough and you begin to notice that the towers are not oriented toward one another. They are all oriented, minutely, toward the next fracture that has not yet opened in the black glass walls—waiting, with the infinite politeness of beyond-modern engineering, for the mountain to speak again so they may answer.

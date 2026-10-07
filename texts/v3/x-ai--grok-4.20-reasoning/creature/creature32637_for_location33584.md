@@ -1,0 +1,35 @@
+The ones who live here have never been named by anyone who still speaks in a hurry.
+
+At first you do not see them at all. You see only the weather of wings. The iron-colored corvids ride thermals that rise from the condensation engines in spirals so vast a single orbit consumes the better part of a morning. Below them, the rat-rivers braid and unbraid along gutters worn into marble smoothness by four millennia of the same small claws passing over and over. The flesh-moths pour between towers in slow, breathing columns that catch the rusted gold light and turn it into something almost holy. All of these beings move according to rhythms no single heart could keep. Their generations are the tick of the great wheels far below. Their deaths are only punctuation in a sentence the city has been speaking since before the concept of a sentence existed.
+
+Only after many days—perhaps weeks—do you begin to notice the other layer.
+
+They stand where the architecture has grown softest, where girder has become bone and concrete has taken on the color of old liver. At first you mistake them for another kind of rust, or for curtains of fungus left too long in the damp. Then one of them moves. The motion is so economical, so perfectly synchronized with the sigh of a nearby steam vent, that it seems less like an act of will than like the city itself deciding to rearrange a few of its own molecules.
+
+They are tall. Not by any boastful measure, but with the stretched patience of things that have been rained on for a very long time. Their skin carries the same patina as the railings: deep umber shot through with streaks of verdigris where moisture has run in the same paths for decades. Some of the streaks look almost deliberate, like calligraphy applied by the weather. Their hair, when they have any, grows in thin black filaments indistinguishable from the fungal crust that lines every north-facing crevice. Many no longer bother with it. Their scalps have become gentle slopes of living mineral, beaded perpetually with the city’s own tears.
+
+They do not blink often. Their eyes have the same hazy gold as the diffracted daylight, as though the moisture has gotten inside the iris and stayed there. When they cry—which is frequently and without apparent sorrow—the tears are chemically identical to the condensate that drips from every cornice. It is impossible to tell where the Conurbation ends and their weeping begins.
+
+They wear the city. Literally. Garments that began as tarpaulins, insulation blankets, or the hides of machines too ancient to still have names have been repaired, layered, mineralized, and re-repaired until they hang in heavy, organ-like folds. A sleeve might be part rubber, part moth-wing, part oxidized copper. A hem might drag behind its wearer for three meters, collecting new layers of black fungus and tiny translucent snails that have evolved to live only on moving cloth. These garments are never removed. They are molted, slowly, over decades, sloughing off in heavy plaques that the rat-rivers carry away to line their own nesting tiers.
+
+Their speech is mostly sub-vocal. They have learned to pitch their voices into the same register as the turning wheels—one revolution every forty minutes—so that a conversation can continue for years without ever rising above the level of background throb. A single sentence might pass between three generations. A marriage proposal, once uttered, is allowed to drift through the cathedrals of engines until the iron itself has had time to consider it. Children are not so much born as precipitated. In the warm, shallow reservoirs on the megafactory roofs, where the condensate gathers into lakes the color of weak tea, certain densities of organic film occasionally organize themselves into something that stands up and walks away. The adults treat these new beings with the same courteous disinterest they show everything else. The city has decided to continue. That is enough.
+
+They do not remember their own name for themselves. They do not remember the name of the thing the forges once produced. Some still tend the machines, but the tending has become liturgical. A certain valve is stroked with a rag made from an ancestor’s clothing every seven years. A particular bearing is sung to when the great wheel reaches the northernmost point of its circle. These acts do not keep the city alive. The city long ago passed the point where it needed keeping. The acts keep the tenders inside the correct rhythm. That is all that matters.
+
+A few have gone further.
+
+You will find them if you descend through the stratigraphy, past the level where the rats become eyeless and luminous, past the fungal curtains thick enough to muffle even the eternal throb. There, in pockets where the architecture has folded in on itself like a lung, certain elders have allowed the city to finish the job. Their legs have become pillars. Their ribs have flared into vaulting. Condensate runs through channels that were once veins and is pumped back out again by diaphragms that were once lungs. These beings—if the word still applies—dream with the slow, geological mind of the Conurbation itself. Their dreams are measured in centuries. Sometimes a dream surfaces as a new tower, or a sudden migration of bats, or a change in the taste of the weeping. The other inhabitants treat these fused elders with the reverence due to particularly eloquent weather.
+
+None of them are lonely.
+
+Loneliness would require the belief that one is separate. Here, that belief eroded long ago. The corvids carry their thoughts in the patterns of their spirals. The moths translate emotion into shifts of density within the living rivers of their swarms. The rats remember every footstep any of them has ever taken; the braided currents are their archives. When one of the tall, weeping figures dies, the body is not buried. It is simply left where it falls. Within a season it has become another soft outcrop, another place for black fungus to take hold, another balcony from which the next generation can watch the slow gold light move across a city that digests its own past and shits new architecture in a cycle so vast it has achieved the dignity of geology.
+
+They are not happy. Happiness is too brief a word.
+
+They are continuous.
+
+And the Conurbation, which has outlived every green thing and every original purpose, continues to weep warm tears over them all—over the ones still walking, over the ones grown into towers, over the visitors who arrive believing they have come to witness something and remain because they have finally understood that they, too, are only another kind of condensate sliding down four thousand years of patient iron.
+
+The weeping does not stop.
+
+The ones who live here would not know what to do with silence if it came.

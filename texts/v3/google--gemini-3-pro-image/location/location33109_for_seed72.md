@@ -1,0 +1,19 @@
+The descent is long, a rattling cage elevator dropping through shafts slick with condensation, the air growing progressively heavier and hotter the deeper you go. You emerge not into a sprawling subterranean vista, but into a series of interconnected, cathedral-scaled chambers, hollowed out of the raw, weeping bedrock.
+
+This is the deep-earth industrial settlement of Foundry-Deep.
+
+The heat hits you first—a physical weight, thick with humidity and the smell of warm machine grease, ozone, and wet stone. The temperature hovers permanently around levels that make physical exertion difficult; sweat evaporates instantly into the already saturated air, creating a perpetual, localized steam around every living body and hot engine.
+
+The geology here is young and violent. The cavern walls aren't smoothed by aeons of water flow; they are jagged, sheer cliffs of fractured basalt and unstable shale, looking as if they were torn open only yesterday. Water constantly bleeds from the rock face, slicking the surfaces and dripping down into tepid, oily pools on the uneven floor. There is no horizon, only the oppressive closeness of the rock ceiling, lost in the gloom above.
+
+Humanity has wedged itself into these raw spaces. The "city" is a sparse collection of brutalist structures built from pig iron and riveted steel, clinging like barnacles to the cavern walls or sitting on squat pillars rising from the sump water. There is a great deal of empty, shadowy space between these industrial nodes. Catwalks made of metal grating span the voids, vibrating with the activity below. Pipes of enormous diameter—some insulated and hissing steam, others sweating cold condensation—snake across the chasm, forming the primary architecture of the place.
+
+The lighting is dim and functional. Sodium-vapor lamps cast sickly yellow pools of illumination over work areas, leaving the vast majority of the cavern in deep shadow. Occasionally, the blue-white arc of a welder’s torch flickers high up on a gantry, momentarily revealing the terrifying scale of the rock face before plunging it back into darkness.
+
+The noise is tremendous. It is a relentless cacophony of stamping presses, the deep thrum of geothermal ventilation fans, the screech of metal on metal, and the constant, underlying sound of rushing water.
+
+Vegetation is almost non-existent. There is no sunlight to support it. In its place, slick mats of chemo-synthetic bacterial slime coat the underside of pipes and the edges of the warm pools in hues of rust-orange, violent purple, and oily black.
+
+But if plant life is scarce, animal life is horrifyingly abundant. The heat and moisture feed a staggering population of invertebrates that have adapted to the industrial ecosystem. The walls seem to ripple; look closely, and you see they are covered in a living carpet of pale, thumb-sized cockroaches and translucent cave crickets. Enormous centipedes, blind and ghostly white, hunt along the undersides of the catwalks. The sump pools boil with pale, eyeless crustaceans that feed on the organic waste sluiced out from the hab-modules. The air is thick with fungal gnats and heavy-bodied moths drawn to the hot lamps. Every surface you touch is likely occupied; every step you take crunches something underfoot. The chittering, scratching, and scuttling of billions of tiny limbs provides a high-frequency counterpoint to the industrial roar.
+
+Despite the noise and the life, the pace of Foundry-Deep is slow. Change is measured in the gradual accumulation of rust on girders, the slow drip-by-drip formation of mineral deposits on the pipes, and the patient, endless cycling of the great geothermal engines that power this sweating, buried world.

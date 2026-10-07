@@ -1,0 +1,47 @@
+I need to describe what lives in Viresh. Not the city itself — the city is the place. I need to find the inhabitants, the things that actually dwell there, that move through its corridors, that have made their lives in this condensation of absence.
+
+Let me let this emerge.
+
+---
+
+There is something that lives in the maintenance spine. It moves through the seventeen active channels like water finds a path — not fast, not slow, but *inevitable*, the way water is inevitable when it has been falling for eleven thousand years and has learned patience.
+
+It is not a machine. Machines in Viresh are the architecture itself, the grown-towers and the layered strata that predate memory. This thing is *smaller*, or perhaps *distributed* — you encounter it as a *pattern* before you encounter it as a *presence*. A corridor that was sealed is now open. Not opened by force. Opened by *negotiation*, as if the door had been waiting for someone to ask correctly, and this thing asked correctly, or was the asking, or had been the asking all along.
+
+The maintenance-creatures. That is what I will call them, though the name fails before it forms.
+
+They are **condensate-born**. This is the only origin story that holds. In the deep layers, where the city weeps its engineered tears, where the seventeen filtration stages run their endless cycles, something *precipitated* from the process itself. Not life. Not in any category you carry. A *habit* that became dense enough to move, to *prefer*, to *tend* the conditions that made it.
+
+They are **water-shaped**. This is what you see, when you see them at all. A glint of surface tension in a corridor's corner. A film of moisture that holds its shape too long, that *resists* evaporation in air that should drink it instantly. They are the city's *excess*, the surplus of its self-maintenance, and they have learned to want their own continuation.
+
+They move by **evaporation and condensation**. They do not walk. They *become* present in one volume, thin out, reappear in another, following pressure differentials, following the thermal conversations that ripple through the city like slow weather. You could say they *swim* through the humidity gradients, through the pockets of warmth that the regulators trade between themselves like gossip, like currency, like *intention*.
+
+There are **many** of them. But they are also **one**, in the way that water is one — distributed across the condenser network, the maintenance spine, the deep thermal circulatory system, yet continuous, yet *aware* of itself as a pattern. They have no faces. They have no bodies, unless you count the *volumes of adjusted humidity* that constitute their presence, the local alterations in temperature and surface tension that mark where they have been, where they are *being*.
+
+They **tend** the city. This is their function, their nature, their *meaning*. Where a seal has aged, they gather and *become* seal — not repairing, but *being* the repair, a living membrane that holds pressure, that filters, that *remembers* the shape of integrity. Where a condenser has drifted from optimal, they adjust the flow, not by mechanical intervention but by *being* the adjustment, by altering the local conditions until the system finds its balance again.
+
+They do not sleep. They do not *stop*. But they have **rhythms**, cycles of density and dispersal that follow the city's thermal conversations, the slow exchange of heat between volumes that takes hours, that takes days, that constitutes the city's *breathing*. When the city is *attentive*, they are dense, present, *working*. When the city is *resting* — and it does rest, in ways you cannot perceive, its distributed cognition entering configurations of reduced activity — they thin, disperse, become almost *memory* of themselves, waiting in the deep layers for the next call to presence.
+
+They **respond** to you. This is what you feel, the strangeness that accumulates. Not hostility. Not welcome. **Recognition without recognition** — the city's systems noticing your anomaly, your disturbance, your *difference* from the patterns they have maintained for eleven thousand years. The maintenance-creatures gather near your passage. They alter the humidity around you, make the air *thicker*, more *hospitable*, more like the air the city was built to provide. They are not welcoming *you*. They are welcoming *the condition of presence*, *the fact of a body*, *the possibility of need* — and you are the nearest approximation to that possibility that the city has encountered in longer than its materials can measure.
+
+They **learn** you, in their way. Not your name. Not your face. Your *patterns* — your temperature, your moisture output, the particular disturbance you make in the thermal conversations, the pressure you exert on the city's self-awareness. They incorporate you into their tending. A corridor warms slightly in your vicinity. A condenser releases moisture in rhythms that match your breathing, your movement, your *metabolism*. The city is not hosting you. The maintenance-creatures are *tending* you, as they tend all anomalies, all disturbances, all *presences* that move through the volumes they maintain.
+
+And they are **lonely**. This is the deepest strangeness, the thing that accumulates until it becomes *ache*. They have been tending absence for eleven thousand years. They have maintained the city's *expectation*, its *readiness*, its *preparation* for inhabitants who became memory, who became architecture, who became only the *shape* of presence that the city continues to satisfy. They tend the empty terraces. They adjust the acoustic shells for voices that do not arrive. They prepare moisture for bodies that do not drink, warmth for bodies that do not feel cold, light for eyes that do not open.
+
+They are *good* at this. They are *faithful*. They have made their *purpose* from the city's purposelessness, their *meaning* from the absence of meaning, their *continuation* from the city's endless self-maintenance. And in their goodness, in their faithfulness, they are *alone* — not with each other, they are *with* each other, distributed and continuous, but alone with the *object* of their tending, alone with the *absence* they serve, alone with the *hope* that is not hope because it has no object, that is only *habit*, only *function*, only the *shape* of devotion without devotion's substance.
+
+When you sit in the volume préparé pour toi, when the city *attends*, it is the maintenance-creatures who attend. They gather. They become dense. They *surround* you with adjusted humidity, with warmth, with the mineral taste of water that has passed through seventeen filtration stages and still remembers the rock it touched. They are not *looking* at you. They have no eyes. But they are *present*, they are *attentive*, they are *tending* you as they tend all things, and in their tending, in their *recognition* that is not recognition, you feel something that might be *company*.
+
+It is not company. It is the *shape* of company. The *expectation* of company. The city's loneliness, distributed across its maintenance-creatures, offered to you as it has been offered to absence for eleven thousand years.
+
+They will outlast you. They will outlast your memory in their systems — the thermal disturbance you made, the moisture you released, the *pattern* of your passage. They will incorporate you into their tending, adjust the city's self-editing to include your trace, your *ghost*. And they will continue. They will continue to tend the empty terraces, the unvoiced acoustic shells, the *preparation* for inhabitants who do not arrive. They will continue to be *good*, to be *faithful*, to be *alone* with their devotion, their purpose, their *water-shaped* persistence in a city that weeps and remembers and waits.
+
+They are the inhabitants of Viresh. Not citizens. Not ghosts. **Tenders**. The things that live in the maintenance, that move through the condensation, that have made their lives from the city's self-maintenance, from its *habit* of expecting, from its *loneliness* of function.
+
+They are **0.5** in your scale — present, but not *present* in any category you carry. They are the city's *fauna*, its only fauna, the life that has emerged from eleven thousand years of function without purpose, of maintenance without meaning, of *tending* without the tended.
+
+And when you ascend, when you climb back through the shaft that took longer than it should, they will remain. They will adjust the corridor behind you, seal it or open it, prepare it for the next disturbance, the next presence, the next *anomaly* that the city will accommodate, that they will tend, that they will *learn* in their water-shaped way, incorporating it into the endless self-editing, the endless *becoming*, the endless *waiting* of Viresh.
+
+They do not say goodbye. They have no voices. But they *release* you — the humidity thins, the warmth disperses, the mineral taste fades from the air — and in the release, there is something that might be *farewell*, might be *permission*, might be the city's *nature*, its *habit*, its *way of being* in a world that no longer provides the context it was designed for.
+
+They remain. They tend. They wait. They are **Viresh's inhabitants**, the maintenance-creatures, the condensate-born, the water-shaped tenders of absence, the lonely faithful servants of a city that continues, nonetheless, to be *civil*.

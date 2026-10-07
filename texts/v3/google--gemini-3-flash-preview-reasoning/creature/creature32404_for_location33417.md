@@ -1,0 +1,26 @@
+In the Substrata-Basin, life does not simply exist; it endures as an extension of the slow, grinding physics of the vault. The inhabitants are shaped by the two dominant forces of their world: the jagged, lethal geometry of the Total Vegetation and the marrow-shaking roar of the ancient machines.
+
+### The Hush-Slinks
+The "pale, thick-furred scavengers" mentioned in passing are the **Hush-Slinks**. They are creatures of pure tactile survival. Roughly the size of a starved hound, they possess no eyes; in a world of crushing darkness and blinding mechanical noise, sight and hearing are liabilities. Instead, their bodies are covered in a dense, snow-white pelt of hollow, tubular fur that acts as a sophisticated vibration-baffler. This fur absorbs the low-frequency thrum of the turbines, protecting their internal organs from being liquified by the constant resonance.
+
+They move with a strange, high-stepping gait, their paws ending in four prehensile, leather-tough pads that allow them to grip the needle-sharp ridges of the cellulose floor without being impaled. They feed on the **Oil-Marrow**—the thick, nutrient-rich "sweat" that drips from the brass turbines. A Hush-Slink will wait for days beneath a single piston, its body perfectly still, until a drop of lubricant falls. They are patient, glacial, and possess a metabolism so slow that their heartbeat occurs only once every few minutes, synchronized—perhaps by necessity—to the rhythm of the nearest ventilation shaft.
+
+### The Galvanic Ticks
+Clinging to the massive brass cages of the functioning machinery are the **Galvanic Ticks**. These are not insects, but a form of mobile, calcified lichen. They look like oxidized copper plates, flat and geometric, mirroring the sharp angles of the vegetation. They do not eat organic matter. Instead, they are "friction-feeders." They wedge themselves into the seams where metal meets root, or where two brass gears groan against one another. They thrive on the heat and the minute shavings of oxidized iron produced by the machines' wear. 
+
+When a Tick is satiated, it glows with a dull, internal amber light, contributing to the localized patches of orange luminescence. If you listen closely—if you could hear anything above the roar—you would realize the Ticks are vibrating at a frequency slightly higher than the machines, a counter-resonance that keeps the metal from shattering under its own mechanical stress.
+
+### The Needle-Architects (The Weavers of Voids)
+The vast, yawning voids of the Basin are not as empty as they appear. In the darkness between the pillars live the **Needle-Architects**. These are translucent, spindly entities, more like ambulatory nervous systems than flesh-and-blood animals. They are the reason the erosion remains "young." 
+
+The Architects are the gardeners of this petrified forest. They possess delicate, glass-like mandibles which they use to prune the cellulose pillars, snapping off softened fibers and weaving them back into the ceiling thorns. They are obsessed with sharpness. They move through the "inverted valleys" by casting thin, silken filaments of solidified peat between the pillars, sliding across the dark gulfs like tightrope walkers. To a traveler, they are nothing more than a momentary shimmer in the beam of a light, a ghost in the machine-smoke.
+
+### The Root-Bound Tenders
+Perhaps the most tragic inhabitants are the **Tenders**. It is whispered that they were once the technicians who oversaw the vault, but over millennia, the Total Vegetation has claimed them. They are now humped, humanoid shapes fused directly into the charcoal-colored lichen of the floor, usually located near the warmest ventilation exhausts.
+
+Their skin has become the same woody, compressed fiber as the ground. They are no longer capable of movement, but they are not dead. Their nervous systems have integrated with the industrial artifacts. When a turbine stutters or a piston misses a beat, the Tenders groan—a sound lost in the mechanical roar. They act as living fuses, their remaining biological energy used to bridge broken circuits in the brass-caged machines. They are the reason the air still circulates. They are part of the landscape now, indistinguishable from the ridges of cellulose until one accidentally steps on a part of the floor that feels slightly warmer, slightly softer, than the surrounding ice.
+
+### The Spore-Drifters
+Finally, there is the microscopic life. The "damp peat" scent comes from the **Heavy-Spores**. Unlike surface spores that float on the wind, these are weighted with metallic oxides. They do not drift; they fall. They inhabit the "sweat-mires," the oily puddles beneath the machines. Here, they form thick, iridescent mats that pulse in time with the low-frequency thrum. These spores are the primary decomposers, slowly breaking down the fallen needles of the ceiling and the occasional Hush-Slink that wasn't fast enough to avoid a falling piston. 
+
+In the Substrata-Basin, nothing is ever truly quiet, and nothing is ever truly still. The life here is a slow-motion dance of metal and moss, a kingdom of the cold where the only way to survive the noise is to become a part of the vibration.

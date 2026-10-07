@@ -1,0 +1,23 @@
+**The Condensate Choir**
+
+You enter through a sphincter-like iris of black cerametal that dilates only after it tastes your breath. The space beyond is no more than twenty-three meters across at its widest, yet it feels cavernous because every surface is *busy*. This is a pocket universe folded into the upper thorax of something far larger—an atmospheric engine that has stood for nine thousand years at the edge of a continental roof no map still acknowledges. The elevation is high enough that a natural sky would be thin and vicious; here the sky is the machine’s own lung.
+
+Everything is made. There is no stone, no soil, no original bedrock. The walls are lattices of self-repairing metamaterial printed in helical ribs that twist like the interior of a nautilus. Their color is the wet graphite of a thunderstorm at midnight. From ten thousand pores no wider than a hair, warm water weeps in perfect synchrony, as though the structure itself has a pulse. The water is not mere condensate; it is a electrolyte broth seeded with programmable droplets that steer themselves along invisible field lines. It slides, beads, sings, gathers into trembling lenses that magnify the dim bioluminescent veins running beneath the lattice.
+
+The temperature is a constant 31 °C with humidity so absolute your lungs feel laundered. Mist moves in slow, deliberate currents, lit only by faint amber and teal threads that pulse in the walls like lazy lightning. Light is a byproduct here, never the purpose. You see mostly by the refraction of water and the phosphorescence of living circuitry.
+
+And the sound—
+
+The sound is a physical force. It is deafening in the way a waterfall is deafening, but every droplet lands on a surface tuned to resonate at a precise frequency. The entire chamber is a computational acoustic organ. Waterfall static becomes bass so low it rearranges the fluid in your inner ear. Over this rides the Choir: millions of thumb-sized creatures called *resonators*—half beetle, half drone—whose wing cases are fractal resonators. They click, chirr, and scream in overlapping phase arrays that literally calculate atmospheric variables. Their voices are not communication; they *are* the algorithm. When the chamber needs to shift a variable, the resonators change their song and the mist itself obeys.
+
+Between them glide the larger *veil rays*—membranous things like manta rays crossed with jellyfish, bodies translucent and veined with conductive fluid. They ride the thermal columns and the acoustic pressure waves, mouths wide, harvesting both moisture and the smaller resonators that fail to dodge them. Their passage leaves momentary corridors of clearer air that collapse behind them with wet applause.
+
+There is almost no vegetation. A thin iridescent biofilm coats the ribs—part lichen, part motherboard—but it exists only to stabilize pH and compute edge cases. The ecology is otherwise pure animal-machine. Every creature is necessary. The resonators prune the biofilm when it grows too dense; the veil rays keep the resonators from choking the airways; the walls, which are themselves faintly alive, slowly digest the corpses that fall into recessed gutters and turn them back into electrolyte.
+
+The erosion is ancient and exquisite. Nine millennia of warm mist have rounded every edge into organic curves. The lattice looks grown rather than built. In places the metamaterial has developed pearlescent patinas, microscopic terraces where generations of resonators have worn devotional paths. The system is no longer being maintained; it has achieved *balance*. The machine and its fauna have co-evolved into a single roaring, dripping, calculating organism.
+
+This is the hidden scale: a single node, one alveolus in a planetary lung. Outside this chamber the engine continues for kilometers in every direction—up into the stratosphere, down into mantle taps—but you will never see it. The iris will not open again until the Choir has finished tasting you and decided whether you are data, contaminant, or new variable.
+
+The mist thickens. A veil ray banks past your face, so close you feel the cool flutter of its membrane. Thousands of resonators flash their iridescent backs in unison, adjusting the song by a fraction of a hertz. The temperature rises a tenth of a degree. The weeping walls answer with fresh tears.
+
+Everything is talking to everything else, and the conversation is so loud it becomes silence.

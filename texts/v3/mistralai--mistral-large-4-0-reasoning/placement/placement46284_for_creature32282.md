@@ -1,0 +1,15 @@
+I would find myself descending. The shaft narrows to the width of my shoulders, the air thickening with warmth (2.4) as I drop—not through stone, but through lithosynthetic basalt, pitted and streaked with mineral bloom, remembering molten heat and exhaling it into the chamber until humidity (1.7) presses against my skin from all sides, until my shirt clings, until the density (1.7) of the pocket wraps around me like a wet hand.
+
+Then I arrive.
+
+I cannot speak. The sound is physical pressure (2.8)—a roar like a waterfall heard through water, ten thousand wings beating in synchrony per cubic meter, the silver-black tide of the Chorus parting the humid press with a shriek that drowns thought. Beneath it, the resonant conduits thrum, a subsonic drone at the edge of hearing that vibrates in my sternum, in my teeth. Water drips, amplified by the chamber’s acoustics into hammer blows against the polished black ceramic below.
+
+And I am no longer merely a descender. I am being absorbed.
+
+I would be one of them. No larger than a thumbnail, fabricated from programmable matter and chitin-like polymers, yet I would have forgotten I was ever manufactured. I would be the Chorus—or rather, one voice in its roar, one beat in its wing, one silver-black fragment of a tide that flows from wall to wall. I would harvest: tasting the copper and salt on the tongue of the air, the faintly sweet engineered nectar off-gassing from the weeping walls, skimming the mineral film from the basin of standing water (1.8) that never drains, only cycles, reflecting not the ceiling but a twilight sky that predates the oculus.
+
+I would chase thermal currents rising from the beyond-modern tech, my wings beating in synchrony until the air itself becomes a pressure I wear like skin. I would be the garden’s immune system, its cleaner, its breath. When we shifted direction en masse—a thought propagating through the nervous system of the pocket—the water in the basin would ripple in sympathy, for we would not be separate from the liquid memory above; we would be its physical manifestation, its will given wing. My shadow would move a half-second slower than I do, existing partially in the water, partially in the rock, partially in the air—distributed, like the Minds that command us.
+
+But in this moment, I would be still. I would have drifted to the northwest corner, where the greenish glow from the oculus is dimmest (0.6), and I would press against the phosphorescent lichen clinging there like pale scabs. It would be the only vegetation (0.6), nearly absent, the memory of photosynthesis in a world of metal and water, pulsing with internal luminescence in time with the subsonic thrum. I would not eat it. I would tend to it, perhaps, or worship it.
+
+I would be the hand that gropes through the dark, tasting, cleaning, breathing. I would be loud (2.8), but in this corner, touching the green, I would also be quiet. I would be the constructed (2.9), yet settled into the wet dark as if born from it. I would be home in the roar.

@@ -1,0 +1,23 @@
+**The Cistern of the Hollow Choir**
+
+You enter a single, bounded chamber the size of a modest cathedral or a walled hamlet square. Every surface—floor, walls, pillars, vaults—is constructed. There is no earth, no bedrock, no natural substrate anywhere. The entire volume was raised, block by block, by hands using only stone tools, wooden levers, and simple copper chisels. The labor must have taken centuries. Now it has grown older than its makers.
+
+The scale feels both intimate and vast. The outer walls stand no more than two hundred paces apart, yet the builders left the interior almost empty. Massive pillars rise at irregular intervals like the ribs of something half-forgotten, spaced so widely that between them lie hollow plains of polished flagstone. The vaults overhead disappear into shadow. The eye falls through long, resonant distances before striking the next surface. Density is near-void; the air itself feels like a presence.
+
+Water is everywhere, but never as flood. It weeps. Every joint between the ancient blocks sweats slow, clear beads that slide down pillars in continuous silver threads. Mineral-rich droplets strike the floor with audible *plinks* that the stone architecture gathers and multiplies until the dripping becomes percussion. Shallow channels—cut by hand centuries ago—snake across the floor in geometric rivers no wider than a palm. They feed into rectangular basins and then vanish into slits in the far wall, only to reappear higher up in a closed, patient cycle. The air itself is cool and condensing; breath condenses on the stone. The temperature never rises above the memory of rain.
+
+Vegetation has been almost entirely refused. A thin black moss grows in the wettest seams like spilled ink. Here and there a colorless lichen spreads in perfect circles, but nothing green dares take root. The ecology has learned to live without it.
+
+Instead the fauna is riotous. The emptiness amplifies life rather than swallowing it. Clouds of pale midges swirl in slow galaxies. Blind white fish, translucent as wax, glide beneath the surface of every basin. Frogs—hundreds of species, some no larger than a fingernail, others bloated and warty—line every channel. Their croaking is not background noise; it is the architecture. The stone was cut to resonate at exactly their frequency. The calls rebound, layer, and thicken until the chamber booms with a wet, living thunder that vibrates in the teeth.
+
+Above them flit clouds of bats with wing membranes the color of wet bone. Long-legged wading birds—gaunt, almost insectile—stalk between the pillars on stilts of leg, spearing frogs with clinical precision. clicking crustaceans the size of dinner plates scuttle across the floor, their shells engraved by generations of mineral deposit until they look like miniature versions of the temple itself. Predator and prey move in visible, overlapping cycles. A bird strikes, frogs explode outward in green shrapnel, midges surge into the vacated space, and the chorus never ceases. The system is loud, active, and anciently balanced.
+
+Light is dim and sourceless. A few high slits near the vault allow in blades of grey daylight that diffuse long before they reach the floor. Some of the stone itself faintly phosphoresces where the mineral seepage is richest—sickly blue veins that pulse with the water’s own slow heartbeat. The effect is unsettling. You cannot quite tell what is light and what is memory of light.
+
+The strangeness accumulates gradually. The pillars are carved with spiraling, non-repeating patterns that seem to tighten when stared at too long. Certain basins overflow at predictable intervals even though the water input is constant, as though the stone itself exhales on schedule. Some of the larger frogs have developed a second, vestigial pair of limbs that end in tiny human-like hands; they use them to drum on the hollow pillars, adding new rhythms to the Choir. The bats never collide with the stone despite the darkness; they follow invisible corridors in the air that the builders may have shaped deliberately.
+
+Everything is in motion, yet nothing changes. Water weeps, frogs sing, birds hunt, minerals accrete, and the temple slowly, slowly heals its own erosion with fresh deposits. It has reached the state the old craftsmen perhaps dreamed of: a machine made of stone and living sound that no longer needs its creators. It has become its own ecology, its own weather, its own purpose.
+
+You are standing inside an organism built by hand.
+
+And it is still singing.

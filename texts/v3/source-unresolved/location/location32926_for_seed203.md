@@ -1,0 +1,33 @@
+The light comes from everywhere and nowhere. It is not the light of a sunbeam but of a whole sky pressed against a translucent ceiling—a vast, milky dome of ancient ice and compressed crystal that stretches beyond any horizon you can see. You are far beneath the surface of the world, yet the world above is bright: a polar glare, blue-white and diffuse, filtering down through kilometers of glacial ice in some places, and through open sinkholes and rift-fractures in others. The illumination is shadowless in its overall quality, but it casts sharp, black silhouettes of the things that grow here.
+
+This is a place of continental scale. Weather moves across it. Banks of mist roll through valleys that are not valleys at all, but the hollow spaces between growths. Fronts of spores drift like auroras, gray-green and luminous against the bright ice-ceiling. You could walk for days in a straight line and see nothing change, or see everything change. The ecosystem is that vast, and that turbulent.
+
+The ground is not ground. It is a substrate of living matter—a peat-thick carpet of mycelium, moss, and compressed detritus that has colonized every surface of the young, sharp rock. The erosion here is early-formation; the stone is fresh, fractured, unsoftened by time. Jagged basalt and limestone jut through the organic floor like broken teeth, and on these bones, the vegetation has built its architecture.
+
+The plants are total. They are the walls, the ceilings, the bridges, the cathedral. They rise in columns that are not columns but aggregated bodies—fungal-vascular hybrids, pale as bone, translucent in their youth, growing with a speed that makes a mockery of stillness. A shoot that was a finger-high nub in the morning may be a pillar by dusk. They grow in spirals that follow no natural logic, in fractal branches that seem to calculate their own support, in arches that span chasms and hollow out chambers within their own mass. The plant-matter is the architecture: you walk inside the chambered trunks, under canopies of frond-like membranes that sift the bright light into slow, shifting patterns.
+
+Yet despite this totality of growth, the place is empty. The density is near-void. Between these massive structures—these islands of living architecture—there are only kilometers of air. Vast, hollow, bright air. You stand on a platform of lashed fiber wedged into the hollow of a growth, and look across an abyss of space to another growth, another island, a kilometer distant. You can see mist moving in the far distance. You can see the sharp, black line of a collapsing structure falling soundlessly through the bright emptiness.
+
+It is cold. The temperature sits just above freezing, or just below, depending on the pocket of air. Frost coats every surface. The plants weep condensation—a constant, slow drip from their undersides, from their pores, from the ice that forms on their outer skins and melts in the slightly warmer microclimates near their cores. The water collects in pools that are dark, still, and near-frozen, occupying the hollows between the growths. It is damp everywhere, but never flooded; the water is always in the process of becoming something else—evaporating into the dry cold air, freezing into lace on the stone, dripping from membrane to floor in a rhythm that is almost, but not quite, a sound.
+
+The silence is absolute. This is a turbulent place—hyperactive, chaotic, a storm-state of growth and decay—but it is mostly quiet. The dynamic here is visual. You watch the plants grow: the visible extension of tips, the unfurling of membranes, the slow heave of a new arch forming. You watch them die: a massive structure, weakened by its own rapidity, collapses. It falls without sound. The impact is silent, or nearly so—a soft, fibrous thud swallowed by the vast space and the porous ground. Spores rise in a quiet cloud. The ecosystem is a time-lapse made real, a constant, quiet metamorphosis.
+
+There are builders here. They are rare—fauna, sparse and scattered across this continental hollow. They are a primitive people, or something like it: they use stone tools, flaked and hafted with bone and fiber. They work the plant-matter with hand-tools, cutting and lashing and weaving. Their structures are scattered, faint marks in the immensity: a platform of lashed poles wedged into the hollow of a growth; a cairn of white stones on a ledge; a small shelter built into the chambered interior of a massive trunk, its entrance marked by a curtain of woven lichen. They do not build cities. They build waypoints, shelters, marks. They are adapted to the silence, to the cold, to the vast emptiness. They move slowly, or rarely. You might find their tools—a stone knife left on a flat rock, a coil of fiber cordage—and never see them.
+
+The weirdness lives in the details. The plants grow toward the light with an intensity that borders on intention, spiraling upward in tight helices that defy gravity's indifference. The water sometimes seems to flow upward, wicking through the plant's vascular channels in visible, slow streams against the pull of the world. The mist forms patterns—geometric, drifting, as if the air itself were thinking. And when the great structures fall, they do not shatter; they fold, collapsing inward with a soft, silent origami, and in the space of a day, the wound is closed, new growth already knitting over the scar.
+
+Rules of the world:
+
+**Growth is visible.** The flora operates on a timescale of hours and days, not seasons. To watch is to see change.
+
+**Collapse is silent.** The massive structures fall without thunder. The world reshapes itself in quiet.
+
+**The ice above is the sky.** It glows with the light of the surface world. When surface night comes, this place goes dark, save for the faint, residual warmth of stone.
+
+**Water is transient.** It is always condensing, dripping, pooling, freezing, evaporating. It moves slowly, heavily, with the viscosity of cold.
+
+**Space is hollow.** The vegetation defines the architecture, but it does not fill the volume. The world is a series of vast, empty chambers connected by bridges of living matter, a cathedral with no walls but light.
+
+**The builders are sparse.** They do not dominate. They are a rare fauna in a world of plants, leaving marks that the rapid growth will soon obscure.
+
+This place is young. The rock is sharp. The ecosystem is a pioneer community, explosive and unstable. It is still finding its shape. The turbulence is the youth—the energy of a world being born, growing, collapsing, and growing again, in the bright, silent cold beneath the ice.

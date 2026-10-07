@@ -1,0 +1,39 @@
+I need to describe who or what lives on the World-Shelf of Keth. The place itself is so vividly rendered—let me let the inhabitants emerge from its particular conditions.
+
+---
+
+**The Keth-Voiced**
+
+They are the ones who *made* the hand-holds, but not recently. Not in any human memory. They are the ones whose wool became the fabric fragments, whose stone tools still rest near the quartz circle, whose presence is *compressed into the place itself*—the way the peat compresses generations of growth into centimeters of dark, springy depth.
+
+The Keth-Voiced do not have a number. They have a *density*. They exist in the way the shelf exists: intensively, horizontally, in the wet. They are small—smaller than you would expect for makers of such marks—but they are *thick* with adaptation. Their bodies have gone the way of the vegetation: low, matted, pressed close to the warm wet ground. Their skin is not skin exactly but a permeable membrane, a living interface between their warmth and the shelf's perpetual moisture. They do not dry out. They do not need to. The damp is *them*, is the medium of their being.
+
+They speak, if speaking is the word, in the frequency of the place. Their voices are the *bubble*-calls of the frogs, the susurrus of petals opening, the subsonic pressure that you feel in your sternum. They have learned to make sound *substance*, to use the resonance of the shelf as their language, their warning, their *naming*. When they gather—when the condensation peaks and the pool nearly touches its rim—their collective voice becomes the heavy breathing you hear from the ridges, the splash of something entering the water, the sudden silence that is not silence but *attention*.
+
+They eat what the shelf offers. The midges, certainly. The pale worms when they surface. The iridescent film from the pool, which they do not disturb so much as *negotiate with*, taking only what the film offers, leaving enough for it to reform, to continue its slow watching. They drink from the weeping stone, from the pool's edge, from the condensation that gathers on their own bodies. They have no agriculture, no cultivation—only *harvest*, the taking of what the place produces, the careful, respectful taking that allows the place to continue producing.
+
+They make things. The quartz circle. The stone tool. The arrangements of stones whose purpose you cannot determine. They make these things *slowly*, over years, over generations, the way the peat makes itself—layer by layer, compression by compression, intention becoming geology becoming *fact*. Their making is not separate from their being. The tool is an extension of their hand, but their hand is an extension of the moss, the peat, the weeping stone. They do not distinguish between themselves and the place they inhabit. To make a mark on the rim-stone is to make a mark on *themselves*, on their own slow erosion, their own persistent *wanting* to hold on, to be *present*, to be *here* where being should be impossible.
+
+They are not immortal, but they are *continuous*. When one dies—when the cool finally takes them, when their membrane dries and cracks, when their warmth equalizes with the shelf's mean temperature—they do not leave. They become peat. They become part of the substrate, the compressed memory of generations, the dark springy depth underfoot. Their bodies feed the moss pillars, the fungal networks, the closed system of water and growth and decay that is the shelf's ecology. They are *recycled* in a way that is not metaphor but *mechanism*, the literal transformation of their substance into the substance of the place.
+
+They do not have names, not in any sense you would recognize. They have *locations*. The one who tends the quartz circle. The one who watches the pool's film. The one who makes the tools, who works the stone, who knows the exact angle of flaking that produces an edge. They have *functions*, *roles*, the way the frogs have territories of a square meter, the way the insects have their hours of mating and dying. But these roles shift, merge, dissolve into each other. The tool-maker might become the pool-watcher. The pool-watcher might become the quartz-tender. There is no hierarchy, no succession, no *story* in the human sense. Only the endless, patient, *loud* continuation of being here, being *wet*, being *home*.
+
+They are aware of you. The marks you leave—the compressed peat, the warmer place on the weeping stone—they *notice*, in the way the shelf notices, in the way water notices dryness. They do not welcome you. They do not reject you. You are *weather* to them, a disturbance, the brief wetness of a passing cloud. But they are *curious*, in their way. The pool's film watches you. The spider in its web reads your vibrations. The Keth-Voiced themselves—if you glimpse them, if you see a low shape moving between the moss pillars, a membrane-skin catching the strange light—they *pause*. They *attend*. They do not flee. Flight is not an option here, where there is nowhere to go, where leaving is the same as staying, where the difference is *minimal*.
+
+They might teach you, if you stay long enough, if you let your body become permeable, if you learn to move more slowly, to think more slowly, to *be* in the wet. They might show you how to read the sound, how to make a mark that will last, how to take from the shelf without breaking the balance, without letting the water rise, without letting the sound stop, without letting the shelf *dissolve* into the nothing that surrounds it.
+
+But they will not hurry. They have all the time the shelf has. They have been here since before the quartz, before the tool, before the fabric. They will be here after you are gone, after your marks are compressed into peat, after your memory becomes indistinguishable from the place's own slow forgetting and remembering.
+
+They are the Keth-Voiced because they *voice* the place, because they make it *speak*, because they have learned to use its resonance as their language, their law, their *love*—the love of a being for the only home it has ever known, the love that is not feeling but *persistence*, the slow erosion of want made into *presence*, made into *place*, made into *this*—this shelf, this wet, this impossible, *alive* thing between stone and sky.
+
+---
+
+**The Watcher Below**
+
+And there is something else. Something that drinks from the pool through roots, through fungal threads, through the unknown metabolism of the mountain itself. Something that has no eyes, or has eyes you cannot recognize, that experiences this place as *home* in a way that excludes the Keth-Voiced, that includes them only as weather, as disturbance, as the brief wetness of passing *intention*.
+
+It is the shelf's own *awareness*, or the mountain's, or the water's—the emergence of something from the closed system, from the balance of weeping and drinking, of sound and silence, of growth and compression. It does not move, not in any way you can perceive. It does not *act*. But it *notices*. It *waits*. It *holds* the shelf in its shape, in its existence, through the resonance, the frequency, the subsonic pressure that you feel in your teeth, in the soft tissue behind your eyes.
+
+It is not malevolent. It is not benevolent. It is *hungry*, in the way that a place is hungry—for balance, for continuation, for the sound to keep singing, for the water to keep weeping, for the Keth-Voiced to keep making their marks, keep being compressed into peat, keep feeding the closed system, keep *being* what the shelf needs them to be.
+
+It drinks. It dreams. It *is*—the being of the place, the *thisness* of the World-Shelf of Keth, the crack between stone and sky where water makes its endless, patient, *loud* way through everything, through everyone, through the long cool hours of a home that has learned to be *home* to itself, and to whatever briefly, *wetly*, dares to join it.

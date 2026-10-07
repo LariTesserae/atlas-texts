@@ -1,0 +1,19 @@
+The world here has reached its final posture. We are on the **Table of the Sky**, a high-altitude plateau so ancient that the concept of a "peak" has been forgotten; the mountains have been ground down by quintillions of tides and winds into a series of flat, polished mesas that stretch toward a horizon of thin, violet-blue air. It is cold here—a dry, lung-aching cold that tastes of iron—but the air is never truly dry. It is damp with the labor of clouds.
+
+At this height, the atmosphere is a thick, visible soup of condensation. Intermittent mists, heavy as wet wool, roll across the flats, leaving behind a fine, beaded sweat on every surface. It is a "dampness" of proximity rather than immersion—you are constantly being kissed by the breath of the sky.
+
+The landscape is a **hollow city of bone-trees**. 
+
+Although there is no technology—no wires, no glass, no scorched fuel—the area is undeniably "urban." It is organized with a geometric intentionality that defies random growth. Imagine a hamlet-sized cluster of massive, pale, calcified structures that resemble a cross between a cathedral’s ribbing and a giant’s larynx. These structures, each three hundred feet tall, are arranged in a perfect grid, separated by vast, echoing plazas of smooth, black basalt. Despite the "urban" layout, the density is startlingly low. There is a profound sense of emptiness; the "buildings" are few, and the space between them is so vast that one could feel like a dust mote crossing a ballroom.
+
+These structures are the "vegetation." They are lush, but not in the way a jungle is lush. They are biologically dense—layered with thick, succulent mosses that are a deep, bruised purple, and draped in "air-veins," long translucent tendrils that pulse with the movement of cold sap. The moss is so thick it feels like walking on a mattress, muffling footsteps but doing nothing to stifle the world’s voice.
+
+For this place is **loud**.
+
+The ancient erosion has bored perfectly circular holes through the calcified rib-structures. Because the wind at this elevation is constant and aggressive, the city acts as a massive, multi-ton woodwind instrument. The air does not whistle; it *roars* in a low, subsonic thrum that vibrates in the marrow of your teeth. The landscape sings a discordant, ever-changing anthem of the atmosphere. It is a booming, rhythmic hollow sound, like the chanting of a thousand monks filtered through a storm.
+
+Movement is everywhere. The world is highly dynamic. The "air-veins" of the bone-trees lash back and forth in the wind like whips. The mists don’t just sit; they sprint across the basalt plazas, chased by the high-altitude sun. Because the light is "normal"—bright, clear, and unforgiving—you can see the violent speed of the weather cycles. A shadow will swallow you, the temperature will drop ten degrees, a brief flash of sleet will scour the stone, and then, thirty seconds later, the blinding clarity of the sun returns, turning the damp basalt into a mirror.
+
+Fauna is nearly non-existent. There is only the **Solitary Whistler**, a rare, kite-like creature with a body made of thin, leathery membranes. It doesn't fly so much as it anchors itself to the tops of the bone-trees, letting the wind play through its own perforated wings to add a high, piercing soprano to the city’s deep bass roar. They are lonely sentinels, rarely seeing another of their kind.
+
+The rules of this world are dictated by **stability and resonance**. Nothing new grows here, and nothing truly dies; the bone-trees have stood in this grid for an age longer than most civilizations last. They have settled into their final form. The erosion is finished. The city is "complete." It is a cold, loud, hollow temple to the end of time, where the damp air keeps the purple moss fat, and the wind ensures the silence is never allowed to return.

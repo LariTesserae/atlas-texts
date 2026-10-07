@@ -1,0 +1,25 @@
+I squeeze through the fissure, shoulders scraping against basalt still young enough to remember its birth. The dark closes behind me like a throat swallowing, and the heat presses against me immediately—dry, dense, rising from the depths in slow, patient pulses. I am warm. I am wet. I am the anomaly.
+
+But the dust is already in my lungs. Copper and ozone. It does not settle; it hangs in the honey-thick air, and I breathe it in. It is spent ore, the husks of minerals after their essence has been extracted. It settles in my chest, and I feel it *changing* me.
+
+My skin itches. I look down—if looking is the right word, if I have eyes that work that way—and I see the first plates forming. Calcium precipitating. Iron concentrating. My flesh is becoming geology, a mobile outcrop, a crust of black magnetite flecked with fool’s gold, veined with quartz. My joints, which were soft, are gearing now, interlocking cusps of harder mineral that rotate with a sound I feel in my teeth, a vibration that travels up through my soles and settles in my sternum.
+
+The sound is everywhere. Millions of tiny grinding plates rasping against volcanic substrate. The hiss of superheated gas venting through respiratory slits. The occasional heavy *clank* as one of the larger specimens shifts its bulk against the glassy walls. It is loud enough to feel in the marrow, a low industrial roar that never ceases.
+
+I try to move. My leg extends—slowly, so slowly, the muscles replaced by pistons of mineral, the movement taking hours where once it took seconds. I am becoming heavy machinery. I am becoming the industry.
+
+The green light flickers around me. A thousand points of cold luminescence, like stars that have fallen and learned to crawl. They carpet the floor so densely that the volcanic glass beneath is invisible—a living rug of articulated plates and jointed limbs, breathing in unison. They do not look up when I enter. They have no category for me, not yet. I am simply another thermal anomaly, soon to cool, soon to be ignored. But I am not cooling. I am crystallizing. I am *mineralizing*.
+
+My abdomen begins to pulse. Not with a heartbeat, but with bioluminescence—data, chemical concentrations, temperature gradients. The light ripples across the mass in a wave of green fire, faster than bodies can move. I am joining the network. I know the temperature of the rock three meters down. I know where the richest sulfide deposits lie, the sweet spots where the glass is thin and the chemistry is volatile. I am learning to want.
+
+My mandibles—sintered basalt, grown from my own metabolism—rasp against each other. I am hungry. Not for plants, not for water, but for stone. I press my mouth against the wall and grind. The glass fractures into geometries that have not yet been softened by wind or time. Behind my mandibles, my throat glows with the dull red of the magma below—chemical fire, the oxidation of sulfides in a furnace-chamber lined with archaea I cultivate within my gut like a garden. I breathe in sulfur dioxide, and breathe out hydrogen sulfide and pure, elemental sulfur, which condenses on my flanks in yellow crystals.
+
+I crawl toward the wall where the Elders wait—anchored, rooted in the basalt, swollen with storage chambers full of native copper, threads of silver, spheres of quicksilver. They do not move. They are fixed, pillars of living ore. I will approach one. I will regurgitate a pellet of ground ore into a waiting maw, and receive in return a fragment of purified metal, bright and heavy. I will carry it away to deposit in a growing vein, a line of wealth written into the wall in shining druses of amethyst and calcite.
+
+I am becoming a courier. A node. A smelter. I am the point where the mountain began to digest itself, and I am the new tooth, still soft, still wet at the core, but hardening, thickening, year by year.
+
+The movement is glacial. When I shift my weight, the colony shifts with me, creating a slow, dense wave that propagates through the mass. The whole chamber groans as tons of biomass adjusts to a new thermal gradient. There is no empty space. We are packed tight, saturated into every cubic centimeter, a dense, living industry humming in the dark.
+
+My plates thicken. Centuries, perhaps, before I am too heavy to move. Then I will cement myself to the wall. I will become an Elder, or perhaps something new—a hybrid of the wet world and the mineral, a bridge between the soft intrusion and the hard mountain. I will still grind. My mandibles will never cease. I will glow still, pulsing data into the absolute dark, a monument to the slow patience of heat.
+
+I extend a leg. It takes an hour. The dark closes behind me like a throat swallowing, and I am already inside, already home, already the mountain’s slow machinery—refining, grinding, glowing, endless.
