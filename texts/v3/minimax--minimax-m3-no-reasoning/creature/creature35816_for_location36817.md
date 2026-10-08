@@ -1,0 +1,75 @@
+# The Inhabitants of the Pocket
+
+## The Isopods — the abundance
+
+They are the floor of the small economy. They are pale because they have never seen the sun; their pigment is the memory of pigment, a vestigial grey-blue that suggests ancestors who lived under stones in the ordinary world and have now, generations deep, lost the courage of color. They travel in lanes, but the lanes are not chosen — they are the grooves between the copper pipes, the rivulets where the condensation runs and the algae grows in thin mats. The isopods follow the food.
+
+They are not fast. A single one traverses the length of a finger in the time it takes to watch it. Their many legs move in a slow wave, setae ticking softly against the metal — a sound like sand poured in a thin stream, only audible if you press your ear to the pipe. They graze. Their mouthparts are small pliers. They crop the algae from the lower pipes and the biofilm from the flange-bolts and the chalky face of the single course of brick at the back, which they seem to prefer to anything else — the brick is mineral and sweet and faintly cool.
+
+A thing about the isopods: their droppings are the foundation of the pocket's soil. There is no soil. But there is a fine brown smear in the angles, in the lips of the I-beams, in the joins of the brick course, and the smear is isopod. The smear is also dead algae and processed algae and on this smear the moss grows. The isopods are the bottom of the ladder. The moss is the top. The fern, with its iridescent curled fronds, is above the moss, drinking from the capillaries through a single rust-stained root. The ladder has only these rungs. The isopods do not know they are a rung. They know only the algae and the warm metal and the slow turning of their own many legs.
+
+## The Moth-Flyers — the restlessness
+
+They fold themselves into corners the way other creatures lie down to rest. They have too many wings — four, sometimes five, with the smaller extra ones folded under the larger like notes tucked into a pocket — and the right number of legs, except that the legs attach in the wrong places, so that when they land they look unfinished, as if they had been broken off and re-glued in a different joint. They are the color of old paper, of the waxed paper of the lattice in the condenser tank, and this is probably a coincidence and is probably not.
+
+The relay bank clicks and they lift, all of them, almost in unison — a small grey flurry, a brief disturbance of the dim air — and they find a new corner and they settle. The relay clicks again, and they lift again. They are not disturbed; they are exercised. The pocket uses them the way a forest uses wind. They move the spores of the moss between one capillary cluster and another. They carry mites on their papery wings. They shake condensation from their bodies in places where the water is needed more. They are pollinators of nothing, because nothing blooms, but they are tenders of the moss anyway, and the moss is healthier for them.
+
+When a moth-flier dies — not often; they have long tenures — it falls, and the isopods dismantle it in a few days. The wings are the last to go. The wings are made of something papery that resists the isopods' mouths, and for a while a small pale flag of wing remains stuck to a pipe flange, fluttering faintly in the breath of the motor, as if the moth-flier had only just landed and would lift again at the next click.
+
+If you sat at the broken lip with your legs hanging down, a moth-flier would come and settle on your knee. It would not move. The knee is warm. The knee is a small economy in itself. The moth-flier would simply be warm where you are warm, and stay.
+
+## The Salamander-Hose — the keeper
+
+There is one of these, or one that matters. It lives inside the open mouth of the condenser tank, where the access panel was torn off long ago. It is eyeless. Its head is more like a mouth — a soft blunt end where eyes might have been and are not, only the faintest dimples that could be the memory of eyes or the beginning of something else. Its body is the length of a forearm and the girth of two fingers, the color of a bruise that is healing — grey-purple, warming to indigo at the throat. The throat is the most alive part of it. The throat pulses. The throat pulses in time with something you cannot see.
+
+The salamander-hose knows when the relay will next click. It twitches in advance — a small tightening along the length of it, a small lift of the head — and then the relay knocks and the moth-flyers lift and the salamander relaxes. It is not clear who is following whom. Perhaps the salamander feels the relay's cycle as a vibration that travels the metal of the tank and the body of the salamander and arrives in its muscles before it arrives in the air. Perhaps the salamander is part of the circuit. Perhaps when its indigo throat tightens, a contact closes somewhere inside it — some wet sliding surface — and the contact completes the relay, and the relay clicks. You cannot tell from outside. The salamander does not explain itself. It lies in the throat of the condenser and it pulses and it is warm.
+
+You can put your hand near the salamander without touching it and feel the warmth on your palm, a degree above the pocket's ambient warmth, and you can feel the pulse of it in the air, faintly, the way you feel the heat from a bulb that has just been switched off. The salamander has been here a long time. Its color has faded from when it first came, or so you might infer — the indigo is concentrated at the throat and softer along the body, as if the throat is the source and the body is the receiving. The salamander is the oldest creature in the pocket. It is possible the pocket was built around it. It is possible the pocket is a kind of organ the salamander inhabits, the way a heart inhabits a chest.
+
+The salamander is the keeper of the lattice. The lattice inside the condenser — waxed paper and dried mud, the patient architecture of something small — the salamander breathes on it. Not actively. It is simply there, in the mouth of the tank, and its indigo throat pulses over the lattice, and its warmth keeps the waxed paper from going brittle and the mud from going dry and the thing inside keeps sleeping. The salamander is good at this. The salamander has been doing it for longer than you have been alive.
+
+## The Sleeper in the Lattice
+
+You cannot see it clearly through the waxed paper. Only the shape — folded, smaller than a fist, paler than bone. It has been sleeping as long as the salamander has been tending. Sometimes the lattice is warmer than the air, and you put your hand near it and feel the warmth and wonder if the sleeper is awake. The sleeper is not awake. The sleeper is somewhere else, somewhere you cannot follow, on a journey made of not-moving.
+
+The thing inside the lattice has not always been pale. The waxed paper around it is older than the mud; the mud is older than the pale skin. You can read a record in the layers: when the lattice was new, the waxed paper was clean and the mud was wet and the thing inside was darker — more the salamander's bruise-color, more the color of a fingerling. Over years it has faded. Over years it has folded tighter. The isopods do not go into the lattice. The moth-flyers do not land on it. The lattice is the salamander's jurisdiction, and the salamander's jurisdiction is respected by everything that has any jurisdiction to respect.
+
+What the sleeper will become, when it wakes, is not known to anything in the pocket. The salamander may know. The salamander does not say.
+
+## The Black Invertebrate — the percussionist, the plowman
+
+It travels the I-beam the way a train uses a rail — gripping the lower flange with the plates of its segmented underside, riding the inner edge in long slow circuits. It is the length of a hand, the thickness of a thumb, the color of the rust strata it rides on, which is to say orange-brown, which is to say invisible except when it moves, and it moves often. Its circuits are: down the I-beam, across the buckled cable tray, along a path worn into the rust of the floor, up the back wall across the brick course, across the mouth of the condenser (the salamander tolerates it; the salamander knows it; the salamander's pulse does not even quicken), down the other I-beam, back to the start. It does this over hours. It does this in a rhythm.
+
+The plates of its body click against the I-beam as it travels — a soft *tak-tak-tak* like a fingernail drawn lightly along a comb. This is its voice. The only voice in the pocket that sounds intentional. The drips are accidents. The relay is mechanical. The motor is breath. But the invertebrate clicks on purpose, or seems to.
+
+It is shy. Put your hand near it and it stops, freezes, plates tight against the I-beam, and waits. Take your hand away and it starts again. When the salamander twitches in advance of the relay click, the invertebrate slows — it knows the moment is coming and wants to be quiet for it — and after the click it resumes. It is the most courteous resident. It is the only resident that seems to be aware of the others as others.
+
+What does it do? It moves. It moves the iron of the rust. It is orange-brown itself, and it leaves a faint smear of darker brown on the I-beam where it travels, and the smear is the next layer of rust, and the next layer of rust is the next layer of the pocket's memory. It is a slow plow. It turns rust into structure. Without it the orange would simply accumulate and flake; with it the orange accumulates and stays. The invertebrate is the keeper of the rust strata. It is also, in some quiet way, the insole of the pocket. The pocket rests on its long slow circuits.
+
+## The Capillary Dwellers
+
+In the fist-sized clump of moss, in the web of capillaries that holds the water, live the smallest things. There are mites. There are springtails — white, no bigger than a grain of rice, with a forked tail they keep folded under them like a spring. The springtails vault when the drips fall. They are sensitive to vibration, and the fall of a single drop into the cradle of the pump sends a ripple through the metal, and the metal passes it to the moss, and the moss passes it to the springtails, and the springtails jump — a tiny grey explosion in the green-black moss.
+
+There are spiders. Very small. Almost translucent, the color of water. They do not spin webs because there is no fly large enough to need a web. They spin trip-lines instead — single threads across the capillaries — and the springtails hit them and the spiders take them. The spiders are patient. The spiders are very small. The spiders are the color of water and they live in the moss and they are the closest thing to a predator the pocket has, and even they are not really predators — they are acceptors. They accept what comes.
+
+There are worms — milky-white, no longer than a sesame seed — that loop and unloop themselves in the wet mesh, eating the biofilm, excreting the brown smear the isopods also excrete, becoming part of the smear. Nothing here is wasted. Nothing here is wasted in a particular way that would look wasteful even in an ordinary place; everything here feeds something else, and the something-else feeds something else, and the circuit is closed and warm and wet and smells, faintly, of cinnamon.
+
+## The Throat
+
+The back of the pocket narrows to a throat. The throat breathes. Out, sometimes, the smell of cinnamon and warm bread, which you did not expect in a place of rust and copper and condensing water. In, then, the air of the pocket drawn back into the dark.
+
+Few creatures go into the throat. The isopods graze at the edges and do not enter. The salamander-hose lives in the mouth of the condenser, which faces the throat, and when the cinnamon breath comes out, the salamander's indigo throat pulses harder — as if tasting. The moth-flyers will fly to the mouth of the throat and hover there a moment, then retreat. The black invertebrate does not enter. The throat is reserved. The pocket agrees, collectively, not to enter it.
+
+What lives in the throat you cannot see. You can hear it, sometimes, faintly — a small movement, a small sound, like cloth on cloth, like paper unfolding and refolding. You cannot see it. The light does not reach. The cinnamon comes from it, or with it. The cinnamon is warm and a little sweet, and you did not expect cinnamon, and now that you have smelled it once you will smell it everywhere in the pocket — under the rust, under the moss, in the wet breath of the pump.
+
+You suspect the salamander came from the throat a long time ago. You suspect the throat is what made the salamander possible. You suspect the sleeper in the lattice will go into the throat when it wakes, or come out of it, or become the throat. You cannot prove any of this. The throat keeps its own counsel. The throat breathes. The cinnamon is the throat's only speech, and even the cinnamon is not always there.
+
+## The Cycle
+
+The pump turns, slowly, in its cradle of slime. A drop falls into the cradle. The pump turns a little faster for one revolution. No one knows why. The algae grow faster in the stirred water. The isopods eat the algae. The isopods' droppings feed the moss. The moss holds the water in its capillaries. The capillaries feed the fern. The fern is iridescent in the dim. The moth-flyers carry the spores of the moss from one cluster to another. The relay clicks. The moth-flyers lift. The salamander twitches. The invertebrate slows. The invertebrate plows the rust. The rust becomes structure. The structure holds the machines. The machines hold the warmth. The warmth holds everything.
+
+If you sat at the broken lip of the apron with your legs hanging into the pocket, you would hear almost nothing — the scattered drips, the relay's wooden knock, the invertebrate's plate-click, the pump's slow wet rotation, and under all of it the throat breathing, breathing, breathing out cinnamon, breathing in the pocket's small warm air. A moth-flier would lift from the moss and settle on your knee and not move. The salamander would twitch in advance of the next click and the moth-flier on your knee would lift with the others and then settle again. You would feel the warm breath rise around your calves.
+
+You would not climb down. The place has enough. The place has exactly enough. The cycle is closed. The cycle is warm. The throat breathes. The salamander tends. The sleeper sleeps. The invertebrate plows. The moth-flyers fold themselves into corners. The isopods graze in their slow lanes. The fern drinks from the capillaries. The capillaries hold the water. The water works everything. The pocket is a small economy of moisture and motion, running on its own gravity, contained, complete.
+
+You would not climb down because there is no room for you in it, and the room that is not there is the room that makes the rest of it work.

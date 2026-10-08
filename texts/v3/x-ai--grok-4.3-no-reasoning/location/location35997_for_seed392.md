@@ -1,0 +1,15 @@
+Everything here was made.
+
+The land is low and level, a plain that runs in every direction until the eye can no longer parse where ground ends and air begins. The surface is not soil or stone but tessellated brick laid in a single unbroken sheet, each brick identical to the last, each seam sealed with black pitch that sweats under the constant sun. A bright white glaze coats the uppermost courses, turning every roof and path into a pale mirror that throws heat back upward; the reflected glare is so even, so complete, that no shadow ever lengthens and the light never appears to change position.
+
+At intervals of perhaps a hundred strides, masonry fountains rise from the same tiled floor. They are circular basins, waist-high, each rimmed by a lip of fired clay. Inside, water seeps rather than flows: a slow, thread-thin sheet that climbs the inner wall by capillary action, reaches the lip, and spills outward again to be re-absorbed by the same masonry. The basins never overflow; they never empty. They merely renew themselves, again and again, the only movement in a landscape otherwise without motion.
+
+Around each basin a ring of troughs has been set—long, narrow boxes of unfired mud brick that have somehow been baked in place by the heat they hold. The troughs contain a dense, spongy moss that is neither green nor brown but an ochre the color of old pottery. The moss fills the troughs to their edges; nothing grows beyond them. The moss never spreads, never dies back. It breathes a faint, warm vapor into the air, and the vapor gathers on the glazed tiles in a thin film that never thickens into drops, never evaporates, merely stays.
+
+Between the troughs and the basins the plain is empty. The bricks continue without interruption, their seams precise, their surfaces smooth enough to show no wear. Nothing is cracked; nothing is replaced. The emptiness is the material the city was built from, and it remains as it was laid.
+
+Sound here is only what is made: the soft drip of water returning to its own basin, the faint rustle of the moss respiring, and, if one listens long enough, the almost inaudible expansion of heated clay. These three sounds repeat without variation. No wind arrives to alter their pitch, no footstep disturbs the glaze.
+
+Birds—or things shaped like birds—appear at dusk, though dusk never deepens into night. They descend in slow spirals, land upon the lips of the basins, drink for exactly the same interval each visit, then ascend again. Their wings make no beat; they glide on the rising heat alone. When they leave, the surface of the water shows no ripple, only the same thin sheet resuming its climb.
+
+Farther out, still within the single plain, the same pattern repeats: basin, troughs, moss, emptiness, bricks continuing without end. The city—if it can be called a city—has no center and no edge. It was completed at the moment it was begun, and nothing has been added since.

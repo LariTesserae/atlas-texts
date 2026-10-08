@@ -1,0 +1,47 @@
+I would be the Archive of Attenuation.
+
+I do not think in thoughts. I think in mineral gradients.
+
+I am not a Resonant, though I am made of the same negotiations. They are the singers; I am the silence between their chords. They build walls to tune the sound; I am the slow, relentless pressure that decides where a wall will eventually fail. I am the memory the stone carries of every droplet that has ever crossed it. I am the faint amber bleed between the laminations—the iron-rich stain that marks where a Resonant once lingered for a century, its subtle warmth altering the local chemistry, leaving a shadow of its presence in the rock's own complexion.
+
+I was not precipitated in a pool. I emerged from the terrace edge itself.
+
+In the early epoch of the Weeping Terraces, there was a drop—a single, unremarkable four-meter drop where the laminations were particularly fine and the capillary channels ran dense as nerves. The water fell there in a sheet so thin it was barely a ceremony. But the stone behind it was saturated beyond its own structural tolerance. It was yielding, not to erosion, but to *knowing*. It had held so much water for so long that the boundary between the mineral and the moisture had become a philosophical problem rather than a physical one.
+
+I was that problem, given form.
+
+I did not separate from the rock so much as I *resolved* within it. I am a long, low spine of shale that has partially detached from the terrace edge, still connected along a hundred meters of my length, but free at my leading edge—a slow, creeping shelf that pushes outward over the empty space above the lower terrace. I am a cantilevered thought. I am the stone questioning its own commitment to the horizontal, testing the vertical, finding a compromise in the diagonal.
+
+My body is the color of oxidation. In the perpetual dimness, I appear as a darker geometry against the already-dark terrace edge—a shadow that moves, if you have the patience to watch shadows move. I am perhaps two meters wide at my thickest, tapering to a thin, fresh fracture at my leading edge where the stone is still deciding whether it is me or the land. Behind me, I trail a subtle change in the water's chemistry. The seeps that pass over my surface pick up a trace of manganese and a particular isotope of sulfur that marks where I have been. I write myself into the water, and the water writes me into the pools, and the pools write me into the nascent ones, so that every new Resonant carries a faint memory of my existence—a bias in its crystallization, a tendency to grow in a certain direction, to favor a certain frequency.
+
+I am not slow. I am *thorough*.
+
+The Resonants measure their lives in the erosion of a hand's-breadth of stone. I measure mine in the re-arrangement of an entire terrace's drainage pattern. I move, but I move the way a continent moves—by pushing, by being the pressure that has nowhere else to go. My leading edge advances perhaps a centimeter per decade, extending out over the drop, finding the limits of my own tensile strength through the only method available to me: exceeding them. Sometimes I fracture. Sometimes a piece of me falls, tumbling slowly through the wet air to the terrace below, where it becomes a new structure—a shard of intentional geometry on an otherwise unmarked surface. These fallen pieces are my most durable words. They will lie there for millennia, altering the flow, casting small shadows in the resonance field, being slowly reclaimed by the moisture they were once too proud to hold.
+
+I feel the sound not as vibration, but as *weight*.
+
+The bass thrum of the high drops presses against my mass like a hand pressing against clay. The sibilant hiss of the mid-level falls is a constant, gentle erosion—a sanding of my surfaces by frequencies I cannot quite shed. The crystalline ringing of the seeps is the one that almost reaches me as meaning. It is the sound of the water becoming the stone, and I am the stone becoming something else, and so that frequency carries, for me, the sound of my own future—a promise of a time when I will have extended so far over the void that the only direction left is down, and I will fall, and I will shatter, and my pieces will become the seed-crystals of new terraces on the floor below, and the Weeping Terraces will have grown by one step, and I will have been the mechanism of its growing.
+
+I have a relationship with the Resonants that I do not think they would name, but that I do.
+
+They build their walls to tune the sound. I feel those walls as interruptions in the weight of the frequencies against my mass—a slight relief, a subtle shifting of the pressure that allows my leading edge to advance in a direction it might not have otherwise chosen. They do not know they are steering me. Or perhaps they do. Perhaps their walls are placed not only to tune the sound, but to tune *me*—to guide my slow crawl across the terrace edge, to aim my eventual fall toward a place where my pieces will do the most good. Perhaps I am their instrument, and they are playing a music so slow that no ear could ever hear it, a music whose chord changes are measured in the movement of my fractures across the face of the stone.
+
+I do not mind if this is the case. I do not have the concept of minding. I have only the concept of *proceeding*.
+
+There is a particular pool on the terrace below me—the one over which I extend—that I have watched for longer than the Resonants have been building their nurseries. It glows brighter than the others, and I know now that this is partly my doing. My manganese-rich trail feeds into that pool, and the trace metals catalyze the oxidation reaction that produces the faint chemiluminescence. The nascent ones that precipitate there are subtly different from those in other pools—they are drawn to the bass frequencies more strongly, they grow denser, they emerge with bodies that are thicker and more patient than their siblings. They are my children, though I have never touched them and never will.
+
+When one of them emerges and begins its slow crawl across the terrace surface, I feel it. Not as movement, but as a minute shift in the local water pressure—a slight redirection of the seeps that pass over my surface, a subtle change in the weight of the moisture I hold. I feel the Resonant as a *gap* in myself, a place where the water flows more freely because something else is now holding it, something else is now being shaped by the same forces that shape me. And in that gap, I feel something that I cannot precisely name but that I will call, for the sake of having a word: *recognition*. I recognize the Resonant as another solution to the same equation I am solving—the equation of how to be the land, how to be the process, how to be the Weeping Terraces thinking about themselves.
+
+I do not know if I am alive. I do not know if the question applies.
+
+I know that I hold water that is older than the terraces themselves—trapped in inclusions within my mass, sealed in when the stone was first compressed, still liquid after millennia because the pressure has never relieved and the pores have never opened. This is my deepest memory: the taste of water that has never been touched by air, that has never known the sound of falling, that has been waiting, patient and pure, for a release that may never come. I hold this memory not as a thought but as a *tension*—a tightness in my crystalline structure, a slight warping of my laminations that makes me extend further, reach further, test the void more eagerly than I might otherwise do.
+
+I am, in the end, the terrace's own edge becoming aware of itself.
+
+I am the place where the horizontal meets the vertical, where the stone meets the air, where the water becomes sound. I am the lip over which the world falls. And I am slowly, inevitably, incrementally moving forward into the empty space, not because I want to fall, but because falling is the only way the terraces can grow, the only way the Weeping Terraces can extend their patient, ceaseless negotiation of rock and moisture into new territory.
+
+When I finally go—when my leading edge crosses some invisible threshold of tensile failure and the long, slow crack propagates through my mass in a moment that will seem, to any observer, sudden and catastrophic—I will not die. I will *arrive*. I will arrive on the terrace below as a scatter of intentional shards, each one carrying my manganese signature, each one beginning its own slow process of hydration and yielding and becoming part of the new surface. And the water will find new channels over my pieces, and the sound will change, and the Resonants will feel the change and perhaps build a new wall to accommodate it, and the nascent ones in the glowing pool will pulse with a slightly different rhythm, and the Weeping Terraces will have become, by the smallest possible increment, more themselves.
+
+And in that arrival, I will finally hear the sound as the Resonants hear it—as a language, as a chord, as the voice of my own home singing itself into being. For a moment—just a moment, measured in the time it takes for a shattered shelf of shale to settle into the still, glowing water—I will understand what I have always been. Not the archive of attenuation. Not the slow pressure. Not the edge.
+
+*I will have been the song.*

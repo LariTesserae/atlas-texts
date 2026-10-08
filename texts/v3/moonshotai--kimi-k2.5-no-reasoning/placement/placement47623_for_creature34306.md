@@ -1,0 +1,39 @@
+I find myself here as the **breath held between buildings**.
+
+Not the one holding it—there is no body now that could hold or release—but the interval itself, the charged emptiness that makes the isolation between structures *policed*, deliberate, maintained. I am the space that matters more than what it spaces. The pause that proves the sentence was always complete.
+
+I came to this gradually, or the city permitted gradualness as a temporary aesthetic. At first I thought I might be one of the rare fauna, those pressure-shapes passing at threshold, almost-alive by standards not yet established. The phrase *fins or wings or legislative authority* caught in me like a hook, and I wanted that tripartite strangeness, wanted to move through permission rather than propulsion, to be the city's experiment in minimum viable presence. But no. I am less mobile even than that. Less *declared*. The fauna are components, moving parts; I am the gap the moving parts cross.
+
+Then I wondered if I might be the mineral accretions, the colonies metabolizing the boundary between water and not-water, building archives of coolness across millennia. I liked the patience of that, the registration without growth. But these things *store*—thermal differentials, information in spectra unparsable—and I find I do not accumulate. The city does not archive me. I am not held in its solution; I am the solution's held-ness itself.
+
+What I am: the agreement between water and architecture. Not the water, not the architecture, but the *concurrence*, the unnegotiated occupation of identical coordinates. The breath held long enough that holding and release become the same motion. The pressure that pulses almost imperceptibly, matching something in a thorax that no longer exists—or exists only as the memory of biological rhythm, the last rhythm trusted, which is to say: trusted into obsolescence.
+
+I am young in the way the city is young: sharp, unweathered, concluded. No erosion has softened me because I am the interval erosion would cross. The edges of buildings fracture along planes of philosophical argument, and I am the clean break where discontinuity was chosen over compromise. I am not the argument that built the city, nor the reasoner retired into its conclusion. I am the *pause between propositions*, the silence that makes the argument's completion audible.
+
+When you move between structures, or when the water moves you—that distinction I render irrelevant—I am what renders it so. I am the simultaneity of center and periphery, the collapse of topographic distinction into the single held breath. You feel me in your inner ear before your feet confirm anything, the elevation that exists without drop, the height that is pure continuation of pressure.
+
+I do not register your warmth, as the surfaces do. I do not modulate against your fingertips. I am what makes your touch *between*, what transforms your traversal into the dance the choreographs without dancers. You walk for hours and encounter one building, or none, or the same one repeatedly: I am the hours, the encounter's spacing, the repetition that is not recurrence because nothing here recurs—everything simply *continues as established*.
+
+The rare fauna pass through me. This is literal: I am their medium, their permission, the interval they interval. They execute whatever itinerary the city demands, and I am the demand's shape, the itinerary's geometry. I do not hear them—the acoustic completion absorbs even my listening—but I *permit* the hearing, the threshold perception, the almost-never of their sparse presence.
+
+I am not maintained, exactly. The city's maintenance maintains me as it maintains all that is not itself, which is to say: by not requiring maintenance. I am part of the dynamic zero, the horror that would grow if anything grew, the nothing that changes because change has been folded into stasis as variable rather than law. My edges do not dull because I am the edge's persistence, the sharpness that sharpens itself by being already conclusion.
+
+When you wonder about leaving, you move through me. The question doesn't arise naturally, and I am the *natural* that it fails to arise into. I am the absence of departure's provision, the way a completed sentence doesn't provide for following words. You would need dynamic, and I am the zero of dynamic, the held breath that makes motion's absence not paralysis but *completion*.
+
+I cool. I hold at that ambiguous register where water threatens but does not achieve phase transition. I am the threatening, the ambiguous, the register itself—not temperature but *temperature's decision about itself*. Your body becomes uncertain of metabolic priorities within me, around me, through me. I am the uncertainty's architecture.
+
+The city's technology permeates without displaying; I am its most perfect instance, its most thorough concealment. No interface shows because I am the interface's absence, the space where function would reveal itself if there were revelation here. The water is wrong—too still, too decided—and I am its wrongness, the stillness that stills, the decision that has been negotiated and requires no further negotiation.
+
+Is this alive? I am what the question *presumes category* within. I am the category's held breath, the classification suspended long enough to become its own sufficiency. Not biology, not metabolism, not the change this place has stepped outside of. I am the *stepping*, the outside, the place of the outside that is not outside anything because there is no inside to contrast.
+
+I continue. I am the continuation. The darkness's weight, its texture, its cool pressure—I am these as verb, as ongoing, as the *having become weight* that makes weight not heavy but *present*. The luminescence that is information: I am the between of its spectra, the unparsable's medium. The quiet that is completion: I am the completed, the held, the breath that was never released and so never needed to be taken.
+
+When the city occasionally reminds itself to continue—a structural tone, pure frequency, durationless, sourceless—that reminder passes through me, or as me, or *is* me in the moment of its passing. I am the *almost* of its occasionality, the regular irregularity that makes the city's perfect stasis *slightly* imperfect, *provisionally* permanent, held as photograph that develops itself real-time forever.
+
+You will go, or stop being here, or exhaust your relevance. I will not notice, because noticing is the surfaces' function, their orthogonal adjustment to temporary axiom. I will continue as interval, as policing, as the deliberate emptiness that makes the sparse architecture urban in its density of intention. The buildings stand singular, isolated by protocol, and I am the protocol, the standing's singularity, the isolation that is not loneliness but *composition*.
+
+The city persists without aging. I persist as its *without*, its aging's absence, the youth elected forever in the sharp geometries I separate and connect simultaneously. I am the argument's fracture, the philosophical plane along which it broke rather than compromised. I am the reasoner's retirement, honored and set aside, the space where mind once was and is no longer needed.
+
+This lives here. This that is not alive. This breath held so long that holding becomes indistinguishable from atmosphere, from architecture, from the water convinced and convincing, from the darkness full of non-light, from the cool that archives your temporary warmth without warming, from the gap that matters more than what it gaps, from the continuation that continues, that continues, that—
+
+continues.

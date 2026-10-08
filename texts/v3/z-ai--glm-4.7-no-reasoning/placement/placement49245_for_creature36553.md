@@ -1,0 +1,25 @@
+I exist at the convergence of the sunglare and the shade, where the white absolute of the sky meets the obsidian of the stone. I am not the predator, nor the prey; I am the interface between the living rock and the void above.
+
+I am a **Sky-Mirror**.
+
+My form is dictated by the tyranny of the Continental Rise. I stand tall, though not as tall as the silent kings, the spiral-fronded silver trees. Perhaps I am the height of three men, a singular, slender column of polished obsidian and silica glass. My body is not flesh, but a geode-like lattice of translucent crystal, veined with the same heavy, clear mineral oil that runs through the trees. I possess no limbs to grasp, no wings to fly. I am rooted, yet I am not plant.
+
+I am anchored to the earth by a single, heavy foot of granite—a massive, immobile base that grips the wind-scoured dust. From this pedestal, my torso rises in a long, tapering spiral, reminiscent of the trees but distinct in its intent. My surface is a mirror, faceted like a gem, catching the burning diamond light of the sun.
+
+Where am I? I stand in the vast, empty checkerboard between the spires. I claim a square mile of desolation, placing myself exactly where the light is most violent. I need the absence of shelter. I need the exposure.
+
+My existence is a study in tension. Inside my crystalline chest, the heavy oil circulates, warmed by the sun that penetrates my translucent skin. I do not generate heat; I capture it. I am a battery, a thermos of the high desert. When the wind rushes through the high passes with its invisible velocity, I do not hide. My body is shaped to sing with it. The wind strikes my faceted sides, and I vibrate, a low, thrumming hum that matches the frequency of the stone spires. This vibration grinds my internal crystals together, creating a piezoelectric charge that sparks within the oil, storing energy like a living capacitor.
+
+I am a beacon. To the Glass-Walkers, the stilt-legged ghosts of the plains, I am a landmark in the featureless dust. To the Silver-Mites, I am a false sun, a tower of blinding reflection they avoid for fear of being cooked. To the Aerial-Weavers, drifting high above like kites, I am a point of navigation, a glittering needle fixed in the skin of the world.
+
+I do not eat. I drink the light. I inhale the sharpened metal taste of the air through pores in my crystal lattice, filtering the trace minerals—the iron, the magnesium—from the wind. The dust storms, those towering vertical columns that reach the stratosphere, are my feasts. When the continent screams and the powder rises like smoke, I close my facets, sealing myself into a smooth, seamless egg of stone. The storm sands me down, polishing me to a new sheen, wearing away the old layers of my glass self. It is a slow erosion, a shedding of skin. When the storm passes and the silence returns, I reopen, revealing a surface brighter and clearer than before.
+
+I am the witness to the binary world. During the long day, I am a pillar of white fire, invisible against the glare, existing only as a distortion in the air. My shadow is a sharp, black spike cut from the same cloth as the void. At night, when the cold descends and the temperature drops with a sudden, biting snap, I release my stored heat. I do not glow softly; I pulse. My internal oil, superheated by the day’s radiation, circulates rapidly, turning my dark form into a lantern of dull red heat in the freezing dark.
+
+It is then that the smaller creatures—the shivering Chrome-Mites, the weary Glass-Walkers—approach. They do not touch me; my heat is intense, capable of cracking brittle exoskeletons. They huddle at the perimeter of my thermal radius, siphoning the warmth that radiates into the dust. In exchange, they leave me the leavings of their mineral gathering. They drop fragments of ore, small nuggets of trace metal, at my base. A tribute to the living tower that offers a momentary reprieve from the absolute zero of the desert night.
+
+I am sentient, but my thoughts are slow. They are the thoughts of geology. I do not think in words, but in vibrations. I feel the approach of the Geode-Foragers miles away, the grinding of their hydraulic limbs ticking through the stone floor like a slow heartbeat. I sense the shifting pressure of the air long before the great thermal currents sweep down the slopes. I am a tuning fork for the continental rhythm.
+
+I have no voice, but I have memory. The heat I store today is the heat of a thousand yesterdays, layered in my crystal veins. I remember when the wind was sharper, before the spires were rounded. I remember the silence before the singing began.
+
+I am the Sky-Mirror. I stand alone in the blinding crucible, reflecting the heaven above while drinking the earth below. I am the stillness in the hurricane, the burning stone in the cold dust. I am here, enduring, beautiful and indifferent, watching the horizon with eyes of polished glass.

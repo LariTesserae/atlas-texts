@@ -1,0 +1,29 @@
+The first thing that fails is the silence. You expect a jungle to be a place of humid hush, punctuated by the distant call of a bird or the rustle of a monkey. But here, with the fauna parameter sitting at a flat zero, the silence is not an option; the vacuum has been filled by the roar of the vegetable itself.
+
+It is deafening. A cacophony of structural groans.
+
+The sound hits you like a physical wave—a low-frequency thrumming, like the bass note of a pipe organ played inside a cathedral of bone, overlaid with the sharp, chaotic *snap-crack-pop* of cellulose fibers expanding under tension. It is the sound of growth accelerated to the point of violence. Every stem, every vine, every leaf is straining against its neighbor, shoving and twisting in a turbulent, frantic scramble for light. There is no wind to carry the noise; the noise is internal, the sound of a trillion biological pistons firing at once.
+
+This is the City of Sap.
+
+The "urban" parameter is not a lie, but it is a misunderstanding of the word. There are no concrete foundations, no steel girders, no bricks or glass. The tech level is absolute zero—no tools, no hands to wield them. And yet, looking out across the basin, you see a metropolis. The vegetation here has achieved total plant-as-substrate saturation, and in its overwhelming abundance, it has begun to mimic the architecture of intelligence.
+
+Before you lie towers. They are not single trees, but conglomerates—strangler figs and woven lianas that have fused over centuries into massive, vertical structures that rise hundreds of meters into the warm air. They have arches and buttresses, hollows that resemble windows, and dense canopies that form "roofs." There are avenues formed by the unnatural alignment of giant fern-stalks, and plazas where the ground is a packed, knotted lattice of roots hard as iron. It is a settlement-scale infrastructure, but it is built by the blind, mindless urgency of photosynthesis.
+
+The light is normal, bright and blinding, filtering down through the chaotic overlay in shifting shafts of gold and emerald. It illuminates the "young" erosion of the landscape. This ground is fresh, sharp. The earth here is not ancient and stable; it is being born. You can see where massive root systems have heaved the crust upward, tearing jagged fissures in the soil, exposing raw, red clay that steams in the warmth. The hills are sharp-featured, rippling like frozen waves, caught in the act of emerging from the primordial sludge. The plants are eating the geology, turning rock into structure at a visible rate.
+
+And it is damp. The air is thick enough to chew. It is not raining, not exactly, but the humidity is so total that condensation is a constant architectural feature. Water drips from every leaf, runs down the "walls" of the vine-towers in slick, glistening sheets. The air tastes of oxygen and wet decay, a rich, heady perfume that makes you dizzy. Pockets of water collect in the massive bowl-shaped leaves of the canopy, creating miniature swimming pools suspended fifty feet above the ground, swaying with the turbulent motion of the towers.
+
+The density is suffocating. This is not a forest you can walk through; it is a thicket you have to shove yourself through, or climb over. The scale is open—you can see for miles across this green, sprawling metropolis—but the volume is packed. There is no empty space. Every cubic inch of air is occupied by a drifting spore, a glistening filament, or a stretching tendril.
+
+But the weirdness—the reality breakdown—is what unsettles the stomach. As you watch, the "city" doesn't just grow; it *reconfigures*.
+
+The rules of biology here are suggestions, not laws. You see a vine reaching out toward a neighboring tower, and instead of growing around it, the vine simply merges with it. The bark ripples like water, the two distinct entities blurring into a single mass of wood and leaf. A massive "building" of tangled bamboo suddenly shudders, emitting a high-pitched squeal of splitting wood, and then collapses inward—not from death, but from folding in on itself to form a new, denser shape. It is origami on a god-scale.
+
+There are no animals to witness this. No monkeys swing through these branches; no insects crawl on the bark. The ecosystem7 ecosystem is pure plant, a closed loop of aggressive, silent architects. The movement is the movement of the flora itself, twitching with a Solaris-like hyperactivity. Leaves turn to follow you not because of phototropism, but because the vegetation possesses a collective, stirring awareness that feels wrong.
+
+Looking closer at the "ground," you realize the dirt is merely older, compressed layers of fallen vegetation. You are standing on the corpses of older versions of the city. The layering is extreme—strata of moss, rot, and petrified root systems forming the foundation for the new growth.
+
+The dynamic turbulence never ceases. It is an anthill-energy scaled up to geological proportions. Somewhere to the east, a grove of giant fungal-caps explodes in a cloud of spores that looks like a nuclear mushroom cloud. To the west, a street of tall, reed-like structures bends and sways in unison, despite there being no wind, bowing to some invisible, rhythmic pulse of the earth.
+
+This is a place of pure, unbridled becoming. It is a loud, wet, hot, overcrowded metropolis built by none, lived in by none, and yet teeming with a presence so heavy it feels like the entire weight of the world is pressing down on your lungs. The air shrieks with the sound of sap rising, of fibers tightening, of a world that is trying to be everything, all at once, right now.

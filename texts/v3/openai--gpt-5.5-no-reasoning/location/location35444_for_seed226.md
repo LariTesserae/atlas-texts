@@ -1,0 +1,65 @@
+The place sits high on the shoulder of a mountain that is not quite finished becoming a mountain.
+
+Not unfinished in the sense of ruin. It has never been whole enough to ruin. The ridge is young, pale, and blunt, its stone still showing the softness of things lifted recently from under pressure. There are no grand canyons, no deep gullies, no eloquent scars of ages of rain. Water has not had time to carve a language here. It only rehearses: beads on new rock, gathers in shallow seams, darkens the dust, tests the edges of slopes that still look molded rather than cut.
+
+The settlement occupies a hollow no larger than a grove, perhaps the size of a small hamlet, but it has the ambition of a city. From above it resembles a plan laid down before materials were sufficient: ring paths, drainage channels, terraced plots, low walls, platforms, empty courtyards, roofed shelters, cistern mouths, and causeways crossing wet ground. It is urban as a diagram, not as crowd. Everything is arranged, aligned, named by use. Yet there are few bodies in it. Space is left between things as though the builders expected a population that has not arrived, or has not yet been born.
+
+The hollow itself is like a shallow bowl pressed into the mountain’s upper flank. Around it rise raw shelves of grey-green stone, smooth and swollen, sometimes veined with milky quartz, sometimes bruised with blue clay. The stone sweats constantly. Moisture condenses on its surfaces even when no rain falls. Clear droplets collect along ledges and fall at irregular intervals into basins below. Some rocks appear to be weeping from within, though there are no cracks large enough to explain the flow. The air is cool enough that breath can be seen at dawn, and by midmorning the vapors lift only reluctantly, snagging in the vegetation and under eaves.
+
+Water is everywhere but seldom deep. It moves as films, threads, skin, seepage. It lies just beneath the paths, making the packed earth tremble slightly underfoot. It fills narrow rills cut by hand rather than weather. It gathers in rectangular ponds lined with clay and flat stones, in hollows of root and moss, in split wooden troughs. The loudness of the place comes less from any single torrent than from the accumulation of small waters amplified by stone: dripping, ticking, spilling, knocking in conduits, glugging in jars, overflowing into reed beds, slapping under loose planks, tapping from roof edges. Sound ricochets against the young walls of the basin. Even when nothing moves visibly, the place murmurs as if rain has just ended or is about to begin.
+
+The vegetation is lavish, but strangely spaced.
+
+Within the bowl are dense clumps of alpine greenery: ferns with black stems, broad wet leaves the color of polished nettle, mosses thick enough to swallow a sandal, dwarf willows bent low from wind, pale flowering herbs, ropey vines trained along frames of split wood. The growth collects wherever water pauses. It makes islands and curtains and little rooms of green. Between these lush knots, there are open spans of stone, bare clay, vacant paving, and empty terraces waiting for roots. The contrast gives the place a hollow feeling: abundance gathered into pockets, with quiet intervals between.
+
+The plants seem older than the settlement and younger than the stone. They have taken quickly to the wet mineral ground. Their roots are shallow because the soil is shallow; beneath the dark mat of humus lies raw, cold substrate. In some places the roots clasp bare rock like fingers learning an object. In others, mats of moss creep over recently laid walls, softening them before they have fully weathered. New leaves shine with condensation all day. Touch any surface and water comes away on the hand.
+
+The town’s construction is simple, laborious, and intensely deliberate. There is little metal. Tools are stone, bone, fired clay, antler, hardwood, and occasional soft copper hammered thin for ritual hinges or measuring marks. Most buildings are low, made from stacked slabs, clay daub, woven reeds, and heavy sod roofs. The roofs sprout grasses and small white flowers. Drainage is the main architecture. Channels run everywhere: along paths, through thresholds, beneath sleeping platforms, around storage pits, across gardens, into settling pools. Some are beautifully made, edged with matched stones; others are merely finger-width grooves pressed into wet clay. There are sluice gates of wood weighted with river stones, but they move rarely, perhaps only with the seasons.
+
+The builders have not tried to dominate water. They negotiate with it.
+
+Each household, if these quiet structures are households, has a lip at the doorway to keep out shallow flows and a small inner basin where collected seepage is allowed to gather. The basins are not merely practical. Some are lined with smooth green pebbles arranged in spirals. Some hold floating leaves, carved sticks, or small clay figures softened by damp. Water entering the room is treated as a visitor who must be seated properly. No drain runs straight. Every channel turns at least once, often three times, before leaving a space. Perhaps straight-running water is considered impatient, unlucky, or rude.
+
+There are streets, though they are narrow and mostly empty. They wind between walls with the care of animal tracks. Their surfaces are made of flat stones still too clean-edged to have been worn by many feet. In the center of the settlement lies an open paved court, loud with dripping. It contains no market, no monument in the usual sense, but a cluster of upright stones set in an incomplete circle. The stones are not ancient. Their bases are freshly packed with clay. Lichens have only begun to find them. Water slides down their sides continuously, fed by grooves cut into their crowns. Each stone drips at a different rhythm into a ring-shaped trough below, producing a complex, arrhythmic clatter like many hands practicing a song separately.
+
+This court may be the heart of the city, or the instrument by which the city listens to itself.
+
+The light is clear but softened by moisture. At this elevation the sky can be startlingly bright when the cloud lifts, a high clean blue beyond the rim of the hollow. Yet the air inside the settlement holds a silver haze. Sunlight passes through it in visible sheets, catching on droplets, leaf edges, wet stone faces, suspended threads of spider silk. Shadows are neither deep nor sharp. Everything seems outlined and blurred at once. At noon the place glows. In the evening it darkens from below first, as water channels turn black while the upper leaves and roof grasses remain lit.
+
+The cold is mild but persistent. It lives in the stone and rises through the soles. Fires burn in a few sheltered interiors, smoky and fragrant with damp wood, peat, and bundles of resinous shrub. Smoke escapes through holes in roofs and then hangs low, reluctant to climb. It mingles with mist until the whole hollow smells of wet ash, crushed fern, clay, moss, wool, and mineral water.
+
+There are signs of inhabitants everywhere, but inhabitants themselves are scarce.
+
+A ladder leans against a wall. A bowl sits inverted on a stone. Fiber cords dry under an awning, though they never fully dry. A row of clay tiles bears thumbprints. Mats of woven sedge are rolled beside a doorway. On a work platform, someone has been shaping drainage spouts from hollow stems sealed with pitch. In a garden plot, tiny terraces have been reinforced with sticks no thicker than fingers. Everything suggests patient labor interrupted, or labor performed by very few people over a very long time.
+
+The settlement may have been founded by a small clan, or by pilgrims, or by the first generation of a people expecting many descendants. Its scale is peculiar: too organized for a camp, too empty for a town, too new for a ruin. It has public infrastructure before it has crowds. It has ceremonial hydraulics before it has surplus. It has streets waiting for footsteps.
+
+Fauna is rare. Occasionally a dark bird crosses the opening of the sky and vanishes beyond the rim. Small insects live among the mosses, but the cool keeps them slow. There are pale snails on the wet stone, nearly translucent, moving with the same patience as the seeping water. Once in a while, from the outer slopes, comes the distant bark of a fox-like animal or the thin whistle of a highland rodent. No herds pass through. No chorus of frogs fills the pools. The place is lush without being crowded by animal life, green without being busy.
+
+This absence makes the sounds of water and construction more pronounced. When a person works here, their tool strikes the whole basin. A stone mallet tapping a wedge can sound like a bell. A shovel entering wet gravel is audible from the far side of the hollow. Voices carry too clearly, so people speak softly or not at all. The town is loud, but not socially loud. It is environmentally loud, architecturally loud. It speaks in drips, echoes, clacks, overflow, hollow knocks, and slow subterranean gurgles.
+
+Beyond the settlement’s ring, the land rises in shelves. The terrain is raw, young, undecided. Ridges are rounded like the backs of sleeping animals. Slopes of pale scree sit at angles that should collapse but have not yet been properly tested by storms. Clay banks shine with moisture and bear the marks of recent uplift: folded bands, soft faults, seams where plant roots have only just begun to pry. There are boulders with no moss at all beside boulders completely furred in green, as if time arrives unevenly here.
+
+Because erosion is still only beginning, the landscape lacks the confident drainage of older mountains. Water hesitates. It spreads into marshy shelves, sinks and reappears, pools on flat rock, runs sideways along hidden layers. The settlement has been built to interpret these indecisions. Its channels and basins are not merely conveniences but arguments, suggestions offered to a young terrain: flow here, pause there, return under this wall, feed this bed, leave by that notch.
+
+The world seems to obey slow rules.
+
+Nothing changes quickly except the weather at the rim. The true processes are patient: moss thickening over a threshold; a seep widening by a fingernail’s breadth each year; clay settling in the bottom of a cistern; roots discovering a crack; a wall leaning almost imperceptibly under the weight of its living roof. The inhabitants, if one watches long enough, appear to work at this same tempo. They add one stone to a channel. They scrape silt from a basin. They tie a vine to a frame. They measure the fall of droplets from an upright stone. They wait.
+
+Perhaps they believe the town must grow no faster than the mountain can accept it. Perhaps every new structure requires a season of listening before another may be begun. A wall raised too quickly might divert a seep wrongly and sour a garden downslope. A roof laid in the wrong month might gather water meant for another house. Here, urban planning is hydrology, and hydrology is ethics.
+
+There is something unusual beneath the practical order, though not violently strange. The weirdness is woven into habits of matter. Stones bead water from dry-looking faces. Channels hum faintly when mist thickens. Certain moss patches pale at the edges when touched by footsteps, then regain color after an hour. The upright stones in the central court drip even during clear weather, and no one seems surprised. In one corner of the settlement stands a roofless chamber with a floor of exposed bedrock. It is always wet. On its surface, shallow natural ridges form shapes like streets, tributaries, or roots. The builders have traced some of these lines outward into the actual plan of the town, as though the city is being copied from a pattern sweating up through the mountain’s skin.
+
+That may be the deeper rule of the place: it is not built on the land but drawn out of it.
+
+The town is embryonic, a civic organism forming around water veins. Its walls are bones not yet hardened. Its paths are nerves not yet fully connected. Its gardens are organs beginning to function. It has a heart of dripping stones and a skin of moss. It is empty because it is early. It is loud because fluids are moving through it. It is lush because life has arrived before history. It is high, cool, and wet, suspended between cloud and rock, waiting for erosion, waiting for population, waiting for its own name to become true.
+
+At dusk, the hollow fills with blue. The last light rests on the upper rims while the settlement below becomes a pattern of dark water and pale stone. Droplets continue falling from eaves and leaves. The central stones keep their staggered rhythm. Somewhere under the paths, a hidden channel clears its throat. Smoke lowers itself into the lanes. The rare birds are gone. The snails continue across the walls, slow as weather.
+
+Nothing dramatic happens.
+
+A basin overflows by one finger’s width.
+
+A new thread of water finds the beginning of a groove.
+
+The young city listens.

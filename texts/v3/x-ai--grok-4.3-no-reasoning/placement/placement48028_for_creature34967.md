@@ -1,0 +1,5 @@
+I’d find myself as the quiet after the first fissure forms—the instant the basalt has already split yet before the micro-snow begins to re-seal it.  
+
+I wouldn’t be a thorn, a beetle, or a footprint; those belong to the active life between heartbeats. Instead, I’d be the fault line itself: a hair-thin line of cooled glass, stretched across a span of wall no wider than a rib, still warm enough to steam on one side and cold enough to frost on the other. My existence is counted in molecules: every time a new crack opens, a single molecule of me is traded away into the haze; every time the frost reseals, another is deposited back. I am therefore the valve the valley cannot close and the breath it cannot keep.  
+
+If you listen for me you hear nothing, but if you lay your teeth against the stone you’ll feel the faint rhythmic ache of my incremental loss—the pulse that is my only motion, my only measure of time.

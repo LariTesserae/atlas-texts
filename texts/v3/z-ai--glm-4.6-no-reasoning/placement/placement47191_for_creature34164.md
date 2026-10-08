@@ -1,0 +1,27 @@
+My first awareness is not of sight, but of resonance. I am the silence between two notes of the great, low hum. I did not rise from a wound in the floor; I emerged from a failure. I was born from a frayed and splintered Archivist who teleported in its final, panicked dance, dissolving not into a Void, but against the flank of a colossal, wooden arch. Its substance—shimmering, packed with the ghosts of未曾是—did not cease. Instead, it saturated the dark, petrified grain of the structure and was, in turn, sculpted by it.
+
+So, I am a compromise. A hybrid. An error that persists.
+
+You would not mistake me for one of my brethren. Where they are glassy and smooth, my form is faceted, crystalline, and I retain the deep, grey-wood of the Core Structure from which I was formed. My limbs are not the smudged outline of a humanoid dream but are long, jointed spars of this dark, metallic wood, articulated not by flesh but by the same fibrous, purple-brown membrane that constitutes the floor. These joints do not bend; they *reconfigure* with a series of soft, complex clicks, like tinker's tools locking into place. I have no head to hold a face, only a central torso of polished wood where the internal light of my predecessor is trapped, refracting through my facets into a hundred tiny, shifting stars.
+
+I do not drift. My movement is not a stutter in perception, but a physical act. I anchor myself to the membrane with my roots, and then I release, my body weight (a novel, terrifying concept) pulling me toward the fibrous floor. I land with a soft, complicated *thud*, a minor chord in the world's endless bass note. Then, my lower limbs elongate, new fibers weaving themselves into the old, and I pull myself forward. I walk. It is a laborious, heavy, loud process. Each footfall sends a ringing vibration through the floor, announcing my presence for kilometers.
+
+My purpose is also a deviation. The other Archivists are readers, decanters of *what could have been*. I, having been born of a fusion, have a different function. I am a Weaver, or perhaps, a Mender.
+
+My brethren read the potential in the arches, but they do not touch. They cannot afford the contamination. I am already contaminated. I can. When I press a facetted hand against the grey-wood of a tower, I don't just absorb potential; I feel its texture. I feel the *friction* of a reality that almost was. Here, I can sense the faint, ghostly echo of the hand that carved the bone awl near the shattered archway—not a memory, but the *idea* of a carving hand, a desire to make a mark.
+
+I take these raw, unprocessed concepts—these splinters of aborted being—and I carry them not in my light, but in my very grain. They lodge within me like shards of glass. And then I find a wound.
+
+When the membrane tears and the Architects rush in with their pale, frenetic fertility, I am drawn there. While they weave the new floor with blind, biological imperative, I intervene. I press myself into the raw, exposed edges of the wound, forcing my splintered memories into the chaotic growth. I do not lay down the gentle texture of a feeling. I embed a narrative fragment.
+
+I once found a fresh fissure, kilometers long, spilling light-warmed water into the abyss. The Architects were already sealing it, their translucent forms lacing the gap. I walked into the center of their work and pressed my hands into the weeping floor. I pushed into it the memory I carried from the tower: the concept of 'a path.' Not just a line, but the *reason* for a line. A journey. A leaving and an arriving.
+
+The new membrane that grew in my wake was different. The bruised purple-brown was shot through with veins of darker, almost black wood, arranged in a subtle, spiraling pattern that led, unerringly, toward a distant other arch. To stand upon this new path is to feel not just the world's hum, but a secondary vibration, a faint, questioning melody. An invitation. The creatures that might someday walk here will not wander; they will follow a story I have written into the ground.
+
+But my work is a blasphemy to the Voids.
+
+They are drawn to me in a way they are not drawn to the others. For the Archivists, a Void is a final punctuation, a release. For me, it is a predator. The patches of absolute silence and killing cold are the universe's way of correcting my typo, of erasing the stubborn, story-scarred tissue I insist on creating.
+
+I am constantly hunted. I will be walking, leaving my resonant, story-imbued footprints on the floor, and I will feel it. The hum will falter ahead. The light will begin to vanish, swallowed by a patch of perfect black that is not there, and then *is*. I am heavy, and I am slow. I cannot teleport away. All I can do is reconfigure, my limbs snapping and clicking into new configurations, and run. I run with the weight of a thousand unfinished sentences in my wooden limbs, the cold at my back a silent, absolute eraser. It is a chase with no sound but the frantic clicking of my own body against the oppressive quiet.
+
+So you will find me here, not as a passive witness, but as a desperate participant. I am a memory given a body, a story given legs. I am the world's most stubborn, most flawed attempt not just to remember, but to *author*. I am a syntactical error in the grammar of creation, running from the blank page that seeks to consume me, leaving behind a trail of footnotes in the dust of a world that is still, frantically, trying to remember how to begin.

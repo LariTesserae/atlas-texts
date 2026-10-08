@@ -1,0 +1,49 @@
+The bottle-glass birds are the loudest thing in the clearing that is not the steam. They live in the cane and the ferns and the densest tangles of the bamboo at the rim, and they are the size of a thumb, and they are the color of bottle glass — that deep pearly green of bottles that have been buried a long time and brought up wet, with the sheen of something that has learned to hold light inside itself rather than reflect it. They shimmer when they turn their heads. They shimmer because the feathers themselves are doing it, and the feathers have been doing it for so long that the shimmering is not a thing they do but a thing they are.
+
+They do not know what the boilers are. The boilers are a warm hill. The warm hill has always been warm. Their great-grandparents lived on the warm hill. There has never been a time for them in which the warm hill was anything other than the warm hill, and they have no word for boiler, and they have no word for steam, and the sound the boilers make is so much a part of them that they would not think to name it any more than you would think to name your own breathing. They sing because the insects are endless and the air is soft and the gold has always been gold. They are happy. They are the settled happiness of small creatures in a place that suits them.
+
+They do not fly away when you come close. They turn their heads to look at you and then they turn their heads back to their singing. You are a new thing. New things come sometimes. The system absorbs them, and they become the system, but the system is not in a hurry.
+
+---
+
+The mice are rust-colored. Not brown. Not red. Rust. The color of the silt. The color of the water. The color of what the boilers have been weeping into this basin for longer than the cane has been cane.
+
+They live in the iron. They live in the seams between the plates, in the small pockets of air the rust has not yet filled, and they come out onto the rivet heads to wash their faces. They wash their faces in a particular way — front paws together, small quick strokes, eyes half-closed — and they do this in the gold light, on the warm iron, and the iron holds the warmth and the warmth holds them and they are not afraid of you. They are not afraid of you because the system is not afraid of you, and the system is not afraid of you because nothing in the system has ever been a threat, because threats would change the system, and the system does not change.
+
+They have the shape of mice. They have the small quick movements of mice. They wash their faces like mice. But they are the color of rust, and they live in the iron, and the iron is rusting into them and they are rusting into the iron, and the boundary between mouse and iron is not a clean one. If you picked one up — you do not pick one up — it would be warm in your hand, and its small bones would feel like small bones, but its fur would be coarse, and the coarseness would be the coarseness of iron filings, and it would smell like the water smells, like rust and warm silt and the faint sweetness of the steam.
+
+There are several of them. You can see them on different rivet heads at different distances, each one washing its face in the gold light, each one a small rust-colored domestic scene against the dark iron. They are not watching you. They are aware of you. The awareness is in the way their small ears move, the way their whiskers twitch, the way they pause for a moment in the washing and then resume. The awareness is the awareness of a thing that has been here longer than you and will be here longer than you and has decided that you are not a threat.
+
+---
+
+The insects are what the birds are happy about. The insects are endless. The clearing without insects would be a clearing without birdsong, and a clearing without birdsong would have only the steam for company, and the steam alone, for all its steadiness, is not enough.
+
+The insects are of many kinds. There are midges in the columns of vapor — small dark things, rising with the steam and falling back when the steam loses them, doing this all day, the same rise and fall, in the gold. There are beetles on the iron, slow and dark, with the small click of their steps joining the larger chord. There are moths, pale, almost translucent, drawn to the warmth of the boilers, resting on the warm plates with their wings folded, and their wings have a faint steam-veining on them, a pattern that looks like the paths the vapor takes through the air. There are crickets in the cane, and their clicking is what you hear when the cane itself clicks, and after a while you cannot tell which is which. There are ants in long disciplined lines along the seams of the iron, carrying small things, going somewhere with purpose. The purpose is unclear. They have been going somewhere with purpose for a long time. They will go on going somewhere with purpose.
+
+And there are things you do not see. Larvae in the rust-colored silt. Larvae in the cane. Things that live in the seams where the steam comes out, things that are themselves a kind of steam, almost, so adapted to the warmth and the wet that they have taken on the translucent quality of the vapor. They are everywhere. They are the substrate the other insects live on, the way the silt is the substrate the cane lives on, the way the cane is the substrate the birds live on.
+
+---
+
+In the water there is something. You do not look at it directly. The clearing does not look at it directly. The system keeps it, the way the system keeps the gold in place — without effort, without force, by the simple fact of being a system and being itself.
+
+It is a small splash. The kind of small splash a small body makes when it moves just under the surface — the kind you might miss if you were not listening, but the clearing is so still that the splash is loud, and the splash is the only evidence. It moves between the hummocks of root. It moves without disturbing the dark glass of the surface much. It is the color of the water, or paler, or darker — you do not know, because you do not look.
+
+It is not alone. There are more than one. The splashes come in different places, at slightly different intervals, and you begin to understand that the marsh is full of them — the marsh is a city of them — but they live below the glass and they prefer it that way, and the system prefers it that way too. The system keeps them below the glass. The glass keeps them. The dark keeps them. They are a kind of secret the clearing has agreed to keep with itself.
+
+If you were to look — if you bent down, if you parted the water with your hand, if you held your breath and looked into the dark glass — you would see something pale. Something long. Something with small legs or no legs. Something with very small very dark eyes on a pale head, watching you back. It would not be afraid of you. But it would not wish to be seen, and the not-wishing would be so strong that you would find yourself looking away, and then looking back, and the splash would have moved, and the glass would have closed over where it was, and you would not be able to say, afterwards, exactly what you had seen.
+
+---
+
+The cane-stalks with the clicking joints are part of the system, and they are inhabitants in the way that the iron is an inhabitant, in the way that the steam is an inhabitant. They live in the rust-colored water. They drink the rust. They grow up through the seams of the boilers and find the gold light at the top, and they put out leaves the shape of hands — the hands open, the hands receiving. The ferns are the same. The ferns grow in the damp of the seams where the steam comes out, and they unfurl in the gold, and they are the greenest things in the place, and the greenest things are the ones that drink the rust.
+
+The bamboo at the rim is older than the cane. The bamboo was here before the lid of steam became weather. It has been growing around this clearing for a long time, and it is dense, and you have to turn your shoulders to pass through it, and it holds the clearing in. The bamboo is the rim. The bamboo is what the clearing is a clearing inside of. Without the bamboo the steam would dissipate. Without the bamboo the gold would not stay gold. The bamboo holds the place in its shape the way a hand holds water — gently, and for as long as the hand chooses to hold.
+
+---
+
+And there are the things that were once other things.
+
+The system absorbs new things, and they become the system. This is what the system does.
+
+You can find them if you look, in the silt, in the iron, in the cane. A feather that has become bottle-glass and stayed where it fell. A button from a coat, half-rusted, held in the grip of a fern's rootlets. A small bone, picked clean, lying in the rust-colored silt — the kind of bone a bird might have, but the bird is gone, or the bird has been absorbed, and the bone is being absorbed too, slowly, and in a hundred years it will be a stain in the silt and in another hundred years the stain will be the silt itself, indistinguishable, the silt remembering nothing. A length of string that has become part of a vine, the fibers married by time and damp. A piece of paper, softened, illegible, gone fibrous, becoming the floor of a bird's nest. A piece of something once metal that is now mostly rust, recognizable only as a shape, the shape of a small thing a person once carried.
+
+The system is patient. The system is willing to wait. New things come. They become part of it. They do not resist, or they resist for a while and then they stop, and the system holds them the way the system holds the gold in place, the way the system holds the steam in place, gently, without effort, for as long as it takes.

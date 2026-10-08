@@ -1,0 +1,15 @@
+{
+  "source_id": "moonshotai--kimi-k3-no-reasoning",
+  "requested_endpoint": "moonshotai/kimi-k3:no-reasoning",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-10-08",
+  "date_last": "2026-10-08",
+  "texts": 496,
+  "by_type": {
+    "location": 250,
+    "creature": 246
+  },
+  "evidence_grades": {
+    "event-observed": 496
+  }
+}

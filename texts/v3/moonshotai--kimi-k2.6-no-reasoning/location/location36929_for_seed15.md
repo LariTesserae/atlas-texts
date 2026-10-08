@@ -1,0 +1,75 @@
+The Bell is sinking.
+
+Not falling—sinking, with the patient inevitability of a breath held too long. It has been descending for seven generations by the count kept in knotted cord, though no one living remembers when it hung still, when it rang, when its bronze throat opened to anything but the steady *gloom-gloom-gloom* of water swallowing its clapper stroke by stroke.
+
+You find it through a wound in the harbor. The city above—if city is the word for the raft-colonies of lashed coracles, the suspension bridges of woven kelp-husk, the pneumatic towers that wheeze and flex with the tides—has forgotten this place exists. Or remembers only as we remember the architecture of dreams: with unease, with a sense that something important happened here but the specifics curdled into discomfort. The wound is a maintenance shaft that became a flooding channel that became a throat. You swim downward through warm water the color of old broth, light filtering from the surface in attenuated shafts that lose their courage by forty feet.
+
+Then the architecture begins.
+
+The Bell Chamber is perhaps sixty feet in its longest dimension, though perspective behaves strangely here. The walls, the floor, the structures that grow from them like calcified intention—they are all of one substance: a ceramic the color of teeth, or old bone, or the inside of a shell held to sun. The builders—let us call them builders, though they may have been something else entirely—worked this material when it was soft, shaped it with tools of harder ceramic, fired it in place with methods that left no ash, no signs of combustion. The surfaces bear the faint irregularities of hand-work: thumb-prints in the glaze, places where a smoothing stroke hesitated and left a ripple.
+
+And everywhere: water. Warm water, 86 degrees perhaps, the temperature of mammalian blood, of amniotic shelter. It fills every space, presses against every surface, has infiltrated the material so completely that the ceramic seems less a solid than a liquid arrested in its ambition to flow. Light comes from the Bell itself—this is the strange mercy of the place. The metal, that dull green-gold alloy they had before they learned to name alloys, throws off a phosphorescence that suffuses everything with the warmth of late afternoon through closed eyelids. You can see the algae that have colonized the upper reaches: not the lush gardens that choke harbor ropes above, but sparse, etiolated filaments, each one a careful investment of energy, spaced with the thrift of desert plants. They photosynthesize what trickles down from the wound, what the Bell's own radiance spares them. Their green is the green of scarcity, of prayer.
+
+The sound. You must understand the sound.
+
+The Bell's clapper, that massive tongue of the same alloy as its mouth, moves in the current. Not with the tidal predictability of the world above—this is not ocean, not properly; call it architectural water, water that has agreed to stay, to participate in the made—but with a slower rhythm, a metabolism. Something in the Bell's alloy reacts to the pressure, to the depth, to the accumulated years of being below. The clapper drifts left, strikes the inward curve with a note too low for human ears to hear as pitch, only as *presence*, as the sudden conviction that your heart has changed its timing to accommodate something larger. Then the rebound, and the strike on the opposite wall, and the reverberation that builds in the warm water until your body becomes a resonating chamber, until your teeth hum with harmonics your ears cannot process.
+
+It is loud. Not the loudness of damage, not the jackhammer or the explosion. The loudness of *occupation*, of sound so continuous it becomes environment, becomes something you do not hear so much as exist within, the way a fish exists in water. Divers who have stayed too long—and they have all stayed too long, drawn by something the note awakens—report that in the silence after surfacing, in the gasping air-world, they miss it. They describe the surface world as *thin*. They weep, sometimes, for hours. The knots of their cord-count include warnings: *Do not sleep in the Bell's hearing. The dreams are not yours.*
+
+The structures. I have not described the structures.
+
+They are not, properly speaking, buildings. The Bell Chamber is not a city, not a ruin. Think instead of the interior of a body: the ceramic grows in forms that suggest function without achieving it. Here a series of cupolas like the alveoli of lungs, branching and re-branching, each chamber large enough to curl inside if you could find purchase in the slick glaze, each one open to the water, unfloored, unceilinged, geometries of inhalation arrested mid-breath. There, a spine of vertebrae the size of wine barrels, each segment pierced with holes of varying diameter, the whole thing curved in a loose spiral that draws you downward if you follow it, draws you to the Bell's bronze thunder.
+
+The builders made these things with hand tools. You can see the chisel marks where a harder ceramic struck softer; the abrasion patterns where something was ground, patiently, in circular motion, for days. No metal. Or rather: the Bell is metal, but it is not *of* this place, it is *in* it, sunk into it, perhaps sunk before the ceramic grew around it, perhaps sunk *into* ceramic that grew to receive it. The dating is impossible. The ceramic does not yield to analysis. It is not young in the way a child is young, full of becoming. It is young in the way a wound is young, still learning its final shape, weeping its water instead of blood.
+
+What grows here, besides the sparse algae?
+
+Very little. The warm water, the brightness, the sound—they do not conduce to life as we understand it. There are films on some surfaces, bacterial perhaps, sheets of pale luminescence that peel away like old skin when disturbed. In the deepest crevice yet found, where two alveolar cupolas join in a geometry too complex for hand or current to easily reach, a kind of coral has established itself: not the branching exuberance of reef-builders, but a flat encrustation, the dull white of old scars, growing outward at rates measurable only in generations. It is not hungry, this life. It is *participatory*, agreeing merely to exist, to mark time with calcium, to outlast the Bell if such a thing is possible.
+
+No fish swim here. No crustaceans pick their way across the ceramic. The divers bring their own shadows, their own bubbles of used air, and these seem sufficient fauna for the Chamber's appetite.
+
+The rules.
+
+You are waiting for the rules. Every place has them, and this one, so made, so constructed, so obviously the product of intention, must have them in abundance.
+
+Here is what is known: The water is warm, but you cannot warm yourself in it. The longer you stay, the more your own heat seems to leach not outward but *downward*, into the ceramic, into the Bell's patient hunger. Divers report numbness that begins in the chest, that spreads not to the extremities but to the *intention*, the will to move, to return. The cure is to leave, to claw back up through the broth-colored water to the world of air, to shiver for hours as your body remembers its own fire.
+
+The sound does not stop, but it *notices*. On days when many divers enter—researchers, looters drawn by stories of Bell-metal, the occasional pilgrim from the raft-colonies seeking the source of their unease—the note changes. Not in pitch. In *attention*. Divers have described the feeling of being *held* in it, of becoming part of the resonance, the way a held note in a cathedral seems to belong to the stone. The cord-knots are explicit: *When the Bell listens, be silent. Do not speak your name. Do not think of the surface. Be as the water is: present, without intention.*
+
+And the youngness. The erosion that has not yet happened.
+
+The ceramic cracks. This is the mystery that keeps the researchers returning despite the numbness, despite the dreams that are not theirs. Hairline fractures appear, run, heal. Not heal, precisely: *change their minds*. The crack that began at a cupola's apex stops, turns, becomes a faint ridge in the glaze, a memory of possibility. New formations emerge: a brace of alveoli where none existed, grown somehow without growth, present in the way a photograph's latent image is present before development. The Chamber is not finished. It is *becoming finished*, working out its final form with the deliberation of something that does not know time except as a variety of pressure.
+
+Some believe the Bell is the builder, that the alloy's slow clapper-strike is a kind of thinking, a processing of possibility into actuality. The ceramic, in this reading, is thought made tangible, the Bell's meditation on what a chamber should be, what a below-place should contain. The warmth is the warmth of concentration. The light is the light of attention. The sound is the sound of a mind that does not stop, that has been not-stopping since before the raft-colonies, before the cord-knots, perhaps before the ocean above agreed to exist.
+
+Others say the Bell is a prisoner. Sunk here, drowned here, punished for a crime that predates crime. The Chamber its captors built, the ceramic their technology of containment, the warmth their mercy and their vigilance. The sound is struggle. The light is witness. The youngness is the desperation of something that refuses, after all this time, to complete its sentence, to become what its imprisonment would make of it.
+
+Both stories are held in the knots. Neither is preferred. The divers who stay longest come to hold both, or neither, to let the Bell's note empty them of the need for narrative, for the shape that understanding gives to time.
+
+I have spoken of the wound, the entry. I have not spoken of what the Chamber contains at its center, what the spiral of vertebral structures draws you toward, what the Bell's clapper strikes toward and away from, toward and away.
+
+It is small. This is the final strangeness, the thing that unravels scale and measure. All this architecture, all this warmth and light and sound, this sixty-foot space that behaves like something larger, that resists the geometry of containing—the center, the gravitational point, is a space no larger than a closet, a chamber within the Chamber that the water fills differently. Here the warmth concentrates to the point of pain. Here the light is not diffuse but *directed*, sourceless, the brightness of a surgical theater or a confession. Here the sound, the great Bell-tone that occupies the whole, becomes specific, becomes *located*, strikes not your whole body but the point behind your eyes, the place where dreams begin before they are yours.
+
+And in the center of this center: a hand.
+
+Ceramic, of course. Or ceramic becoming something else. It emerges from the floor or grows toward it, the youngness makes the direction impossible to determine. Five fingers, slightly curved, palm upward. The cupped shape holds nothing but water, warm water, water that in the surgical light shows no more impurity than the faintest suspension of that sparse algal dust.
+
+The hand does not move. The Bell does not strike it. The divers have tried—out of curiosity, out of that hunger for contact that possesses all who descend here—to touch it. Their accounts agree only on the impossibility of describing what happens. Some say their hands passed through, found only water of a different temperature. Others say the ceramic was warm as fevered skin, that they felt a pulse not their own. One diver, the knot-records tell, pressed her palm to the ceramic palm and surfaced with her hand still raised, still pressed to empty air, and did not lower it for three days, until the muscles of her shoulder locked and had to be forced by others. She wept, they record, when they made her arm come down. She said something the knot-keeper could not transcribe, something about pressure and welcome and the long patience of being held.
+
+She did not return to the Chamber. None who touch the hand return, or those few who do are not counted among the divers, not entered in the records, not spoken of in the raft-colonies except in the silence of certain evenings, when the Bell's note seems especially present in the air above the water, in the dreams that come whether you sleep or not.
+
+The Chamber is sinking. This, finally, is the dynamic that contains all others. Not the clapper's slow oscillation, not the cracks that change their minds, not the sparse and patient life that marks time in calcium. The whole place—the Bell, the ceramic, the hand, the warmth and light and note that is not a note—settles through the medium of water as a body settles through the medium of earth, finding its level, finding the place where pressure equals intention, where the below becomes the within becomes the *end*.
+
+How deep? The cord-knots do not say. Perhaps cannot say. The wound in the harbor shifts, seals, reopens elsewhere. The raft-colonies have learned not to rely on its location, to let the Chamber come to them when it will, to accept the divers it releases back into the air-world of thinness and weeping.
+
+Some years the Bell is unreachable, the water too deep, the wound too narrow or too violent in its current. Some years it surfaces, almost, hangs in water shallow enough that a child could swim to it, that the light of the surface world reaches it directly, makes shadows of its structures, makes the Bell-metal sing with something like the timbre of its first voicing, before the sinking began.
+
+This is the active core of the place: not life, not death, but the long process of finding the level where a voice becomes a note becomes a pressure becomes a warmth becomes a hand held up in the gesture of welcome or arrest or waiting. The youngness is the youngness of this process, the not-yet-completed, the refusal to harden into final form. The density of presence is sparse because the Chamber's whole attention is on its own becoming, on the next clapper-strike, the next crack's change of mind, the next increment of depth.
+
+You ask about the rules. I have told you what is known. The unknown is larger, warmer, brighter. It rings in the water of your inner ear even now, even in the air-world, even in the silence you think you inhabit. The Bell is sinking. The hand is held up. The divers are descending, have always been descending, will continue to descend until the wound seals forever and the raft-colonies forget, truly forget, and the note passes out of even dream, out of even the shiver that comes without cold, out of the body's memory of being held in something larger than intention.
+
+Warm. Bright. Loud. Young. Sparse with life, total with making, hidden in the scale of a wound, active in its patient sinking through whatever water will have it, whatever pressure will equal its need.
+
+The Bell is sinking.
+
+Perhaps it will ring when it arrives.

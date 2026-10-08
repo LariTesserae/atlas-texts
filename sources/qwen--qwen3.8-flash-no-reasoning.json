@@ -1,0 +1,14 @@
+{
+  "source_id": "qwen--qwen3.8-flash-no-reasoning",
+  "requested_endpoint": "qwen/qwen3.8-flash:no-reasoning",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-10-08",
+  "date_last": "2026-10-08",
+  "texts": 180,
+  "by_type": {
+    "location": 180
+  },
+  "evidence_grades": {
+    "event-observed": 180
+  }
+}

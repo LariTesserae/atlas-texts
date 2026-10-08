@@ -1,0 +1,19 @@
+The cavern is inhabited not by a single hidden sovereign, but by an entire arrested ecology—an overfull kingdom of creatures whose lives repeat without accumulating into history.
+
+Most characteristic are the cave-born: pale, soft-bodied, and nearly without eyes. Fish crowd the shallow basins, their translucent skin showing faint threads of blood and the shadows of their organs. They navigate by pressure, scent, and minute disturbances in the water, turning together when a drop strikes nearby. Salamanders rest among submerged stones, slender-limbed and milky as roots. Blind crayfish occupy the runnels in absurdly compressed territories, threatening their neighbors with raised claws while shrimp, larvae, and leeches fill every space between them.
+
+On the wet stone lives a second multitude. Woodlice plate the undersides of slabs. Beetles pour through cracks in glossy processions. Cave crickets mass so densely that whole shelves appear granular until thousands of legs unfold at once. They feed on moss, fungi, droppings, carcasses, eggs, and one another. Nothing remains unused for long, though nothing is ever visibly depleted.
+
+Above them, the ceiling has an animal surface. Moths rest wing over wing like gray-brown scales or coarse fur. Bats hang beyond counting in the darker domes, packed into folds and seams of limestone. Their colonies are the cavern’s weather: a continuous heatless agitation of squeaks, claws, breath, and membrane. When they fly, they descend in streams, skimming pools to drink and folding through low arches with impossible precision.
+
+Frogs dominate the muddy margins under the shafts. They are surface-colored where the weak daylight reaches them—green, umber, ocher—but become progressively paler in the dimmer basins. Their calls enlarge the smallest patches of mud into imagined wetlands. Snakes wait nearby on stones warmed by distant sun, while foxes descend through accessible sinkholes and grow lean on the inexhaustible prey.
+
+The largest permanent inhabitants are small shaggy ungulates, compact enough to pass beneath the low roofs. They wander the broad floors in loose herds, browsing isolated ferns, chewing hanging roots, and rasping salt from mineral walls. Their coats are damp, coarse, and often pale with limestone dust. They make no trails despite generations of passage. After they move on, they leave hair, dung, and hoofprints, but no enduring transformation.
+
+Otterlike hunters work the streams and pools, pinning fish in shallow water and breaking shelled creatures against chosen stones. Birds descend through roof openings to hunt insects, sometimes carrying trimmed twigs for probing fissures. Surface apes occasionally enter as visitors, armed with sharpened sticks or stone flakes, but the cavern does not keep them. They harvest crayfish and withdraw toward daylight, leaving no camp and taking their tools away.
+
+Plants are sparse, isolated dependents of the shafts: rings of fern, wet seams of moss, liverworts pressed to ledges, and long pallid roots hanging from the unseen world above. Fungi and microbial films occupy dimmer margins, supporting innumerable grazers without ever spreading far enough to clothe the rock.
+
+What truly lives here, however, is abundance itself. Every shelf, pool, crevice, ceiling seam, mud hollow, and trickle has occupants. Predation never thins them. Birth never increases them. Death supplies food but leaves no growing graveyard. The creatures struggle, mate, feed, flee, sleep, and call, yet the total life of the cavern remains fixed—violent in each moment, changeless as a whole.
+
+They are not ghosts or statues. They bleed, hunger, and move. But they inhabit no unfolding age. Each generation belongs to the same permanent instant as the sharp fallen blocks and unfinished channels: life at the first moment of possession, forever arriving in a cavern that never becomes old.

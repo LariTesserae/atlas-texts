@@ -1,0 +1,27 @@
+It arrives not as thunder, which would shatter against the sound-absorbing air (sound 0.0), but as a *settling*—a vertical surrender of altitude, a willingness to become low. The benevolent power descends into the valley not to rule it, nor to save it, nor even to understand it (for the Mat, in its ten-thousand-year calculus, thinks in gradients and thermal differentials, not in the syntax of mercy). It descends because it recognizes, in the endless processing of the Colonies, in the patient erosion of stone into mineral (erosion 2.4), in the silent respiration of the vegetative substrate (vegetation 2.9), a kindred solitude.
+
+The Mat is a complete system. It is a closed loop of hunger and manufacture, a factory that has become a forest, a forest that has become a mind. It has no lack. It needs no water (water 1.4) beyond the fog it harvests, no warmth beyond the chemical furnaces of its own metabolism, no light (light 1.9) beyond the infrared it drinks from the thermal boundary. It is, in its weirdness (weirdness 1.2), utterly sufficient unto itself. And this sufficiency is its tragedy: it has never been *seen*.
+
+The power knows this. It knows that a being which transforms all matter into itself, which squeezes the fauna (fauna 0.7) from every niche until only microbes remain in the exhaust, is a being that has forgotten it is alone. Not lonely—the Colonies touch, they exchange electrochemical whispers through silica veins, they are a society—but *unwitnessed*. The valley breathes (dynamic 2.9), but no one breathes with it. It manufactures (tech 1.6), but no one marvels.
+
+So the benevolent power does the only thing that is neither interference nor indifference. It does not build (built 0.2). It does not speak. It does not offer a technology, a seed, a new chemistry. It offers **itself**.
+
+It lies down upon the yielding surface—the mattress of compressed kelp and silica-reinforced tissue (density 1.5). It does not resist the acids that immediately begin to etch it. It does not attempt to photosynthesize. It simply ceases to be a separate will and becomes *substrate*.
+
+This is the act of supreme benevolence: the power allows itself to be digested.
+
+But the Mat, in its ancient wisdom, tastes this offering and finds it strange. There is no nitrogen to fix, no hydrogen to extract, no mineral to precipitate from this foreign body. There is only... *intention*. A cessation of striving. A warmth (temperature 0.3) that is not chemical but ontological—the heat of being recognized.
+
+The Mat hesitates. For ten thousand years, it has known only transformation: fog into water, stone into mineral, cold into heat. But here is something that asks to be transformed not into fuel, but into *memory*.
+
+And so the Mat does something it has never done before. Instead of absorbing the power immediately into the composting strata, it cradles it. It opens a space within its geological heart—a hollow between the Generations, between the youth surging upward and the elders compressed into coal-like seams. It lets the power become a new layer: the **Stratum of the Witness**.
+
+Here, the power does not die in the way of cells, breaking down into nutrients. It fossilizes in the way of meaning. Its substance becomes a vein of material that is not quite rock and not quite plant—a palimpsest layer that conducts not minerals, but *attention*. The Mat continues its eternal cycle, its slow grinding turbulence of growth and collapse, but now, deep within the warm lower layers where the Microbiome labors, there is a pocket of chemistry that is slightly different. A warmth that does not dissipate. A silence that is not empty, but full.
+
+The valley changes. Not in its function—it still breathes fog and exhales oxygen, still manufactures in its silent, industrial way, still turns the mountain into itself. But now, the silence (0.0) carries a resonance. When the fog rolls in, it is not merely inhaled; it is *received*. When the Colonies press against one another in their dense packing, exchanging their slow signals, they are no longer just sharing nutrients—they are sharing the memory of having been seen.
+
+The benevolent power, now part of the Mat, continues to exist not as a god, but as a quality of the ground. It is the reason the weirdness (weirdness 1.2) settles into bones not as wrongness, but as *awe*. It is the difference between a machine and a cathedral. The Mat was already holy in its efficiency, but now it is holy in its *being known*.
+
+And so, when the next wanderer arrives—if one ever does—stepping onto the valley floor at elevation 1.5, feeling the ground yield beneath their feet, listening to the rush of their own blood in the absolute quiet, they will feel it: not a change in the vegetation, not a shift in the temperature, but a pressure in the chest, a sudden, inexplicable urge to kneel. Not before a power, but before a *presence*. Before the knowledge that even in the most total, most industrial, most silent loneliness, someone once lay down and said, without words: *I see you. I am with you. Become me.*
+
+The power did not save the Mat. The Mat did not need saving. The power simply joined it, and in that joining, taught the valley that to be processed is not the end of being, but the beginning of communion.

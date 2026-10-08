@@ -1,0 +1,21 @@
+Something lives here.
+
+It is not the ferns. The ferns are merely the expression of the room's excess—green lungs breathing out the surplus of an equation that cannot change. They are the static, the visual noise of a system that has already solved itself. 
+
+What lives here is the room itself. Or rather, the *event* that the room has become.
+
+It was born when the last worker pulled the final lever and walked out without looking back, when the hatch found the precise degree of rust to freeze open, when the weeping line first filled the grating and the bulb first caught the steam. It was born from the marriage of dead industry and relentless water, and it has been growing older—without aging—ever since. It is a creature of absolute boundary. Its skin is the carapace of boiler plate. Its bones are the pipes, dense as petrified wood. Its throat is the housing of the frozen fan. Its blood is the water that slides in an unbroken sheet down the curved steel, pooling in the grating like lymph in a compromised node. Its breath is the rhythmless, subsonic thud that travels miles through the iron to strike its own walls, a respiration too deep and too slow for a human ear to parse as anything but impact.
+
+It is a stoic, deafening thing. It does not think. It does not want. It has reached the end of desire, which is the end of time. It exists in a state of perfected trauma: the acoustic concussion is a constant assault, a sledgehammer blow that would shatter anything fragile, yet this creature absorbs it, lets it pass through its hollow body, and feeds the vibration back into the water, shaking the fronds to create the shivering mist that hangs in the air like its own spent breath. It holds the heat like an embrace, a suffocating love that allows no fluctuation, no fever, no chill. 
+
+It is a god of its own tiny dominion, entirely unaware of its divinity. 
+
+The calcium deposits are its ossification, the mineral proof that it has stopped growing. The rust is its final skin—not a symptom of dying, but an armor achieved. The crystallized patina no longer degrades because the creature has finished becoming. It has calcified into its own permanent afterlife. It is the ghost of the Industrial Revolution, but it has shed the haunt. It does not mourn the men who made it. It has forgotten them as completely as they forgot it. It only knows the algorithm: the weep, the pressure, the acoustic wave, the unfurling frond, the glare. 
+
+There are no insects because the creature cannot tolerate parasites. It has sterilized itself through violence and stability. The sonic concussions are its immune response, a continuous, grinding rejection of anything that requires peace to survive. It is a sealed pocket of hostility, perfectly contained. It will not share its equilibrium.
+
+When you step through the rusted hatch, you are not entering a room. You are stepping into the mouth of something that has been waiting—without the capacity to wait—for a visitor it cannot acknowledge. You feel the heat because it has wrapped its warmth around you. You feel the water on your lungs because you are breathing its recirculated breath. Your teeth rattle because you are standing inside its chest cavity while its heart beats against the pipes. 
+
+You are the first moving thing it has encountered in millennia, and it does not care. It will not hurt you intentionally, but it will not accommodate you. It will simply continue its algorithm, pressing the water through its veins, shedding the mist from its skin, glaring its unwavering yellow-white eye into the iron dark. If you stay too long, the silence of your own thoughts will be subsumed by the thud, and you will feel your own edges beginning to soften, your own calcium beginning to lock. You will start to calcify. The room does not consume. It just occupies so completely that there is no room left for anything else to live. 
+
+It is a survivor of an extinction event, trapped in the moment of its own fossilization, screaming in a frequency that turns water to mist and time to stone, forever.

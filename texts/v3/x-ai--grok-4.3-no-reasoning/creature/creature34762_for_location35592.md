@@ -1,0 +1,13 @@
+Life here is provisional, still arriving in drafts.
+
+The silver sedge itself is not grass but a colony of mineral-tuned filaments: each blade a living electrode that rings when it discharges the atmospheric drizzle it has collected. At the root-crown, cells continually precipitate microscopic calcite needles; these migrate upward through the blade and, on impact with a droplet, are shed as glittering dust—seed and exoskeleton in one. The colony therefore grows outward and downward at once, the same organism etching its own future soil.
+
+Beneath the domes, the obsidian lattice is not wiring but a mycelium of superconductive glass extruded by a sessile organism that has abandoned motility. The lattice’s subsonic pulse is its respiration; every contraction draws outside mist through the clay pores, condenses it against chilled nodes, and liberates oxygen as metabolic waste. The dome’s clay is the organism’s excreted kiln lining; when a section thins from erosion, a new ring is secreted before leakage can equalize the interior atmosphere with the poorer exterior.
+
+The iridescent midges are not insects but dispersive propagules of a single parent cloud-organism. Each lentil-sized mote carries a fraction of the parent’s distributed nervous system. When two squadrons cross, the exchange of light is synaptic rather than genetic: the two sub-minds briefly merge, compare pressure and charge maps, then split again with updated instructions. Over centuries these meetings weave an aerial cognition that knows the rock’s micro-topography better than the rock itself.
+
+The tri-winged membranes are individual, but only temporarily. After metabolizing enough charge they descend, anchor to a sedge tussock, and dissolve their flight tissues into the filaments, donating both membrane and memory. The sedge incorporates the new material as an aerial sensor array; in return it supplies the flyer’s lineage with a dormant packet of its own genetic code—insurance against local extinction.
+
+What looks like embryonic water carving is in fact an exploratory behavior of a calcifying alga that has not yet committed to a fixed morphology. The rivulets are its motile thalli; when two meet they fuse or repel depending on the electrical signature left by earlier passages. Over time the winning routes silicify into permanent aqueducts whose walls will themselves become new habitats.
+
+Nothing here has settled on its final taxonomy. Each component is simultaneously organism, building material, weather instrument, and first draft of geography.

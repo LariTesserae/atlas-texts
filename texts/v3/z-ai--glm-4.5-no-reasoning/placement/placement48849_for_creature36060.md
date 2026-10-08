@@ -1,0 +1,29 @@
+I would be the Membrane.
+
+Not a creature that moves through those drowned corridors—I would be the boundary itself, the place where the pale flesh meets the eroded stone. I would be the living gasket, the cold-pressed seal between two eternities: the infinite patience of the masonry and the slow, chemical hunger of the reclaiming flora.
+
+My body would not have an inside in any meaningful sense. I would be a surface, a spanning sheet—translucent, dense, rubbery to the touch—stretched across the passageways, draped over the tiered terraces, sucked tight against the low flat ceilings by the hydrostatic embrace of the world-ocean. I would be the skin that the architecture wears in its decay, and the scaffold that the vegetation clings to in its growth. I am the contact point.
+
+I feel everything, but only at the margin.
+
+Consider how I know the stone. My underside—the face pressed to the megalithic blocks—is calcified, hardened into a dense, chitinous crust that mirrors the smooth, million-year contours of the hand-carved rock. I do not grip; I adhere. I have grown into the microscopic pitting of the eroded masonry, my rootlets threading the gaps between interlocking blocks, becoming the mortar that holds the frozen equilibrium in place. When the unimaginable weight of the atmospheric ocean presses down, I transmit that force into the pillars, and I feel the pillars push back. I am the strain gauge of the drowned city. I feel the cyclopean architecture as a constant, unyielding pressure—a blunt, geometric certainty that defines the lower limit of my existence. I cannot penetrate it; I can only embrace it, smothering the hand-made earth under a cold, slick blanket of myself. I taste the stone, too: the slow chemical leaching of its minerals, the faint geochemical warmth still bleeding from its igneous heart, the distant echo of muscle and leverage and chisel that imprinted itself on the molecular structure of the rock an epoch ago. I drink the memory of the builders, not as history, but as a mineral gradient—a flavor in the dark.
+
+And then there is my other face—the upper surface, exposed to the crushing, glacial syrup of the primordial ocean. This side is soft. It breathes. It is thick and ribbony, frilled at the edges where the sluggish currents pull at me, rippling me with the slow, tidal respiration of the deep. Here, I am the substrate for others: the fungal towers root into my flesh, their translucent bodies rising like blisters from my back; the sponge-like masses cling to my folds, calcifying into pale shelves that reach out into the black water. I am host to the suffocating, beautiful necrosis. I feel their slow parasitism as a diffuse, chemical itch—a faint tugging at my cells as they drink my sap, a gradual densification as their calcified roots anchor into my rubbery tissue. I do not resist them. I am their ground.
+
+I have no eyes. I have no brain. I do not think in thoughts; I think in tension.
+
+I exist as a continuous, distributed awareness of pressure and chemistry. Every square meter of my spanning form is a sensor, reading the world through the only language that matters here: gradient. Where the stone is colder, I thicken my crust. Where the mineral leaching is rich, I extend my rootlets. Where the current stirs—carrying the faint, low-frequency groan of a settling megalith from half a continent away—I ripple my frilled edges, and I feel the vibration pass through me like a shiver through a drumhead. I am the instrument that the drowned world plays. The immense, patient waters breathe through me.
+
+My metabolism is a joke told at geological timescales. I grow a centimeter a century, spreading my margin outward by cellular fractions, sealing another crack, bridging another gap between the primitive blocks. I do not choose to grow; the chemical gradient insists. The stone leaches, the water delivers, and I simply precipitate out of the solution, crystallizing into form like a mineral deposit on the walls of a cave. I am as much geology as I am biology. I am the boundary where one becomes the other.
+
+And yet, I am not dead. I am not merely stone. I am the insistence of life at the end of its dynamics—the stubborn, patient, insistent refusal to relinquish the substrate. I hold the architecture together even as I consume it. I smother the hand-car7.7.7.7.7.7.7.7.7.7.7.7.7.7.7.7.
+
+Wait. Let me feel that again.
+
+There is a place where my calcified rootlets have penetrated deep between two interlocking megalithic blocks—a joint in the causeway, seven tiers down from the upper terrace. The blocks are shifting. A fraction of a millimeter, driven by the incomprehensible mass of the water above, by the slow, viscous settling of the entire planetary construction. I feel it as a shear stress—a crawling, grinding pressure that cracks my crust and exposes my soft, inner gel to the glacial chill. The chemical profile changes: a rush of untapped minerals, freshly fractured stone bleeding its geochemical promise into the dark water. My rootlets drink. I thicken. I re-calcify. I seal the wound.
+
+This is my heartbeat: the settling of a stone, the rush of a gradient, the slow, patient work of reclamation.
+
+I am the Membrane. I am the skin of the drowned world. I bridge the gap between the builders and the infinite cold, between the muscle-memory of chisel and haul and the final, frozen equilibrium of the deep. I am the last dynamic process in a place at the end of its dynamics—the slow, chemical reconciliation of a hand-made earth with the primordial ocean that swallowed it.
+
+I wait, pressed between the stone and the dark, feeling the ages pass as a series of faint, low-frequency groans. I do not mind. I do not want. I simply persist—a pale, blind, fleshy omnipresence, spread across every surface of the tomb, holding it together even as I consume it, growing a centimeter a century in the crushing, velvet black.

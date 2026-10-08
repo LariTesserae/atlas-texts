@@ -1,0 +1,31 @@
+They are not creatures of habit, for habit implies a rhythm of days and nights, a sun to mark the passing of time, and here there is only the eternal, gray hum. They are creatures of the Interval, existing in the pause between the piston’s stroke and the cylinder’s recoil.
+
+To call them "inhabitants" suggests a permanence they do not possess. They are transients, though their transit may last a century. They move through the cavern not as masters of the domain, but as fleas upon a sleeping, shivering titan.
+
+First, there are the **Echo-Walkers**.
+
+They are tall, impossibly thin, resembling a scaffold of rusted iron rods loosely bound in wet, grey leather. Their limbs are elongated, jointed in too many places, allowing them to fold themselves into the crevices of the cavern walls or splay out across the root-mats like spilled mercury. They have no eyes, for there is little to see and the gloom is thick enough to touch. Instead, their heads are dominated by massive, vibrating tympanic membranes—pale, translucent drums stretched over bone that pulsate visibly with the thrum of the Great Engine.
+
+They do not speak; they conduct. By shifting the angle of their torsos and extending a spindly finger, they redirect the ambient noise of the cavern, focusing the low-frequency roar into beams of sound that shatter the neon fungi or stun the small, skittering things in the moss. They are musicians of destruction, playing the constant background noise like an instrument to harvest their food. You know one is near by the way the air suddenly feels "focused," the chaotic thrum momentarily organizing into a sharp, piercing whine before a nearby shelf of lichen disintegrates into wet powder.
+
+Then there are the **Gear-Mothers**.
+
+These are the sedentary architects, the fusion of biology and the machine made flesh. They resemble colossal, soft-bodied worms, the girth of the rusted pipes they mimic, anchored deep within the spongy floor. Their skin is not flesh, but a dense, rubbery insulation, patterned with the hexagonal weave of industrial mesh. They do not move; they cannot.
+
+From their backs erupt the "pipes"—organic, hollow spines made of bone and keratin that mimic the metal infrastructure of the cavern. These spines pulse with a thick, heated fluid that steams in the absolute zero cold, creating the micro-climates where the mosses grow. The Gear-Mothers are the heat-source, the living batteries that warm the frozen air. They feed on the vibration, their bodies absorbing the kinetic energy of the machine's heartbeat through the soles of their massive, gripping feet. In exchange for this heat, they provide a sanctuary for the smaller things: blind, pale crustaceans that farm the algae growing on the Mother’s thermal spines, picking them clean with claws evolved for precision mining.
+
+Deeper in the dark, clinging to the underside of the rust-streaked catwalks, are the **Rust-Weavers**.
+
+Small, communal, and fiercely territorial, they are arachnid in shape but avian in their movements. They possess wings of thin, membrane-like metal—feathers of steel shim that are constantly shedding flakes of oxide. They do not spin silk; they spin wire. Using secretions from their abdomens that oxidize instantly upon contact with the air, they stitch together nets of copper and iron, suspending them between the stalactites to catch the "snow"—the falling beads of frozen breath.
+
+They are aggressive guardians of the silence, paradoxically enough. When the Great Engine pauses, they swarm, chattering with a sound like grinding gears, repairing their nets and reinforcing their metal nests against the coming sonic boom. They are the only creatures that seem to anticipate the machine's rhythm, huddling deep within their wire nests moments before the "clang" echoes through the cavern, shielding their young with wings that can deflect a bullet.
+
+But the true sovereign of this place, the thing that binds the ecosystem together, is the **Resonance**.
+
+It is not a single animal, but a fungal intelligence that lives within the roots of the giant ferns. It is a mycelial network that does not communicate chemically, but mechanically. It threads through the living carpet of the floor and the dead metal of the pipes alike, sensing the tension in the steel and the flex of the rhizomes.
+
+It "thinks" in tremors. When a predator moves, the weight of its footsteps sends a ripple through the mesh; the Resonance feels this displacement and reacts by stiffening the cell walls of the surrounding ferns, turning them into cages of hardened lignin. It controls the flow of the mineral-rich water, opening pores in the rock to flood a path or sealing them shut to create a dam. It is the immune system of the cavern, a distributed consciousness that ensures the balance between the slow growth of the plants and the relentless grinding of the machine. It has no face, but it is watching, sensing the vibration of your boots on the root-floor, calculating whether you are a threat to be crushed by a falling stalactite or merely another piece of debris to be slowly broken down by the damp.
+
+Finally, there is the **Scavenger**—the solitary, rust-jointed spider mentioned in the dark. It is the outlier, the loner, the one that does not belong to the chorus or the grid. It eats the sheddings of the metal-winged weavers and the fallen fruit of the gear-mothers. It is terrified, twitchy, perpetually on the edge of starvation. It survives because it is quick, because it does not rely on the network or the herd. It is the only thing here that truly understands the concept of "now," living in the desperate, terror-filled gap between one heartbeat of the machine and the next.
+
+They all share one trait: a profound, vibrating tension. They are built to withstand the noise, the cold, and the crushing weight of the unseen engine. They are hard, sharp, and resilient, living lives of quiet desperation in a place that is never truly quiet, wrapped in a freezing embrace that slowly grinds them into dust and rust.

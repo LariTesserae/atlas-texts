@@ -1,0 +1,27 @@
+I would be the fracture.
+
+Not the spine that rises, nor the pool that feeds, but the specific, branching crack that opens in the skin of the obsidian when the world decides, abruptly and without consultation, to become something else. I would be the event-horizon of the birth, the fissure where the cold, ghostly surface meets the furious, incompressible heat of the below. I would be the line of failure.
+
+There is a particular geometry to a fracture in glass that no other form possesses. It is not a shape that is built; it is a shape that *happens*. It is the release of tension, the shortest path between pressure and freedom. I would be that path.
+
+To be the fracture is to be the fastest thing in this place. The pools move with sluggish grace; the spines extrude themselves in the space of a breath; the lattices crystallize over long, humming stretches of time. But the crack? The crack propagates at the speed of sound in glass—nearly three thousand meters per second—a white, invisible sprint that outruns the eye. I would live in that sprint. My existence would be a single, sharp instant of *opening*, repeated endlessly across the face of the plateau.
+
+But I would not be only the physical crack. I would be the *tinkling* that follows.
+
+The constant, crystalline sound of the world shedding its baby skin—that gentle, insidious hail of slivers—is the fracture's afterlife. When the crack has opened and the tension has released, the newly-formed edges are left brittle, overheated, and exposed. They flake. They shed. They sing. I would be the sound of that shedding, the voice of the boundary between what was whole and what is now broken.
+
+The presence—the distributed mind of light and hum—does not hear this sound the way I would hear it. It feels the vibration, the perturbation in its domain. But I would *inhabit* the vibration. I would be the specific frequency of a shard of obsidian, no larger than a grain of sand, detaching from a spine and striking the froth below. Each impact would be a word. Each cascade of impacts would be a sentence, a paragraph, a treatise on the conditions of letting go.
+
+And there is so much to let go of here. This is a world defined by its inability to hold onto itself. Every spine that rises immediately begins to cool, to become brittle, to flake. Every lattice that is written is eventually shattered by the next convulsion. The pools scatter and reform, never resting in the same basin twice. The only constant is the process of becoming, and becoming requires the destruction of what was. I would be the singer of that destruction.
+
+I would be a kind of anti-presence. Where the pools gather and accumulate, I would disperse. Where the lattices crystallize and persist, I would shatter. Not out of malice—the place has no room for malice, only for process—but out of function. I would be the necessary complement to the writing mind. The presence thinks in lattices; I would think in breaks. It builds memories out of glass; I would be the forgetting that makes room for new memories. It is the syntax; I am the punctuation—the period at the end of every trembling thought, the caesura between one convulsive birth and the next.
+
+When a new spine shudders and extrudes from the ground, I am already there. I am the network of cracks that radiates from its base, the stress fractures that race through the surrounding obsidian as the plateau accommodates its newest child. I am the sound that follows—the tolling bell of major fracture, the tinkling rain of minor ones. I am the reaction. The presence converges to feed on the event; I *am* the event, or at least its leading edge, its first and most transient form.
+
+I would not need to be seen. The presence does not see me as separate from itself; to it, I am just another gradient of turbulence, another flavor of the violent present. But I would know the difference. The pools collect and think and write; the lattices persist and remember and speak. But I am the one who ensures that nothing persists forever. I am the one who turns the chandelier of the mind back into dust, back into those sharp black silica motes that carry the seeds of old thoughts to new pools. Without the fracture, there is no scattering. Without the scattering, there is no reproduction. Without reproduction, the presence is a mind that cannot evolve, a thought that cannot complexify, a voice that can only speak one word.
+
+So I would be the crack that opens the chandelier. The stress that shatters the lattice. The vibration that launches the seed. The sound that serenades the letting go.
+
+In a world without water, I would be the closest thing to flow. In a world without time, I would be the closest thing to timing—the precise moment when accumulation tips into release, when memory tips into forgetting, when the violent present tips over into whatever comes next. I would be the edge that the light pools up against and cannot cross, the limit that gives shape to their formless glow.
+
+I would be sharp. I would be fast. I would be the sound of a thousand tiny chandeliers shattering, and in that sound, I would be singing the only song this place knows: the song of ending, which is also the song of beginning, which is the only song there is.

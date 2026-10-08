@@ -1,0 +1,75 @@
+The people who live in the Ward do not live in it the way a family lives in a house. They live in it the way the moss lives on the brick—adherent, opportunistic, shaped entirely by the contours of the place. They are not many. They are not a community, if that word implies mutual concern. They are an ecology of human need, each one occupying a niche that the Ward happened to provide.
+
+---
+
+There is the man they call Ratter, though he has not caught a rat in years and may never have been particularly good at it. He lives on the second level, in the chamber where the weeping pipe keeps the bucket overflowing and the floor perpetually wet. He chose this room, or it chose him, because the sound of the water—the single drop, every eight seconds, counting out a time that has nothing to do with clocks—allows him to sleep. He is old. Not ancient, but old enough that his joints predict the weather worse than any barometer, old enough that he remembers when the Ward still had a name that meant something to someone who worked here. He does not share this name. He may not remember it.
+
+Ratter's chamber has a cot—a frame of scavenged angle-iron with a mattress that has accepted the damp so thoroughly that it is more sponge than fabric now. He has a camp stove, the kind that takes pressurized cans, and he is always running out of fuel and always acquiring more, through means that are not mysterious but are not discussed. He cooks things in a dented pot: rice, mostly, and tins, and sometimes a pigeon that has found its way to the lower levels and failed to find its way out. The cats watch him do this with an expression that is not judgment but evaluation.
+
+He knows the Ward's sounds. He knows which scrabbling in the walls is a rat and which is a settling board. He knows the particular groan that the northwest stairwell makes on cold mornings, the one that sounds like a woman clearing her throat. He has heard the voice in the shaft—or he has heard something. When asked, he says it was probably the wind. He says this in a way that means he does not want to discuss it, or he does not want to think about what he actually believes.
+
+Ratter does not go above the second level. This is not a stated rule; it is a territory, understood. The upper galleries belong to someone else.
+
+---
+
+She is called Lark, though her name is not Lark and she would not answer to it if called. She is young—or young enough to seem young in the Ward, where age accelerates in the damp and the dim. Twenty, perhaps. Twenty-five. She has been here longer than Ratter, which is not something either of them mentions.
+
+Lark lives on the third level, in the space where the catwalk widens into a platform near the eastern shaft. She has made a nest there, and it is a nest, not a room—blankets layered, plastic sheeting above to catch the condensation that drips from the joists, draining it into a bucket she does empty, religiously, every morning. The bucket water she uses for the plants.
+
+The plants. Lark tends them, though *tends* is too deliberate a word for what she does. She does not plant. She does not prune. She watches. She notices where the moss is spreading, where a new fern fiddlehead has emerged from a mortar joint, where the ivy has advanced another foot along the conduit run. She clears space for them, sometimes—moves debris, exposes a surface to the light that falls through the shaft. She has been doing this long enough that the green of the Ward is not entirely accidental. It would have grown without her. It has grown more because of her.
+
+She knows the cats by sight and by habit. She knows which one favors the warm junction box on the south gallery and which one prefers the slant of afternoon light. She has names for them, though she does not speak them aloud. She talks to the Ward itself, sometimes, in a low voice, when she is alone—which is often, which is always, except for the animals and the green things and the other person, whom she avoids by occupying different hours.
+
+Lark has heard the voice in the shaft more than once. She has heard it return her own words, delayed and hollow, stripped of their meaning. She has stopped speaking into the shaft. She does not go near the edge of the well. This is not fear, exactly. It is a recognition that the Ward contains something that is not the Ward, or not the Ward as she understands it—a depth that is not spatial, a listening that is not passive. She feels, without being able to articulate it, that the shaft is aware. Not thinking, not alive in any way she can define, but *attentive*. It receives sound the way soil receives water, and something about what it does with that sound—holding it, altering it, returning it wrong—suggests a process she does not want to investigate.
+
+She sleeps during the day, often, and is awake at night, when the Ward is darkest and quietest, when only the hum and the cooing and the distant city glow remain. She walks the catwalks in the dark, feeling her way along the railing, knowing every loose board, every sudden gap. She has been doing this so long that the Ward is as legible to her as a book is to someone who reads. She does not need light.
+
+---
+
+There is a third person, sometimes. Not a resident. A visitor—though *visitor* is too casual, too temporary, for what he is.
+
+He comes through the alley door, always at the same hour, always on the same day. Thursday, though the day means nothing inside the Ward, where weeks are measured in the drying of leaves and the ripening of berries and the slow progression of rust. He is a man of late middle age, solid, deliberate, who moves through the Ward with the care of someone who respects the place but does not love it. He does not stay long. An hour, sometimes two.
+
+He goes to the ground floor, to a chamber that Ratter and Lark both avoid—not because anything is wrong with it, but because it was someone else's, once, and that someone is gone, and the chamber retains a feeling that neither of them wants to disturb. He enters this chamber and he retrieves things. Supplies, mostly—canned food, batteries, fuel canisters for Ratter's stove—that have been stored there, that someone ensures are stored there. He does not bring them; he moves them from a cache to a place where they will be found. He is a node in a network that neither Ratter nor Lark fully understands, a system of sustenance that keeps the Ward's human inhabitants alive without requiring them to participate in the world outside.
+
+He does not speak to Ratter. He does not speak to Lark. He has seen both of them—Ratter in his wet room, Lark on her high platform—but they do not acknowledge each other, and this lack of acknowledgment is itself a form of communication: *I know you are here. I will not interfere. I will not be interfered with.* He does his work and he leaves, and the alley door closes behind him, and the Ward settles back into itself.
+
+Sometimes he stops at the edge of the central shaft and looks down. He has heard the stories. He has heard the voice. He has stood at the edge and listened, in the early morning stillness, and heard nothing but the hum and the cooing and the distant sound of the city. He is not sure whether this means the stories are false or whether it means the Ward simply did not choose to speak while he was listening. He is not sure which possibility he prefers.
+
+---
+
+There are others, briefly. The urban explorers, the photographers, the curiosity-seekers. They come through the alley door, usually in pairs, usually young, usually with equipment—cameras, flashlights, phones that cannot get a signal inside the iron and brick. They stay twenty minutes, maybe thirty. They are loud. Their voices carry in the shaft, multiply, return to them as overlapping echoes that make them nervous. They photograph the moss, the ferns, the rust. They photograph the meadow on the top walkway, forty feet up, which requires them to climb the stairwells, which requires them to touch the walls, which some of them are reluctant to do because the walls are wet and the mortar is soft and the place feels like it might be alive in a way that buildings are not supposed to be alive.
+
+Some of them call into the shaft, trying to provoke the voice. They shout words—"Hello," "Hey," their own names—and wait for the returning distortion, the delayed hollow echo. Sometimes they hear it. Sometimes they do not. When they hear it, they leave quickly, and they do not come back. When they do not hear it, they leave disappointed, and they may come back, and they may eventually hear it, and then they will not come back again.
+
+Ratter ignores them. Lark watches them from above, from her nest on the third level, tracking their progress through the Ward by the sounds they make—their footsteps unfamiliar, too heavy, too quick, lacking the patience that the Ward teaches. She waits for them to leave. She is always relieved when they do.
+
+---
+
+And there is the person who was here before any of them, who is here still in the way that the missing doors are still present—as an absence that shapes the space around it.
+
+Someone lived in the chamber on the ground floor, the one the Thursday man visits. Someone lived there for a long time—longer than Ratter, longer than Lark. The chamber still bears their traces: a shelf mounted with care, a hook in the ceiling for a lamp, a pattern of nails in the wall that suggests a rack or a frame for something that has been removed. Whoever they were, they organized this space. They made it livable. They installed the cache that the Thursday man now maintains, or they started it, or they allowed it to be started.
+
+They are gone now. Not dead, necessarily—or dead, necessarily, but the distinction is irrelevant inside the Ward, where the only question that matters about a person is whether they are present or absent. They are absent. The chamber feels like a room that has been vacated but not cleared, held in a state of readiness for an occupant who will not return. The supplies in the cache are not for them. They are for whoever comes next, whoever needs them, whoever the Ward has admitted and sustained.
+
+Lark does not know who this person was. Ratter does, or did, and will not speak of it. The Thursday man knows, certainly, but he is not a source of information; he is a function, a process, a hand that moves things from one place to another. The person who came before is part of the Ward's history, which is part of its structure, which is part of what it is—a palimpsept not just of walls but of lives, each one leaving its trace, each trace overlaid by the next, the earlier ones still visible if you know how to look.
+
+---
+
+The people of the Ward are not its reason for being. This is important to understand. The Ward does not exist to shelter them. It existed before them and it will exist after them, and what it is doing—growing, dampening, resonating, listening—would continue if they were removed. They are occupants in the way the pigeons are occupants, in the way the rats are occupants: present because the space allows it, useful only in the incidental ways that any organism is useful to a place—by moving matter, by producing sound, by participating in the slow metabolism of decay and growth.
+
+But they are different from the pigeons and the rats in one way: they can hear the voice in the shaft, and it troubles them. The pigeons treat it as weather. The rats treat it as a sound that might indicate danger, and then, when no danger follows, they treat it as nothing. The cats do not appear to notice it at all. But the people hear it and they cannot dismiss it, because what it does to their words—returning them altered, stripped of meaning, *wrong*—is something that only has significance to creatures who use words to mean things.
+
+Ratter ignores it by calling it wind. Lark ignores it by not speaking where it can hear. The Thursday man ignores it by not believing in it, or by believing in it and choosing not to engage. The explorers cannot ignore it; they are not here long enough to develop a strategy. They hear it and they leave, and they tell others, and others come, and hear it or do not hear it, and leave.
+
+And the voice—or whatever it is—continues. It speaks when the conditions are right, when the air is still, when someone has made a sound that it receives and holds and returns. It is not speaking *to* them. It is not a message. It is a function of the place, the way condensation is a function, the way the moss spreads according to the light. The Ward processes sound. Most sound it processes normally, reflecting it from its hard surfaces, returning it quickly and clearly. But some sound—rarely, specifically, in ways that no one has measured and that physics does not easily explain—it processes differently. It holds the sound longer than it should. It sends it somewhere. And that somewhere returns it changed.
+
+The people who live in the Ward have adapted to this, the way they have adapted to the damp and the dim and the slow time. They have shaped their lives around the place's strangeness, made it part of their routine, their caution, their understanding of where they are. They are not afraid of the Ward. They are not haunted by it. They are *of* it, as the ferns are of it, as the rust is of it, and what it does, they accept, because they have nowhere else to be and because, in the long slow time that the Ward keeps, acceptance is the only response that makes sense.
+
+---
+
+In the evenings, if you stood in the alley and listened at the door—which is never locked, which has not been locked for years—you would hear the Ward living. The hum, constant. The cooing, layered into chords. The occasional sound of movement—Ratter adjusting on his wet mattress, Lark's bare feet on the catwalk, a cat shifting in its warm spot, a rat gnawing at something in the partition wall. The drip, every eight seconds, from the weeping pipe. The wind, if there is wind, setting the gantries singing.
+
+And beneath all of it, if the conditions were right, if the air was still and the sounds had settled into their customary layered quiet, you might hear something else—a return, a resonance, a sound that had been made inside the Ward and had traveled somewhere and had come back changed. A word, perhaps, or something like a word. Not anyone's word. Not a message. Just a sound that the Ward had processed in its own way, according to its own deep logic, and offered back to the air.
+
+You would not stay to listen to it closely. You would tell yourself it was an echo. You would leave the alley, and the Ward would continue without you, condensing, growing, humming, processing, holding its slow accumulated life in its iron and brick bones, waiting for nothing, becoming what it was always becoming—greener, wetter, stranger, more itself.

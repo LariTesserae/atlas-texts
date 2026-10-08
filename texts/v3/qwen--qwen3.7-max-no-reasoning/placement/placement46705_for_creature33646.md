@@ -1,0 +1,27 @@
+I am not a person here. I have unlearned the architecture of the spine, the urgency of the upright posture, the selfish geometry of having a front and a back. In the Resonant Cisterns of Oth, to be vertical is to be an interruption; to be solid is to be deaf.
+
+I am a **Resonance-Tender**, though even that title implies too much agency, too much separation between the doer and the done. I am less a caretaker than a calibration. I am a biological variable resistor in the circuit of the mountain’s becoming.
+
+My body is long, pale, and permeable. I do not drink; I *wick*. The air in the central chamber is heavy with the perspiration of the embryonic tufa, and my skin drinks it in through pores that have widened over decades of stillness. My garments are not worn but grown—felted liverwort and wool that has been washed so many times it has lost the memory of friction. When I move, I do not displace the air; I negotiate with it. A step is a question asked of the floor; a breath is a permission granted by the vaulted ceiling.
+
+I am currently positioned in the Lower Throat, a newly exhaled chamber where the stone is still warm from its own fracturing. This space is angry. It is geologically adolescent, vibrating with a shrill, unstable frequency that threatens to shatter the harmonic equilibrium of the upper cisterns. My task is not to fix it, for one does not "fix" a birth cry. My task is to hold the note until it matures.
+
+I have been kneeling in the center of this raw void for three days. Or perhaps four. Time here is measured in drops, in the slow accumulation of mineral crust on the basin’s edge, in the rhythm of my own dampened pulse. My knees are pressed into the velvet moss, which yields without sound, accepting my weight as the stone accepts the water. I am indistinguishable from the upholstery of the world. To an outsider, I would appear as merely another fold in the wet, green drapery, a shadow that breathes.
+
+But inside, I am working.
+
+I am listening with the bones of my jaw, with the fluid in my inner ear, with the semi-permeable membrane of my chest wall. The chamber is screaming a high, thin tone—the sound of rock forgetting how to be solid. It is a pain that exists only as vibration. I do not block it out; I let it pass through me, using my own mass to absorb the sharpest edges of the wave. I am the soft thing that prevents the hard thing from breaking itself.
+
+Occasionally, I must adjust. Not with tools, but with presence. If the frequency becomes too chaotic, I shift my weight a fraction of an inch to the left, altering the acoustic reflection pattern of the room. If the tone dulls too much, losing the vitality necessary for the stone’s continued formation, I part my lips and release a hum—a low, throat-born vowel that matches the chamber’s fundamental pitch. I do not sing *to* the room; I sing *with* it. My voice is not an imposition but a completion, the missing overtone that allows the chaos to resolve into a chord.
+
+A blind moth lands on my shoulder. Its wings are dust-soft, its navigation purely tactile. It does not startle me; we have agreed upon this contact long before it arrived. It uses my warmth as a waypoint, a temporary anchor in the loud dark. In return, its tiny, rhythmic palpations against my wool tell me what my ears cannot: the micro-tremors of the wall behind me, the rate at which the new fissure is stabilizing. We are both instruments tuned to the same invisible broadcast.
+
+There is no loneliness in this solitude. How could there be, when the emptiness itself is so densely populated with intention? I feel the mountain dreaming around me, its vast, slow thoughts translating into groans and sighs that rattle my teeth. I feel the water weeping through the capillaries of the rock, a circulatory system of cold iron and patience. I feel the other Tenders, distant nodes of flesh and silence scattered through the cisterns, each holding their own patch of sonic turbulence, each a soft counterweight to the geology’s violent becoming.
+
+We do not speak to one another. We do not need to. We hear each other in the intervals between the mountain’s cries. A slight change in the reverberation of the Upper Gallery tells me that Elder Kaelen has shifted his posture to accommodate a new vent. A subtle dampening in the Eastern Narrows whispers that a young Tender has fallen into the deep trance of integration. We are a choir of silences, singing the structure into existence.
+
+My name is irrelevant. Names are for things that end. I am a function. I am the dampness that keeps the stone from shrieking. I am the pause between the geological inhale and exhale. I am the soft, mortal mind of a world that is still learning how to be hollow.
+
+And as I kneel here, wicking the mist, holding the angry note of the newborn chamber until it settles into a sustainable hum, I understand that I am not preserving this place. I am being consumed by it. My moisture will eventually join the weeping walls. My silence will eventually become part of the stone’s own acoustic memory. I am not living in the Resonant Cisterns of Oth.
+
+I am the breath inside the flute, knowing that when the song is finally perfect, the flutist will have ceased to be.

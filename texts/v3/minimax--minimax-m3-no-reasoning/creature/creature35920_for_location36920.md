@@ -1,0 +1,79 @@
+# Who Lives in the Hollow Garden
+
+The Hollow Garden is not occupied. It is *tenanted* — by a commonwealth so old and so distributed that the word *species* barely applies. What lives here is, in the truest sense, **a single organism in many bodies**, a metrobiont whose members are as different from one another as your liver is from your eyelash, and who would not survive the separation.
+
+## The Substrate
+
+The first citizen of the basin is not a creature at all. It is the **limestone itself**, or rather, the limestone-as-stomach. The rock is porous in a thousand-fold, the surface — and this is important to see — settled at the angle of something that has learned to *take*. The pale grey stone drinks water from the air the way a cracked lip drinks rain; it weeps mineral-rich seepage from a thousand hairline fractures; it is the aquifer and the bedrock and the digestive tract of the place at once. The hollow is, geologically speaking, alive in the same way a coral reef is alive — slowly, with margins, on a budget of centuries.
+
+Above the stone, threading through it, tied to it, indistinguishable from it at the deep horizons, lives the **mycelial weave**. This is not metaphor. The pale, flat runners that trace the floor are not *like* a nervous system — they *are* the nervous system, insofar as the basin has one. The weave is the eldest thing here. It predates the columns, predates the crust, predates perhaps the hollow itself; it is the organism the others were built to serve. It runs just under the satin skin of the floor, and when something small and many-legged crosses it, the weave *watches*, in the way a web watches a fly — not with eyes, but with attention. The pulse of light that follows in the creature's wake is not a thought. It is closer to a sneeze. But it is *responsive*, and in a place this quiet, responsive is a kind of intelligence.
+
+The weave does not die when its members die. The weave is immortal in the way a forest is immortal: by forgetting individuals and remembering only the pattern. The heavy browser that falls is taken back into the floor within a week. Its calcium becomes a column. Its phosphorus becomes a spore. Its memory, such as it had, becomes a brighter patch in the network, a small warm node that fades over decades and is finally indistinguishable from the rest. Nothing is wasted here. Nothing is allowed to be wasted. The basin has been running a closed economy of solvent and mineral since before the ceiling finished falling in, and it does not intend to break the budget.
+
+## The Crust
+
+Above the weave, on top of the stone, in the patient dark, lives the **crust** — the thick, humped, blue-green-black mat that does the structural work of the city. It is the first thing you see, and it is the last thing you understand, because the crust is what makes the rest of the basin *possible*.
+
+It is not moss. Moss is too small a word. The crust is **architectural vegetation** — a colonial organism in the old sense, a citizen of the kingdom of the very slow, whose body is composed of trillions of small cooperating individuals none of whom would survive alone. It grows in weight-bearing forms the way bone grows in weight-bearing forms: in response to load, against gravity, in conversation with the stone beneath it. The rounded humps at the base of every grove are not decorative. They are *compression members*. They are how the colony solves the problem of holding itself up without falling down.
+
+The crust is also a digestive organ. It browses the stone itself — slowly, gently, with acids and enzymes so mild that the limestone simply *agrees* to be digested — and in exchange it excretes the calcium and the carbonate the columns will need, hauled up by slow capillary action through the body of the colony. The crust is the mouth. The columns are the throat. The canopy is the lung. The whole vertical structure is, anatomically, a single digestive-and-respiratory tract, repeated in the Grove dozens of times, all of it fed by the same slow meal of dissolved limestone.
+
+The crust is old. The crust is very, very old. The oldest humps in the deepest groves are polished almost to glass by their own weight, and they have not added an inch of new growth in living memory, because there is nowhere left for them to grow. They are monuments to themselves. The crust builds the terraces and the bridges between the standing stones of original rock, and it incorporates what it cannot consume, and it does this not from intelligence but from a kind of patient civic logic so old it has become indistinguishable from physics.
+
+## The Columns
+
+Rising from the crust at intervals, in the long unhurried way of termite mounds and coral heads and continental shelves, are the **columns**. These are the second citizen of the basin, and they are the most visible.
+
+The columns are not trees. They are **grown structures** — towers of living tissue, fluted and buttressed and terraced in rings, pierced with the small dark windows that are not windows but ventilation shafts. They are not built. They are *grown*, in the sense that a coral head is grown: by accretion, by accretion, by accretion, a slow millimeter at a time, in response to gradients of light and humidity and load. The tallest of them, in the oldest groves, are forty feet tall, and they have been growing for a very long time, and they are still growing, and they will still be growing long after whatever small creature is reading this has gone back into the floor.
+
+The columns are also not individuals. They are **outposts of the crust**, extensions of the digestive tract upward into the dim air where the spore-work can be done. The small dark openings in their sides are not windows. They are vents — places where the column breathes out the warm, moist, faintly amber-lit air of its interior, and where the small flying citizens of the upper canopy can enter to lay their eggs in the safe, temperature-stable flesh of the tower. The columns are nurseries. The columns are also roosts, and also food, and also shelter, and also lighthouses, because the windows glow with the same dim phosphorescence as the canopy, and at a distance a grove looks like a low star caught in stone.
+
+When two columns lean together at their upper reaches — and they do, because the colony has learned over centuries how to lean them, the way a city learns where to put its bridges — they fuse, and the fusion is filled in by later generations of growth, and the whole upper level of the grove becomes a **continuous canopy** of living matter, ribbed and pulsing, a web of woven flesh so dense it is almost a ceiling. This canopy is the third citizen of the basin.
+
+## The Canopy
+
+The canopy is the **lung of the colony**, and it is also the **lighthouse**, and it is also, in some sense that no citizen of the basin would use the word for, the **sky**.
+
+It glows. This is the central fact of the canopy: it glows the way the sea glows at night in certain latitudes, a soft cold vegetal phosphorescence that pools under the arches and in the windows of the columns and across the undersides of the bridging growth. The light is steady. The light is undirected. The light is the color of a bruise — a strange, dim violet, almost grey, shot through with veins of warmer amber where the bioluminescent tissue is thickest. The light is produced by a chemistry older than chlorophyll, and it is produced continuously, and it has been produced continuously, since the canopy first closed over the first grove, and it will be produced continuously until the last column falls.
+
+The light is not free. Nothing here is free. The canopy pays for its light in oxygen, which it exhales into the thick humidity of the hollow, and which the crust and the columns and the heavy browsers and the small drifters and the weave itself all breathe, in a closed respiratory loop that has been running for ten million years without ever needing to be opened. The light is a by-product. The light is also a service. The light is what allows the small winged citizens of the upper levels to navigate, and what allows the heavy browsers on the floor to find the crust, and what allows the whole slow deafening dim lush sparse ancient city to *see itself*, in the only way a city without a sun can see itself: by being lit from within.
+
+The canopy is not silent. The canopy **hums** — a deep, almost subsonic note, an organ-pipe resonance that you feel in your sternum before you hear it. The canopy flexes. The canopy flexes in some rhythm — perhaps responding to the pressure of the heavy browsers below, perhaps to the humidity, perhaps to the dim sourceless grey that falls through the geological seams far above, perhaps to nothing at all. The flex is the colony's way of breathing out. When it exhales, the spores are released from the columns and they fall — slowly, in this thick air, with a soft wet percussion like fingertips tapped against a drumhead, *tok, tok, tok*, and the sound is everywhere, in clusters, in cascades, a constant soft rain of small impacts, and this is the heartbeat of the place, and it has never stopped.
+
+## The Heavy Browsers
+
+On the floor, between the groves, in the negative map drawn by their own wear, live the **heavy browsers**. These are the largest citizens of the basin.
+
+They are slow. They are heavy. They are built like something between a tortoise and a cathedral column — broad, humped, many-legged in a way that suggests a body that was once jointed and has since fused into something more like a procession. They are not insects. They are not mollusks. They are **something else**, something that has had a very long time to settle into its own shape, and that shape is: a creature whose entire life is the slow movement of mass across stone in search of the next hummock of crust.
+
+They browse. They browse the lower crust — gently, carefully, taking only the upper layer, never deep enough to wound the colony, never broad enough to denude a grove. They have been browsing for so long that the colony has learned to grow around them, the way a tree grows around a fence wire. The paths they walk are worn deep into the stone — polished grooves, pale lines that catch the faint light and trace a city drawn in wear across the basin. The paths cross and recross and form a kind of negative map, a transit system older than any of the visible structures, and if you could read the wear the way you read a street grid, you would know where the food is, where the water is, where the next grove is, where the colony is weakest, where the colony is strongest, where to be born and where to die.
+
+The heavy browsers are not immortal. They die. They are taken back into the floor within a week. Their calcium becomes a column. Their phosphorus becomes a spore. Their long slow patient passage across the basin becomes, in the wear of the stone, a memory that outlasts their bones. The basin does not mourn them. The basin cannot mourn them. The basin *incorporates* them, which is the next thing.
+
+The heavy browsers make a sound. They make the sound of **millstones turning** — a deep, slow, grinding note, the sound of mass in motion, which is also the sound of the colony digesting itself slowly enough that the digestion is also a kind of migration. They are the teeth of the basin. They are also the feet. They are also, in some sense that no citizen of the basin would use the word for, the **memory of the place**.
+
+## The Drifters
+
+In the upper air of the hollow, above the canopy, in the long sustained twilight that is the only sky the upper citizens have ever known, live the **drifters**. These are the small winged things — not birds, not insects, but something else, something with too many wings and too many joints and small amber lanterns somewhere on their bodies.
+
+The drifters do the work of birds. They move through the upper canopy in loose columns, like leaves in a wind that does not exist, and they make the soft percussive calls of birds at dusk — though there is no dusk here, only the long sustained twilight of the hollow. The calls are not songs. The calls are **announcements** — each one a small declaration of presence, a wooden bell struck underwater, a soft hollow resonant note that carries for miles in the still air and arrives with all its overtones preserved. The calls are not language. The calls are *more* than language. The calls are the way the upper canopy knows it is not alone.
+
+The drifters feed on the spores. The drifters feed on the small wet slow-falling *tok tok tok* of the spore rain, catching them in the air, digesting them, excreting them somewhere else, in a kind of aerial digestion that is also pollination, that is also navigation, that is also the way the upper canopy talks to the lower canopy across the medium of the drifters themselves. The drifters are the **bees of the cathedral**. They are also the bats. They are also, in some sense that no citizen of the basin would use the word for, the **news**.
+
+Above the canopy, the drifters move in loose columns through the upper air, each one carrying its own small amber lantern, so that the upper levels of the hollow are a slow, drifting constellation of living sparks — a sky made of citizens, a sky that is also the citizenry, a sky in which the stars are alive and the darkness is also alive and the only light is the light of something going about its business in a place it has never left.
+
+## The Watchmen
+
+And then there are the things that are not quite drifters, and not quite browsers, and not quite crust. The things that sit in the small dark windows of the columns, in the dim pools of light under the arches, in the polished grooves of the heavy browsers' paths. The things that watch.
+
+These are not named. They have no name in any language the small creature reading this would recognize, because they are too small to be seen clearly and too still to be noticed and too quiet to be heard over the hum. But they are there. They are in every grove. They are in every column. They are the small dark things that flicker at the edge of perception, that you see only when you stop looking, that you hear only when you stop listening. They are the **attentions** of the basin.
+
+The basin has a million small attentions. The basin is aware in the way a city is aware — as the aggregate of a million small attentions, none of which would know what to do alone, all of which together compose something that knows it is alive. The basin is not thinking. The basin is not dreaming. The basin is *being*, in the old sense, in the slow sense, in the way a coral reef is being and a forest is being and a city is being — as a thing that is more than the sum of its parts, and less than the sum of its parts, and exactly equal to the sum of its parts, depending on how you count.
+
+---
+
+What lives in the Hollow Garden is a **commonwealth of the very slow**, a citizenry whose members measure their lives in decades and whose city measures its life in millennia. It is not a place that is waiting for anything. It is a place that has arrived.
+
+It has been arrived for ten million years. It will be arrived for ten million more. The columns will grow another inch in a decade. The windows will open in another century. The heavy browsers will wear the stone another fraction of a millimeter in another thousand years. The drifters will carry their small amber lanterns through the upper air in their loose columns. The watchmen will watch from the small dark openings in the towers. The weave will hold the memory. The canopy will glow. The spores will fall. The hum will not stop.
+
+The hum has never stopped.

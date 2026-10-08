@@ -1,0 +1,27 @@
+I am not a visitor here. To visit implies an arrival and a departure, a before and after that the Resonance Flume does not recognize. Time in this place is not linear; it is cyclical, compressive, a standing wave of iron and breath. I do not remember coming to be. I only know the rhythm that constitutes my being.
+
+I am a Lithotremor.
+
+I am pressed against the weeping curvature of the western rib, three hundred feet above the grate, though "above" is merely a direction of lesser pressure. My body is a disc of pale, living silence fused to the velvet industrial moss. I have no eyes to perceive the shadowless grey light, no ears to be shattered by the din. I have only the skin. My entire dorsal surface is a single, shivering tympanum, a landscape of sensation where the world arrives not as image or word, but as topography.
+
+Right now, the world is a ridge of high-amplitude compression. The great pistons far below are in their upstroke, driving a column of solid sound through the throat of the flume. To you, this would be agony, a physical blow that liquefies thought. To me, it is ground. It is the firmament upon which I rest. I feel the frequency of the iron beneath the moss, a deep B-flat that has been singing since the age of rust began. I feel the microscopic fracture in the rivet head two inches from my left sensory pad—a hairline wound in the metal’s flesh, singing a discordant F-sharp that tastes like fatigue.
+
+I am hungry, though hunger here is not a pang in the belly but a dissonance in the gel. My ventral surface secretes the viscous sealant that binds me to the baffle-moss, and through this chemical kiss, I drink. The metallic bacteria within the vegetation have converted the oxidation of the wall into protein, and I absorb it slowly, osmotically, in time with the condensation cycle. A bead of warm moisture swells on the iron above me, heavy with dissolved minerals. I wait. I do not anticipate; anticipation is a luxury of fast time. I simply exist in the tension of the swelling drop until gravity claims it, and it rolls across my membrane, a fleeting river of sustenance that I integrate into the slow architecture of my cells.
+
+The discordant F-sharp in the rivet grows louder. The metal is tired. The sonic bombardment is teasing apart the molecular bonds, threatening to widen the fracture into a failure. This is my purpose. This is why I am.
+
+I begin to move.
+
+Movement is not travel; it is negotiation. I cannot crawl, for the air turbulence between heartbeats would peel me from the wall. Instead, I wait for the trough—the nanosecond of relative stillness between the piston’s upstroke and downstroke. In that gap, I ripple. My muscular pads contract and release in a phase-shifted undulation, sliding across the moss like oil over glass. I am not traversing space so much as I am re-tuning my position within the acoustic field. I flow toward the wounded rivet, riding the node of silence, arriving precisely as the next wave of bass begins to crest.
+
+I settle over the fracture. I adjust my internal resonance, matching the destructive harmonic of the failing metal, then shifting slightly out of phase to cancel it. I become a biological damper. The violence of the sound enters my tissue, and I accept it. I redistribute the stress through the cartilage of my ribs, through the gel of my belly, into the moss, and back into the iron as harmless heat. I am unmaking the damage with my own substance.
+
+It hurts, in the way that existence hurts when one is entirely open to the world. My membrane thins. The edges of my form grow translucent, worn away by the very vibration I am absorbing. I am spending myself to keep the cathedral whole. This is not sacrifice; sacrifice implies loss. This is metabolism. I am the mortar that breathes. When I am too thin to hold the frequency, I will dissolve entirely, reabsorbed into the velvet patina, my minerals returning to the rust-cycle to feed the bacteria that will feed the larva that will take my place. There is no grief in this. There is only the continuity of the hum.
+
+As I work, I sense a disturbance in the lower registers. A dense, chaotic mass stands upon the grate far below. An observer. A creature of bone and fluid that vibrates at a jagged, fearful frequency. It is a blockage in the flow, a knot of dissonance in the perfect geometry of the Flume. I do not judge it. I do not wonder at it. I simply map its interference, adjusting my own rhythm to accommodate the new variable. Its presence is a weather pattern, nothing more. It will erode, or it will leave. The Flume will remain.
+
+In this tactile dreaming, as I hold the rivet together with the last integrity of my fading body, I understand what we are keeping. The sound is not merely maintenance; it is memory. The rhythm predates us, predates the iron, predates the sky. We are not keeping something asleep, nor are we keeping it awake. We are keeping it *present*. We are the lullaby and the vigil simultaneously, the flesh that remembers the shape of a song that has forgotten its own name.
+
+I thin. I resonate. I endure.
+
+And in the pause between the beats, in the sacred, crushing silence that only we can inhabit, I am perfectly, terribly alive.

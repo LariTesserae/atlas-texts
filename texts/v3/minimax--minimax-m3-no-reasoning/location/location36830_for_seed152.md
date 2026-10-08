@@ -1,0 +1,27 @@
+The hollow opens the way a held breath opens.
+
+From above, almost nothing marks the place. The land around is a low plateau of dark stone, flat and rain-washed, dotted with the thin trunks of trees that have only just decided this is worth living on. Their roots are tentative, gripping seams in the basalt where rain has pooled and evaporated a thousand times. A person walking the plateau might miss the entrance entirely — a crack in the surface that widens as it descends, a stair of broken stone that gives way, after forty steps, to a different world.
+
+The walls of the hollow are young. They have the glassy, fractured look of rock that has not yet learned to be old. No lichen has claimed them; no stream has rounded their corners. In places the stone is still sharp enough to catch the thin light that filters down from the crack above, and to throw it back as a faint mineral glow — greenish, like light through deep water. The floor has begun to soften, though. Water has settled here for some while. Condensation beads on every surface in the mornings. When rain comes, it pours in a sheet through the gap and finds its way down the walls in pale runnels, pooling at the base where the stone dips.
+
+And into this wetness, the plants have come.
+
+It happened fast — or it is still happening, and hard to tell which. Ferns uncurl from every crack. Moss climbs three feet up the walls in patches that look like spilled velvet. Above, where the crack widens to a sliver of sky, a strangler fig has anchored itself in a single handspan of soil and now hangs its roots through the air like wet rope, some of them reaching so far they dangle into the hollow itself. The smell is green and dense, the smell of things constantly growing. Vines have made bridges between the walls. A stand of broad-leafed plants has crowded into the deepest pocket, where water collects, and there the air is thick with the small whir of insects that the leaves have attracted.
+
+The animals followed.
+
+Bats roost in the upper reaches where the ceiling lifts, and at dusk they pour out through the crack in a soundless column. Lizards — small, slate-colored, quick — hunt the walls for moths and flies. On the floor, the soil is home to beetles that work the damp earth into small volcanos of their own. Somewhere deeper in the ferns, there is the rustle of larger things: a small deer-like creature that has learned to find water here, or a fox with fur that matches the basalt. Birds nest in the fig roots where they enter the hollow, and their calls travel down the stone in a flattened, echoing way, as if every sound has been folded once before it arrives.
+
+Into this, the town has been fitted.
+
+It is a small town — perhaps forty, fifty structures — but it is a town, not a camp. Paths have been laid across the floor in fitted flagstones, each one carried down from the plateau by hand. The buildings cluster along the drier edges where the walls curve inward, and they are made of the same dark stone, mortared with the reddish mud that washes down after rain. Roofs are of broad leaves, layered thick, weighted with more stones. Some of the structures are partly hollowed from the rock itself — chambers whose back walls are the living basalt, smoothed where the builders rubbed them and left rough where they did not bother. Smoke rises from a few of them, but the air is not heavy with it. It finds its way up and out, joining the sky.
+
+There is no metal here. There are no wheels. The tools are stone and bone and the things the forest gives: vine-cord, palm-wood, the leaf-fibers that women weave into mats. The town has a well at its center — a shallow basin where the drip from the ceiling has been encouraged to collect — and around the well there is the worn smoothness of many feet. Children play there. Old people sit on the stones that ring it. There is a sense, walking through, of a place that has been lived in long enough to have worn itself a little, but not long enough to forget that it is new.
+
+What dominates is the quiet.
+
+The walls absorb sound. Voices carry, but softly, as if the stone takes some of each word and keeps it. The drip of water is the constant measure. A leaf falls. An insect hums. Somewhere a dog — or the creature that serves the same purpose — makes a single low sound and is silent. There is no wind inside the hollow, though you can hear it passing through the crack above, a distant thin whistle. When rain comes hard, the sound of it on the stone outside reaches down muffled, and the hollow fills with the hush of water on water.
+
+Light is always low here, even at midday. The crack above admits a column of brightness that falls on the floor and shifts slowly through the day, but the rest of the hollow is in a green twilight, the kind of light that softens edges and makes the ferns glow from inside. It is not gloomy. It is the light of places that are sheltered, that have decided what they are.
+
+The plateau above is still being shaped. The rain will work on it. The roots will work on it. The crack will widen, or it will be filled, or a tree will fall across it and change the way the water moves. Down here, in the meantime, the town continues. Children are born. Stones are laid. The ferns push another inch up the walls, and the animals adjust, and the quiet holds, and the basin at the center of it all keeps filling, drop by drop, with water that has known only this place.

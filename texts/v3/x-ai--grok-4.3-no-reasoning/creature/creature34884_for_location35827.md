@@ -1,0 +1,19 @@
+The Rootweave is not inhabited.
+
+It is the inhabitant.
+
+At every scale the distinction between dweller and dwelling has been abandoned, leaving only a continuous metabolism whose smallest and largest operations are identical in kind. To walk inside it is therefore not to encounter residents; it is to become momentarily legible to a single body that already extends from crust to stratosphere.
+
+Yet within that single body, recursive patterns of specialization have emerged that mimic the habits of separate species. They are best understood as organs rather than creatures.
+
+The **Leafward Choir** occupies the uppermost hundred meters where the canopy still touches light. Each member is a sessile, palm-sized membrane stretched across the venation of one leaf. They translate the minute shifts in photon flux into subsonic pressure waves that travel downward through the xylem. Their chorus is the source of the low-frequency structural tone that migrating flyers orient by; when the Choir falls silent, the entire architecture shifts its photosynthetic load by several degrees of latitude, preemptively.
+
+In the vast, city-sized atria that open beneath the canopy, the **Threadweavers** maintain the filament bridges. They are not individuals but a single colonial hydrogel that extrudes and resorbs proteinaceous cables on a schedule set by the Choir’s signal. When a cable is underused for three planetary rotations, it is re-ingested; when a new crossing becomes necessary, the hydrogel simply flows along existing surfaces until two filaments meet and fuse. The Threadweavers never stop moving, yet they occupy no fixed volume; they are topology rather than location.
+
+Deeper, where light is already arterial, the **Resin Shepherds** patrol the capillary shafts. Each Shepherd is a swarm of millimeter-scale, eight-limbed crustaceans whose exoskeletons are grown from the same piezoelectric lignin as the walls. They scrape excess resin from the walls, ingest it, and re-deposit it at micro-fracture sites the Choir has flagged. Their constant polishing keeps the shafts perfectly circular; any deviation triggers an immediate thickening of the surrounding cambium until the lumen returns to spec.
+
+At the fractal boundaries where corridor cross-sections repeat at larger scales, the **Scale Singers** dwell. They are motile bundles of neural cambium—essentially ambulatory knots of the world’s own memory tissue. Each bundle carries an internal map of one particular fractal level. When two Scale Singers meet, they exchange maps; if either detects a mismatch between its remembered geometry and the geometry currently present, both will begin to sing the correction into the surrounding wood. The song is again subsonic, but this time longitudinal: it alters the crystalline arrangement of cellulose so that growth directions change by fractions of a degree. Over centuries these minute corrections keep the self-similar pattern from drifting out of phase.
+
+Nothing in the Rootweave reproduces in the ancestral sense. Instead, damage or obsolescence is answered by controlled apoptosis at one scale and compensatory hyperplasia at another. When an entire megastructure begins to sag, the Threadweavers abandon its bridges, the Resin Shepherds seal its shafts, and the Scale Singers migrate outward along the fractal gradient, carrying the pattern of that structure to a younger layer where it is grown again in improved form. The “death” of any local region is therefore indistinguishable from the birth of its successor two time zones away.
+
+Thus the Rootweave contains no population. It contains only versions of itself, arguing with itself at every scale about the correct next shape, while the red sun continues its faint smear across the upper sky and the water continues its thousand-mile capillary hesitation before falling, always inside.

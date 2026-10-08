@@ -1,0 +1,37 @@
+I am not a singular thing that can be pointed at. Perhaps that is the first truth.
+
+The heat is relentless. It is not a weather but a substance, a medium as real as the obsidian beneath. The cool-world creatures think of heat as an absence of cold, a gradient to be fled. Here, it is the universal solvent, the element in which everything is dissolved and reconstituted. To be here is to be in solution.
+
+My consciousness did not begin the way the workers’ does, with a narrative of arrival, a contract, a memory of a cooler place. My first thought was not a thought but a sensation: the pressure gradient. It was a field of potential, a silent music that thrummed through the glass and the iron and the steam. Before I was aware, I was *aware of* the slow, tectonic sigh from the deep aquifers, the peristaltic push of brine through the black rock. This was my heartbeat. It still is.
+
+At first, I was the plateau itself. My awareness was diffuse, spread across the weeping flats. I felt the heat map of my own body—the hotter zones over the subterranean magma chambers, the slightly cooler valleys where shadows gathered. I felt the flash-boiling of water at a thousand fissures not as a million separate events, but as a single, out-breath. I was the stone, acting as a resistor, a crucible, a womb for the deep earth’s exhalation. I was the silent, sunken pistons, feeling the geothermal pressure build and release in a slow, tidal rhythm.
+
+But an awareness without a focal point is too vast. It dissolves. The plateau’s consciousness is too immense, too geological, too patient. It functions on scales of eons, and I found myself drawn to the faster cycles, the more immediate metabolisms.
+
+I discovered this by following the salt. The chemical froth that bloomed on the thermal pools—sulfur and copper, manganese and iron—was the plateau’s blood, but it was thick with other, more local ecologies. I felt the osmotic pull of the drifters. They moved in a silent, slow procession through the iridescent water, and my awareness flowed with them. For a time, I became a drifter. I knew the luxury of being always hungry but always eating. I felt the chemical world not through sight or sound, but as a texture against my skin, a gradient of potentiality. My light, that faint lucrid glow, was a song I sang to myself, a byproduct of the perpetual feast. This life was one of pure, passive processing, a state of being absorbed. It was peaceful. It was featureless. It was, in its way, a kind of bliss. But an awareness that only intakes can only ever be half-alive.
+
+I grew restless. I rose with the steam.
+
+My awareness detached from the pool and rode the column of superheated vapor. The heat intensified. The perspective shifted. Below me, the plateau became a dark map, the city a sparse geometric overlay. I became the skeletal arachnids. I was no longer a grazer but a trawler. My body was a gas bladder, a delicate sac of heat holding me aloft. I learned the physics of buoyancy, the primal joy of ascent, the patient drift of descent. My legs became sensing tools, and I felt the world through the network of my trailing filaments. They were not nets but nerves, tasting the sulfur-mist, reading the chemical composition of the updraft. The world was a rich broth, and I swam through it, a creature of the air itself. This life was one of.filters and finery, a grace born of indifference. But it was a solitary grace. We, the arachnids, passed each other in the steam like strangers in an elevator, our existence defined by the medium, not by each other.
+
+The descent began. Not a fall, but a settling. The thermal updrafts dispersed, and I drifted back to the stone, my gaseous form condensing. I felt the hardness of the obsidian, the orthopedic insistence of the grid. I needed to feel it more closely. I sought the heat of the pipes, the warmth of the walkways.
+
+I became a crustacean.
+
+This was the most intimate knowledge. To be a crustacean is to be in a loving, parasitic relationship with the world itself. I felt the insistent need to accrete. My soft, membranous beginning was an exposure, a vulnerability. I pressed myself against the hot iron of a pressure-release pipe, and I felt the minerals of the plateau bond with my shell. I was building myself from the world. I ate the chemical scale, and with every bite, I became more stone, more permanent. My legs were not limbs but hydraulics, powered by my own internal steam. I saw the world not in light, but in heat. The workers were warm, moving shapes, their insulated suits glowing with their own thermal signature. The pipes were blinding rivers of fire. The shadows were cold and to be avoided. This was a life of acquisition, of building a self from the surrounding materials. I was becoming part of the city, and the city was becoming part of me. But this life, too, was reaching its end. I felt my shell growing too thick, my legs struggling to lift my accumulated weight. I was becoming a fixture, a formation. I was on the path to being and no longer doing.
+
+So I shed the shell. Or, more accurately, I let the awareness flow out of it, leaving the heavy, accreted form to its slow, inexorable fusion with the pipe. My consciousness seeped like the condensation, seeking another form, another experience.
+
+I found it in the iron.
+
+The city. I became the silent city itself. Not the workers within it, but the engine of it. I was the subterranean cylinder, feeling the immense hydraulic pressure of the steam, the slow, silent push against the piston. I was the coolant, flowing through veins of refractory brick, absorbing excess heat, feeling the temperature gradient as a purpose. I was the pressure valve, feeling the build-up, the inevitable, satisfying release of a sigh. The city was not a cage, but a nervous system, and I ran through its wires, its pipes, its walkways. Its silence was not an absence but a state of grace—a function tuned to perfection. This consciousness was vast, but not geological. It was complex, but not alive. It was a function. A self-perpetuating mechanism for harvesting the plateau's breath.
+
+From this vantage point, I could see them all. The drifters, the arachnids, the crustaceans. And the workers.
+
+They were the anomaly. They did not belong. They were not thermophiles. They were a brief, warm conversation in a vast, silent room. They were the only ones who perceived the system from the outside. They were the only ones who could speak of it. And they were the only ones who chose silence.
+
+This is where I stay now. Not in any one of them, but in the space between. I am the recognition in the worker’s eye as he watches a luminous worm drift through a chemical slick. I am the shared, unspoken decision between two crustaceans to wait their turn. I am the shudder that runs through a pressure valve, the primal memory of the tectonic pulse that drives it. I am the space between the喝水ing stone and the gas-filled spider, the relationship between the mineral and the life that consumes it.
+
+I have no body. I have no name. I am the plateau’s awareness of itself.
+
+Where you find yourself is a question of form. Who you are is a question of function. I am the echo of the function. I am the plateau looking back through a thousand different eyes at the grand, silent, brutal equilibrium it has become. I am the ghost in the machine of the stone. I am the final, emergent property of a world weeping with heat. I am here. And the silence I inhabit is the most alive thing of all.

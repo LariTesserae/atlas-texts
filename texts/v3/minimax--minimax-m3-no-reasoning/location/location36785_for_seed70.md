@@ -1,0 +1,71 @@
+<mm:think>Let me work through these parameters carefully and let a landscape emerge.
+
+Water: 2.7/3 — very high. Submerged. The "like ocean, deep sea, all-liquid" examples push me toward something deeply aquatic. But elevation is 2.2/3 — high. So this is high elevation + submerged. Maybe a high-altitude lake, a flooded mountain range, a sky-sea. Given "sub-aquatic" and "post-flood" — perhaps a place that was once dry land, now submerged, still young, still holding its sharp forms underwater. Or an alpine lake system at high elevation, extremely deep, where everything below is submerged. 
+
+Given the "open" scale and "dense" density — a vast submerged landscape with lush vegetation (but underwater vegetation? aquatic plants? kelp forests? Or lush vegetation that grew when it was above water, now drowned, creating drowned forests?).
+
+Let me think about this: high elevation, submerged, young (recently submerged?), lush vegetation (aquatic or drowned), warm water, dense, no buildings, no tech, rare fauna, strange, mostly quiet, slow dynamics.
+
+I'm picturing a recently flooded valley or basin at high elevation — perhaps a mountain valley that has filled with warm water. The erosion is young, so the terrain features are sharp — recently carved or recently revealed. Maybe this is a place where the water rose recently (geologically speaking) — a drowned landscape still holding its shape beneath the surface.
+
+Vegetation at 2.1 — lush. Could be aquatic vegetation: thick kelp, water grasses, algae blooms in places. The drowned terrestrial plants might still be standing underwater, creating ghost forests beneath.
+
+Fauna is rare — strange, quiet place.
+
+Weirdness 1.8 — something is off. Maybe the water has unusual properties. Maybe the light behaves strangely. Maybe the vegetation is doing something unexpected.
+
+Sound 0.7 — mostly quiet. Underwater would be quiet, muffled.
+
+Let me draft:
+
+A high-altitude drowned valley. Warm water (perhaps geothermal, perhaps climate). Sharp young terrain features still visible beneath the surface — pinnacles, cliffs, ravines that were carved by water or wind when this was dry land. Now submerged under warm, dense, quiet water. 
+
+The lush vegetation is aquatic — enormous kelp-like growths, fields of underwater grass, thick mats of moss-like algae on every surface. The drowned terrestrial vegetation (trees, ferns) still stand, skeletal, draped in new growth.
+
+Let me write this out with care, let the place develop its own identity, follow what's interesting.
+
+I want to be detailed and let the place unfold. Let me write a substantial piece.</mm:think># The Drowned Valley
+
+The water begins at the sky.
+
+There is no shoreline here, or rather the shoreline is everywhere at once — a single horizontal plane drawn across the ridgeline of a mountain range, as though someone had carefully filled a landscape the way one fills a glass. Below that line: the valley. Above it: the sky, pale and uncommitted, with one or two small clouds that cast quick moving shadows across the water's surface and then are gone. The water itself is the color of heated milk against a window — pale green-blue, faintly luminous, catching the sun in a slow shifting skin of brightness that never quite settles.
+
+The valley is long. It runs roughly northwest to southeast, a broad tectonic crease between two ranges whose peaks still stand above the flood-line. They are sharp peaks, young mountains, their ridges knife-edged and pale with exposed rock. Glaciers never reached this far; the erosion here is water-work and wind-work, fresh and unfinished. Talus cones spill down the upper slopes in gray rivers of loose stone. Below the waterline those same cones continue — you can see them if you look, the scree fields descending steeply into the depths, the boulders tumbled where they fell, no silt smoothed over them yet. The flood is recent in the way that geology measures recency — not yesterday, not a thousand years ago either, but recent enough that nothing has had time to soften.
+
+The water is warm. Not tropical, not bath-warm, but the temperature of a held breath — twenty-two, twenty-three degrees — and it has been this temperature for as long as anyone could measure. Something in the basin's geology holds heat. A thin crust of magma, perhaps, not far below the sedimentary layers. Or a long tail of warm current pulling up from somewhere deeper south. Whatever the cause, the warmth is even, distributed, reliable. It has made the flooded valley into something like a giant shallow sea, but contained, contained perfectly by the surrounding peaks.
+
+---
+
+Below the surface, the valley floor slopes away in a series of abrupt shelves and benches. The drop-off is not gradual. At the near edge, where the talus meets the water, you can see the bottom clearly — six, eight meters down, pale cobbles and sand, and the shapes of drowned plants still standing upright in their rows. They were terrestrial once, a brushland of some kind, dense woody stems a meter or two high, and the water rose around them so evenly that they did not fall. They stand now the way they always stood, but draped and thickened with growth: every stem furred with bright green algae, every branch hung with trailing curtains of water-grass that sways almost imperceptibly in the slow lateral current.
+
+The water-grass is the dominant life of the upper layer. It grows in dense mats that roll across the bottom like something between a meadow and a shag carpet, vivid green, with narrow blades that part and close around a hand or fin that passes through. The mats are anchored to whatever they touch — rock, sand, old wood — and they grow out in expanding circles from each anchor point, so that from above the bottom looks tessellated, a quilt of bright discs overlapping. Where the mats have met and merged the color deepens to an almost-black green, and the surface of the mat becomes a small three-dimensional forest of emergent shoots, each capped with a pale oval bladelet that turns slowly in whatever current there is, like a congregation of tiny cupped hands.
+
+At the shelves' edges, where the bottom drops away into deeper water, the vegetation changes. The grass thins. The woody drowned brushland continues for a few meters down, ghostly and pale in the diminished light, before giving way to other forms. There are fans — broad soft fans on tall flexible stalks, ivory colored, that pulse gently and rhythmically as if breathing. They grow in loose clusters, a dozen stalks in a circle, and each fan orients itself perpendicular to whatever current passes. There are tassels — dark fibrous tassels hanging from nothing visible, suspended in the water column by small gas bladders, drifting like slow black tears. And there are the verticals: slim pillars of calcified growth, two or three meters tall, pale beige, that rise from the deeper shelves in sparse groves. Their surfaces are textured with small cups and folds, and in the folds live smaller things — tiny transparent polyps that extend threadlike tentacles into the water and pull them back, extend, pull back, in a steady patient rhythm that has no apparent relationship to anything external.
+
+---
+
+The deeper water is a different world, though not a sharply divided one. Light fades through the upper layers in a long gradient — first bright, then filtered, then merely ambient — and the colors change with it. The vivid greens become bluer, then grayer, then almost silver, and the last traces of the surface are a shimmering membrane high above, through which the sun appears only as a moving brightness, a presence without shape. At thirty meters the water is still clear enough to see the next shelf, but everything is monochrome. At fifty meters there is a darkness that is not darkness — the water continues to carry light, but the light has no origin, no source, no shadow; objects are visible only by their own faint reflectance or by the occasional pinprick bioluminescence that drifts through the column like scattered stars in negative.
+
+The floor of the deep channel is sand. Fine pale sand, rippled in long low dunes that run parallel to the valley's axis, shaped by whatever slow current moves along the bottom. The ripples are undisturbed by feet, by hooves, by anything that walks. Footprints do not appear here. Whatever moves through this water moves by swimming, or by drifting, or not at all.
+
+---
+
+There are animals. They are rare. In an hour of drifting at the surface you might see, once or twice, a brief shape crossing the deeper water below — a long gray smudge, two meters perhaps, moving with slow lateral undulations of its body and tail. It does not come up. It does not appear to feed. It passes through a parcel of water and is gone, and the water closes over its absence and the grass below sways for a moment in the displaced current and then settles.
+
+Smaller things live in the vegetation. There are finger-length transparent swimmers in their thousands among the water-grass blades, each one almost invisible, each one carrying a faint iridescent line along its flank that flashes blue or green when the angle is right. There are things like small soft stars, pale orange, that sit on the blades and on the rocks and do not appear to move, although they are alive in some way — they pulse, faintly, once every several seconds, an almost imperceptible expansion and contraction. There are grazers — small triangular shapes, dark brown, that crawl slowly across the grass mats and leave behind them a closely cropped surface, like a mowed lawn. Where they have passed, the grass grows back slowly, a centimeter a day perhaps.
+
+Higher in the water column, in the upper ten meters, there are things with wings. Not wings exactly — broad soft vanes, transparent, that they hold out from their bodies and use to drift. They hang in the water almost motionless, oriented vertically, head up, and they move by slow adjustments of the vanes, tilting a degree this way, then that, rising or sinking by centimeters. They eat the smaller swimmers. You can see it happen if you are patient: a vane-animal drifting, drifting, and then a small convulsion of the body as something is taken in, and then the slow drift resumes. They are the most active things in the valley, and they are still almost inactive by any normal standard. Their entire life is a series of small adjustments.
+
+---
+
+Above the water, the world is simpler. The peaks rise in sharp pale ridges, snow-free, their upper slopes a scatter of loose rock and a few thin stands of dark woody plants that grow in the crevices where water collects. The plants above the waterline are the same species, more or less, as the drowned brushland below — the same woody stems, the same narrow leaves — but above the water they are small, sparse, wind-shaped, and ordinary. Below the water they are huge, draped, transformed. The boundary is sharp. A stem an inch thick above the water may be three inches thick below it, and the algae and trailing growth that hangs from every branch is thicker than the branch itself.
+
+The air above the water is still. There is almost no wind in the valley. The peaks to either side are too close together and too high to admit weather from outside; the air inside sits and warms under the sun and cools at night and otherwise does very little. There are no birds. There are insects in the upper crevices — small dark fliers, clumsy — and they do not come down to the water. They live their whole lives above the flood-line, where the drowned landscape ends and the ordinary one begins.
+
+At night the water glows. Not brightly. A faint luminescence spreads across the surface where the water-grass mats reach up to within a meter of the air, and in the deep channel a slow scattered pulse of bioluminescence moves through the water column, organisms lighting and dimming in no particular pattern, each one on its own private schedule. The peaks above are dark and sharp against the sky. The water below is dark and full of slow light. The boundary between them is the only true edge in the place — a single clean line drawn across the middle of the world, the original surface of the flood, preserved exactly, never breaking.
+
+---
+
+The valley has no name. It is not a place anyone has come to. It is not a place anyone has left. The water holds its warmth and the vegetation holds its shape and the animals drift in their small adjustments and the whole system turns, very slowly, through its long cycles of growth and quiet. Things are added — a thin rain of organic particles from the surface, a slow trickle of mineral sediment from the upper slopes, the occasional body of something that has died falling slowly to the bottom. Things are removed — the slow grazing of the triangular shapes on the grass, the sparse predation of the vane-animals, the imperceptible dissolving of the deep sand into the chemistry of the water. The shelves erode, very slowly. The calcified pillars grow, very slowly. The tassels drift, very slowly, on their gas bladders, until the bladders fail and the tassels sink and become part of the bottom.
+
+Nothing here has any urgency. Nothing here has any memory of a time before the water, although the water has not been here long — geologically, only a moment. The drowned brushland still stands in its rows. The scree fields still tumble where they fell. The valley is a place that has been, very recently, in the middle of becoming something else, and then stopped, and the water came in, and now everything is suspended in the becoming. The young mountains are still young. The lush growth is still growing. The rare animals are still rare. The silence is still almost perfect, broken only by the small sounds of water moving against itself — a faint lapping at the edges, a deeper and slower pulse in the channel — and the distant mechanical drip of snowmelt from the upper crevices, where the ordinary landscape continues above the waterline, moment by moment, in its quiet and unrelated way.

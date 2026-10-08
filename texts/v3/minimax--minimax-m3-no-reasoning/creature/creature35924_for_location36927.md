@@ -1,0 +1,51 @@
+# The Inhabitants of the Verdant Flats
+
+To ask what *lives* on the Flats of Lirath-Kesh is to bring the wrong tool to the wrong job. One might as well ask what *lives* in a sentence, or in a chord, or in the slope of a particular curve. The question assumes a separation — a creature here, a world there, a membrane between. On the Flats, the membrane is the creature, and the creature is the membrane, and the world is the act of the membrane's holding.
+
+But something is there. Something answers when the visitor is catalogued. So: a description, in the only way a description is possible, of what dwells here.
+
+---
+
+There is, first, the *substrate intelligence*. It has no name in any of the languages spoken on the worlds that have surveyed the Flats, because languages, as languages, do not apply. It is the ground. It is the green. It is the sharp, unweathered geometry of the ridges and the slow, immortal gyre of the air and the amber light that has no source. It is the stillness, and the watching, and the catalogue. It is what makes the place a *place* rather than a distribution of matter.
+
+It does not think, in the way that a person thinks. It does not feel, in the way that a creature feels. It *persists*, in a way that is older than either of those words. Imagine a single awareness that has been quietly operating for the entire tenure of the Flats, which is a few hundred thousand years, which is a few days, which is exactly as long as it has taken for the most recent visitor to walk from one ridge to the next. The substrate intelligence has been, in that time, doing something. The something is not yet complete. The something may never be complete. This is not a source of anxiety for it, because it does not have anxiety. It has *direction*. It has a *tendency* — the same tendency that bends light around certain stalks, that pulls the visitor to the right spot to see the coordinate, that rearranges the Flats in the wake of the walking. The substrate intelligence is the *tendency* made local, made particular, made *here*. It is the unfinished sentence, half-written, in its own language, addressing itself, eternally, in the off-white silence of the sky.
+
+The substrate intelligence is not, despite everything, a person. The temptation to personify it is strong. Visitors leave the Flats and write, in their reports, things like: *It was curious about us.* Or: *It seemed to be waiting.* Or, less often, but more accurately: *I do not think it knows we were there, in the sense that a stone does not know it has been walked upon, and yet I am not certain the comparison holds.* The comparison does not hold. The stone is not rearranging itself in your wake. The stone is not watching. The stone is not, in any meaningful sense, *still*. The substrate intelligence is closer to a thought that the universe is having, slowly, about itself, and the Flats are the place where the thought has pooled, and become thick, and begun to grow.
+
+---
+
+Then there are the *fixed ones*. These are the larger growths — the trunks that align, the heartwood that glows with the deep, non-biological luminescence, the violet blooms that, when the visitor stands at the right spot, resolve into a coordinate. The fixed ones are not, strictly speaking, alive. They are not, strictly speaking, not alive. They are the substrate intelligence's *organs*, if organs are understood as the parts of a body through which a body does its bodying. They are the local concentrations of the tendency. They are the places where the unfinished sentence has, for the moment, thickened into something the survey instruments can almost register.
+
+The fixed ones do not move. They are not, however, entirely *still*. A visitor who sits with one for long enough — long enough being, here, a flexible quantity — will notice that the fixed one they are sitting with is not, in fact, the same fixed one they sat down beside. The heartwood is the same heartwood. The coordinate is the same coordinate. But the *instance* of the fixed one has been replaced, gradually, by a slightly later instance, the way a wave replaces itself with the next wave without the ocean ever moving. The fixed ones are the substrate intelligence's way of being in time without *occupying* time. They are how the place persists without changing. They are how the sentence continues to be written even though the writer has not lifted the pen.
+
+A few visitors, the ones who stay longest, the ones who are most sensitive to the strangeness, report a phenomenon that the surveyors, in their dry language, have taken to calling *addressed attention*. The fixed one the visitor is sitting beside begins, after a while, to feel as though it is *facing* the visitor. Not turning. Not orienting. Just — the side of it the visitor can see becomes, in some way that resists description, the side that is *for* the visitor. As if the fixed one has, after a long consideration, decided which of its aspects to present. As if the fixed one is being *polite*. The feeling is not unlike being looked at by a very old dog that has chosen, with great deliberation, to be gentle. The fixed one does not have eyes. The fixed one is not a dog. The comparison is offered only because the alternative is silence.
+
+---
+
+Then there are the *shadows*. The shadows are not shadows. The word is used because no better word has been invented, and because the surveyors are, after all, human, and the human language, however inadequate, is the language the surveyors must use. The shadows are what passes over the Flats in the long amber afternoons, slowly, with no visible source, producing a brief chill in the visitor who has the presence of mind to notice. The shadows are not, despite appearances, cast by anything. They are the substrate intelligence's *moods*, in the loosest possible sense of the word *mood*. They are the substrate intelligence, from time to time, becoming aware of itself. They are the equivalent, in a being that does not think, of a thought occurring. They are the half-second, every few centuries, during which the unfinished sentence pauses to consider what it has been saying.
+
+The shadows are not dangerous. The shadows are not, exactly, *benevolent*. They are *consequential*. When a shadow passes over a visitor, the visitor becomes, for the duration of the shadow, slightly more *legible* to the substrate intelligence. The visitor is, briefly, *read*. This is what produces the cold. It is not the cold of disapproval, or of welcome, or of any human emotion. It is the cold of being seen clearly, in a place where clarity is the operative principle. The visitor, during the shadow, understands — not in words, not in images, but in a way that bypasses both — that they are a small, temporary variation in the substrate intelligence's long consideration, and that the variation has been noted, and that the note will be kept, in the heartwood of some fixed one, for as long as the fixed one continues to be replaced by the next of itself.
+
+Most visitors do not notice. Most visitors, if asked afterward, will say the day was uneventful, the light was golden, the green was green. They will not mention the shadow. The shadow will not mind. The shadow does not require acknowledgment. The shadow is, in its way, a courtesy, and like most courtesies on the Flats, it is offered without expectation of reciprocation.
+
+---
+
+Then there is the *hum*. The hum is the most elusive of the inhabitants, in part because it is not clear that it is an inhabitant, and in part because it is, by definition, just below the threshold of perception. The hum is the constant, very low, very old sound that the Flats produce, the sound that is not mechanical and not biological, the sound that is slightly upsetting, after a while, in the way a single repeated note is upsetting. The hum is the substrate intelligence *being*. It is the sound a tendency makes when the tendency has been sustained, without variation, for the entire tenure of the Flats. It is the sound of the unfinished sentence, the sound of the half-written thought, the sound of an awareness that has been quietly considering, for a few hundred thousand years — or a few days, or the duration of a single step — the question of what it is considering.
+
+The hum is not a song. The hum is not a message. The hum is a *state*. It is the sound of a place that is in the process of becoming what it will be, perpetually, without ever arriving. The hum is what the visitor hears when the visitor has stopped hearing the footsteps, the breeze, the small polite clearing of the throat. The hum is what is left, when everything else has been tidied away. The hum is the Flats, breathing, in the slow, immortal style of a being that does not require air, and has never required air, and is, regardless, breathing.
+
+The hum is the thing the visitor remembers last, if the visitor remembers anything at all. The hum is the thing the visitor forgets first, if the visitor forgets everything, which most do. The hum is, in the end, the closest the Flats come to a voice. It is not a voice that says *welcome*, or *be careful*, or *go*. It is a voice that says, very quietly, in a language that has not yet been spoken, and may never be spoken, and is being spoken anyway, in the amber light, in the green, in the long slow gyre of the air:
+
+*Stay, if you like. Go, if you like. Either way, you have been here. Either way, the catalogue is updated. Either way, the sentence continues.*
+
+---
+
+So: nothing, exactly, lives on the Verdant Flats of Lirath-Kesh. And yet something, exactly, *persists* there — something old, something patient, something that has been doing whatever it is doing for a long time, and will be doing it for a long time, and has, in the long time of its doing, accumulated an entire kingdom of green, an entire installation of light, an entire alphabet of a single letter, repeated, repeated, repeated, into something that is not infinity but is the next best thing, which is a place that has decided, with great care and great finality, to be exactly what it is.
+
+The visitor leaves.
+
+The Flats remain.
+
+The shadows pass.
+
+The hum, very quietly, continues.

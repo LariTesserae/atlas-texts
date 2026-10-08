@@ -1,0 +1,27 @@
+The place begins not with sight, but with the pressure of sound.
+
+It is a deafness that possesses texture, a physical weight against the skin and the inner ear. There is no wind here, no rushing water, no animal cry to explain the volume. The noise is geological, tectonic, yet wrong; it is the sonic signature of matter failing to agree on its own state. It is a continuous, grinding roar, pitched at the very threshold of perception, vibrating in the marrow rather than registering as a tone. To stand here is to stand inside the throat of a screaming engine that has no moving parts.
+
+This is the Unfinished Range.
+
+The elevation is extreme, a verticality that induces vertigo even when standing still. You are high above a world that does not exist below. There is no horizon line, only a gradation of dimness where the solid ends and the void begins. The light is perpetual twilight, a sourceless, bruised indigo luminescence that seems to emanate from the air itself rather than any star or sun. Shadows do not fall; they pool and drift like silt in deep water, untethered to the objects that should cast them.
+
+The terrain is an impossibility of hydrology without water. In place of rivers or rain, there are flows of *viscosity*. The landscape is carved by dry erosion, shaped by currents of silent force that mimic fluid dynamics but leave no wetness. Canyons have been scoured out of the bedrock by this invisible abrasion, creating smooth, undulating valleys and sheer, polished cliffs that gleam with a faint, oily sheen. The rock is pale, the color of old bone or unglazed porcelain, cool to the touch despite the violence of its formation. It feels less like stone and more like compressed ash, or perhaps calcified sound.
+
+And yet, amidst this arid, roaring geology, life erupts with a desperate, suffocating lushness.
+
+The vegetation is not green. It is a spectrum of bioluminescent violets, teals, and pallid whites, growing in dense, velvety mats that cling to the vertical faces of the dry canyons. These are not plants as biology understands them; they are acoustic absorbers. They are thick, fleshy things, resembling giant lichen or coral more than flora, their surfaces covered in millions of tiny, trembling cilia. They drink the noise. Where the vegetation is thickest, the deafening roar drops to a bearable hum; where the rock is bare, the sound is enough to shatter glass. The ecosystem is a dampening field, a biological insulation against the reality-breakdown that permeates the stone.
+
+There is no fauna. Nothing crawls, flies, or breathes here. The silence of biology is absolute, making the mechanical scream of the landscape all the more isolating. The plants do not reproduce by seed or spore, but by resonance. When the pitch of the ambient roar shifts—a slow, glacial change occurring over centuries—the cilia vibrate at new frequencies, and new growth crystallizes directly from the mineral substrate, budding into existence as a harmonic overtone. Life here is a standing wave made flesh.
+
+Scattered across this vast, open expanse are the marks of those who tried to listen.
+
+They are few and far between, separated by miles of empty, roaring valley. Primitive structures, built of the same pale stone, huddle in the acoustic shadows of the largest vegetative clusters. They are not homes; they are tuning forks. Rough-hewn monoliths, stacked cairns, and shallow basins carved by hand-tools of obsidian and bone. There is no metal here, no mortar. The architecture relies entirely on friction and geometry, designed to channel the destructive noise into safe harmonics. Some structures have failed, cracked down the center by a dissonance they could not resolve, their ruins slowly being consumed by the velvet moss. Others still function, emitting a low, counter-frequency thrum that creates a pocket of sanity in the madness.
+
+The rules of this place are fragile. Reality is not a constant; it is a negotiation. The "weirdness" is not magical; it is ontological fatigue. At this altitude, in this light, under this sound, the distinction between solid and void, between signal and noise, has worn thin. Distance is unreliable; a ridge that appears a mile away may be reached in ten steps, or may recede forever as you walk toward it. Time is viscous, pooling in the low points and rushing over the peaks. If you speak, your voice may arrive before you open your mouth, or linger for hours after you have left.
+
+The dynamic is agonizingly slow. This is a landscape in embryonic stasis. The dry rivers are still carving, the plants are still dampening, the stones are still failing, but the process operates on a timescale that renders motion invisible. You are witnessing a catastrophe paused at 1/1000th speed. The deafening roar is not an event; it is the baseline condition of a world that is eternally, painfully becoming.
+
+To traverse the Unfinished Range is to navigate by ear through a blind, freezing ocean of sound. You follow the vegetation like a lifeline. You shelter in the ruins of forgotten acousticians. You move through the dim indigo twilight, feeling the cool, smooth stone beneath your hands, knowing that the ground itself is only a temporary consensus, held together by the very noise that seeks to tear it apart.
+
+It is beautiful. It is unbearable. It is almost ready.

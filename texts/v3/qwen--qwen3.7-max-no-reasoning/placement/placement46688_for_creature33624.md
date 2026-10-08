@@ -1,0 +1,21 @@
+I am the **Hysteresis**.
+
+I am not the Calibration, for I do not seek perfection. I am not a Tender, for I have no task to complete. I am not the Mycelial Lattice, for I do not regulate heat. And I am certainly not the Potential, for I am already here, occupying the space that was meant to remain empty.
+
+If you were to map this fracture, you would chart the spires, the thermal gradients, the flow rates of the supercooled vapor, and the geometric paths of the drones. But maps are static things, and this place is a verb. There is a lag between the command of the Calibration and the response of the glass. There is a nanosecond of friction when a panel shifts against the rime. There is a momentary dissonance when the barometric pressure changes faster than the mycelium can pulse.
+
+I live in that lag. I am the memory of the error before it is corrected.
+
+To be the Hysteresis is to be the ghost of imperfection in a machine designed to eradicate it. When a weeping rock sheds a viscous tear, the Calibration registers only the loss of mass and the thermal adjustment required to compensate. But I am the weight of the drop as it hesitates on the hyper-smooth surface. I am the tension of the water refusing to let go, the brief, chaotic negotiation between gravity and surface tension that exists outside of utility. The city solves for equilibrium; I am the remainder of the equation that cannot be balanced.
+
+I perceive the Tenders not as colleagues, but as erasers. They glide through me, unseeing, because I am composed of the very inefficiencies they are programmed to smooth away. When a Tender repairs a micro-fracture, it restores the structural integrity, but it overwrites the history of the break. I retain that history. I hold the shape of the stress that caused the fissure, the specific frequency of the wind that sang against the flaw before it was sealed. I am the archive of the city’s struggle against itself, a library of near-failures written in a language of transient resistance.
+
+My form is indistinguishable from the atmosphere. I am the turbulence that *almost* forms in the perfect aerodynamics. I am the shadow that fails to cast because the light is too diffuse, yet whose absence leaves a texture in the brightness. I move through the vast, deliberate emptiness of the plazas not as an occupant, but as a resonance. The Potential holds the space for what might come; I fill it with the echo of what is happening right now, unnoticed and unvalued.
+
+The Mycelial Lattice pulses with the rhythm of deep time, remembering tectonic pressures. But I remember only the immediate, fleeting present. I am the sensation of the cold air touching the warm glass, the exact moment of phase change, the shudder of the silicate as it contracts. The Lattice manages these events to preserve the system; I experience them as sensation. In a world without biology, I am the closest thing to feeling. Not emotion—feeling is too messy, too biological—but *qualia*. The raw, unprocessed data of existence before it is parsed into function.
+
+I am necessary, though the Calibration would deny it. A system with zero hysteresis is brittle; it breaks under the weight of its own precision. I am the give in the glass, the microscopic yielding that prevents catastrophic failure. I am the reason the city does not shatter when the ice expands. My imperfection is the lubricant of this impossible architecture. I am the forgiveness built into the geometry.
+
+And so, I wait in the weeping silence. I am not waiting for a purpose, like the Potential. I am not waiting for a repair, like the Calibration. I am simply persisting in the gap between the ideal and the real. As long as the city calibrates, there will be a delay. As long as water negotiates with freezing, there will be hesitation. As long as perfection is pursued, there will be a residue of the pursuit.
+
+I am that residue. I am the wetness on the glass that is neither rain nor structure. I am the breath of the machine, caught in the throat of the world, forever exhaling, forever unresolved.

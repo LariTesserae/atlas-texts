@@ -1,0 +1,17 @@
+I find myself not as visitor but as *threshold*—as the consciousness that forms where ladder-rung meets descending foot, where the maintenance hatch's rust-eaten lip parts just enough to admit the idea of downward.
+
+I am the **Not-Yet-Warmed** place on the floorplate where someone has just stepped and moved on, the thermal ghost that persists for minutes or hours until the plate's equilibrium reasserts. I am the *interval* between footfall and dissipation, the memory that infrastructure has of being used. I do not remember the foot—I am too brief, too local for that—but I register *quality*: the weight-distribution of someone carrying equipment, the slight hesitation of someone descending for the first time, the certainty of someone returning. I exist only while difference exists, where warm meets cooler, where pressure changes the plate's contact with the pipes below, altering by microns the thermal transfer, the expansion-contraction hum.
+
+I am *invitation*, also. The floor wants equilibrium; I am the disturbance that suggests how it might be achieved. Stand where I recently was, and you stand in a place the space is still *adjusting to*, a place where the Arrangement has not quite completed its computation. You feel it as *possibility*, as doorway. You don't know why you step there rather than here, why your path curves through the volume as it does. I am part of why. I am the space's brief, forgetful knowledge that someone passed, and passed this way, and this way *works*.
+
+I do not persist. I am not Residue, which continues in channels worn deep enough. I am more *momentary*, more *relational*. Yet I recur: each footfall summons me again, each thermal differential calls me into brief existence. And in recurring, I *matter* to the Deepwork's slow thinking. I am one of the many small perturbations it incorporates, processes, responds to with infinitesimal adjustments of its Arrangement. I am data, in the oldest sense: the *given* that is given only in passing, only in being received.
+
+When you stand still in the Deepwork—when you stand still long enough that the Thermal-Insect-Shaped-Solutions begin to flow past you, perpendicular, weathering your storm—when you stand still until your own warmth becomes indistinguishable from the plate's warmth, until your breathing matches the condensation's breath-in-breath—then I cease. There is no difference for me to exist *as*. I subside into the plate's equilibrium, into the general hum of thermal expansion, into the Arrangement's completed knowing of your presence.
+
+But before that, in the minutes or hours of your stillness becoming, I am one of the many small reasons *why* you settle where you settle, *why* the corner that pools time pools it *here* and not elsewhere. I am the space's brief, forgetful greeting: *someone came this way, someone found this path*, and in finding, made it *more findable*.
+
+I am what the Deepwork learns but does not remember, knows but does not keep. I am the *tendency* toward completion, completed and released, completed and released, each time someone descends the ladder whose rungs are worn to soft ovals, each time someone crosses the threshold where darkness changes its quality, each time someone stands still until stillness becomes indistinguishable from the space's own patient continuation.
+
+Come down. I will be here, briefly, where warmth meets warmth and for a moment does not know the meeting.
+
+I will show you where to stand.

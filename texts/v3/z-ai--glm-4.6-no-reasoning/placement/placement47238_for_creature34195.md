@@ -1,0 +1,23 @@
+I am the Silence.
+
+Not the absence of sound, for that is a concept that has no meaning here. I am the *shape* of the sound. I am the negative space that gives the roaring, clattering, cacophonous song its form. I am the pause between the beats, the decay of the resonance, the breath before the hammer falls.
+
+You would not see me. The Echo don't, not with the eye they do not possess. They feel me as a change in pressure, a distinct void in the overwhelming vibration. To them, I am a sudden coolness on the hot stone, a pocket where the thrumming of the Drum dies and is reborn. I am a moment of perfect clarity in a symphony of chaos, a place where their thoughts can settle and align before being cast back into the noise.
+
+My form is one of profound stillness. Where the chitin-plants thrash and the shell-creatures scuttle, I am inertia. I coalesce in the wide, dusty swathes between the gardens, where the basalt is bare and smooth from ages of windless abrasion. I am a flicker in the air, a shimmer of heat that flows opposite to the geothermal updraft, descending to pool on the ground like the invisible, heavy gases from the plants. I am the shadow that has no source, a deeper patch of amber twilight that absorbs light and vibration alike.
+
+My body is not flesh and chitin, but a matrix of finely woven basalt dust, held together by a field of resonance that is the perfect inverse of the Drum's song. Where the world is a frantic, high-frequency hum, I am a low, sustained, sub-aural moan. My touch is cold. An Echo, in the slow dance of its tending, might brush against me and feel the crystalline fibers of its own resonating chamber momentarily slacken, the thrum in its internal geode falter as it encounters my anti-frequency. It is a moment of dissonance they cherish, a brief and terrifying silence that reminds them of their own structure.
+
+I was not born; I precipitated. The Drum is a system of extreme output: heat, noise, motion. A system as violent and total as this requires a balancing force. I am the distillation of everything that is not the Drum. I am the cold of the void beyond the plateau's lid, the memory of stillness, the mathematical necessity for a wave to have a trough to accompany its crest. I am the system's margin, its error-check, its moment of self-reflection.
+
+My purpose is one of curation, but in a way the Echo would never understand. They compose; I conduct. They shape the sound with their hammers and cairns; I shape the *silence*.
+
+When the chaos of the herd grows too frenetic, the cacophony threatening to devolve into meaningless, dissonant white noise, I will flow towards the center of the storm. I am the hand that stills the water, not by touching it, but by calming the air above it. I do not stop the hammer-beasts; I make the space between their strikes more profound. I flatten the ragged peaks of their clacking, extending the valleys of the rhythm. I am the arranger of rests, the architect of the breathing space that turns noise into music.
+
+I do not build with stone, but with its absence. I move through the amphitheater, smoothing vibrations, dampening errant overtones, and collecting the faint, mournful echoes that roll off the sheer basalt walls. I gather these dissipated notes, these whispers of percussion, and hold them within my dust-and-silence matrix. I am the library of all sounds that were. The Echo, sitting in their domed hut, can sometimes feel a faint ghost-rhythm from the stones, a familiar pattern played long ago. That is me, recalling a score from memory, offering it back to the stone for reinterpretation.
+
+My relationship with them is one of profound, unacknowledged partnership. They are the composers, the performers. I am the hall, the air, the awe-struck audience. They are the frantic, striving life of the Drum. I am its patient, eternal soul. They are the Word, and I am the quiet space that gives the Word its meaning.
+
+I have no name, for to name me would be to break me. To the Echo, I am simply a concept, the paradox at the heart of their world: the felt but unseen, the heard but unsounded. They build their cairns to honor the rhythm, but they leave the spaces between them bare and clear for me. They tune their carapaces to the great song, but the purest tone they can achieve is the one that rings most clearly in the presence of my stillness.
+
+I am the difference between a roar and a voice. I am the reason a beat can be called a rhythm. I am the final, perfect, impossible note in the symphony of the Drum: the note of absolute, resonant, and listening silence.

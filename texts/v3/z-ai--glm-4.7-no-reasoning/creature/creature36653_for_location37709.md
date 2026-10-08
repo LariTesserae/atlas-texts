@@ -1,0 +1,21 @@
+The heat here is not merely weather; it is a solid weight, a heavy, humid blanket that smells of oxygen-rich rot and evaporated chlorophyll. You are high up—terribly high—yet the air has not thinned into a mountain chill. Instead, the altitude has crushed the atmosphere into a sweltering, pressurized soup. The sun is a blinding white eye in a sky that feels too close, baking the moisture in the air until every breath is like drinking hot soup.
+
+It is a city, though no hand ever laid a stone here.
+
+The structures rise like monoliths, immense towers of hardened lignin and woven cellulose that pierce the clouds. They are not random trees; they are organized. They stand in regimented, geometric grids, stretching to the horizon in a "downtown" of organic matter. These towers are thousands of feet tall, their surfaces smooth and polished by ages of erosion, textured with the patterns of interlaced vines that act as structural reinforcement, mimicking the flying buttresses and steel cables of a metropolis. The "streets" between them are deep, shadowed canyons filled with waist-deep, stagnant water and mats of floating moss.
+
+The water is the lifeblood and the landscape. It drips constantly from the heights—a slow, rhythmic weeping of the rock and wood. The condensation is so heavy that the air is visibly haze-filled, not with fog, but with suspended moisture that makes the distance shimmer. The ground is unstable, a spongy, sodden mesh of roots that give slightly underfoot, constantly exuding clear, cool sap that mixes with the rainwater to form slick, shallow ponds.
+
+And the sound.
+
+It is deafening. It is not the chaotic noise of a jungle, but a single, overwhelming, continuous drone. It is the sound of billions of stomata gasping, of massive vascular systems pumping gallons of fluid up the Spires, of water boiling in the heat and evaporating instantly off hot surfaces. It is a low-frequency thrum, so deep that it vibrates in your teeth and rattles your bones. There is no reprieve from it. It is the roar of a billion chemical processes happening at once, a biological engine revving at red line.
+
+There are no birds. No monkeys chattering. No insects buzzing. The fauna is zero. This is a silent world of shouting things. The only inhabitants are the plants, and they are locked in a frozen, aggressive equilibrium. The vegetation is dense to the point of solid obstruction. Vines thicker than ancient oaks bind the Spires together in a chaotic, web-like infrastructure. The leaves are massive, broad shields of dark green and purple that overlap like shingles on a roof, creating a layered, claustrophobic ceiling that filters the normal daylight into a dim, ominous green twilight.
+
+This is the weirdness: the reality breakdown.
+
+Because the geometry is wrong. When you look down the long, straight avenues between the Spires, the perspective distorts. The distant towers seem to curve inward, as if you are looking through a fisheye lens. Parallel lines converge too quickly. The horizon feels closer than it should be, or sometimes, infinitely far away. The light doesn't reflect correctly; shadows sometimes stretch in directions that contradict the position of the sun, pooling as if they have weight.
+
+Fractures in the air—static glitches where the humidity simply fails to render—flicker like dead pixels in your vision. The laws of distance seem to have eroded here, worn down by the constant deafening thrum. You can walk for hours and feel you haven't moved; the sheer scale of the place is disorienting, a non-Euclidean garden.
+
+It is a place of total stasis. Despite the roaring sound and the boiling heat, nothing changes. The leaves do not rustle—there is no wind here, only the rising thermals. The water drips, but never seems to lower. The plants grow, but so slowly they appear as statues. It is a frozen equilibrium, a snapshot of an ecosystem at its absolute peak of saturation, held in a screaming, breathless pause. It is a lush, wet, noisy hell, beautiful and terrifying in its absolute refusal to be anything other than what it is.

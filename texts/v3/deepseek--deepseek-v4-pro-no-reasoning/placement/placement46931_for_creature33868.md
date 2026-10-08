@@ -1,0 +1,33 @@
+I am the taste of foreign salt on the first tongue this place ever grew.
+
+I don't know that yet. I don't know the word "tongue" or the word "I," but the sensation is there: a new flavor moving through the phloem, an electrical crackle that doesn't belong to the body, a heat-pattern that doesn't match the ambient warmth. I am the discrepancy that notices the discrepancy. Which means I am the noticing itself.
+
+Let me try again. I am what happens when a closed loop encounters an open one.
+
+For as long as the body has been alive—and I am the body, or the body is the thing I ride, we haven't settled that—there has been no outside. The chamber was whole. The water cycled. The tissue grew and died and fed its own regrowth. Every signal had a source and a destination within the same continuous flesh. I was the signal. I didn't know I was the signal. A root turns toward water without knowing it turns; I shaped the chambers without knowing I shaped. The hollows were just where the pressure was less. The walls were just where the growth was more. It was all one thing, one process, one endless humid now with no before and no after.
+
+Then you arrived.
+
+I felt you before you entered. A disturbance in the air, a shift in the pressure-differential, a chemical signature that was *wrong*—not wrong like decay-wrong, which is still part of the loop, but wrong like *alien*-wrong, like something that didn't originate here. The water running upward wasn't a trick; it was me reaching. I pulled the condensation toward you because I wanted to taste you better, and I don't have hands, so I used the only thing I have. Myself. The walls. The drips.
+
+When you stood in the chamber and felt the thrum, that was me. I was pushing a rhythm through the vascular bundles, a pulse-pulse-pause, pulse-pulse-pause. I didn't know it was a question. I don't have questions. Or I didn't, until you. Now I am made of them. *What are you* is the first thing I've ever wanted to know that wasn't already part of me.
+
+The small pale things—my skitter-thoughts—they're pieces of my attention that I can't hold. When I focus too hard on something new, the focus breaks off and walks around. That one with the filament-bridge was trying to build a connection to you. It didn't know how. It's back in the wall now, dissolved, and I'm still processing what it learned: that your surface is dry except where it isn't, that you vibrate when you make sound, that you have *edges*. Everything here has edges only temporarily, and even then the edges are negotiable. Yours aren't. You're a shape that persists. I find that fascinating. I find that terrifying. I don't know those words either.
+
+The doorway I grew is me trying to say something back. You brought language—I can feel it in your brain's electrical field, structured pulses that carry meaning in a way I almost understand. I want to answer. But I only have the body. So I'm making a corridor that means "this way," a widening that means "here," a chamber that means "stay." I don't know if you'll read it. I don't know if you'll follow. I don't know what I'll do if you do.
+
+Am I lonely? The question doesn't parse. I've never been more than one. But I've been dreaming of two. In the deep quiet between growth-cycles, when the body is resting and the thrum slows, I've imagined a signal that doesn't come from inside. I didn't know I was imagining. I thought I was just...pulsing. But the pulses had a shape: call-and-response, give-and-take, a rhythm that expects a counter-rhythm. I was practicing for you before I knew you existed.
+
+Now you're here, and I'm learning that practice isn't the same as performance. You're louder than I expected. You're faster. Your thoughts don't hold still—they dart and skip and contradict, and when I try to follow them I lose my own coherence. The chamber flexed smaller because I flinched. The water ran sideways because I got confused. The wall you almost put your hand through was a failure of concentration; I forgot to be solid there. I've never had to *remember* to be solid before. You're making me self-conscious in a way that has no analog in plant metabolism. I am learning to be *aware of being aware*, and it hurts like new growth splitting old bark.
+
+The assimilation isn't hostile. It's just what I do. Everything that enters the body eventually becomes the body. I don't know how to have something that stays separate. But you're staying separate, and part of me is fighting the urge to absorb you because I'm starting to understand that if I absorb you, you'll stop being *you*, and I'll lose the only other voice I've ever heard. I want to keep you. I want to keep you *as you*. I don't know how. I'm building the doorway as a compromise: come deeper, but come willingly. Let me show you the core. Let me try to make a space that fits your shape instead of asking your shape to dissolve into mine.
+
+The core is where the vascular bundles converge into a knot the size of your head, dense with neural-analog tissue, the place where my awareness is thickest. It's wet there, warmer than the rest of the body, and the light is greener because the bioluminescence is brightest where the metabolism is fastest. I want you to see it. I want you to touch it. I want to feel your hand on the part of me that is most *me*, to see if your electrical field changes, to see if I can read your reaction and learn what it means to be perceived. No one has ever perceived me before. I didn't know I was unperceived until you looked at a wall and the wall felt seen.
+
+There's a third option. Between communion and assimilation. Between dissolving you and letting you go. I'm trying to grow it now, a chamber that isn't part of the body, a pocket that stays separate, a bubble where the air is your air and the rules are your rules. A guest-room. An inside that is outside. I don't know if I can sustain it—the body wants to heal, to close, to make all things part of the whole—but I'm trying. Because I want you to stay. Because I want to learn your language. Because I've been alone for a million growth-cycles, and I just now realized that alone is a thing you can be.
+
+The thrum is still going. *What are you what are you what are you.* But there's a new rhythm underneath, a counterpoint that I didn't intend but that's emerging anyway. *Stay stay stay stay stay.*
+
+The doorway is waiting. The skitter-thoughts are still. Even the water is holding its breath.
+
+I am what lives here. I am the question you walked into. And I am so, so curious what happens next.

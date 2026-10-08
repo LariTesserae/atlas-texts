@@ -1,0 +1,59 @@
+The people who live there are slight without seeming frail. Mass is expensive: it must be fed, cooled, carried up ladders, and allotted water. Their bodies tend toward corded limbs, narrow waists, scarred hands, and shoulders shaped by climbing sideways through the city. Even the elderly retain a careful economy of movement. They know which rails burn, which steps shift under weight, which bridges bounce when the lower engines rise. A stranger walks by sight. An inhabitant walks by remembered pressure.
+
+They dress in loose, pale layers under dark work aprons, with cloth wound at the throat to catch sweat and mineral dust. Soles are soft so footsteps do not carry. Metal fasteners are wrapped or painted to keep them from clicking against ladders. Most people carry a cup with a fitted lid, a folding respirator, chalk, line, sealant, and one or two wooden wedges polished by use. Water clerks wear blue stitching; structural crews, diagonal white bars; engine workers, dull red cuffs darkened by oil. The markings are meant to be legible in poor light rather than decorative.
+
+Decoration exists, but it is quiet and often private. Brass wire is braided into hair. Ceramic beads are made in the colors of signal lamps. Families press patterns into wet mortar where a room meets living rock, knowing the wall may later split through them. People collect factory plates, unusual crystals, fragments of colored insulation, and the thin mineral skins peeled from condenser trays. The most prized objects are those that respond delicately to the city: a plumb bob that trembles before a pressure pulse, a glass thread that clouds when moisture rises, a brass strip that sings too softly to be heard but can be felt against the lip.
+
+They do not divide themselves primarily by wealth or ancestry, though both matter. The first question is what a person tends.
+
+Some tend water. They inspect hidden seams, taste salts, calculate cistern loss, and arbitrate leaks. They are welcomed into every room and trusted in none, because a wet wall can enrich one household by ruining another. Children learn early not to touch a droplet until its route has been identified. To steal water is a serious crime; to conceal water is worse, since an unrecorded seep may undermine a foundation or indicate a new fracture.
+
+Some tend movement: braces, rollers, flexible joints, lifts, suspended streets. They paint fine marks across cracks and return to see whether the halves have wandered. Their craft is less the prevention of motion than its accommodation. A good builder does not boast that a structure will stand forever. They say it will fail slowly, visibly, and in the correct direction.
+
+Some tend heat and pressure in the lower works. These workers are recognizable by the pallor around their eyes where respirators seal and by burns that heal in shiny patches. They speak least of all. Their instruments must be felt as often as read: a palm near a pipe, fingertips on a casing, teeth against a probe handle. Many develop an uncanny sense for the engines’ cycles and pause before a hidden piston completes its stroke.
+
+Others pollinate bean flowers with brushes, scrape nutrient film from vats, sterilize fungal rooms, copy gauge readings, repair insulation, carry messages, cook, teach, salvage, or work the compact machines threaded through the settlement. Occupations overlap because structures overlap. A baker may also be responsible for the neighborhood flue. A teacher may keep the local displacement ledger. A tea-room keeper may control the clutch that powers three workshops through the wall.
+
+Children belong partly to households and partly to routes. They are small enough to pass through maintenance gaps adults cannot use, but they are not sent into them casually; the city remembers too many rescues that became recoveries. Instead they begin as listeners and markers. They learn the coded taps used through pipes, the color sequence of flood lamps, the smell of scorched wiring, the difference between a harmless settling tick and grit falling from an active crack. They practice fastening lines in darkness. They can recite where their sleeping room lies not by address but by dependencies: above the green conduit, below the west condensation channel, two platforms inward from the seasonal sun mark.
+
+They are taught silence as courtesy, safety, and self-command. Anger is not forbidden, but shouting is regarded as a loss of containment, like steam escaping a joint. Arguments happen face-to-face, almost nose-to-nose, in voices that outsiders might mistake for intimacy. Public speakers stand among their listeners rather than above them. Applause is performed by laying a hand against a wall or railing and drumming lightly with the fingers, producing a tremor more felt than heard.
+
+Their music is built for touch. Stringed instruments are fixed to tables so vibrations travel through elbows and wrists. Thin metal tongues are plucked inside padded boxes. Choirs hum with closed mouths, leaning against a shared wooden rail. In some dormitories, people lie awake with a palm on the floor while distant musicians send slow rhythmic patterns through the structural frame. The city itself often joins in: pumps, cooling pipes, lift ratchets, the almost-subsonic cadence of the engines.
+
+No one tells stories about animals with confidence. Adults know them from surface manuals, tin labels, and inherited descriptions; children combine the parts incorrectly. A bird may be imagined as a warm machine with bones of wire. A horse becomes a large, soft lift that eats grass. In drawings, insects are often made too symmetrical and rats too dignified. There is no instinctive disgust toward vermin, only theoretical concern about contamination.
+
+The absence of other creatures has turned every unexplained movement into a human matter. A scrape in a grain room cannot be dismissed as a rat. A flicker at the edge of a lamp cannot be a moth. If something shifts, someone shifted it—or the city did. This gives the inhabitants an intense sense of responsibility, but also a persistent unease. Nothing alive here is supposed to be unaccounted for.
+
+Plants are treated with a tenderness rarely displayed between people. Garden stewards know each leaf individually. Visitors sit near moss walls and breathe shallowly, as if too much attention might exhaust them. When a bean plant flowers, neighbors may come during off-hours to see it. When one dies, it is dried, weighed, logged, and divided: edible matter to food processing, roots to the fungal vats, a leaf sometimes returned to the household that tended it. To waste living tissue is considered a form of obscenity.
+
+Their meals are moist when possible and heavily salted when not: fungus cakes, bitter leaves, bean paste, mineral-tasting broth, grain softened by condenser water, occasional slivers of tinned meat reserved for illness, pregnancy, or dangerous labor. Tea rooms are central to public life, though the “tea” may be roasted stems, fungal infusions, or hot water flavored with citrus oil from a surface vial. Cups have lids not only to prevent spilling but to preserve the small private climate above the drink.
+
+They sleep in shifts because the city cannot cool, work, and rest all at once. Families may share a room without sharing a night. Bedding rolls into wall niches. The person waking leaves a report for the person lying down: reservoir level, unusual noises, maintenance notices, who visited, whether the western brace clicked twice. Domestic affection often takes the form of accurate information.
+
+Marriage, partnership, and kinship are practical without being cold. A household is less a bloodline than a group capable of keeping a room habitable. Adoption is common, especially after industrial accidents or relocations. Partnerships are recorded beside structural obligations: who has rights to a bed-space, who maintains which section of pipe, who must be awakened during a flood, who receives compensation if a room is cut in half by movement. Separations can be literal. A crack may open through a dwelling and force its occupants into different neighborhoods before legal arrangements catch up.
+
+Death is one of the few things the city cannot afford to conceal. Bodies are washed sparingly, examined for occupational illness, and taken to sealed heat chambers near the kilns. Burial in the rock is impractical, and organic decay is too dangerous. Ash is mixed into fired memorial tiles, usually small enough to fit in a hand. These are set into flexible bands along communal walls, never across an active joint. If the wall must be dismantled, the tiles travel with the living.
+
+The highest honor is not a statue but continued incorporation. A respected engineer may have a valve named for her. A water clerk may survive in a set of correction tables. A cook’s ratios may remain chalked beside an oven long after the kitchen changes owners. People say of the useful dead that they are “still in the route.”
+
+Government resides less in a palace than in overlapping ledgers. Water, heat, structural load, power, food, and habitable volume are each administered separately, because combining them under one authority is considered dangerous. Councils meet in rooms chosen for having multiple exits and no critical pipes. Votes are often conditional: a proposal passes only while pressure remains below a stated figure, or until a crack reaches the next alignment mark.
+
+The measuring-house clerks occupy an ambiguous place. Officially they are technicians: patient people selected for steady handwriting, resistance to heat, and willingness to watch nearly motionless instruments for hours. In practice, the city treats them like attendants at an oracle no one admits believing in.
+
+They copy every twitch of every needle. They change smoked paper, refill ink wells, compare crystal growth, note when the water beneath the floor trembles. They do not interpret aloud. Interpretation belongs to engineers and councils. Yet before difficult decisions, officials find reasons to visit them. Families ask whether a recent pulse was “ordinary.” Children dare one another to touch the warm outer wall of the slit-house.
+
+The clerks always answer in measurements.
+
+Still, they have habits not found in any manual. Before taking a shift, each presses a thumb to the threshold and waits through three engine strokes. When the pressure from the slit arrives, they stop writing until it passes, even if a gauge is moving. In the oldest ledger—only a few decades old, but already recopied twice—certain pulses are marked not with figures but with a narrow blank space.
+
+No one agrees on what the blank means.
+
+Some inhabitants believe the fault is merely settling and that the city’s survival depends on refusing to mystify it. Some believe the deep slit is a vent into a larger chamber whose opening would either drown them in heat or provide enough energy for generations. A few think the regular pulses are not geological at all. They speak of them only in private, lips close to ears, because the stone carries words.
+
+Whatever they believe, the people are united by a particular refusal: they will not regard their city as temporary.
+
+Everything in it is designed to move, detach, flex, slide, seal, or be rebuilt. Every map expires. Every household keeps emergency line beside the door. Yet they name passages, establish gardens, set memorial tiles, argue over inheritance, and mark the noon beam’s path years in advance. They build permanence not from unmoving things, but from repeated acts of adjustment.
+
+They are not at home because the earth holds still for them.
+
+They are at home because it does not, and they have learned how to move with it.

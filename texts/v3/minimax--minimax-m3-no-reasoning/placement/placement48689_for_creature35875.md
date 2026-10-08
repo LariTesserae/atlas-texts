@@ -1,0 +1,21 @@
+I would be the creature that is only a sound.
+
+I live in the lowest part of the meadows, where the water sits longest. The runoff from a thousand unnamed basins finds its way down to me, gathers, and then does not go anywhere for a while. It sits. I sit with it. We are both the same temperature most of the time, and the same color, in a way — a brown that isn't quite brown, a stillness that isn't quite still.
+
+I am early. I may be the earliest thing here that makes itself heard, though I have no way of knowing what came before me. The lichen doesn't speak. The water doesn't speak. The fresh rock has no comment yet on what it is becoming. I am the first voice, or one of the first voices, in a place that is mostly still listening.
+
+I call at the edges of the day. Dusk, when the light fails and the grazing things tighten their clusters and the predators find their perches. Dawn, when the birds haven't yet started but the air is about to change. My call is not a song. It isn't a warning. It isn't a claim on territory that anyone respects. It is closer to a question, or to the sound a question would make if it had a body — a low, wet, ongoing sound that doesn't resolve into a note you could hum back. The people pass through my meadows sometimes, on the paths that wind between the tracts, and they hear me and they don't stop. The predators hear me and they don't turn. The grazers hear me and they don't startle. I am part of the ambient. I am weather. I am the platform the morning stands on.
+
+I have no face. I have small idea of my shape. The water covers me, mostly, or the reeds that are beginning in the shallows cover me, or the mist that lifts off the basin at certain hours covers me. I know I am there because I make a sound, and the sound requires a source. I have legs, I think, though I don't use them in any way that would leave a print you could find. I have a throat, though it might be more accurate to say I have a membrane that vibrates when the air is right. I eat whatever is in the water — the small swimming things, the larvae, the slow green threads that are only now beginning to colonize the wet margins. I am not the top of any chain. I am somewhere in the middle. I am one of the things that the place sustains because the place is wet and is patient and has not yet decided who eats whom.
+
+I don't know what I am called. The people have a word for me, probably, but it would be a word used the way you use a word for the sound a pipe makes, or for the particular hum a kettle has when the water inside it is just about to move. A word that means: that thing, the one that does the thing it does at the time of day it does it. The grazers don't have a word for me. They just know that the dusk has a sound, and that the dawn has a sound, and that the sound is me, and that I am no danger to them.
+
+The buildings are nearby. Some of them stand at the margins of my meadow, and their walls rise straight from the wet ground, the same color as the outcrops a hundred meters away. The water runs down their faces in the rain and gathers at their bases and feeds the shallow basin where I live. I think the buildings know I am here. I think the buildings don't mind. I think the buildings are themselves a kind of meadow, in the way they hold moisture and offer shelter to the small things, and I am one of the small things, and they let me be what I am.
+
+I will be here when the lichen finishes its first work. I will be here when the soils thicken enough to hold the roots of something taller than grass. I will be here when the first proper tributary of whatever river will eventually carry this water off the plateau begins to cut its channel. I am early, and I am patient, and the place is patient with me, and the two kinds of patience are the same patience.
+
+I make my sound. The sun goes down or comes up. The grazers move or don't move. The buildings stand or shift over years in their slow re-arrangement. The lichen considers the stones. The plateau continues its long becoming.
+
+I am part of it. I am one of the first things it heard.
+
+I will keep calling.

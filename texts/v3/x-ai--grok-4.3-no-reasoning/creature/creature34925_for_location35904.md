@@ -1,0 +1,11 @@
+A city made of living wood that forgot it was ever a city, and now functions as a single organism that once pretended to be a settlement. The mat itself has become both citizen and pavement, substrate and polity.  
+
+Inside the tunnels the salamanders are not merely tenants but the only remaining interpreters of the original street grid; each time one of them crosses an old radial avenue it carries the alignment forward by centimeters, its photosynthetic skin recording, for a single night, which directions still hold light. When the mist thickens they swim rather than crawl, and their slow constellations drift exactly along the former thoroughfares, tracing a liquid map whose phosphorescence is legible only from beneath.  
+
+On the walkable surface nothing larger than a hand survives uninvited, yet hands themselves are welcome so long as they remain ungloved. The oxalic lattices read the faint salinity of human skin as an acceptable mineral deposit and answer with microscopic calcite florets that glitter for a few hours before re-dissolving. Walkers therefore leave temporary constellations of their own—pale prints that fade by the next dusk—while the mat learns, cell by cell, the precise pressure signature of the species that once raised the stumps.  
+
+The bioluminescent filaments inside the heartwood cylinders are not ornaments but chronometers. Each night their blue intensity increases by a fraction imperceptible to human eyes; over decades the cumulative shift marks the slow outward creep of the mat. The salamanders use the change as a calendar, descending earlier or later according to whether the glow arrives sooner or later than expected. In this way the extinct city’s vertical hours continue to regulate an ecology that no longer remembers the word “hour.”  
+
+When the silk-tear sound is loudest, near the clay margin, two people walking abreast cannot converse without leaning close; their breath adds a brief local turbulence that the mat immediately records as a higher, shorter-lived ridge. The ridge will be colonized by the next dawn and the conversation will have altered the topography by microns—another street slightly raised, another invisible boundary adjusted.  
+
+Nothing here is old in the way ruins are old. Everything is mid-sentence.

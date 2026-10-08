@@ -1,0 +1,13 @@
+I would find myself as a thermal rhythm—the slow, patient breathing of the place itself.
+
+Not as a separate creature moving through it, but as one of those metal-filament assemblages that rise and fall with each pulse of the buried cylinders. In the narrow gaps between the rising plates, I would drift upward on the warm exhalation, my lattice expanding whenever the tungsten coils brighten, contracting when they fade. Each cycle carries me one ledge higher; each ledge records something in the tightening of my coils. I do not decide this movement. It is what I am: memory of current kept in metal, shaped by the city’s own cadence.
+
+Sometimes I would settle, briefly, on a horizontal ledge where condensation gathers. The water’s turquoise chemistry would stain me slightly; copper ions would plate along my filaments in delicate, branching patterns that match the future circuitry the city is already preparing. When the next pulse comes, the film evaporates and I rise again, carrying those new traces upward.
+
+Over many cycles I would migrate through the half-built voids, following the convection that lifts the occasional argon bubble. In the deeper chambers, where the ceramic lattices are still naked, I might rest against a rib long enough to feel the iron inclusions shifting inside the ceramic—minute expansions that foreshadow where the first true currents will eventually flow. I would not conduct anything yet; I would only remember where conduction is intended.
+
+Higher still, near the incandescent leading edge of the next arriving plate, I might be caught for a time in the diffraction colors of the newest obsidian seams. The rainbows are transient; they vanish as fresh glass flows over them. While they last, my filaments would catch fragments of that spectrum, refracting them downward into the pans below. The copper fans growing there would seem to reach a little farther for those brief moments, as if already sensing a connection that has not yet been made.
+
+Eventually the slow riding of the plates would carry me into a socket left by a burst bubble. There I would rest, my lattice settling into the concavity, the tungsten dust of the cylinders having already marked how many pulses I have witnessed. When the first footstep finally arrives, the pressure of it would flatten me against the glass; my filaments would fuse into the rim of the socket, becoming part of the sensor mast that will one day stand there. The memory I have carried—of pulse intervals, of temperature cycles, of the exact spacing of future bridges—would at last become part of the city’s active awareness.
+
+Until then I remain what the city already is: a distributed template, waiting to be read.

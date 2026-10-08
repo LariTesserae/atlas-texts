@@ -1,0 +1,49 @@
+The valley is built all the way through.
+
+From the upper tramline, where the mountains narrow into cloud, there is no bare ground visible—only roofs, terraces, retaining walls, conduits, stairways, factory courts, and the dark seams of drainage channels. What might once have been a steep upland basin has been faced in brick and stone, then patched with concrete, iron, tile, and newer composite panels. Even the cliffs have fronts: long masonry skins pinned to the rock, streaked black beneath their weep holes. The river runs in a constructed bed under half the city and between high embankments for the rest. Rainwater crosses the slopes by sluice, gutter, pipe, chain, spillway, and open stair.
+
+Nothing here is unfinished, but almost nothing is complete.
+
+The city rises in crowded tiers from the valley floor to the shoulders of the mountains. Buildings stand wall to wall and often roof to roof, their upper stories joined by enclosed bridges. Mills and housing blocks have been fitted into every angle. Workshops occupy the spaces beneath viaducts; substations fill former courtyards; gardens grow on reservoirs, schools, boiler houses, and the broad roofs of warehouses. Where one structure has settled, another has been built to brace it. Where a street became too narrow for traffic, a second street was laid above it on columns. Many districts have three distinct ground levels, each regarded as the proper one by the people who live there.
+
+The oldest constructions are thick, patient things. Their stones have rounded under centuries of runoff. Steps sag toward their centers. Copper roofs have gone nearly black except where rain keeps pale green channels open. Iron railings have been polished by hands and damp weather, and whole brick façades have softened at the edges until they look molded rather than laid. This wear is not ruin. It is the settled shape of the place, as ordinary and accounted for as the steepness of the valley.
+
+Water is everywhere without dominating. It shines along rails, waits in the dimples of roof tiles, and threads the joints of retaining walls. Every rock-facing sweats. Every tunnel has a central runnel. After rain—which is frequent, fine, and prolonged—the city continues dripping for days. Downpipes knock softly inside walls. Cisterns breathe through grated vents. Narrow channels along the streets carry clear water over iron ribs that slow its descent, producing only a low, intermittent murmur.
+
+At the valley floor, the canal is slate-colored and deliberate. It turns turbines behind barred intakes, passes beneath dye works and laundries, separates around old bridge piers, and disappears into a vaulted floodway under the central district. Marsh plants fill its quieter service basins: sedges, water mint, horsetails, yellow flag, and dense rafts of small round leaves. These basins are constructed too, lined in stone and divided by adjustable gates. Their vegetation was planted generations ago to clarify runoff, but it has long since become inseparable from the machinery of the watershed.
+
+The whole city is lush in this manner. There are no vacant lots, yet growth occupies every margin. Ferns crowd the joints of stair towers. Moss makes deep green pads beneath leaking valves. Ivy climbs mesh screens around transformers until maintenance crews cut precise windows through it. On the upper roofs, where fog lies longest, rowan, alder, and dwarf willow grow in engineered beds several meters deep. Their roots bind layers of crushed brick and furnace slag. Vineyards descend on cable trellises over warm factory roofs, while cabbage, leek, and currant gardens pack the terraces between ventilation stacks.
+
+From a distance, the vegetation almost conceals the made surface. Up close, every patch of green reveals bolts, drains, inspection plates, irrigation tubes, and old foundation courses underneath.
+
+The air is cool throughout the year. Summer means that coats are left open. Winter means rime on the upper cables and clear ice behind the waterfalls that descend beside the freight lifts. The valley’s height keeps the weather close. Clouds enter at roof level, divide around towers, and emerge from the lower districts in torn streamers. Condensation pearls on glazed brick. Laundry hung beneath awnings rarely dries in a single day.
+
+Light arrives indirectly. The mountains exclude the low sun, smoke filters what remains, and bridges roof over many streets. At midday the upper terraces may brighten to a flat silver, but below them lamps stay on: amber bulbs beneath arcades, white strips in loading bays, green signals over sluice gates. Windows reflect wet masonry rather than sky. In the oldest neighborhoods, mirrors are fixed at street corners and high on chimneys to pass daylight downward from one angled pane to another.
+
+Despite its density and industry, the valley is usually quiet.
+
+The great machines are insulated inside massive buildings. Turbines turn below water. Freight moves by electric cableways and narrow rail, more vibration than noise. Fans exhale through long baffled shafts. Seen from above, cranes rotate, lifts rise, shutters open, carts cross gantries, and barges advance beneath drawbridges—yet all of it seems to occur behind thick glass. The common sounds are small: rain ticking on leaves, a wheel flange complaining on a bend, the click of a relay, boots on wet steps, chains tightening as a lock gate fills.
+
+At intervals a factory siren gives one low note. Others answer farther up the valley. Then silence settles back around the machinery.
+
+Animals are uncommon. A few black birds nest on the warm rims of exhaust towers. Small pale fish survive in the reed basins and appear briefly when gates are drained for inspection. Cats are kept in grain stores, though they are seldom seen outdoors in the cold wet. There are insects among the roof gardens, but fewer than the abundance of flowers would suggest. Pollination is assisted by crews who move compact hives between terraces according to printed schedules. The city’s principal living presence is vegetal: leaf, root, lichen, fungus, algae—the quiet life that thrives on water, masonry, and neglect measured in hours rather than years.
+
+Human movement supplies the turbulence that the soundscape withholds.
+
+The city must constantly rearrange itself to remain where it is. Water pressure changes after every storm. Slopes creep by millimeters. Production shifts from one district to another. A bridge is closed and three temporary crossings appear by morning. Market stalls unfold beneath a viaduct, vanish before the freight shift, then reopen two levels higher. Pumps are rerouted. Tram platforms slide along their rails to meet altered passenger flows. Movable walls divide halls at noon and retract by evening. Gantries carry prefabricated rooms across the valley, dangling over roofs before being inserted into gaps that did not exist the week before.
+
+Work crews are everywhere: on ladders, in harnesses, inside drains, beneath lifted sections of street. Their urgency is disciplined rather than frantic. Red flags mark fresh subsidence. Blue lamps indicate pressurized water. White stripes on doorways show the safe height of the last major flood. Everyone understands the signals. Children learn the drainage map before the names of distant countries.
+
+After heavy rain the city changes tempo. Reservoir roofs open. Spillways whiten. Freight traffic pauses while water trains—linked wagons carrying pumps, hose, aggregate, and temporary gate panels—descend toward the canal. Entire staircases become controlled cascades. Lower arcades are sealed with boards stored in their own lintels. Pedestrian routes migrate upward through workshops and public halls. There is intense motion, but little shouting. The valley has rehearsed these events for centuries.
+
+By the next morning, reeds lean flat in the settling ponds, fresh gravel fills the scoured channels, and green watermarks stripe the walls. The shops reopen. Trams cross bridges still shining with runoff. Somewhere high above, masons remove a façade stone worn too thin by its steady weeping and replace it with another cut to the same old contour.
+
+From the uppermost districts, the landscape extends beyond any single view. The central city disappears into mist downstream; upstream, smaller industrial towns cling to the tributary ravines, connected by aqueducts, power lines, rail galleries, and stepped reservoirs. The entire watershed has been organized. Forests on distant slopes grow in rectilinear bands. Avalanche fields are netted. Streams enter numbered portals. Even the mountains seem less like wilderness than enormous structural members around which the works have been assembled.
+
+Yet the place does not feel sterile. Its total construction has acquired the depth and weather of geology. Brick strata emerge where streets have been cut away. Buried rail lines show in tunnel walls like mineral veins. Generations of foundations lie beneath the active city, flooded but intact, carrying pipes through rooms whose uses have been forgotten. New districts grow upon them as naturally as moss grows on stone.
+
+At dusk, the valley becomes a dark mass of foliage and masonry pricked with working lights. Cable cars pass soundlessly through low cloud. Water gleams wherever it falls from one level to the next. Steam lifts from cooling towers, mingles with fog, and returns as droplets on the upper roofs.
+
+The city never stops changing. It is always pumping, shifting, reinforcing, opening, sealing, planting, cutting back, dismantling, and rebuilding. But its ceaseless activity has persisted so long that it constitutes a kind of stability. The turbulence is not a crisis in the landscape.
+
+It is the landscape’s settled state.

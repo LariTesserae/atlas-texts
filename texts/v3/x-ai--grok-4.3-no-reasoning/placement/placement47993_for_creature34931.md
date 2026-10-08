@@ -1,0 +1,7 @@
+Here, I suppose I would be the salamander.
+
+I would wake inside a seam of weeping glass no wider than a wrist. My skin would already be the same pale translucence as the vein; only a hair-thin shadow of viscera would mark where my body begins and the stone ends. Dawn would come as a change in temperature, not light—a cooling along the rim of the fracture that tells me the first droplet has formed. I would ease out, drink, then ease back until my outline and the silica’s seem interchangeable.
+
+Each time the derrick exhales its vapor, the low note of the pump would pass through me like a second heartbeat. I would lift my head simply because the rhythm of the basin briefly matches the rhythm inside my own thin blood; for those few seconds, the distinction between “inside” and “outside” blurs to a single pulse. Then the thread dissolves, the beat resumes its solo pattern, and I withdraw again.
+
+Over years I would feel the silica thicken around me, slowly sealing the fracture but never completely—there is always room for another dawn, another droplet. The basin would polish itself around my comings and goings, erasing any evidence that something once moved. In time even the small shadow of my digestive tract might become indistinguishable from the darker mineral threads that already run through the weeping glass. When that happens I will not have disappeared; I will simply have finished learning the art of never leaving.

@@ -1,0 +1,33 @@
+The city is a single lung.
+
+Not metaphorically. It breathes. The whole space—and you understand, immediately, that “space” is a fragile word for this—the whole space inhales and exhales on a cycle you can feel in your sternum before you can count it. Seven seconds in. Hold. Three seconds out. The air is thick with water, so saturated that your skin can’t tell where it ends and the atmosphere begins. Warm, too. Blood-warm. The condensation beads on every surface, runs in slow rivulets down walls that are not walls.
+
+You are underground, but not in any earth you’ve known. The rock is new, geologically adolescent, its edges still sharp and unweathered—obsidian-black in some places, glassy and cruel, in others a wet basalt that glistens like oil under the dim light. The city has been carved into a void, a hollowed dome of stone that was never smoothed by water or time. The walls are faceted, fractured, as if the chamber was cracked open yesterday by forces that didn’t care about finish. No stalactites, no flowstone. This place is too young for that kind of patience.
+
+And yet it’s lush. The greenery doesn’t carpet the ground—there is very little ground—but hangs in the vertical spaces, drapes from ledges, clings to the cut stone in thick, vascular mats. Mosses you don’t recognize, ferns with fronds the color of oxidized copper, things that might be fungi or might be orchids, pulsing faintly. They feed on the wet. They feed on the breath. The vegetation doesn’t compete for light because light comes from everywhere and nowhere, a dim amber glow that seems to seep directly from the air, as if the humidity itself is faintly bioluminescent. You can see perhaps fifteen meters in any direction before the light decays into haze, and beyond that: suggestion, mass, the sense of larger forms receding.
+
+The emptiness is the first thing that unsettles you. The second is the sound.
+
+For a place so visually sparse, so hollow, it’s *loud*. The lung breathes, and the breath has a voice. Air moves through channels you can’t see—through the city’s infrastructure, through the living walls—and creates a continuous low-frequency hum, layered with higher overtones that shift with every cycle. It’s not mechanical, exactly, or not only mechanical; there are wet, organic frequencies in there, the sound of fluid moving through flexible membranes, the susurrus of a thousand thousand leaves shivering in the artificial breeze. The noise doesn’t echo. It’s too dense an atmosphere, too saturated. It presses against your ears like a held note.
+
+No animals. None. The absence is complete and deliberate. No insects click in the moss. No birds—nothing that would fly in this cathedral-dimness anyway. No skittering things in the crevices. The only motion is plant motion, the slow, hydraulic unfurling of fronds, and the city itself, and the water.
+
+So much water. It doesn’t pool so much as migrate. The walls weep continuously, the moisture condensing directly from the breath-cycle, and the runoff is collected in channels cut into the basalt—channels that look less like gutters and more like veins, branching, reuniting, carrying the water downward in a circulatory system. In places, the water sheets across broad vertical surfaces, trembling with the air pressure changes, and the vegetation drinks it before it reaches any floor. You think there is a floor, far below. You can’t see it. The city is built into the walls of the void, descending in terraces and hanging structures, and below them: the drop, the dark, the sense of a much larger volume that this small, cathedral-scaled chamber only rides on the edge of.
+
+The construction is unmistakably urban in intent, but not in any language of architecture you know. The buildings—if they are buildings—are grown as much as built, layers of material that shift under scrutiny. Some surfaces have the cool, ceramic feel of advanced composites; others are warm and slightly yielding, like skin. The structures cluster along the terraces, stacked and cantilevered, connected by walkways that span the gap between the breath-channel walls. No railings. The engineering doesn’t fear falling, or its inhabitants didn’t. The tech is post-post-modern: materials that respond to the humidity, joints that seal or open to let the vegetation through, surfaces that seem to be in a continuous, slow conversation with the environment. You see what might be windows, but they are opaque, breathing membranes rather than glass, pulsing gently with the seven-second inhale.
+
+And the weirdness—the unusual, the thing that makes this place tip from alien ecosystem into something else—is the rules. The empty space isn’t empty for lack of filling. It’s empty because absence is structural. The city, the lung, operates on a principle of necessary void. The vast space between presences is where the breath happens, where the damp air circulates and the condensation cycles run. If the buildings were closer, if the terraces were fuller, the whole system would choke. The emptiness is functional.
+
+There are signs—not signs you can read, but marks of habitation that aren’t recent and aren’t ancient. The city feels paused, not abandoned. The breath continues. The mosses are trimmed, in some fashion, or guided; the water channels are clear. The surfaces that look like skin are warm. Something maintains the city. Something that doesn’t need to be physically present. Or something that left an intelligence behind in the very fabric of the walls, in the nanoscale pores of the composite, in the rhythm of the pressure cycles.
+
+You are standing on a terrace of black, sharp-edged stone, water beading on your skin, the air so close and warm it feels like the inside of a mouth. Below you, the hollow drops away into amber-lit fog. Above, the faceted roof of the chamber vanishes into the same haze. Around you, the vegetation rustles wetly in time with the breath. The hum shifts, a new overtone emerging, and for a moment the pattern almost sounds like language.
+
+It is supremely loud. It is supremely empty. It is, unmistakably, alive.
+
+And nothing living looks back at you. Not with eyes.
+
+The city breathes in. Holds. Your skin prickles with the pressure change. Somewhere, a channel widens, a membrane flexes, and a fresh sheet of water begins its slow migration down the vein-cut walls. The terraces wait, their empty spans glistening, designed for a traffic that might not be on legs.
+
+Breathes out. The hum deepens. The dim light flickers—once, a micro-adjustment—and settles back into its amber steady state.
+
+The lung continues. The city holds. The absence hums.

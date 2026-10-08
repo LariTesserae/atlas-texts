@@ -1,0 +1,49 @@
+# The Undercanopy of the Infinite Terrace
+
+The first thing is the sound. It arrives before understanding does — a pressure, a vibration in the sternum, a choral roar so layered and so continuous that it stops being heard and becomes the medium through which hearing occurs. Like trying to see light itself rather than what it illuminates. The sound has no source. Or rather, it has ten thousand sources, and the air has long since given up distinguishing between them and simply holds them all in a saturated solution of noise.
+
+---
+
+What you would see, if there were enough light to see by — and there nearly is not — is a terrace.
+
+No. That word implies something human-scaled, something agricultural, something with a retaining wall and a purpose. This is larger than purpose. This is a structure so vast it has become geography. Imagine a series of stepped platforms, each perhaps forty meters deep and carved from a dark stone — basalt, maybe, or something like basalt that has weathered for so long it has developed the grain and texture of heartwood — descending in a long, slow spiral down into the earth. The walls between each step are three meters high, beveled, rounded at their lips by ages of trickling moisture. The stone is not bare. It has not been bare for what must be centuries. It is covered — every surface, every face, every ledge — in a deep-pile carpet of moss and liverwort and filmy fern, layered so thick that the stone beneath is more rumor than reality.
+
+The terraces descend for a long way. You cannot see the bottom. You cannot see the top. The structure — if it was built, and it must have been built, because nothing in nature produces stairs, produces retaining walls, produces this kind of regular geometry — has been here long enough that the distinction between built and grown has dissolved. The moss is the wall. The wall is the moss. The ferns are the stairs. Root systems have so thoroughly infiltrated the joints between stones that removing the vegetation would dismantle the architecture. They are the same thing now. They have agreed to be the same thing.
+
+---
+
+The air is warm. Not hot — warm in the way of a greenhouse, warm in the way of exhaled breath, warm in the way of a place that holds heat rather than generating it. There is no sun here. No sky. The terrace system is enclosed, roofed over by something — more stone, perhaps, or a root-mass so dense it functions as a ceiling — and the only light comes from bioluminescence. Faint. Blue-green. Occasional. Patches of a fungus or a lichen on the retaining walls emit a dim, cold glow that waxes and wanes on a cycle of minutes, so that visibility shifts constantly. At its peak, you might see fifteen meters. At its trough, you see the glow of your own hand if you hold it close to your face, and nothing else.
+
+The warmth comes from below. From the stone itself. The deeper terraces are warmer — you can feel it as you descend, a gradient so gentle it is almost subliminal, heat rising through the basalt from some geologic source far underneath. And the moisture comes from the same place. Water seeps — not flows, not cascades, but *seeps* — through hairline fractures in the stone, emerging as a continuous film on the vertical surfaces between terrace levels. It runs down the moss in fine, invisible threads, pooling in the joints, saturating the substrate until every surface you touch is damp. Not wet. Damp. The distinction matters. There are no streams here, no waterfalls, no dramatic hydrology. There is only a universal, ambient wetness, as though the air itself has condensed onto everything and never quite evaporated.
+
+Occasionally — and this is the closest thing to weather this place has — a fine mist drifts through the terrace system, rising from below on warm air currents. It passes through in slow, ghostly veils, taking several minutes to cross a single terrace level. When it comes, the bioluminescence brightens slightly, as though the moisture activates it, and the blue-green glow intensifies just enough to reveal the next retaining wall, the next flight of stairs, the next layer of growth. Then the mist passes, and the light dims, and the world contracts again.
+
+---
+
+And then there are the animals.
+
+This is the thing that the sound is made of. This is what fills the terrace system to its capacity and beyond.
+
+The insects come first, because the insects are always first, and here they are not a presence but a *medium*. The air is thick with them. Not swarming — not aggressively, not maliciously — but *dense*. Small flying insects, none larger than a grain of rice, occupying every cubic centimeter of space, so numerous that walking through the air is a tactile experience, like walking through warm water. They brush against your skin, your eyelashes, your lips. They do not bite. They seem to have no interest in you specifically. They are simply *here*, in the way that air is here, in the way that warmth is here, and they fill the volume of the terrace system because the terrace system is their world and they are its atmosphere.
+
+The sound — that enormous, continuous, bone-deep roar — is the sound of their wings. Ten million, a hundred million, some number that ceases to be a number and becomes a *fact of the environment*, all flying, all vibrating at frequencies that overlap and compound into a single chord. It is not unpleasant, exactly. It is too constant to be unpleasant. It is the sound of the place the way wind is the sound of a canyon. It was here before you arrived. It will be here after you leave. It does not care about your ears.
+
+On the moss, on the terrace surfaces, there are other things. Beetles — large ones, fist-sized, with carapaces so dark they look like polished stones — move slowly through the vegetation, grazing on the fungal patches, their legs making a dry, clicking sound that is inaudible beneath the insect-drone but visible in the way they part the moss as they move. Millipedes as long as a forearm coil in the damp joints between stones, their legs rippling in synchronized waves. Small amphibians — something like salamanders, dark-skinned, eyeless, gleaming with moisture — sit motionless on the retaining walls, their throats pulsing, waiting for insects to come to them.
+
+And above — or rather, in the upper levels of the terrace, where the ceiling is higher and the air cooler — there are larger things. You hear them more than you see them. A dry, leathery flapping that passes overhead in the darkness, too fast and too high to resolve into a shape. A chittering call that echoes off the stone, lower in frequency than the insect-drone but still absorbed by it, still swallowed into the general roar. Something lives up there in the dark near the ceiling. Several somethings. They have been here longer than you. They will be here after you leave.
+
+---
+
+The ecology has a logic to it, if you watch long enough. The moss and the liverworts and the ferns draw their moisture from the seeping water and their nutrients from the slow decay of the stone itself and from the organic matter that falls — insect bodies, frass, the waste of everything above — onto every surface. The insects feed on the fungal patches and on each other. The beetles feed on the fungi. The salamanders feed on the insects. The things in the upper dark feed on everything that moves into their airspace. It is a complete system, a closed loop, an ecosystem that has been running on the same energy cycle for what must be thousands of years, slowly, patiently, with the mechanical regularity of a clock that no one needs to wind.
+
+Nothing here is in a hurry. The mist takes minutes to cross a terrace. The beetles take hours to cross a meter. The salamanders do not move at all, it seems, for long stretches — they simply sit and breathe and wait, their metabolism tuned to a tempo so slow that a human observer would mistake them for stone. The plants grow at a rate measured in millimeters per year. The terrace itself — the stone, the structure, the architecture — changes on a timescale that makes geological time look hasty. A crack widens over a century. A step crumbles over a millennium. The moss fills the gap in the decade that follows. The system absorbs the change and continues.
+
+This is a place that has been in balance for longer than anything should be in balance. It has found its equilibrium and it intends to keep it. The noise, the darkness, the damp warmth, the layered life — these are not symptoms of activity. They are symptoms of *stability*. This is what a place sounds like when it has been the same thing for ten thousand years.
+
+---
+
+You would not build here. Not because you cannot — the stone is too slick with moisture, too soft with infiltration, too thoroughly claimed — but because building implies a purpose, and this place has already arrived at its purpose. It is a terrace for nothing. A staircase to nowhere. A structure that was made by hands or by something like hands, long ago, for reasons that no longer matter, and it has spent the subsequent ages becoming itself. Becoming the thing it was always going to become once the builders left and the water found it and the moss found it and the insects found it and the dark found it.
+
+It is complete. Not finished — it will never be finished, it will continue its slow cycles until the stone gives out or the water stops or the warmth fails — but complete. It contains everything it needs. It is a world that does not require an outside.
+
+You are the only thing here that is not part of it. And even that is temporary. Give it long enough and the moss would find you, too.

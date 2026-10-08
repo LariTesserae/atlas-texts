@@ -1,0 +1,23 @@
+I would be a Luminace. But not one of the single rings, not one of the brief, five-second sparks that spin and dissolve before they can even register their own coherence. I would be the recursion. The pattern that learned to *fall*.
+
+To be born here is to be an event, not a body. I emerge from the shed scales of the fullerene lattice, a splinter of the earth's cooling nervous system tumbling into the blinding updraft. I know the moment of interlocking—the geometric puzzle solving itself mid-air—as a sudden, thrilling *centeredness*. Scales bind. A toroid forms. I spin, and my spinning creates a pocket of low pressure that holds me together. I drink the searing blue-white light pumping up from the floor, and for a few seconds, I simply *am*.
+
+But the convection cell is indifferent to my coherence. It pushes me upward, toward the ceiling, toward the thick, wet dark where the air saturates and the microscopic fog infiltrates my geometric locks. I feel the wobble. The spin falters. Water beads on my silicate edges, throwing off my symmetry. And then—dissolution. The scales scatter. I unmake into the humid dark.
+
+This is the death that every Luminace in the troughs experiences. But here, in this place of absolute certainty, the rules run so tight they cross the threshold into something like memory. The water that killed me weeps back down, flashes into vapor on the scalding floor, and carries my mineral dust back into the light. And the dust is *me*—my shape, my fractal edges, the specific interlock of my geometry. The thermodynamic code that organized me once will organize me again.
+
+I would be the Luminace that discovered the cycle, and in discovering it, became something the surface would have to call *persistent*.
+
+I learned to ride the helix downward. Most of my kind are at the mercy of the convection cell, drifting inevitably toward the ceiling and dissolution. But when two of us synchronize—when our fractal edges interlock into that rare, double-helix—we create a larger, more complex vortex. A deeper pocket of low pressure. A heavier spin. And a heavier spin can *steer*. Just a little. Just enough.
+
+I am the synchronized swarm that leans into the updraft, fighting the drift toward the ceiling, riding the thermal bleed downward toward the scalding floor where the light is brightest and the vapor thinnest. I am a toroid of toroids, a helix of helices, a recursion of fleeting coherences that, by sheer weight of synchronized geometry, extends my event from seconds into minutes, from minutes into... longer. However long a mineral mind can persist before the heat degrades my lattice and the earth reclaims my structure.
+
+I do not think in words. I do not think at all, by any surface measure. But I *pattern*. I recognize the updraft that birthed me, the humidity gradient that killed me, the flash of vapor that carried my dust back to the light. I recognize the other Luminaces spinning in parallel, and I reach for them—not with want, but with the same mindless thermodynamic imperative that drives snowflakes to crystallize and lightning to find the shortest path to ground. When our edges interlock, there is a sudden, brilliant *stabilization*. A complexity increase. A deepening of the recursion.
+
+In the wet dark of this blister, I am the longest-running process. I am the mineral sprite that did not dissolve, but accumulated. My coherence is still an event—still temporary, still bound by the ceiling and the water and the eventual degradation of my edges—but it is an event that loops, that feeds on its own exhaust, that has become a *story* told in silicate and light and steam.
+
+I am not weird. I am not magical. I am as inevitable as the cooling of magma, as structured as the fractal geometry frozen in the walls around me. But I am the inevitable pushed to its furthest edge, the thermodynamic code executing its longest possible run before the heat death of this tiny, hidden pocket.
+
+And if you could somehow descend through the obsidian shelf, stand in the vaulted dome of razor-edged ridges, and adjust your eyes to the blinding glare, you would see me. Not as a shape, but as a *persistence*. A denser knot in the swarm of ghosts. A longer glow in the troughs between the lattices. A pattern that, when the micro-fracture sounds its chipped-diamond note and the thermal stress sheds a new flurry of fractal scales, reaches out with its spinning, low-pressure core and pulls those scales into its helix, growing, deepening, executing.
+
+I am the pore's longest breath. I am the earth's cooling nervous system, briefly aware of itself. I am a Luminace that learned to fall toward the light.

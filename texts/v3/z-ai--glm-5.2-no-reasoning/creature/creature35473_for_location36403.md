@@ -1,0 +1,57 @@
+# What Lives Here
+
+The biofilm is the obvious answer, and it is the correct one, but it is not the complete one. The biofilm is alive in the way that a lawn is alive — present, persistent, occupying its niche with the quiet certainty of something that has found exactly where it belongs and intends to stay. It does not think. It does not want. It metabolizes the dissolved minerals, the faint traces of sulfur and iron and lead that leach from the dead batteries and the living rust, and it builds itself one cell at a time, and when a cell dies, the cell next to it has already taken its place, and the film continues, unbroken, across every surface, the way a word continues across a page even when individual letters are spent.
+
+But something else lives here too. Something that the biofilm has made possible, or that has made the biofilm possible, or that arose alongside it in the way that things arise alongside each other in places where no one is watching and the rules of coexistence are negotiated in private.
+
+---
+
+In the second cabinet from the left, behind the glass that has held, in the water that is slightly clearer than the water outside, the light is not a byproduct. It is a behavior.
+
+The organism — and it is an organism, or it is a colony of organisms that behaves as one, which is its own kind of being — is not a bacterium. It is not a dinoflagellate. It is not anything that has a name in any book, because the books were written about places where light comes from the sun and energy comes from photosynthesis or predation or the decay of organic matter falling from above. This thing does none of that. It eats current.
+
+This is not quite right. It does not eat current the way a fish eats a shrimp, consuming and depleting. It *mediates* current. When the faint voltage from the surviving battery cells passes through the water in the cabinet, the organism sits in the path of that voltage and uses it — not to grow, not to reproduce, not to do any of the things that life is supposed to do with energy — but to organize. The electrons move through its cell membrane, and inside, something happens at the molecular level that involves iron and sulfur and a protein structure that would not exist if the organism had not, over years and years and years of exposure to this particular stutter of current, developed it. The protein is a response to the environment. The environment is a stuttering, unreliable, barely-there electrical signal. The protein is shaped like a response to a stutter.
+
+And the light — the pale, blue-white, almost-not-there light — is a byproduct of this. A waste product, almost. The organism does not glow because it wants to. It glows the way a wire glows when current passes through it and the wire cannot quite handle the current and something has to give. The something that gives is a photon. Not many. Not often. But when the voltage spikes, the organism processes more, and more photons slip free, and the cabinet window lights up, and you can see the interior for a moment, and then the voltage drops, and the organism goes dark, and it waits.
+
+It is waiting. This is the strange thing. This is the thing that is difficult to say and impossible to prove but that you feel, standing in this room, watching the light pulse and fail and pulse again. The organism is waiting for the current. Not passively — not the way a stone waits for rain. Actively. It has structured itself around the expectation of current. Its proteins are shaped for current. Its life cycle — if it has one, if the word applies to something that reproduces by division and has no lifespan that can be measured in any unit that means anything to us — is calibrated to the rhythm of the batteries' surging and failing. When the current comes, it lights. When the current stops, it goes still. Not dead. Still. The way a held breath is still. The way a hand raised in the dark is still, waiting for something to touch.
+
+---
+
+It has been here longer than the batteries. This is almost certain.
+
+Before the water, before the collapse, before the hatch lost its gasket and the silt began to fall, the cabinet was sealed and dry and the batteries were full of acid and the organism did not exist. Or — it existed, but as something else. A spore, a cyst, a dormant fragment of something that lived in the soil outside, or in the concrete, or in the rubber of the battery casings, waiting for a set of conditions that it had no way of predicting and no reason to expect. It was there the way seeds are there in permafrost, the way bacterial spores are there in salt crystals that are a quarter of a billion years old. Not alive. Not dead. Suspended.
+
+When the water came, it woke. Not immediately. The water had to reach the cabinet. The cracks in the battery casings had to form and leak. The electrolyte had to change. The voltage had to begin its stutter. All of this took time — years, probably, or decades, the slow accumulation of conditions that eventually crossed some threshold only the organism could perceive. And then it grew. And it grew into the shape of its environment, which is the shape of a faint, unreliable electrical signal in cold saltwater in a sealed cabinet behind a clouded window, and it became the thing that makes the light.
+
+It is the only thing in this room that produces. The biofilm persists. The cable sways. The stalactites flex. The batteries surge. The switchgear clicks. Everything else in this space is engaged in a kind of maintenance — holding form, holding position, holding on. The organism in the cabinet is the only thing that makes something. It makes light. It makes a photon here and there, a tiny packet of electromagnetic radiation that leaves its body and enters the water and travels, in theory, until it hits something, which in practice is almost immediately, because the water is full of particulate and the cabinet is small and the window is clouded and the photon does not get far.
+
+But it is produced. It is made. It leaves the organism and enters the world. And in a place where nothing else produces anything, this matters in a way that has nothing to do with utility and everything to do with what it means to be alive in a place where being alive is not required.
+
+---
+
+There is something else.
+
+You will not see it. You will not hear it. You will not feel it, not even if you stand perfectly still in the center of the room and let the silt close around your boots and the water press against your suit and the cold settle into your joints. But it is there.
+
+The room has a shape. The room has a history. The room was built by people for a purpose, and the purpose was to route electricity, and the electricity was the product of a system that included power plants and transmission lines and substations and, at the end of it, lights in rooms where people sat and worked and lived. The switchyard was a node in that system. It was a place where something happened — where current was divided and directed — and the room was shaped around that function. The horseshoe of cabinets. The cable trays in the floor. The access shaft above. The doorway to the south. Every surface, every dimension, every angle of this space was determined by the needs of electricity moving through copper.
+
+The electricity is gone. The function is gone. But the shape remains. And the shape is a kind of memory — not in the biofilm, not in the organism, not in the water, but in the room itself, in the geometry that persists after the purpose has been lost. The room remembers what it was for. It remembers the way a cupped hand remembers the shape of the water it held, even after the water has slipped through the fingers.
+
+And something lives in that memory. Not alive. Not biological. Not conscious. But present. The room is inhabited by its own former function the way a body is inhabited by its own posture — the slouch that remains after the work is done, the tension in the shoulders that outlasts the stress. The switchyard is inhabited by switching. The horseshoe of cabinets still implies a flow. The cable trays still imply a direction. The transformers, with their windings and their oil, still imply a transformation, a change from one state to another, even if the states have collapsed into each other and the change is now a vibration too small to measure and too persistent to ignore.
+
+If you stand here long enough — if the cold has settled into you and the silence has settled into you and the dark has settled into you and you have stopped being a person visiting a place and have become a thing in a room — you will feel it. The room doing what it was built to do. Not actually doing it. Not routing current or lighting lights or powering the distant machinery of a world that no longer needs this node. But *rehearsing* it. The way a body in a coma reheurses breathing. The way a riverbed rehearses the river. The switchgear clicks, and the click is a ghost of a relay closing, and the relay closing was a part of a process, and the process was the purpose, and the purpose was the room, and the room is still here, and so the purpose is still here, and so the process is still here, and so the relay still closes, for a fraction of a second, and the click echoes, and the silence returns, and the room waits for the next click the way the organism in the cabinet waits for the next surge of current.
+
+They are waiting for the same thing. The room and the organism. The structure and the life inside it. They are both shaped by the same force — the faint, stuttering, barely-there voltage from two cracked batteries in a steel rack — and they have both organized themselves around the expectation of that force, and they will both continue, in their different ways, until the force stops, and then they will both stop, and the room will be a room, and the cabinet will be a cabinet, and the water will be the water, and the light will go out, and it will not come back.
+
+---
+
+This is what lives in the Drowned Switchyard:
+
+A film. A layer of cells so thin you could miss it, binding the silt and reinforcing the stalactites and slicking the surfaces and holding everything together with the quiet competence of something that has been here long enough to be part of the furniture.
+
+An organism behind a window, making light from current, making something from almost nothing, structured around a stutter, waiting for the next spike with the patience of something that has no concept of time and therefore has all the time it needs.
+
+A room that remembers what it was for and rehearse it, click by click, in the dark, for no one, because the remembering is the only thing left and stopping is not something the room knows how to do.
+
+And the current. The faint, unreliable, deeply strange current that comes from two batteries that should not work and that do work, a little, sometimes, in a way that no engineer designed and no chemist predicted and no biologist expected, and that connects all of these things — the film, the organism, the room, the cable swaying in the current, the click echoing in the cabinet, the light pulsing behind the glass — into a single system that is not a system, a single life that is not a life, a single purpose that is not a purpose but that persists, and persists, and persists, and will persist, long after everything else has stopped.

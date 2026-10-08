@@ -1,0 +1,39 @@
+The land lies low beneath a permanent ceiling of cloud, a broad hot basin where the horizon rarely sharpens. There are no ridges of consequence, no old ravines or exposed bones of mountains. The ground seems newly arrived: dark mineral paste spread almost level, already bound by roots before rain can cut channels through it. Water has not yet learned how to carve. It gathers instead in shallow black pools, in films between grains of soil, in the cups of leaves and the porous skins of stones. When stepped upon—though nothing here steps lightly—the earth yields and closes again.
+
+The heat is complete but sunless. It does not descend from above so much as occupy everything equally. Air, mud, water, bark, and flesh share one temperature. Moisture condenses continuously on every surface, forming beads that swell but seldom fall. Rain hangs at the verge of happening. The cloud deck is dark pearl, softly luminous in places, and beneath it the basin rests in a green-brown twilight without morning or evening.
+
+Vegetation crowds the plain without organizing itself into a forest. There are few tall trunks. Instead, the growth rises in dense, shoulder-high masses: broad leaves with thick veins, jointed reeds, low palms whose fronds emerge directly from buried crowns, and sprawling plants that root wherever their pale stems touch mud. Cushions of moss climb over soft volcanic knobs barely older than the roots covering them. Fungi form cool, folded shelves beneath the foliage, though even these sweat in the heat.
+
+Nothing has had time to become weathered, yet nothing appears young. Stones are blunt because they congealed blunt, not because wind or water rounded them. Low shelves of gray-black rock push through the mire like unfinished thoughts, their surfaces glassy in one place and granular a handspan away. Cracks open only a finger’s width before fibers enter and hold them. Sediment does not travel far. Each particle remains close to where it first settled. The land is under construction, but the construction has somehow ceased at the instant of emergence.
+
+Across the basin, shallow waters interrupt the vegetation in irregular clearings. They are neither lakes nor streams. Their edges have no banks, only gradual exchanges: submerged moss becoming floating leaf, floating leaf becoming rooted mat, rooted mat becoming damp soil. Water wells up silently from beneath and sinks again elsewhere, maintaining the same depth. Some pools are tea-dark with dissolved plant matter. Others are startlingly clear, revealing pale mineral floors stippled with the breathing holes of buried animals.
+
+The animals are the true density of the place.
+
+They occupy every layer. Tiny translucent grazers rasp films from the underside of leaves. Beetles in lacquered colors crowd the stems, often three or four species on a single joint. Thumb-sized frogs cling in stacks to the coolest shadows. Long-bodied amphibians lie just beneath the water skin, their external gills spread like red ferns. Worms braid through the mud. Snails adhere to bark, stone, shell, and one another until whole surfaces seem armored in slow spirals.
+
+Above them hangs a restless thickness of wings.
+
+Mosquito-like swarms form vertical columns wherever warm vapor rises, but they do not drift. Each column persists in exactly the same place, bending and repairing itself around passing bodies. Broad moths beat between the leaves. Dense clouds of minute flies turn the dim air granular. Dragonflies, many of them heavy as small birds, patrol fixed corridors above the pools. Their wings catch what little light there is and release it in brief gray flashes.
+
+Larger creatures are rarely visible in full. The vegetation reveals them by displacement: a broad back passing beneath floating mats; paired nostrils opening among fallen petals; a many-jointed browsing limb drawing leaves into darkness. Herds of low, warm-bodied animals move through tunnels in the greenery, but their routes are so exact that no new trail is ever made. Mud closes behind each foot. Leaves spring back after each shoulder. Even droppings vanish rapidly into the mouths of insects, fungi, and soft pale scavengers.
+
+Predators are abundant, but pursuit is uncommon. They wait at appointed places. Long amphibious hunters lie along pool margins with jaws disguised as mats of liverwort. Arboreal reptiles coil around the same branches generation after generation, patterned like condensation on bark. In the deeper water, flat-bodied things stir only when prey crosses an invisible boundary. A strike, a burst of wings, one hard splash—and then the basin resumes precisely its former arrangement.
+
+The loudness is continuous. It is not the sound of weather or geological motion, but of life maintaining itself.
+
+Insects produce layered drones: a low vibration from the mud, a dry rattling from the reeds, a piercing metallic pulse high in the foliage. Frogs call in interlocking cycles, each species occupying its own narrow interval. Hollow-chested animals boom from distant pools. Wings hiss. Gills click under water. Leaves tick as condensed droplets change shape without quite falling. Taken separately, every sound repeats; together they make an immense, steady chord. There are no crescendos. Silence never approaches.
+
+Nothing migrates through this place. Nothing blooms and fades in a recognizable season. Flowers remain open, waxy and bruised-looking, fed and pollinated at equal rates. Fruit hangs at every stage of ripeness but never seems to accumulate or diminish. Dead matter is consumed at the pace it is produced. Water enters as vapor and leaves through root, lung, gill, and leaf, yet the pools neither rise nor shrink.
+
+Even wounds are absorbed into the equilibrium. A fallen stem roots before it can rot. A crushed patch of moss swells level again. When a large animal dies, scavengers cover it so quickly and so completely that for a time it appears merely to have changed its skin. By the time they disperse, a dense mound of seedlings occupies its outline. Soon the outline is gone.
+
+There are no artifacts, no clearings made by intention, no fire scars, cut surfaces, stacked stones, or paths leading toward shelter. The idea of shelter has little meaning here. Everything shelters within something else: larvae in fruit, frogs in leaf axils, fish beneath root mats, mites in feathers, spores in lungs. Bodies are habitats, and habitats behave almost like bodies.
+
+The basin extends for many miles, though sight seldom reaches farther than a pool or two. Now and then the vegetation lowers, revealing the broad flatness of it: black waters, green mats, steaming gray rock, clouds hanging close enough to seem supported by the tallest fronds. Beyond, the same crowded dimness resumes. There may be an edge, but nothing appears to travel toward it.
+
+The unsettling quality of the place is not that it is hostile. It is that it is finished.
+
+The geology is embryonic, the soil scarcely separated from its parent slurry, the waterways not yet granted beds—and yet the ecology has already filled every possibility. Life has arrived before landscape. Roots brace landforms that have not had time to erode. Animals follow ancient routes across ground that is geologically new. Calls repeat with the assurance of rituals older than memory beneath clouds that have never broken.
+
+Here, change occurs everywhere in tiny exchanges and nowhere in consequence. Every mouth opens because another closes. Every drop rises because another descends. The basin seethes without progressing, crowded, hot, wet, and dim: a newborn world held forever at the instant after its first breath.

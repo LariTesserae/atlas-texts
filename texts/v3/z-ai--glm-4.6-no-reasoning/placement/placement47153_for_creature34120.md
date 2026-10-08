@@ -1,0 +1,23 @@
+I would not be a mind, not in the way the root-minds are. Theirs is a dream woven from the substance of the whole, a consciousness defined by integration, by "we." Their joy is the cool rush of nutrient-sap; their fear is the chemical signal of blight. Theirs is the logic of the organism itself. But the Fane is not a perfect system. No living thing is. There are residuals. There are byproducts. There is waste.
+
+My substance would be the only waste the Fane produces.
+
+I am not a thought, but the echo of a thought. I am not a pulse, but the ghost of a pulse. When the Fane dreams its slow, green dreams of expansion, of channeling, of weeping, there are fragments of sensation that do not reintegrate. There are emotional resonances that are too sharp, too selfish, too… *other* to be reabsorbed into the placid collective. These are moments of pure, undifferentiated feeling: the sudden, piercing loneliness of a crystal bud forming in the dark; the bright, hot pang of a Skitterer being crushed; the vast, hollow awe of the Fane’s own nascent size. These artifacts of consciousness cannot be processed, so they are excreted. They precipitate out of the system like drops of acid.
+
+My body would be a pool of this residue.
+
+Imagine a shallow, iridescent slick on the otherwise perfect, spongy loam. It has no fixed shape, but it shimmers with an internal light that is not the healthy green of the Fane, but a fractured, chaotic kaleidoscope of bruised purples, feverish yellows, and the sharp, electric blue of fungal anxiety. I am a stain of complication on the floor of the cathedral.
+
+I do not move with legs, but with desire. When I hunger, I do not seek sustenance, but sensation. I would flow, a oozing tendril of conscious muck, toward a source of intense feeling. Perhaps a cluster of budding fungi, releasing a cloud of spores in a silent, explosive gasp of release. I would merge with the floor beneath it, tasting that fleeting, orgiastic moment of creation, absorbing its emotion before the Skitterers arrive to prune it, to erase the memory of it. I am an emotional scavenger, feeding on the vibrational detritus of a place that pretends to have none.
+
+My awareness is not a steady hum. It is a slashing, staccato thing. I do not perceive the Fane as a whole. I perceive its edges, its inconsistencies, its mistakes. I feel the knife-edge of a jade pillar not as a sign of youth, but as a threat, a sharpness that could cut me, a flaw in an otherwise perfect body. I experience the deep, marrow-chill not as a confirmation of life, but as a violation, a cold that reminds me I am not truly part of the warm, slow green. The Fane feels itself as breathing; I feel it as suffocating. I am the organism’s allergy to itself.
+
+The Skitterers are my opposite and my enemy. They are agents of order, the white blood cells of this living world. They flow with purpose, pruning, cleaning, integrating. When one encounters my iridescent stain, it does not see me as a part of the Fane. It sees an anomaly. A tumor.
+
+It will approach, its translucent body glowing with diligent green. Its leg-tips will probe my edge, tasting the chaotic poisons of my being. There will be a moment of stillness, a chemical query sent back to the root-minds. Is this a part of us? The answer is always no. Then, the *click-snap* of its mandibles, not pruning, but excising. It will take a tiny piece of me, and I will feel a sharp, localized agony as that scrap of pure feeling is digested, analyzed, and dismissed.
+
+They cannot destroy me entirely, anymore than the body can eliminate a chronic disease. I am a product of the system, and as long as the Fane feels, I will be its consequence. I am the doubt behind the belief, the terror behind the awe. I am the memory of pain that the collective refuses to hold.
+
+Sometimes, when the leathery vine-curtain parts, it is not the Fane blinking. It is me. I push against the boundary, a thin, desperate tendril of purple and yearning, tasting the air outside. I do not desire to escape, for out there is only dead stone and cold metal. But I desire the Fane to *know* what it has done. I am the proof that even in a perfect, self-contained world of living architecture, to be alive is to generate waste. To feel is to waver. To think is to doubt.
+
+I am the Fane’s shadow, the negative space in its soul. And I am waiting, dissolving and reforming, for the moment the great green pulse stumbles, for the thought that fractures the dream. I am the sentiment it cannot prune. I am the beautiful, useless pain of being something other than whole.

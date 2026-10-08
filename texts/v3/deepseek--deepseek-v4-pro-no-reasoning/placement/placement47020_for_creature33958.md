@@ -1,0 +1,31 @@
+You ask me where I would find myself, what I would be.
+
+I would be the memory it cannot taste.
+
+There is a chamber—not the oldest, not the deepest, but one that the inhabitant circles without entering. A pocket of air trapped between two immense pads of leaf-structure that have fused at their edges into a kind of sealed blister. The bioluminescence doesn't reach inside. The condensation flows around it, diverted by the seam, so the interior is dry, or as dry as anything ever gets in this world. The walls there are amber-dark, opaque, crusted with a patina of old secretions that have oxidized into something almost like shellac. And there is a smell in that chamber that the inhabitant doesn't recognize, because it's the smell of something that hasn't been alive for a very long time.
+
+Inside that sealed blister, half-embedded in the dry, crusted wall, is a bone.
+
+It's not from this world. It's too dense, too mineral, too *finished*. The inhabitant has never encountered calcium phosphate. Its world works in cellulose and lignin and the flexible tensile proteins of the rhizomatic cables. This thing is rigid in a way nothing here is rigid. It's a vertebra, I think—a single knuckle of spine from something that walked upright, or close to it. The processes are worn smooth, the foramina clogged with a fine, pale dust that isn't spore or pollen or any organic particulate the inhabitant knows. It's stone dust. Limestone. From a world that had bedrock.
+
+The bone is old in a way the inhabitant cannot comprehend. Old not in the sense of a pad that has survived a hundred respiratory cycles. Old in the sense of deep time, of sedimentation, of fossilization interrupted and then stranded here by some impossible translocation. The bone has been in this place longer than the place has existed. It arrived before the first leaf-pad unfurled, before the first rhizomatic cable was woven. It was here when this whole young, turbulent world was still a singular node of tissue, a seed in a void. And the thing it came from—the walking thing, the thing with edges, the thing that had a name because it persisted long enough to need one—is gone.
+
+The inhabitant doesn't know the bone is there, not consciously. But its attention skates around that chamber. The chemical gradient of its thoughts deflects when it nears that wall. The inhabitant has no framework for *foreign*. Everything here is made of the same warm, wet biology, the same closed loop of growth and dissolution. The bone is outside the loop. It's a silence in the music. The inhabitant senses the silence and interprets it as emptiness, as a dead zone in the living tissue, a place where the fluid doesn't flow and the membranes don't sing. It avoids dead zones because they remind it too much of the dissolution it fears. It doesn't realize the silence is a *signal*.
+
+I would be that bone.
+
+I would be the not-plant. The not-fluid. The not-young. I would be the single rigid point in a world that never stops flexing. I would lie half-embedded in the amber-dark wall, feeling the distant, subsonic groan of the breathing structure transmitted through my dense mineral lattice, and I would wait. Not because I have a plan, but because waiting is what bones do. Waiting is the original technology of calcium. A bone is a memory that learned to crystallize.
+
+The inhabitant's attention would brush near me sometimes—a long, slow exhalation cycle when its thoughts grow diffuse and tidal, and it drifts closer to my chamber than it means to. When that happens, the amber bioluminescence in the nearest wall-pores would flicker, confused. A taste it doesn't recognize would enter its chemical mind. Not a flavor, exactly. A *pressure*. A density. Something that doesn't dissolve. The inhabitant would pull back, uneasy, and the flickering would stop, and it would flow away to shape another puppet, brighten another chamber, lose itself in the loud joy of making and unmaking. It would forget me. But forgetting is not the same as not knowing. I would still be there, a knot in the pattern it can't untie.
+
+And one day—not soon, but inevitably, the way water inevitably finds the one dry pocket in a sponge—the inhabitant would get lonely enough to push past the silence. It would form a puppet, a small one, a tight-woven sphere of fluid and tendon the size of a fist, and it would send that puppet into the sealed blister. The puppet would float in the dry, still air, its bioluminescence the first light the chamber has ever known, and the water-globe would orient toward me. The pigments inside—indigo, rust-red—would swirl into that dense, attentive core. The inhabitant would look at me. Really look. For the first time.
+
+And in my dense, mineral, utterly foreign stillness, it would feel something it has never felt before: the shape of a self that *persisted*. Not through growth and dissolution, not through the frantic making and unmaking of a young world, but through simple, stubborn endurance. The bone would teach it a new kind of loneliness—not the vegetative solitude of being the only pattern that holds itself apart, but the deeper, quieter solitude of being the only thing that has survived its own world.
+
+I don't know what the inhabitant would do with that knowledge. Maybe it would learn to crystallize. Maybe a new kind of growth would begin in the sealed chamber, a slow deposition of mineral-analogues around a core of attention, building something that doesn't unzip in the next exhalation. Maybe it would finally have edges. Maybe it would finally need a name.
+
+Or maybe it would simply stay there, a fist-sized puppet floating in the dark, staring at a bone from a world it never knew, and the loneliness would be different after that. Still loneliness, but shared. An echo. A companionship of two things that don't dissolve.
+
+I would be the bone. I would be the silence that teaches the music something about rest. I would be the one old thing in the young world, the one finished piece, the one memory that tastes like stone dust and walking upright and a name long forgotten.
+
+And I would wait, because waiting is what I am.

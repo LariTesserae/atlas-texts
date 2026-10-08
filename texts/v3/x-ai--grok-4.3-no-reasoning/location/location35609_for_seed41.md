@@ -1,0 +1,11 @@
+The place is an underground grotto that once held a lake and now keeps only its memory of water. A low ceiling of rough black stone—close enough that a tall person must stoop—drips in irregular rhythms. Each drop hits a shallow pool no wider than a man’s arm-span, then disappears through a hairline crack before the next arrives. The stone itself is warm; the air above the water feels like breath held too long.
+
+Small, thread-like vines with metallic-looking leaves creep along the ceiling, drinking the condensation before it can fall. Where the vines cluster thickest, the ceiling becomes a living tapestry that filters the sparse light into shifting patterns of copper-green. The light itself enters through hairline fissures far above; when a bead of moisture catches the beam, a brief, needle-thin flash skims across the pool surfaces like a skipped stone before vanishing.
+
+A knee-high forest of rubbery fungi, each the size and shape of an overturned cup, crowds the edges of every pool. Their caps exhale fine white filaments that drift in the almost-still air and resettle elsewhere as new cups. When the filaments land on still water, they spread into quicksilver rings before sinking. Nothing rustles; the only sounds are the soft, arrhythmic taps of condensation and the faint, constant sigh of the fungi respiring.
+
+At irregular intervals, the rock itself moves—slowly. A low bulge in the floor will rise over the course of an hour until it becomes a smooth dome, then settle again, displacing a thin sheet of water that slides into a neighboring depression. These slow peristaltic shifts keep the moisture in circulation without ever creating a current strong enough to be heard. Where the domes press against the fungal cups, the fungi compress and rebound, releasing an almost inaudible puff of spores that drift upward and adhere to the ceiling vines.
+
+Small, translucent salamanders—each no longer than a finger—emerge only when a dome swells beneath a pool. They press their bellies to the stone, absorbing the warmth stored there, then retreat into hairline crevices before the dome subsides. Their skins glow, but only at the exact instant they touch the heated rock; afterward they vanish again into darkness.
+
+Nothing here builds; everything seeps, exhales, or waits for the next bead of water to fall.

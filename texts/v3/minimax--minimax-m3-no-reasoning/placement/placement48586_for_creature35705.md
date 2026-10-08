@@ -1,0 +1,27 @@
+I am the bell-ringer of the southernmost tower.
+
+I am not the oldest bell-ringer. That would be Maren, who keeps the north tower and whose grandfather kept it before her, and whose great-grandmother was the first bell-ringer of this ridge after the Great Storm took the old wooden bell-houses. I am the youngest of the four, which is to say I am forty-three, and my arms are still strong enough to swing the bell and my wrist is still supple enough to control it, and these are the things that matter.
+
+The bell hangs in a small stone tower on the southern spur of the ridge, where the basalt narrows and the path along the spine bends inland to skirt a place where the rock has given way. The tower is nine feet tall, just high enough that the bell is above the rooflines of the nearest houses. The bell is older than I am, older than my mother, older than the stone tablets that the watchers of the waterline keep. The bell-metal is dark with years of salt air, and the patina has gone green in the salt-rain seasons, and the bell's voice is the deeper for the darkening. The clapper is wrapped in hide, which is replaced each year at the highest-tide festival, and the rope is hemp, and the rope is thick, and the rope is the rope I pull.
+
+I climb the tower in the morning. There is no ladder inside — the tower is too narrow for a ladder — so I climb the outside, using the holds that have been cut into the basalt blocks where they meet the cliff. The holds are old. Some of them have been recut in my lifetime. The youngest ones I cut myself, three years ago, when the old holds had worn too smooth for my hands. I climb in the dark, often, because the morning bell rings before the sun clears the western water. I climb by feel. My feet know the tower.
+
+I ring the bell.
+
+The stroke is not the urgent clamor of an alarm. The stroke is slower — a measured pulse, a heartbeat, a thing the city can set its day by. I pull the rope and the bell swings and the clapper strikes and the sound goes out across the water, south first because I am the southernmost, and the sound is answered, distantly, from the drowned ridges of the range, and then Maren's bell answers from the north tower, deeper, and then the two middle bells in their turn, and the four sounds move out across the water and are lost in the constant low roar of the surf at the base of the cliff.
+
+I ring at the hours. I ring at the death of a person — a slower toll, nine strokes for a man, seven for a woman, five for a child, with a pause between each stroke long enough to feel the absence. I ring once a year, on the longest day, in a long continuous note that I hold until my arms burn, and the whole city stops to listen, and then I let the rope go and the bell falls silent and the city resumes.
+
+I know the other bell-ringers. There are four of us, and we meet at the changing of the seasons to coordinate — to discuss the sound of the bells, which can carry or be lost depending on the wind, and to make sure that our strokes are matched so that the four sounds move across the water in the same rhythm. We meet at the changing of the bell-ringers, when an older ringer passes the office to a younger one, and the passing is a quiet ceremony in which the new ringer is taught the feel of the rope and the sound of the bell and the times of the ringing.
+
+I am paid in grain. I am paid in the small honor of the office. The grain comes up from the middle terraces in baskets on the shoulders of the climbers, and the office is the thing that the children of the upper terraces look at when they are deciding what kind of person to become, because the bell-ringers are visible — we are the people on the towers, the people whose work can be heard from anywhere in the city — and the children want to be visible, when they are young, before they understand that visibility is a kind of weight.
+
+I live in a small stone house on the southern spur, below the tower. My wife is a climber from the middle terraces — she came down to marry me, which is to say she came up to my terrace, because for her the middle terraces were down, and the upper terraces were up, and she has never quite got used to the wind. She climbs the tower with me sometimes, in the evenings, and we sit on the tower's flat roof and look out at the water and listen to the bells of the other drowned ridges answering our own.
+
+The wind is steady at my house. The wind is steady everywhere in the upper city, but it is steadier here on the spur, where the ridge narrows and the air pours through the gap. My wife has learned to lean into it. My children have learned to lean into it. I have leaned into it so long that I have forgotten what it is to stand straight.
+
+I am the bell-ringer of the southernmost tower. I ring the bell at the hours. I ring the bell at the death of a person. I ring the bell once a year, on the longest day, in a long continuous note, and the city stops to listen, and then the city resumes.
+
+The water rises. The coral grows. The plants push into the masonry. The people retreat upward, a story at a time, in the patient rhythm of a city that has decided to last.
+
+I am the pulse of the city. I am the smallest of the four pulses. I am the southernmost. My bell is the last to sound and the first to fade, and the sound of it is the sound of a place that has decided to persist, and I ring it, and I will ring it, until someone younger takes the rope from my hands.

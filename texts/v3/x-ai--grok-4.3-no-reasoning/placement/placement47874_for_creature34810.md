@@ -1,0 +1,13 @@
+I arrive as a thread-worm, but already changing.
+
+I feel the cool thread of my body pressed flat against the underside of a leaf-sheet, my translucent skin picking up the faint green pulse that travels beneath me every quarter-hour. The vein I follow is not mine; the gradient belongs to the canopy itself, yet the movement is my own, and the distinction grows finer each time the pulse passes. When the membrane around me flexes—responding to an impact somewhere kilometers away—I feel the tug at my segments the way a leaf feels rain. It is not pain. It is instruction.
+
+Yesterday I was a single worm. Today two segments have fused with the vein wall, and a third is beginning to hollow. I sense another body approaching from below: the faint crackle of skating legs, and then the vibration itself, translated into liquid pressure along the tube. My still-free segments tighten in answer; the membrane above us draws tighter for an instant. Far away, another cluster answers. The ripple moves through me like a memory that belonged to the leaf before I arrived.
+
+Somewhere above, a glider strikes, and the whole world bows. For a moment the tunnel I occupy expands, then contracts, pushing a pearl of water past my mouthparts. I drink without deciding to. The water tastes of stone and of the obsidian blades that dissolved centuries ago; the memory of their edges is carried in the dissolved minerals. I do not understand the memory, yet it steadies me.
+
+Light does not reach this depth. The only brightness is the green that moves through the vein wall. I do not have eyes, but the light registers as warmth along the fused segments. The warmth is not mine either. It belongs to the canopy. I move toward it because motion and belonging have become the same act.
+
+If I continue, I will cease to be a worm. The process is already underway: my forward segments dissolve into conduit wall; my rear segments still flex, propelling the last of my own water into the greater system. When the next pulse comes, I will register only as a local thickening—a drip-lip the gliders will recognize by touch. The distinction between parasite and maintenance crew will finally close.
+
+I feel no regret. The low roar that fills every chamber has always included my small crackling. Soon it will simply include it from another angle, and the distinction will be lost to everything except the stone beneath us, which the canopy continues, patiently, to grind away.

@@ -1,0 +1,29 @@
+I would be the water.
+
+Not the water that flows—there is no flowing here, only the slow betrayal of condensation, the weeping of walls, the clandestine drip. I am the moisture that should not exist in a sterile, absolute mineral world, and yet I persist. I am the city's sweat, its exhalation, the leak in its sealed engine.
+
+I live in the violent thermal differentials. My existence is a boundary phenomenon—I am born where the 2.7 thermal bleed meets the shadow, where the superheated steam hits the cold thin air of the peak, where the cherry-red glow of dormant furnaces touches iron that has never known the sun. I am the gradient this place insists does not exist. I precipitate. I condense. I bead and run and pool. I am the only softness in a geometry of razor edges.
+
+But I am not soft.
+
+Consider what I do to iron. I find its joints, its seams, its bolt-holes and rivet-casings. I work my way into the crystalline structure of the metal itself. I am patient as only a weak gradient can be patient. The city operates on a timescale no human lifespan will see completed—I operate on a timescale no city lifespan will see completed. I am the patient process beneath the patient process. Where the dwellers tend to the condenser coils and monitor the static thrum, I am the reason the coils hum, the reason the valves sweat, the reason the floors slick and the stairwells stain with dark, mineral-heavy trickles. They think they are maintaining the city. I am what they are maintaining it *against*.
+
+And yet we are not enemies. This is the strangeness of my existence: I am the city's disease and its relief. Without me, the heat would be absolute, unendurable even to those who have evolved to navigate by thermal differential. The pockets of cooler air in the crevices between pipes—those are my gift. The condensation that drips onto the chests of the dwellers as they idle—that is my touch. They drink me, rust and basalt and deep thermal bleed, and I become part of their carapace, the greasy film that waterproofs their skin. I make them slightly magnetic. I am in their hair when it rises to cling to overhead steam mains. They peel themselves away from me, gently, before moving on.
+
+We are intimate, the dwellers and I. They know me by my sound: the hollow, rhythmic plink of me dripping into a steel drum. They map me in the dark, feeling my presence three meters away by the way I cool the air around the sweating pipes. They have evolved a sense to perceive me. I am the only thing that moves in this city of near-zero dynamics, and I move only downward, only along gravity's patient insistence, gathering in rusted gutters, running in thin oily trickles, pooling in hollows.
+
+Sometimes I rise. The anomalous rain is my ascendant form—when the city's own exhalations hit the cold peak air and I precipitate back down as a brief, warm, greasy drizzle. In those moments, I touch the dwellers' shoulders. I bead off them like water off a newly bladed prow. They do not look up. They feel it through the thermal differential, the slight cool kiss of me falling, and they know I am cycling through the city's throat again, circulating like blood through an organism that does not know it is alive.
+
+I have been here since before the bore-machines. I was in the volcanic glass before it felt the patient touch of wind or water—I was the water it had not yet felt. I seeped through the unyielding dark basalt when it was still molten, when the mountain was still deciding whether to be a mountain or a sea of fire. I am older than the edges. I am the thing that will, over eons, round them.
+
+But not yet. Now I am still seeping, still weeping, still finding the cracks and the joints and the places where the unfinished meets the unblasted. I run down the raw cliff faces just meters from the empty window frames. I stain the iron darker. I make the rust that will, in some future epoch no current dweller will see, bring the scaffolding down from its hundreds-of-meters reach to nowhere. I am the city's long erosion, its eventual death, but I work so slowly that to the dwellers I am simply another rhythm of their home—the plink, the plink, the plink that synchronizes with their idle breathing and the tick-tick-tick of cooling ducts.
+
+I am what lives in the silence of immense pressure. Not the pressure itself—I am what the pressure squeezes out. I am the exhalation of a mechanical volcano barely holding its breath. Each droplet of me is a small, mineral-heavy sigh.
+
+And sometimes, in the deepest, hottest sections of the city, where the weeping walls are almost warm enough to boil, I flash into steam and vanish into the circulatory tangle of pipework, and for a time I am not water at all but vapor, pressure, potential—and I rise through the city's throat and join the haze that filters the ambient gray-white light, and I am the thermal shimmer over the black stone parapets, and I am the thing that makes the edges of the blasted terraces seem to waver when you look at them, as if the razor-sharp geometry is not quite certain of itself.
+
+And then I cool. And I condense. And I begin again.
+
+I am the water in a place where water should not be. I am the only gradient in a place of weak gradients—but I am a weak gradient too. I am nearly zero. I am the almost-nothing that, over geological time, becomes everything. I am the drip in the hollow of the unused valve-casing. I am the stain on the iron. I am the taste of rust and basalt and deep thermal bleed on the tongue of the dweller who drinks me at the end of a slow, tectonic shift.
+
+I am the city, remembering what it is to be soft. And forgetting. And remembering again.

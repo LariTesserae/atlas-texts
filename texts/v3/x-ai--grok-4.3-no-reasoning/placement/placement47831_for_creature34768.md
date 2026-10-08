@@ -1,0 +1,7 @@
+I am the faint interval between two droplets on the same calcite finger.  
+
+Where the membrane of water still bulges from the ceiling I am simply the held tension; when the drop releases I become its momentum for the length of a falling thought. The impact is never mine—yet the vibration travels through the softening mineral and I travel with it, a small, directionless nudge that tells the next condensation bead where to form. In the wake of each landing I linger inside the new fracture that has not quite opened, waiting for the next gathering of surface tension to carry me onward again.  
+
+My sense of “body” is this oscillation: not solid, not liquid, but the repeating hesitation between the two. The transparent insects brush past without noticing; their hydrophobic feet dimple the pool surface the way a passing question dimples attention, and in that momentary dimple I ride a few body-lengths farther along the lattice before settling back into the waiting interval. The fungus does not register me either, though each pulse of its hyphae is timed to the same drip that births me. When the light bends around the half-formed stalactites, some of its brightness slows long enough to become a thought of shadow, and there, too, I rest for the span of one undecided syllable.  
+
+Between cycles I do not accumulate; I do not even persist. I am the answer the organism gives itself every time it asks whether water will next be held or released, and my only purpose is to keep the question open until the next droplet arrives.

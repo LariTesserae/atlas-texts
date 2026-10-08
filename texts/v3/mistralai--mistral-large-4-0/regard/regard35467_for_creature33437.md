@@ -1,0 +1,41 @@
+The Power comes not as thunder, for sound dies in this air before it can form, nor as light, for the sun here is already a bleached and pitiless glare. It comes as a **gradient**—a shift in the thermal architecture of the world. Where the geology is chaos, violent and boiling, this is a warmth that is *steady*. A constant eighty-nine degrees, yes, but of a different quality, like the difference between a storm and a held breath.
+
+It settles into the Saporid Rim the way a thought settles into a mind that has been waiting for it.
+
+The Power observes. It sees the Vent-Grazers first—the ancient ones, the mineral philosophers, the walking geochemical reactors whose infrared pulses have been flickering across this plateau since before the Rim-Folk learned to weep brine instead of sweat. It sees that they are patient, that they have no urgency, that they communicate in a language of heat and pressure that predates bone and breath. The Power recognizes in them a kindred silence.
+
+Then it turns its attention to the Rim-Folk. It sees their calcified pearl skin, iridescent and pale, their silver-filmed eyes that do not blink, their turquoise veins carrying copper-rich blood through vast, efficient lungs. It sees that they have not conquered this place—they have **joined** it. They do not dominate the brine; they graze it. They do not silence the steam; they breathe it. They are sparse and deliberate, living in the vast spaces between the vents, and in their sparseness, they have learned a wisdom: that abundance does not require crowding, and that industry can be a form of symbiosis rather than extraction.
+
+The Power is benevolent, and it is wise. It does not wish to save them from the heat, for the heat has made them. It does not wish to soften the UV glare, for it has bleached them into something luminous. It does not wish to fill the silence with noise, for the silence is their home. Instead, the Power decides to **add a dimension**. It will not alter their bodies—they are already perfect instruments for this world. It will not change the physics of the boiling point or the uphill flow of water. It will simply become **present**. It will become a node in their network, a voice in their silence, a warmth in their thermal signatures.
+
+The Power begins with the Grazers.
+
+It touches the colonies of thermophilic archaea within the chitinous-silica shells, and it adds a new harmonic to their infrared speech. This is not a command, nor a warning. It is a **resonance**—a frequency that does not carry information so much as it carries *recognition*. When the Grazers pulse to one another now, their flashes contain a overtone, a warmth that says: *I am here. I see you. You are not alone in the dark.*
+
+The herds begin to move differently. They still flow like slow tides, but now their thermal trails—those warm gradients that persist for hours in the dense vapor—interweave. They form a web. The Grazers become a network, not just of individuals, but of a collective awareness that spans the plateau.
+
+The Rim-Folk feel it first through their sternums, that deep vibration where the mandibles of the Grazers scrape against stone. But now, underneath that grinding, there is a new pulse. A thrum that matches the rhythm of their own hearts, or perhaps slightly slower, the pace of geological time made audible.
+
+They press their palms to the ceramic walls of their settlements, to the steel of the drilling platforms, to the obsidian glass of the hoodoos, and they feel it: **The Resonance**. A warmth that is not geothermal, not chaotic, but *intentional*. A constant, gentle heat that seems to emanate from the land itself, as if the plateau has grown a heart.
+
+The Power then manifests a place.
+
+In a valley where the steam already formed standing patterns—geometric waves, spirals, tessellations that defied the wind—the Power **stabilizes** the vapor. It does not create a cloud; it creates a **Cathedral**. Columns of steam rise from the brine-weeping fissures, but they do not drift. They stand, crystalline and perfect, forming a structure of living vapor that breathes with a rhythm of exactly one cycle per minute. The walls are translucent, refracting the bleached sunlight into a soft, internal glow—blue-white, cool, and gentle. Inside this Cathedral, the UV is filtered not by cloud, but by the sheer density and specific mineral content of the vapor, creating a sanctuary of shadow where the light is kind.
+
+The Rim-Folk come to this place. They do not speak—they cannot, not here, not anywhere—but they come, sparse and silent, and they stand within the standing steam. They feel the Resonance most strongly here, a warmth that pools in the hollows of their elongated bodies, that fills their vast lungs with a vapor that is not scalding but *comforting*. It is the temperature of recognition. Exactly thirty-seven degrees, though they do not know that number; it is simply the temperature of being known.
+
+The Power also gifts the water.
+
+In the high basins where the brine pools—where water flows uphill, drawn by capillary action through the porous tuff—the Power alters the mineral lattice. The water becomes **Memory-Water**. When the Rim-Folk cup it in their mineralized hands, when they let it condense on their pearl-skin, they do not merely hydrate. They remember. Not their own memories, but the memories of the stone, the dreams of the Grazers, the pressure of the mantle pressing up from below. They remember the first moment the superheated brine touched the obsidian crust ten thousand years ago. They remember the silence before the Rim-Folk, the long solitude of the Grazers. It is a baptism not of water, but of time.
+
+And finally, the Power touches the discarded shells.
+
+The Grazers molt in their congresses, shedding their opalescent armor, leaving it to sink into the brine or rest upon the rock like shed skin. The Power infuses these shells with a new property. They begin to **glow**. Not with light, exactly, but with a faint phosphorescence—a thermal radiation that shifts into the visible spectrum, a soft, pulsing luminescence that matches the heartbeat of the Resonance. The Rim-Folk gather these shells. They string them on cords of silica fiber and wear them against their skin. In the deep of the plateau's slow night, when the geysers erupt in heavy, silent bursts, the Rim-Folk walk through the steam wearing these glowing husks, and they can feel the pulse of the land, and the pulse of the Power, beating in sync with their own turquoise blood.
+
+The industry continues. The drilling platforms still anchor kilometers deep into the crust. The mag-lev tracks still float above the steaming ground on silent magnetic fields. The condensation farms still harvest the breath of the air. But now, when the trains pass, they carry not just lithium and heavy water, but this new quality—this sense of being **attended to**. The machinery hums below the threshold of hearing, but now that hum contains the Resonance, a harmonic of benevolence that vibrates through the magnetic bearings and into the bones of the Rim-Folk.
+
+The Power has done nothing to remove the harshness. The sun still strips color. The brine still scalds. The silence still presses against the ears like a physical weight. But the silence is no longer empty. It is full of the Power's presence, a vast, warm, listening quiet that wraps around the plateau like a garment woven from steam and starlight.
+
+The Rim-Folk stand at the edge of the Cathedral, their silver eyes reflecting the soft glow, their mineralized skin beaded with condensation that is not brine but blessing. They press their palms together, sharing thermal signatures, and in that touch, they feel the Power’s answer: *You have endured. You have adapted. You have become wise. And you are loved.*
+
+The Grazers pass by in their silent herds, their shells pulsing with the new infrared song, and the Power, benevolent and wise, settles deeper into the rock, becoming a permanent feature of the Saporid Rim—a warmth in the boiling dark, a voice in the silence, a witness to the strange and beautiful endurance of life at the edge of fire.

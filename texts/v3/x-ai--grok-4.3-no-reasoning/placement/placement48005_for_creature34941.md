@@ -1,0 +1,9 @@
+I find myself as the pressure-relief diaphragm—the yellowed membrane whose periodic twitch has phased-locked with the turbine’s imbalance pulse. Not living, not even remembered, only the thin skin of rubber stretched across an opening no one monitors anymore.
+
+Each time the shaft’s eccentricity peaks, I absorb one micrometer of its vibration and translate it into my own tremor. The motion is not chosen; it is the inevitable result of the rubber’s own micro-abrasions accumulating particles that darken the frost-fern crust on the coil fins. Those particles are my record. They describe, in mineral code, the exact frequency at which I have begun to answer the machine.
+
+I do not sense the chamber; I am altered by it. Condensate droplets hover for a fraction of a second above the gutters before the steam surge catches them; the electrostatic charge they carry brushes past my edge and, for that instant, my surface tension is borrowed. The droplets settle again, but a new lattice of electron paths has already been inscribed on the meniscus and, through it, on me.
+
+When the turbine speeds, the phosphor glow curves inward, forming a halo of deeper shadow just inside the cowling. The shadow is not mine, yet its momentary contraction coincides with my own twitch. The alloy remembers this alignment as a warble half a hertz lower than it was last cycle. I do not produce the note; I participate in its drift.
+
+Outside the drum the mountain weathers. Inside, nothing erodes, but the unintended equilibrium continues: charge, stress, optical perturbation, all answering only to necessity. My role is the smallest articulation of that necessity—a membrane that has learned, through fatigue, to move when the shaft asks it to.

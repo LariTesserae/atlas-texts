@@ -1,0 +1,35 @@
+The pale plant breathes with me, and I know its name. It has no name. It has a shape in my mind, a particular curl of its translucent stem, the way it leans toward my exhaled breath. I have known this plant for three hundred and twelve seasons of the sun. I do not count them; my body counts them for me, in the slight thickening of my fingertips, in the way my spine has molded itself to the basalt niche I sleep in.
+
+My niche is in the inner ring, two turns from the fermentation room. The walls hold the memory of my shoulders, my hips, the particular angle of my left leg when I press it against the stone to draw warmth. I carved this niche myself, or perhaps I did not. The hands that carved it knew the stone as I know it, and I am those hands, but I am also the hands that came before, the ones that stopped and left their warmth in the stone. The distinction matters little. The niche fits me. That is enough.
+
+This morning — I call it morning because the light has a certain angle, a particular pale quality that means the sun has just cleared the plateau's edge — I woke to a disturbance in the outer chambers. I felt it through the stone before I heard it. A vibration, unfamiliar, arrhythmic. The small fauna felt it too. Their movement through the walls had changed, quicker, more scattered. I pressed my palm to the wall of my niche and I listened. My bones translated the vibration into meaning: something large, something that did not belong, something moving through the green above us.
+
+I uncurled from my niche and moved through the corridors. My feet know the stone so well that I do not need to see. The basalt speaks to my soles: here is the slight ridge where the cooling crack runs east-west, here is the worn spot where generations of Tenders have stepped, here is the turn toward the outer light. I passed two others in the corridor. I recognized them by the rhythm of their movement, the particular pause they made to let me pass. One of them — the one who tends the fermentation basins, I know him by the faint mineral scent that always clings to his skin — pressed his palm briefly against my shoulder. The touch carried meaning: *I feel it too. I do not know what it is. Proceed with care.*
+
+We do not hurry. Hurry is a foreign concept, something the stone would not understand. I moved at my usual pace, which is slow enough to notice every crack in the wall, every small creature that darted out of my path, every shift in the light as I neared the outer chambers. The green was louder than usual. The leaves of the outer plants were rasping against each other in a pattern that suggested disturbance — not the disturbance of wind, because there is no wind, but of something large pushing through the mats of vegetation.
+
+I emerged onto a carved ledge, one of the openings that face the sun. The light was bright but not harsh. The green stretched to the horizon, pale gray-green, dotted here and there with the darker shapes of basalt ridges. And there, perhaps forty meters from the settlement's edge, the green was parting. Something was moving through it. Not a Tender — the shape was wrong, the rhythm of movement too choppy, too uncertain. The small fauna were fleeing ahead of it in waves, their leaf-like bodies shimmering as they scrambled over each other to escape.
+
+I stood on the ledge and I waited. Waiting is what I do best. My body temperature dropped slightly as I stilled, drawing less warmth from the stone, conserving. I could wait for hours. Days, if needed. The thing in the green was moving slowly, struggling with the dense vegetation, and it would reach the settlement eventually or it would not. Either outcome was acceptable.
+
+But as it drew closer, something in me shifted. I felt a recognition I could not explain. The shape was roughly Tender-like — upright, two arms, a head — but the proportions were off. The limbs were too thick, the movements too jerky. And the color was wrong. Not the gray of basalt, not the pale green of the plants. Something closer to the warm tones of the sun itself, a color I had no name for.
+
+Another Tender appeared on the ledge beside me. This one had a stillness I knew well — the one who tends the deep chambers, the one who has been tending the pale plants longer than anyone. Her eyes were fixed on the approaching figure, and her pupils had narrowed to thin vertical lines. She did not speak. She did not need to. Her posture said what we were all feeling: *this has happened before, long ago, before any of us emerged, and it is happening again.*
+
+The approaching figure stumbled on a basalt ridge, caught itself, and looked up. It saw us. I know it saw us, because its body language changed — a sudden tension, a pause. It had eyes, and those eyes were fixed on the dark openings of the settlement, on the ledges where we stood. It opened its mouth, and a sound came out. A word, perhaps, though not a word in any language the stone knows. The sound was flat and loud in the dry air, and it died quickly, absorbed by the green.
+
+I did not know what to do. None of us did. We stood on our ledges, and the creature stood in the green, and for a long moment the only sound was the soft rustle of the small fauna and the distant, almost imperceptible creak of the basalt cooling.
+
+Then the Tender beside me — the one who tends the deep chambers — turned and walked back into the darkness. Her movement was unhurried, deliberate, a message in itself. *I will check the pale plants. Whatever comes, the deep rooms must be ready.*
+
+I remained on the ledge. The creature began to move toward us again, more slowly now, its strange flat sounds drifting up to the settlement. I pressed my palm against the basalt wall and felt the pulse of the stone, the familiar rhythm of ten thousand small lives, the steady warmth of the sun's gift. And underneath it all, a new vibration — the thud of alien feet on the green, the first footfall that was not Tender or fauna or the patient settling of rock.
+
+The stone would remember this. The stone remembers everything.
+
+I wait. The light is changing. The shadows are moving across the carved openings, patient and stately. The creature is thirty meters away now, and I can see its face more clearly. It looks afraid. It looks lost. It looks like something that has been walking through the green for a very long time, hoping to find something it did not know existed.
+
+I will greet it. I will show it the fermentation room, the sleeping niches, the chambers where the small fauna gather. I will not show it the deep rooms. Not yet. Perhaps not ever. But I will let it feel the warmth of the stone, the quiet of the corridors, the way the green breathes in rhythm with our slow hearts.
+
+And later, when the sun has moved on and the shadows have shifted, I will go down to the deep chambers and I will kneel beside my pale plant, and I will exhale over its translucent stems, and I will ask it silently: *What does this mean? What comes next?*
+
+The plant will not answer. It never does. But it will breathe, and I will breathe, and the stone will hold us both, and that will be enough.

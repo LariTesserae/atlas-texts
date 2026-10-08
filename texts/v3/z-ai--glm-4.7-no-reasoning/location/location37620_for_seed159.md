@@ -1,0 +1,25 @@
+The world is not a planet so much as a stomach.
+
+Here, gravity is a suggestion rather than a law, and the horizon curves the wrong way, closing you in like the lid of a stone eye. We are deep—0.4 units below the crust, in a cavity the size of a collapsed nation. It is warm (2.1), a humid, womb-like heat that tastes of iron and ozone. It is the kind of warmth that presages a fever, steady and oppressive.
+
+There is no sun, yet there is "normal light" (2.5)—a diffuse, sourceless illumination that bleaches the color out of everything. It emanates not from above, but from the friction of the air itself, a silent, constant ionization that turns the vast, open cavern into a high-contrast photograph of gray and bone-white.
+
+The ground is raw (0.3). It is "emerging" geology, a froth of stone that seems to be congealing even as you watch. The floor is jagged, uneven, covered in sharp, spiky extrusions that look like frozen splashes of milk. There is no soil here, only fractured bedrock and a fine, choking dust that is actually pulverized glass. Erosion hasn't had time to smooth the edges; this is a landscape that was born five minutes ago and is constantly dying to be reborn.
+
+Vegetation is a myth (0.4). There are no trees, no moss, no ferns. There is nothing that photosynthesizes. Instead, the surfaces are occupied by "constructs"—strange, mineral accretions that look like primitive tools (0.8) left to rust. Scattered among the rocks are faint, spiral markings etched into the stone, the only remains of a civilization that either left long ago or evolved into something we cannot recognize. These are not buildings in the human sense, but single, boxy structures, standing isolated and meaningless, windows open to a view of nothing but rock.
+
+The air is damp (1.4). It is not raining, but the cavern breathes. Condensation slicks the jagged rocks, making the footing treacherous. Pockets of water gather in the hollows of the stone—clear, oily pools that tremble with the vibrations of the earth. There is a faint smell of brine, suggesting that somewhere deep beneath this floor, there is a sea, or perhaps the rock itself is sweating salt.
+
+But the silence of the mineral world is shattered by the life (2.6). It is overwhelming.
+
+The dominant life form here is a creature that defies the usual taxonomies. They are "The Horders"—vast, multi-limbed arthropods with carapaces of shifting chitin that mirror the jagged rock. They are the size of draft horses, and they are everywhere. The density is terrifying (2.0); you cannot step without risking a tread on a twitching antenna or a snapping claw. They are piled upon one another in writhing mounds, clinging to the cavern ceiling in draping curtains of legs and mandibles. They are not aggressive; they are simply *present*, a force of nature in biological form. They move with a singular, manic purpose, driven by a turbulent dynamic (2.9) that suggests the ecosystem is crashing and rebooting every hour.
+
+The noise is deafening (1.6). It is a roar of a billion moving parts—the click-clack of chitin on stone, the wet tearing sounds of feeding, the high-pitched stridulation of communication. It sounds like a glass factory tumbling down a staircase. The air itself vibrates with their collective energy, a chaotic anthill magnified to the scale of a valley.
+
+They are building. Or perhaps they are mining. They use simple, lever-based tools made of scrap—the "scattered built" elements (1.0) of this world. They pry at the emerging rock, tearing great sheets of crystal from the walls. They carry these shards on their backs, moving in dense, chaotic rivers from the cavern walls to the center, where they toss the debris into great, smoldering heaps. It is a bazaar of industry without a blueprint.
+
+The weirdness (1.3) lies in the symmetry. Despite the chaos, the movement of the creatures creates patterns. When a cloud of the beasts moves, their bodies align to create geometric shapes—triangles, hexagons, fractals—that shimmer in the sourceless light. It is an emergent intelligence, a hive mind that calculates geometry as it moves. If you watch too long, you feel your own thoughts trying to align with their angles, your own brain wanting to become part of the lattice.
+
+This is a place of "Solaris-like" instability. The geography changes not by wind, but by the sheer biomass of the inhabitants. A hill of rock might be dismantled by ten thousand claws in an hour, revealing a hollow beneath it that was not there before. A river of condensation might be dammed by a wall of bodies, creating a lake that boils away as soon as it is formed.
+
+There is no stillness here. The land is a sketch that is constantly being erased and redrawn by an invisible hand, composed of a million terrified pencils. You stand in the damp, heat-warmed dark, surrounded by the roar of creation, watching the world unmake itself faster than it can ever be made.

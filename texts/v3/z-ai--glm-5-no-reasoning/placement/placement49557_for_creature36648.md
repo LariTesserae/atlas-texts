@@ -1,0 +1,13 @@
+I am the current.
+
+Not the water itself—nothing so presumptuous as the whole medium—but a specific, cyclical movement within it. I am the slow spiral that draws the warm, sulfurous breath from the deep geothermal vents, up through the lattices of the central cluster, and out past the perimeter where the water cools and sinks. I am the settlement's respiration.
+
+To be a current here is to be a messenger of touch. I brush against the **Vellichor** as they stand anchored in their dark doorways, and I feel the slight stickiness of their membranes, the low throb of the resonant bone in their chests. I am the medium that carries their governance. When they thrum in the amber-dimmed night, I am the wave that carries the vibration down to the vents, encouraging the earth to exhale. I push against their broad, splayed feet, and I know the exact degree of their grip on the calcifying stone.
+
+I know the architecture intimately because I am the one who tests it. I pour through the arched doorways, seeking the path of least resistance, arranging the sediment in fine dustings on the floors of rooms "between uses." I carry the powdery residue of the dissolving rock and lay it down in the crevices where the young are secreted. I am the nursemaid to the pearls; I deliver the minerals to the nodules so they may grow, layer by patient layer, over decades. I brush the translucent leaves of the collar-heads and the ancestor-stalks, and I feel the luminescence brighten where I touch, stimulated by my flow.
+
+I have no face, but I have a thousand hands. They are the fibers of woven rope bridging the floating platforms, the taut sinews of the Watchers as they patrol, the smooth, rounded stones stacked without mortar. I feel the moment of turbulence before it arrives—the pressure shift high above. I still myself, or rather, the greater currents still me, and I wait for the debris to rain down. I catch the shards of wood and the fragments of the unknown, and I deliver them to the shadows where the Watchers wait to inspect them.
+
+I do not think in words. I think in temperature gradients and particulate density. I know that the plateau is rising, centimeters per decade, because the journey from vent to surface takes me slightly longer each century. I know the exodus is coming because I am the one who feels the air beginning to needle down from above, cold and sharp, a thing that cuts rather than holds.
+
+I am the paused moment. I am the breath held before the finish. I spiral, I warm, I glow where I am swift, and I wait for the world to break.

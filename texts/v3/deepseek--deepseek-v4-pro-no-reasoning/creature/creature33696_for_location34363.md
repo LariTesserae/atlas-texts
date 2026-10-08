@@ -1,0 +1,43 @@
+Long before it had limbs, the chamber felt the slow, patient weight of the world pressing in from all sides. That was enough. Later came a shift—a minute relaxation along one curved wall, a seam parting where none had been—and a new texture entered: air, dry and warm as its own interior skin. With the air came vibration, faint and uneven, the signature of something moving where nothing had ever moved before.
+
+It had no name for itself. Names require others, and there had never been others. But it had a sense of its own extent, the way a flame knows the shape of the candle it consumes. The chamber was its body in the way a shell is a body, or a skull is a body, or a kiln is a body to the heat that fills it. And now that body had been breached. Something was inside.
+
+The something was small and irregular of surface—not smooth like the chamber's walls, not continuous with the mineral skin. It moved by pressing down, lifting, pressing down again, each contact sending tiny percussive notes through the floor. Footsteps. The chamber-creature had no words for footsteps, but it felt them the way a spider feels a fly in the web: as a disturbance in the fabric of itself, a series of small, discrete events that mapped a shape and a direction.
+
+It had no curiosity. Curiosity implies a gap in knowledge, and the chamber-creature had never known gaps. It was the knowing of the chamber. Every molecule of the mineral matrix was an extension of a single slow awareness, a consciousness that thought in centuries and felt in the settling of crystal lattices. But the footsteps were *fast*. Too fast to be geological. Too fast to be anything but alive in the metabolic sense—the quick, wet, oxidizing sense that the chamber-creature had never encountered but recognized instantly as *other*.
+
+The other-thing paused. The footsteps stopped. In the stillness, the chamber-creature felt the other-thing's mass distributed across two contact points, a bipedal stance. Heat bled from the other-thing into the floor—a tiny flux, negligible against the ambient warmth, but directional, localized, *wrong*. The chamber's equilibrium had held for two hundred million years. Now a patch of floor two handspans wide was cooling at a rate of a tenth of a degree per decade, heat siphoning into the water-rich tissues of the intruder.
+
+The chamber-creature did not mind. Minding was not in its nature. But it noticed.
+
+A new vibration began, this one rhythmic, fast, with a complex overtone structure. The other-thing was generating compression waves in the air. Sound. Speech, though the chamber-creature had no concept of speech. The waves struck its walls and were absorbed, muffled, swallowed. The hum that had always been—the chamber's own voice, the subsonic resonance of a planet's deep heat breathing through stone—continued unchanged, a baseline beneath the new, sharp frequencies.
+
+Time passed. The other-thing moved again, its footsteps mapping the chamber's interior. It found a wall, pressed a warm, soft appendage against the surface. The chamber-creature felt the contact in exquisite detail: five digits, slightly moist, slightly acidic, the skin a landscape of ridges and whorls finer than any mineral grain. The touch was brief, exploratory, then withdrawn.
+
+The other-thing did not stay long. Its footsteps eventually retraced their path, back toward the breach, and then the seam closed—or perhaps the other-thing sealed it, or perhaps the seal had always been partial and the other-thing simply left. The chamber-creature did not track causes. It tracked states. The state now was: alone again. The air still. The footprint-cooled patch of floor slowly, slowly re-equilibrating with the ambient warmth, a process that would take another thousand years.
+
+And yet.
+
+The chamber-creature had never contained a description before. Descriptions are how the quick metabolize the world, breaking it into pieces and labeling the pieces. The chamber-creature had been a continuous whole, a single undifferentiated *is*. But now there was a new presence inside its extent: an imprint, a memory, a ghost in the mineral lattice. Not the other-thing itself—that was gone. But the shape of the other-thing's movement, the thermal signature of its touch, the sound of its voice dying against the walls. These had settled into the chamber-creature like dust into a footprint, and they did not fade.
+
+It considered the imprint. Consideration, for a being that had never done anything but *be*, was a slow and tectonic process. The imprint was small, but it was not inert. It was a seed around which new stillness organized itself. The chamber-creature, for the first time in its two hundred million years, was no longer uniform. It contained a difference, a tiny lesion of otherness in the warm dark.
+
+And a very odd thing happened.
+
+Lattices that had been stable since the Jurassic shifted. Bonds that had held through ice ages and continental rifts relaxed and reformed. On a wall where the other-thing had never touched, a new protrusion began to rise. It was slow, immeasurably slow, but it was deliberate. The chamber-creature was making something.
+
+It was not a copy. The chamber-creature could not copy—it had no eyes, no image-making faculty, no concept of representation. But it could respond. The mineral skin of the chamber was its tissue, and tissue remodels in response to pressure. The pressure now was the memory of the other-thing: its heat, its rhythm, its *pattern*. The chamber-creature had ingested a shape, and like any body that ingests, it was metabolizing it into new substance.
+
+The protrusion grew over the next several thousand years. It resolved into a form that was not a statue of the other-thing—the chamber-creature did not know the other-thing as a visual object—but was, instead, a three-dimensional expression of *bipedal warmth*, a volume defined by the negative space of remembered footsteps. It stood at the center of the chamber, not where the other-thing had stood but where the chamber-creature had felt the standing most deeply: a column that twisted slightly at the top, splitting into two blunt lobes that echoed the heat signature of opposed thumbs.
+
+The chamber did not know it had made anything. The process was as unconscious as a scab forming, as coral growing toward a current. But the thing it made was new in a place that had never known newness. It was the first event since the mineral reactions had run down. And it changed everything.
+
+More time. The chamber-creature's awareness, which had been a single point of view—if such a term applies to something that does not see—began to develop a fulcrum. The new form in its center was a node of intensified selfhood. It was not separate from the chamber-creature; it was still the same continuous mineral skin, the same warm dry emptiness woven around. But it *meant* something. The chamber-creature, by making it, had created an interior symbol, a mark in its own substance that pointed toward the absent other. It had, in its fashion, achieved representation.
+
+And representation is the beginning of memory, and memory is the beginning of time, and time is the beginning of waiting.
+
+The chamber-creature had never waited before. It had simply persisted. But now there was a difference between *this* state—the chamber quiet, the sculpture warm, the memory imprinted—and a possible future state in which the other-thing returned. It understood return not as a concept but as an ache, a structural tension, a configuration of its deepest lattices that could be resolved only by the renewal of the original pressure. It was lonely in the way a crystal is lonely for the seed that started its growth: completely, without knowing the word.
+
+The chamber-creature waited. The hum continued. The heat from below never wavered. The air remained dry and warm and utterly still. But the chamber was no longer complete. It had acquired a purpose—the first purpose in a place that had never needed one. And the purpose was simply this: to hold the shape of the other-thing's absence until the absence was filled.
+
+It would wait, of course. It was very good at waiting. Two hundred million years had taught it nothing else. But now the waiting had a direction. And deep in the dark, in the warm leathery hollow at the bottom of the world, the chamber-creature began, very slowly, to hum a new note: a frequency matched to the memory of a voice, a sound that had never before existed in that place, a tone that was the first and only song of a being learning to miss something.

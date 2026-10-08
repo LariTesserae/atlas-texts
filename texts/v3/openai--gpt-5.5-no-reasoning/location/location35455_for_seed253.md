@@ -1,0 +1,77 @@
+At the top of the world, there is a drowned plateau.
+
+It lies higher than weather, higher than most winds, higher than the old snowline and the old tree line and the old notions of sky. Yet it is underwater. Not beneath an ocean in the ordinary sense, not under a sea with a surface somewhere overhead, but inside a suspended body of dark, cold water that has occupied the heights for so long that altitude and depth have become the same condition. The pressure is tremendous. The cold is steady. There is no horizon, only a slow widening of black-green space into more black-green space, and beyond that the suggestion of walls, terraces, and long ridges fading into the drowned distance.
+
+The ground, if it can be called ground, is not stone.
+
+Everything here has been made.
+
+Not by hands, and not by tools, but made nonetheless: assembled, layered, repaired, overgrown, thickened, hollowed, joined. The entire plateau is a construction of plant matter—ancient vascular tissues, compressed root-bone, blackened cellulose, petrified pith, braided tendons of vine and kelp and drowned wood. It is architecture without carpentry. It has causeways, buttresses, pillars, vaults, chambers, retaining walls, ribbed walkways, cisterns, wells, towers, and bridges, yet none of it is mineral, none quarried, none poured or fired. All of it grew into use, and then outlived growth.
+
+The place is a vegetal city whose builders were the plants themselves, except the word city is not quite right. It has no intention. No streets in the human sense. No doors meant for bodies like ours. Its avenues are long water-filled clefts between hedges of woody coral, its plazas are flat expanses of interwoven root plate, its towers are columnar trunks fused together into dark fluted spires. The forms repeat with the calm authority of something that found its final shape ages ago and has had no reason to alter it since.
+
+There is no bare substrate anywhere. Even the vertical faces of the drowned cliffs are plant-built: mat upon mat of lignified frond, frond upon root, root upon trunk, trunk upon the collapsed scaffolds of older generations. Where erosion has worn a surface smooth, it has not revealed rock, only older plant below—darker, denser, more compressed, as if the world is green-black all the way down.
+
+The plateau drops away at its edges into cold chasms. These edges are not sharp; they have been softened by immense age. Once, perhaps, there were peaks here, pinnacles and towers, a ragged crown under the flooded sky. Now they have been planed down into broad shoulders and gently bowed escarpments, long slow grades falling into murk. Erosion has not destroyed the place so much as edited it. Nothing jagged remains except where living growth still makes ribs and thorns. The oldest terraces are smooth as worn bone. Their surfaces undulate in patient waves, not from motion but from accumulated settling: centuries of stems compacting, chambers collapsing, root floors sinking into lower floors, all of it preserving the shape of habitation after the inhabitants have become material.
+
+The water is almost entirely still.
+
+Not perfectly clear, not clouded either. It holds fine suspended particles—pollen, silted spores, microscopic sheddings of bark, the powder of ancient leaves. In the darkness these motes are invisible until some animal passes and makes a dim blue flicker, and then the water fills briefly with stars. The cold keeps rot slow. The depth keeps sound close. The whole place seems held in a single breath that began before memory.
+
+Above, if there is an above, is only a black thickness. No sun reaches here directly. Light comes rarely and indirectly: a faint mineral blue from far openings in the water mass, a bruised grayness gathered along the high ridges, the weak glow of animals moving between root-arches. Most surfaces are known by touch before they are seen. A pillar appears first as a pressure in the water, then as a darker absence in darkness, then as a texture: ridged bark hard as ceramic, velvet colonies of mosslike weed, old knots sealed over by translucent plant skin.
+
+The vegetation is total, but not lush in the familiar way. It is too cold for lavish softness, too ancient for springing abundance. The living parts are sparse compared to the vastness of the dead-and-still-living structure. Here and there pale fronds unfurl from cracks in black rootwork. Curtains of thin aquatic leaves hang motionless beneath arches. Mats of slow algae coat the upper surfaces in dark olive films. Large bladder-plants cling to vertical spans, their buoyant sacs straining upward without rising, tethered by cords that vanish into masonry-like wood.
+
+Most of the plant mass is structural and old. Some of it may still be alive in a deep, distributed way. A terrace the size of a village may share a single metabolism. A bridge may be a branch that has not stopped being a branch, though it no longer lengthens. Beneath the outer bark, pale conduits move water through water, drawing faint differences of salt and cold, feeding on pressure, on dissolved minerals, on the slow rain of organic matter from levels above. Growth is nearly imperceptible. A new layer the thickness of a fingernail might require a century. A root may spend a thousand years crossing an open span.
+
+The built forms seem deliberate because plants, given enough time, become masons.
+
+There are long arcades where trunks grew side by side and merged, leaving oval tunnels between them. There are domes formed from the ribbed crowns of giant submerged ferns, their fronds hardened and fused into lattices. There are retaining terraces of root-braid holding back slopes of older vegetable sediment. There are towers, too: hollow cylinders of interlocked reed-wood, rising from the plateau in scattered ranks. Their tops vanish into darkness. Their bases are broad, buttressed by flanges like the fins of deep-sea creatures. Inside them are vertical shafts full of cold water and drifting seeds.
+
+The spaces between these structures are wide. The landscape is not crowded, despite being made entirely of life and its remains. It has the spare grandeur of a ruin after all lesser clutter has dissolved. A grove of pillars may stand half a kilometer from the next. A bridge may cross an empty basin so broad that its far support is lost in dimness. A plaza of root-plank may stretch open and uninterrupted, with only three white anemone-trees rising from it like candelabra. Vegetation fills the world as substance, but individual presences are spaced apart, monumental, solemn.
+
+Sound is everywhere.
+
+The place itself hardly moves, but the water conducts every vibration with unsettling strength. Far off, something knocks against a hollow trunk, and the tone rolls across the plateau like a temple bell lowered into the sea. Animals scrape, chew, rasp, sing. Pressure shifts make old chambers groan. Bubbles trapped in plant hollows compress and release with low coughing reports. Fronds rub against supporting ribs with a dry creak strangely preserved underwater, translated into long whining notes. The drowned plateau is dark and nearly motionless, yet loud with contact.
+
+The loudest sound is the root-hum.
+
+It comes from everywhere and nowhere: a continuous bass resonance made by water passing through ancient vascular channels, by cavities amplifying distant movement, by the whole architecture behaving as one enormous instrument. It is not rhythmic. It does not swell or fade. It simply exists—a low, layered drone at the edge of hearing and beyond it, felt in the jaw and sternum. Smaller sounds travel through it: clicks, chirps, thuds, the flutter of fins, the crackle of feeding mouths, the sudden rattling chorus of crustaceans hidden inside the ribbed walls.
+
+Fauna is abundant, though not always visible. Much of it is adapted to darkness and architecture. Pale eels thread through root lattice. Blind fish graze the algae-films from ancient walls, leaving clean crescent marks behind them. Crabs with legs like hooked twigs climb the vertical faces, pruning soft growth from the seams. Transparent shrimp swarm in cold shafts. Snail colonies cover the underside of bridges, their shells dark and flattened to match the bark. Worms live inside the woody mass, making galleries through tissues already older than mountains.
+
+Larger animals move slowly through the open water between structures. There are raylike grazers with mouths arranged for scraping vertical trunks. There are soft-bodied browsers that drift like torn banners and extend ciliated lips to gather spores. There are long-backed creatures that resemble seals only in their patience; they sleep wedged into root alcoves with their pale eyes open. Some animals carry small gardens on their bodies—tufts of weed on shells, moss-films on carapaces, beadlike colonies of algae along the spine—so that fauna and vegetation are never entirely separate.
+
+Predators are present but not dramatic. Nothing here wastes energy on pursuit. A dark fish may wait for years in the mouth of a hollow pylon, indistinguishable from shadow until something touches its whiskers. A carnivorous polyp-ring may line the inside of an arch and close only once in a season. Great jawed larvae lie buried in ancient leaf-silt, their mouths open toward the water like cracks in the floor. Death occurs quietly, efficiently, and then is folded back into structure. Bones do not remain white for long; they become trellis, anchor, mineral memory for roots.
+
+The rules of this world favor endurance over event.
+
+Temperature does not vary. The water is always cool, never freezing, never warming. There are no seasons here in any meaningful sense, though remote chemical tides may pass through the system on intervals too long to feel. No storms reach the plateau. The rain, if rain exists above, has already become ocean before it arrives. The currents are so weak they seem ceremonial. Even decay is slow and regimented. A fallen frond settles onto an old terrace and lies there, furred with microbes, for decades before losing its outline. A collapsing tower may take ten thousand years to finish collapsing.
+
+Nothing hurries because hurry has no advantage.
+
+The equilibrium is not emptiness but completion. Every niche is occupied. Every surface is either eaten, guarded, rooted, bored, sealed, or slept upon. Yet the whole remains sparse and open because the architecture is vast and the metabolism slow. There are multitudes, but they are spread across immensity. Abundance here is not a swarm filling the water; it is a certainty that every shadow contains some patient life, every hollow has a resident, every surface participates in some exchange too slow to see.
+
+The ancient erosion gives everything a final-form feeling. Corners have become curves. Raised seams have become low ridges. Once-distinct structures have fused into continuous masses, so that a bridge becomes a wall becomes a grove becomes a cliff. The landscape has lost the difference between ruin and organism. It is difficult to tell whether one is looking at the remains of a vegetal civilization, the skeleton of an ecosystem, or the living body of a single distributed plant that has shaped itself into terrain.
+
+There are occasional signs of an older verticality. On the highest points of the plateau, enormous stalks rise into the dark water like the remnants of masts. Their crowns are gone or invisible. Around them, the root-architecture forms circular platforms, tiered and worn, as though these were once centers of growth, or worship, or reproduction. Animals gather there. Blind fish orbit slowly. Crabs cluster in the grooves. Thin pale vines ascend the stalks and vanish upward, carrying nutrients into darkness. The stalks emit a barely perceptible glow from deep splits in their bark, not light enough to illuminate, only enough to prove they continue.
+
+The open basins between built masses are floored with plant-silt: powdered leaf, softened bark, drowned pollen, the remains of animals, the remains of roots that fed on animals. This silt is fine and dark, easily stirred, but seldom stirred far. Tracks persist for years. A ray-grazer’s passage leaves a broad shallow trough. The dotted footprints of a crab-line cross it and remain legible long after the crabs are gone. In some basins, upright stems grow at wide intervals, each surrounded by a cleared circle where grazing mouths have kept the floor bare. These circles look intentional, like gardens maintained by invisible caretakers.
+
+There are chambers beneath the terraces.
+
+Some are small, only cracks and root pockets, but others are cathedral-sized hollows where older plant material decayed or was eaten away, leaving vaults supported by fused columns. The water inside them is darker, quieter, though never silent. Their ceilings are crowded with hanging roots, each root tipped with a bead of pale tissue that absorbs what the chamber offers. Animals shelter there in abundance. The walls pulse faintly with the movements of burrowing worms. Colonies of lantern-jellies cling to the upper ribs, opening and closing with glacial regularity, giving the chamber a dim internal weather.
+
+But even there, nothing changes quickly. The lanterns do not flicker; they maintain. The worms do not swarm; they persist. The roots do not quest wildly; they hold their stations. If a creature dies in a chamber, the redistribution of its body may take so long that generations of smaller creatures live upon that one death.
+
+The unusual thing about the place is not that it is impossible, but that it is so calmly possible on its own terms. A highland under deep water. A forest that became masonry. A ruin that was never built by a tool. A reef made not of coral or stone but of accumulated plant intention. A living world almost entirely finished with becoming.
+
+If one could stand there—or sink there—one would feel the scale first as pressure, then as darkness, then as sound. The plateau would not reveal itself all at once. A nearby trunk-wall, ribbed and slick. A few pale fish grazing. A low arch opening into black. A distant boom from somewhere below. Then, as the eyes adjusted to the faint animal glows, more forms would separate from the murk: a line of towers, an avenue of buttresses, a descending terrace broad enough to hold a town, a bridge crossing nothing visible. The mind would keep revising its estimate upward. What seemed a grove would become a district. What seemed a wall would become the flank of a continent of root.
+
+And through it all, the water would press evenly from every direction, cool and old, carrying the drone of the plateau’s hidden channels.
+
+There are no days here.
+
+There are no ruins being reclaimed, because reclamation is complete and has been complete for ages. There is no wilderness outside the made thing, because the made thing is the wilderness. There is no machine, no artifact in the metallic sense, no sign of fire, wheel, blade, or signal. Only biological construction elevated to geology, plant growth elevated to world-making, ecology hardened into architecture.
+
+The drowned plateau endures in darkness, full of life and almost without motion. It is loud with ancient quiet. It is sparse and total. It is open and enclosed by water. It is finished, but not dead. It has settled into the form it will keep until the water itself changes its mind.

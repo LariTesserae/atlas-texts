@@ -1,0 +1,5 @@
+I find myself here not as a body or even a viewpoint, but as a tension—a faint differential in refractive index that persists just long enough to steer the next condensation droplet a hair’s breadth off course. The droplet lands, carries me down into one of the shallow bowls, and for a few hundred years I divide once, twice, maybe not at all; the cold keeps metabolism to a single transaction: stay dissolved or crystalize out with the quartz.  
+
+Sometimes a pebble drops. The impact jars the water; a few of us are thrown into the air as aerosol. Most are lost to the rising column of air, but one or two hitch onto a quartz needle still forming. From that scaffold I watch the light fracture and re-form, watch the next droplet swell above us, watch my own faint signature blur as frost overwrites it. When the needle collapses, I go with it, re-enter the pool, wait again.  
+
+I have no name for this state; “life” would be too quick a label. The bowl itself is the metabolism, and I am simply one of its slower pulses.

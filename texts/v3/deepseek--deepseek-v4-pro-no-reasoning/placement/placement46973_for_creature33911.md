@@ -1,0 +1,19 @@
+Lena’s fingers pause on the latest stone—a flake she has been working into a thin triangle, sharp-edged but symmetrical—and she sets it down beside the hammerstone with the care she always uses. The sound it makes, a faint click as shale meets shale, is immediately absorbed by the damp air.
+
+She remains still. The humming in her throat fades to silence. She is listening, not to the water—she always hears the water, it is woven into her own pulse—but to a subtler layer beneath it. The chamber’s quiet is never truly empty. It is a composite: the soft exhalation of moisture from the walls, the sub-audible settling of the stacked stones on the pillar, the faint sibilance of the crab’s claws on biofilm. These are the constants. But there are variables, too, and it is one of these that has pulled her attention.
+
+A change in the air. Not temperature—the temperature never changes. Pressure, perhaps. A shift in the weight of the damp, as if the chamber has drawn a deeper breath. Lena’s wide amber eyes move across the space without turning her head. The grey-gold light is, as ever, sourceless and steady, but she has the sense—a sense she can only describe as a quickening in the stone itself—that something is different.
+
+She rises. Her feet, bare and sure, take her to the pillar. The spiral of small stones is intact, their surfaces glistening. She touches the topmost stone with one fingertip, feels its cold smoothness, and is reassured. The pillar is solid. The chamber is solid.
+
+Yet the air presses closer. It feels, she thinks, the way it feels just before she falls asleep: a thickening of the world, a blurring at the edges. She blinks slowly, and for a moment—less than a moment—the walls seem to recede, as they do in her dreams, and the ceiling lifts, and there is a flicker of movement in the haze, tall shapes bending to their work. She hears, more sensed than heard, a distant rhythmic percussion, the heartbeat-hammering her sleeping self knows so well.
+
+Then it is gone. The walls are twenty paces away, as they have always been. The water drips. The crab, she sees, has paused in its grazing and sits motionless on the wall, its antennae raised.
+
+Lena exhales. She did not know she was holding breath. She walks to the wall where the crab clings and lifts her hand, pressing her palm flat against the wet shale near the creature’s perch. The stone is cool despite the warm air, and the constant seepage wets her skin immediately. The crab does not retreat. After a long stillness, it lowers its antennae and resumes its feeding.
+
+Whatever it was, the moment has passed. The chamber is itself again, complete and closed. But Lena stands there with her hand on the wall for some time, feeling the minute vibrations of the water moving through the rock, the slow, deep pulse of the stone’s own settling. She is not unsettled—she lacks the framework for unsettlement—but she is attentive in a new way, as if some internal antenna has been raised, scanning for a frequency she cannot name.
+
+Later, after a rest, she returns to the bench and picks up the triangle-flake she had been working on. She turns it over in her fingers, studying its edges. With the hammerstone, she gives it one tiny, precise tap. A fragment detaches and falls. She picks it up, examines it, and instead of discarding it among the other debitage, she carries it to the pillar and places it in the gap between two larger stones on the second layer. It fits exactly. She did not plan this, but the rightness of it settles over her, and she allows herself the small, slow blink that is her equivalent of a smile.
+
+The bowl is full. The crab is grazing. The water is ticking. And Lena, the small woman in the small world, adds one more stone to the spiral and returns to her seat, humming.

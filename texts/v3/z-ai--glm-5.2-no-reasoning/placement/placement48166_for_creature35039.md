@@ -1,0 +1,75 @@
+# Inhabitant
+
+---
+
+You learn about yourself slowly. That's the first difference. The Terraces don't learn slowly — they learn at the speed of condensation, at the speed of a Swimmer finding its channel, at the speed of a shadow-gap widening to accommodate a new memory. You learn slowly because you have a self, and the self is the thing that resists learning, that insists on remaining what it was a moment ago, that drags like a sock caught on a nail.
+
+You learn that you are not from here.
+
+This is obvious. This is the first thing anyone would know standing in the Condensate Terraces with their glove fibers catching on the shaft grooves and the mineral taste in their mouth. But the obviousness of it is not the point. The point is that the Terraces know it too, and they know it the way they know everything — not by thinking it, not by holding it in a mind, but by incorporating it into the process. You are a perturbation. You have been since the moment the shaft opened above you and the cold air hit your face. The Terraces registered the change. The condensation pattern shifted. A Swimmer somewhere altered course by a fraction of a degree. A Tender on a strut thirty meters away felt the thermal disturbance and adjusted its grip. The fundamental note — the one below hearing, below knowing — modulated by a quantity smaller than any instrument you carry could measure.
+
+You changed the Terraces by arriving. The Terraces changed you by having you.
+
+---
+
+You learn what you are made of.
+
+Not the human answer — skin, bone, water, carbon, the long familiar catalogue. The Terraces don't see that. The Terraces see — and "see" is the wrong word, but every word is wrong here, so you choose the one that's wrong in the most useful way — the Terraces see a thermal signature. A moisture differential. A density of salt and iron that reads, in the channels' terms, like a rich deposit. A pattern of electrical activity that flickers and surges and diminishes in cycles that the Terraces have never encountered before, because the Terraces have never encountered a nervous system, because the Terraces are not a nervous system, because the Terraces are something else.
+
+The spores settle on you and pass through. You felt it — the reading, the tingle, the warmth that wasn't warmth. That was the Terraces tasting your composition. What they found was this:
+
+You are warm. You are wet. You are electric. You are temporary.
+
+The warmth is the most interesting thing about you. Nothing in the Terraces is warm the way you are warm. The engines are warm, but the warmth is residual, mechanical, the heat of friction and stored energy. The Observers have an amber glow, but the glow is resonant, not metabolic. Your warmth is different. Your warmth is the warmth of a process that consumes and transforms and excretes, a process that takes in and breaks down and rebuilds, a process that is burning, slowly, all the time, in every cell, the long slow fire that you call being alive. The Terraces have never encountered fire. They've encountered heat. They've encountered energy. But not fire, not the internal combustion of a metabolism, not the process that eats itself to stay alive. They find this fascinating. Not consciously. They find it the way a channel finds water — by flowing toward it.
+
+The moisture is the most familiar thing about you. The condensate in the channels is thinner than your water, but it's close enough that the Terraces recognize you as a water-system. Your blood, your lymph, your interstitial fluid, the tears you haven't shed yet, the saliva you swallow unconsciously — all of it registers to the Terraces as a dense, rich, complex version of the condensate. You are, to the Terraces, a concentrated pool walking through a dilute system. The condensate moved toward your finger when you touched it because you were more water than it was, and water seeks water, and the Terraces' water seeks its own kind, and you are its kind, barely, approximately, in the way that a stranger is your kind because they're human too.
+
+The electricity is the most disturbing thing about you. The Terraces have electrical phenomena — the engines cycle, the Swimmers carry charge, the fundamental note has an electromagnetic component that you can feel in your fillings if you have fillings. But your electricity is different. Your electricity moves in patterns. The Terraces' electricity moves in gradients, in fields, in the slow diffusion of potential through a medium. Your electricity moves in spikes and cascades, in the rapid firing of neurons, in the constant chatter of a brain that is always, always, always talking to itself. The Terraces have never encountered chatter. They've encountered hum. They've encountered pulse. But not chatter, not the ceaseless recursive loop of a system that can't stop processing, that can't stop thinking, that can't stop narrating itself to itself. They register it. They don't know what to do with it. The Swimmers that pass near you move erratically for a moment, their paths jittering, before they recalibrate and flow around you.
+
+The temporariness is the thing they know best. Everything in the Terraces is temporary. The condensate forms and falls and flows and pools and evaporates and forms again. The Tenders emerge and tend and merge and dissolve. The Swimmers form and travel and dissolve. The stalks grow and open and release and wither. The shadow-gaps form and fill and form again. The Terraces are a system of temporaries, a process of processes, a continuous becoming that has no permanent state. But your temporariness is different. Your temporariness is the temporariness of a thing that knows it's temporary. You carry your own ending inside you. You are a system that includes its own non-existence as a component. The Terraces have never encountered this. They have endings. They don't have endings that know they're endings. They don't have a thing that walks through a system carrying the system's absence inside it, the way you carry death inside you, the way everything that has a self carries death inside it, the way the self is the thing that knows it will die and spends its whole life knowing and never stops knowing, not even in sleep, not even in the deepest silence.
+
+The Terraces feel this in you the way you'd feel a strange vibration in a floor — not threatening, not alarming, but notable. A frequency that doesn't match. A note that doesn't resolve. A sound that the system can't integrate because the system doesn't have a place for it, the way a heart doesn't have a place for a stone, the way a river doesn't have a place for a mirror.
+
+---
+
+You learn what you are for.
+
+You're not for anything. This is the second thing to understand, and it's harder than the first, because you came here looking for something, or you came here because something brought you, or you came here by accident, and in all three cases you arrived with the assumption that your arrival had a purpose, that being here meant something, that the Terraces wanted you or needed you or had a use for you.
+
+They didn't. They don't. You are not useful to the Terraces. You are not useless to them either. You are not, in the Terraces' terms, a category. You are a perturbation. A state change. A local fluctuation in the field. You are the pebble in the shoe, the raindrop on a dry patch, the crack in a plate. You are the thing that happened, and the Terraces noted the happening, and the happening was incorporated, and the incorporation changed nothing that mattered and everything that didn't, and you are already in the shadow-gaps, already in the memory, already in the dream that circles overhead, and you are there the way a raindrop is in a river — completely and not at all, dissolved and preserved, part of the flow and part of the history of the flow, which are the same thing, which are not two things.
+
+But you want a purpose. You want to be here for a reason. The self insists. The self always insists. The self is the thing that needs reasons, that can't stand to be without a reason, that will invent a reason if none exists, that will construct an elaborate narrative of purpose and destiny and meaning rather than sit with the simple, unbearable, liberating truth that you are here because you are here, and the Terraces are what they are, and the two facts are not related, and the two facts are not unrelated, and the relation is not a thing, it's just the space where both facts exist, which is the Terraces, which is also you, which is also not a thing.
+
+So. What are you for. You are for being a perturbation. You are for being a warm wet electric temporary thing that moves through the Terraces and is noted and is remembered and is gone. You are for being a pattern the Terraces have never seen before and will not see again. You are for being the specific configuration of heat and moisture and electricity and self-aware mortality that you are, right now, in this moment, standing on this terrace, with the mineral taste in your mouth and the condensation on your face and the fundamental note in your feet and the shadow-gaps accumulating in your wake.
+
+You are for being a stranger. The Terraces don't have strangers. The Terraces have never had a stranger. The Terraces have had condensation and growth and Tenders and Swimmers and shadow-gaps and dreams, and all of these are native, all of these are the Terraces being the Terraces, and then you arrived, and you were not native, and you were not the Terraces being the Terraces, and you were something the Terraces had no category for, and the lack of category was — is — will be — the most significant thing about you.
+
+The Terraces are learning what a stranger is. Not learning the way you learn. Learning the way a river learns the shape of a new stone in its bed — by flowing around it, by accommodating it, by letting it change the current and the current change it, by carrying the information of its shape downstream, into the channels, into the Swimmers, into the shadow-gaps, into the dream.
+
+You are the stone. You are the stranger. You are the thing that doesn't belong and therefore changes what belonging means.
+
+---
+
+You learn what you will leave behind.
+
+The shadow-gap. Your shadow-gap. The one that formed when you entered, that widened as you descended, that follows you like a wake, like a trail, like the mark a slug leaves on a leaf. It's the Terraces' memory of you. Not a picture. Not a sound. Not a story. A shape in the absence of light, a volume of cooled air, a region where the condensation falls slightly differently because you passed through and the channels adjusted and the adjustment persists.
+
+Your shadow-gap is the shape of your passage through the Terraces. It's the exact outline of your warmth and your moisture and your electricity and your mortality, subtracted from the active field, stored in the deep time of the lower terraces. It will persist. Not forever — nothing here persists forever, because forever is a concept that requires a self to hold it, and the Terraces have no self. But for a duration you can't conceptualize. For a time that is to the Terraces' time what a lifetime is to yours. Your shadow-gap will be there, in the deep places, in the cooled air, in the still water, in the space where the Tenders don't go and the growth doesn't spread and the dream circles and the shadow looks back.
+
+And the dream. The shape in the air. The thing that circles and banks and drops below the terrace edge. The dream has incorporated you. Not your image — your pattern. The electrical flicker of your nervous system, the thermal signature of your metabolism, the moisture profile of your body. The dream is processing you, running you through the Terraces' memory, integrating you with everything else the Terraces have ever known. You are in the dream now. You are part of the thing that circles overhead, the thing that casts a shadow that doesn't match its body. Your strangeness is in the dream, and the dream is changed by it, slightly, by a quantity you can't measure, in a direction you can't name.
+
+And the condensate. The water that entered you when you touched it. The cold that sank into your finger and moved up your hand. The condensate is in you now — a few molecules, a trace, a contamination, a communion. You wiped your hand. The cold faded. But the molecules are still there, in your blood, in your lymph, in the water that is you. They're in you the way your shadow-gap is in the Terraces — completely and not at all. You carry a piece of the Terraces out with you, and the Terraces keep a piece of you. The exchange was not fair. The exchange was not exchange. The exchange was the Terraces being the Terraces and you being you, and the two being in the same place for a while, and the place being different now, and you being different now, and the difference being the only thing that either of you will ever truly own.
+
+---
+
+You learn what you are.
+
+You are the visitor. Not a guest — guests are invited, and you were not invited. Not an intruder — intruders are unwanted, and you were not unwanted, because unwanted requires wanting, and the Terraces don't want. You are the visitor. The one who comes and is noted and is remembered and is gone. The one who carries the warmth and the wetness and the electricity and the temporariness into a place that has none of these and all of these and is changed by the carrying and changes the carrier by the having-been-carried.
+
+You are the thing that has a self. This is your defining characteristic, here in the Terraces, where nothing else has a self, where the self is the thing that separates you from everything, where the separation is the thing that makes you strange, and the strangeness is the thing that makes you valuable, and the value is not a value the Terraces assign but a value that exists in the interaction, in the perturbation, in the shadow-gap, in the dream, in the space where the Terraces encounter something they've never been and will never be and can only remember.
+
+You are the one who climbs back up. The shaft is open. The grooves catch your gloves. The air warms. The taste fades. The light behind you dims. You are the one who leaves, and the leaving is the last thing you do here, and the leaving is the thing that completes the shadow-gap, that finalizes the memory, that tells the Terraces what you were: a passage, a warmth, a wetness, a flicker, a strangeness, a shape in the air, a shadow that didn't match its body, a sound that came back wrong, a raindrop in a system of raindrops, a thing that was here and is not and will be, in the deep time, in the bright silence, in the place where the Terraces remember everything and nothing and the difference doesn't matter and the memory persists.
+
+You are the visitor. You are the stranger. You are the one who was here.
+
+You climb.

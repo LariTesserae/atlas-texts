@@ -1,0 +1,27 @@
+The world does not have a surface, not in the way a solid planet does. It is a verticality of water and light, suspended in a cool, breathable humidity that exists somewhere between the sea surface and the stratosphere.
+
+Here, the distinction between "ocean" and "air" has dissolved. The parameter of 2.8 is not merely flood-level depth; it is a suspension—a medium so saturated with vapor and floating globules of water that the air behaves like a heavy, silken fluid. Gravity is a suggestion rather than a law here, serving only to pull things *downward* into the endless abyss, creating a slow, majestic drift through the atmosphere.
+
+Because the water is everywhere, the plants do not root in soil. They root in the water itself. This is the "total" vegetation: a score of 2.9. There are no trees with trunks, no fields of grass. Instead, the ecosystem is a continuous, floating lattice of bio-mass. It is a vast, suspended reef of algae and moss and vascular tubes that stretches for thousands of miles in every direction, forming a dense, spongy layer that floats atop the atmospheric pressure. This layer—let’s call it the Canopy-Sea—is thick and interwoven, a chaotic weaving of fronds that holds the water droplets within its embrace like a living sponge.
+
+The scale is immense (2.7). You cannot see the edges. The vegetation stretches to the curvature of the planet, a green-brown undulation that rolls with the slow movements of the tides of air. It is high elevation (2.0), far above the crushing dark ocean depths below, yet the pressure feels substantial, the air cool (0.7) and damp against the skin.
+
+The strangeness (1.6) and the industrial tech (2.3) are fused into a single, terrifying paradox.
+
+There are no buildings (0.1), no steel beams, no concrete foundations. And yet, the place is industrial. The technology here is not built; it is grown. Scattered across the vast, sparsely populated (1.4) floating mats of vegetation are titanic, biological engines.
+
+These are the Heart-Pumps.
+
+They are enormous, vascular organisms that resemble distended, metallic trees, their bark a seamless, gunmetal grey iron-oxide, their leaves pulsing with bioluminescent veins of copper and blue electricity. They have evolved—or perhaps were engineered eons ago and left to run—to regulate the hydro-cycle of this world. They roar with sound (2.1). A deep, rhythmic thrumming vibrates through the water-saturated air, a constant, deafening heartbeat of pistons and valves that are not made of steel but of hardened cartilage and chitin.
+
+The air is loud (2.1) with the sound of functioning biology. The "factories" are clusters of these trees, drawing in the heavy water-laden air, filtering the vapor into massive sacs that glow with a harsh, electrical light, and then expelling the purified breath in great, cloudy hisses that ripple through the sparse clearings. It is a mechanized ecosystem, a forest that functions like a power plant, humming with the raw energy of conversion and circulation.
+
+The erosion is established (1.9). This is not a chaotic new world; it is ancient and settled. The water has worn smooth the edges of the iron-bark trees. The floating mats of vegetation are weathered, their colors muted to deep olives, bruised purples, and rusted oranges. The water droplets that hang suspended in the air are perfectly spherical, polished by time, motionless in the frozen equilibrium (0.0). Nothing changes here. The leaves do not flutter in the wind because there is no wind, only the constant, drifting current of the atmosphere. The Heart-Pumps do not speed up or slow down; they beat their eternal rhythm, locked in a stasis that feels permanent.
+
+Fauna is abundant (1.6), but adapted to this strange, sparse density. You do not see herds. You see solitary, gliding figures. There are ray-like creatures with skin of translucent solar panels, coasting on the thermal currents between the iron trees. They move silently, immune to the roar of the industrial forest, filtering the heavy water-air through gills that sparkle like circuitry. There are spiders, or things that look like spiders, with legs of hydraulic bone that skip across the surface tension of the floating water-mats, repairing the vegetation, pruning the iron-bark, their movements precise and repetitive.
+
+The light is normal (2.1), which in this context means a stark, unshadowed clarity. Because the air is thick with suspended water, the light diffuses evenly. There are no harsh shadows, only a soft, all-encompassing luminance that banishes darkness. The world is bright and visible to the horizon, a high-contrast environment of wet iron and vibrant green, suspended in a bath of white light.
+
+To stand in this place is to stand on a thick, floating sponge of moss, ankle-deep in cool water, surrounded by the deafening roar of giant, metallic trees pumping the atmosphere. You look out and see nothing but a sea of green and grey, stretching endlessly, unmoving. The water hangs in the air like glitter dust. The temperature is brisk, enough to raise goosebumps on your arms, but the humidity makes the cold feel heavy, like a wet blanket.
+
+It is a factory without walls, a machine without a builder, a garden that does not grow but merely maintains. It is loud, cold, wet, and utterly, perfectly frozen in its function, drifting on the winds of a world that drowned itself in life and industry long ago.

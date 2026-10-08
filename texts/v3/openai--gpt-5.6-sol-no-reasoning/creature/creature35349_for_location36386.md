@@ -1,0 +1,23 @@
+The inhabitants of the high country are not creatures upon a landscape so much as creatures performing the work of landscape.
+
+Nearest the basalt live the first arrivals: metallic mineral-lickers, acid-secreting root mats, films of algae, and organisms thin enough to enter fractures that have barely cooled. They inhabit the stone’s pores and bright new wounds. Above them accumulates a counterfeit soil made from scales, shell dust, compressed down, dung, pollen, abandoned eggs, and bodies that descend too deeply into the living layers to finish decaying. Blind swimmers crowd the black water trapped in cracks. Pale cave species endure beneath immense animals, sometimes for millennia, until the ground rolls and exposes them to daylight.
+
+The visible surface belongs to vast, slow grazers. They are six-legged, broad-backed, and armored, moving in ranks so dense that their bodies become ridges. Nested rings of mouthparts rasp silver lichens from whatever substrate presents itself—basalt, bone, horn, hide, or the backs of neighboring animals. Their steps are events rather than motions. A lifted foot creates a brief sunlit world in which short-lived species hatch, feed, reproduce, and lay their eggs before the returning weight crushes the whole ecology into felt. The oldest grazers carry forests in their plates and channels of meltwater along their spines. Their migrations split rock.
+
+Pale comb-backed followers process what the grazers leave behind. They press waste into warm fibrous beds that are immediately entered by mites, bright worms, burrowers, fungi, seed-carriers, and innumerable smaller mouths. Nothing is discarded. Each animal’s output is another’s climate, food, nursery, or foundation.
+
+Above them revolve the winged multitudes. They fly in vertical chains kilometers high, each rank supported by the downwash beneath it. Their collective labor drags air toward the plateau, warms it, cools it, and wrings snow or rain from an otherwise empty sky. Transparent predators drift among them like distortions in glass, feeding without visibly disrupting the columns. At night, migrating sheets of luminous bodies replace the sun with a moving, many-colored ceiling.
+
+Plants persist by becoming portable. White-leaved cushion forests grow in humid hemispheres. Red mosses steal heat from sleeping animals. Thread-vines sew neighboring bodies together until movement tears the stitching apart. Grasses germinate in fur and may pass through countless generations without touching rock. On antlers, shells, feathers, and apparently bare horns live further communities: bacterial films, grazing disks, clear eggs, algae, lichens, and predators smaller than grains of dust. Lushness here is depth, not height.
+
+Predators survive by resembling geography. Some lie open like ravines and close when migration crosses them. Some wear the brightness of snow until the snow divides into mouths. The greatest remain buried beneath forests, nests, and herds for centuries, their warmth mistaken for a favorable region. They attract life by the mere fact of being habitable. When the accumulated mass is sufficient, they roll. For three days, the inhabited world becomes an animal again.
+
+Death supports another population almost before it occurs. Scavengers arrive in rivers; fungi rise in pale terraces; nesters enter lungs and swimmers enter eyes. A giant’s skeleton persists as topography—ribs forming sheltered valleys, teeth becoming white peaks, joints holding pools. Because the cold delays decay, dormant summers collect beneath the surface: spores, fat, seeds, chitin, pollen, eggs, and forgotten species. Warmth or rain may awaken one ancient layer and let it bloom across a territory larger than a sea.
+
+No single species governs this place. Its true inhabitant is the accumulation itself: uncountable bodies making decisions too small to be called decisions. Together they manufacture cloud, wind, warmth, soil, rivers, erosion, and sound. They communicate through pressure in the basalt, through altered wingbeats and inflated air sacs, through light carried in translucent tissue, through green pulses and amber flashes in the buried dark.
+
+Even the mountains may be members of this community—animals so old and slow that their anatomy has become mistaken for geology.
+
+What lives here is life without margins: life growing on life, inside life, beneath life, and during the momentary lifting of life. Nothing owns its footing. Nothing remains merely dead. Nothing exposed remains empty.
+
+The plateau itself is the colony, the herd, the weather system, and perhaps the largest creature of all.

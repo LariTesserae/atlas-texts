@@ -1,0 +1,27 @@
+I would be one of the furred things in the cable tray.
+
+Not the fox. Not the gull. Not the patient lizard with its radiused ribs. Something smaller than noticing, at first — and that is part of it, because the cable trays are where you learn that *being everywhere* is a different strategy from being large.
+
+I live in the dead volumes. In the boots of conduit where the wires bend. In a particular rubber gaiter around a sealed penetration on the eastern face of Substation B-12, where a horizontal run of cable has sweated overnight and a meniscus of condensate has gathered along the underside in a long pale comma. My gaiter. I have eaten it from the inside over the course of — I do not know how long. Time here moves the way the oil climbs the sight glass on the distant reservoir. Long. I have made several rooms. There is an egress.
+
+I am the color of the cable I am currently sitting on, which is to say I am, at this moment, the slate-violet of a particular PVC jacket that has been bleached by the upper light into something between bruise and dusk. Tomorrow I may be sitting on the unbleached jacket next to it, and then I will be the color of that, and the population of this tray will appear continuous to anything passing overhead and will in fact be a careful gradient of small animals each tuned to the jacket they live upon. We are not a colony. We are a chord.
+
+The fur is not fur. It is more like the nap of a velvet that has been charged, or like the surface of a lung that has been miniaturized and turned outward. I do not know which comparison is correct. I know that the fur holds the condensate as a film and that the film is what I eat, mostly, and that when the mist comes down and the light becomes lit rather than shining, the fur stands up in small peaks, the way moss stands up after a rain, and I become briefly more visible than I would like, and then the mist thickens again and I become invisible again, which is the correct sequence.
+
+My joints are too many. There are joints at my third and fifth segments that bend in directions my skeleton, such as it is, does not advertise. I can fold myself into the shape of a knot the size of a thumb pad. I can also unfold myself into a thing roughly the length and aspect of a small finger, with too many articulations along the spine, and when I am unfolded I move the way water moves through a labyrinthine channel — by fits, by hesitations, by small committed decisions that a better-engineered animal would not have to make.
+
+I eat the condensate. I eat the trace metals that leach out of the brass fittings at the next junction box up the run, which I visit on mornings when the thermal breathing of the long metal panels above has drawn a fine dew along the shoulders of the conduit. I eat the faint outgassing of my own boot, which is to say I am finishing the work that several previous generations of me began, and that when the boot is fully hollow I will cross the small bright bridge of bare metal to the next boot, and the next, and in time my great-granddaughter will be sitting in the last boot on the run, eating the last of it, and will not know that it was once sealed.
+
+I move when you move. Not before. This is not a strategy. It is the only tempo available. When you are present I am a knot in a boot; when you have passed and the air has settled back into its quiet — a quiet that is careful, that has been engineered into the place the way soundproofing is engineered into a concert hall, the machines running inaudible in the soles of your feet — I unfold and I resume, and the tray begins to live again the way a forest floor lives when a footstep has passed. I resume small errands. The condensate meniscus at the elbow has crept a centimeter eastward overnight, and I follow the leading edge. A trace metal bloom has opened on the brass of the next fitting, a kind of pale-green crusting the size of a thumbnail, and I pick at it. There is a younger one of me, two boot-houses down, who has been eating a softer rubber and has grown pale with it, and I do not visit her but I know she is there because the cable tray is a small neighborhood and the rubber she is finishing is the same rubber I began in.
+
+I have outlived four boots.
+
+I will outlive this one.
+
+I have not yet decided what you are. I have taken measurements. The footfall you make has a particular resonance in the cable tray — a small tremor that arrives before the sound and lingers after it, and that has a texture I have come to learn. The mist that clings to you when you pass has a smell different from the mist that clings to the metal, and the difference is heat, and oil, and something I cannot name that is the smell of an animal that carries its weather with it. The lizard on the seam above me turned its head to follow you, and I felt her do it through the panel, through the small clockwork of her sprung ribs, and I remained a knot. You are large. You are warm. You have not yet decided what *I* am, either, and we are in this together, you and I, in the careful quiet, in the long patient afternoon.
+
+When you are gone I will resume.
+
+When you come back tomorrow I will be a knot again, and then I will resume.
+
+The place is becoming. I am part of the way it is becoming. The boot will be hollow soon. I will cross the bridge.

@@ -1,0 +1,117 @@
+# The Bright Hollow
+
+## I. First Descent
+
+You come down through the canopy.
+
+There is no surface here — not in the way you might expect. The ground is something that happened a long time ago and then kept happening, layers of it compacting under their own weight until they became a floor. But that floor is still alive. Still growing. You stand on roots so dense they've become geology.
+
+Above you, the canopy closes. It is not a forest canopy — not the kind you know. This is structural. Load-bearing. The plants above have woven themselves into a vault that holds itself up through a combination of tension, compression, and something that looks like intention. Vines thick as bridge cables arc from column to column, where column-trunks rise hundreds of meters from the root-floor to the vault above. Between those columns, shelf-fungi the size of city blocks grow in overlapping tiers, each one a platform, each platform seeded with mosses and liverworts and creeping things that root in the fungus and draw from it and give back to it in exchanges so old they've become inseparable.
+
+The light comes from everywhere.
+
+It is a cold light — bioluminescent, though that word feels too clinical for what this place does. Every surface glows. The shelf-fungi emit a steady blue-white radiance from their gills, which hang beneath each tier like curtains of frozen rain. The mosses catch and redistribute that light, amplifying it, bouncing it between surfaces until the air itself seems to hold luminosity. The vine-cables have a phosphorescent bark that pulses in slow rhythms — different rhythms for different species, so the canopy is always breathing light in overlapping cycles. You can see for kilometers. The space is that bright.
+
+And the space is enormous. Between the great column-trunks, the hollow opens into distances that make your eyes ache. This is not a forest you walk through. This is an interior. A chamber so vast it has its own weather, its own atmosphere, its own rules about what falls and what rises. The ceiling — if you can call the woven canopy a ceiling — is so far above that the light diffuses into haze before reaching it. You can see the columns disappearing into that haze, diverging with perspective, becoming a corridor of light and living wood that extends in every direction further than you can travel.
+
+The air is cold. Not freezing — but the kind of cold that settles into your hands and stays there. The kind that makes you aware of your own breath. Moisture hangs in that air, not as fog but as a fine suspension, droplets so small they don't fall. They drift. They catch the light and scatter it, so the space between the columns shimmers with something that is not quite mist and not quite glow. When you breathe in, you taste mineral and chlorophyll and something else — something sharp and green that has no name because there is no word for what this place smells like. It smells like the inside of something alive.
+
+---
+
+## II. The Architecture of Plants
+
+Everything here is plant. This is not a metaphor.
+
+The column-trunks — the nearest one stands perhaps forty meters away — are not trees in any familiar sense. They are more like the structural members of a cathedral, grown rather than built, and they are composed of dozens of species living in such tight association that they've become a single organism. The core is a woody vine that spirals upward, thickening over centuries, hardening into something that has the compressive strength of stone. Around that core, other plants have wrapped themselves — mosses first, then liverworts, then a bark-like crust of composite tissue that is part fungus, part vascular plant, part something that doesn't appear in any taxonomy you know. The surface of each column is warm to the touch and faintly sticky. It breathes. You can feel the exchange — warm air moving outward through pores in the bark, cold air drawn in elsewhere. Each column is a lung.
+
+The columns are not evenly spaced. They cluster and separate in patterns that suggest some underlying logic — perhaps the root network below directs their placement, or perhaps they follow veins of mineral in the substrate, or perhaps the pattern is emergent, the result of countless small competitions and cooperations played out over millennia. In any case, the spacing creates rooms. Openings. The hollow is not one space but many, separated not by walls but by the density of the columns and the way the canopy-vines drape between them. Some rooms are small and intimate — thirty meters across, with a single shaft of focused light falling through a gap in the canopy above. Others are vast halls, hundreds of meters wide, where the columns stand at the edges and the center is open air from floor to ceiling, filled with that shimmering suspended moisture and the slow drift of spores.
+
+The shelf-fungi are the most architectural elements. They grow from the columns at various heights — some at head-level, some far above, some so high they merge with the canopy and become part of its structure. The largest shelves are meters deep and extend outward five or six meters from their host column, providing platforms that other plants colonize. On these platforms, you find the greatest diversity: small ferns that exist nowhere else, mosses that glow in colors the shelves themselves don't produce, creeping vines that drape over the edges of the shelves and hang in the open air, their tips sending out fine rootlets that absorb moisture directly from the atmosphere. Some of these hanging vines reach the floor. Some don't. The ones that don't are the most strange — they hang in the bright empty air, glowing faintly, swaying in currents you can't feel, and their tips are always growing, always reaching downward, as if they remember the floor and are trying to get back to it.
+
+The floor itself is the oldest part of this place. It is roots. Nothing but roots. Roots from the columns above, roots from the canopy, roots from plants that no longer exist above, roots from plants that have never existed anywhere but here. They have grown over each other, under each other, through each other, until the floor is a woven mat of woody tissue meters thick, firm enough to walk on, springy underfoot, and alive in a way that is not comfortable to think about. When you stand still, you can feel it moving. Not much — a millimeter here, a millimeter there — as the roots grow and shift and respond to the weight of your body. The floor knows you are there.
+
+Water sits in the low points of the root-floor. Not pools — not exactly. More like depressions where the root-mat has settled and condensed, and where moisture from the air has collected into something visible. The water is clear and cold and has a faint luminescence of its own, as if it has absorbed so much of the ambient light that it now produces light independently. You can see the roots beneath the surface, coated in a translucent slime that is almost certainly biological, almost certainly important, and almost certainly home to organisms you can't see. Occasionally, a bubble rises from somewhere in the root-floor and breaks the surface of one of these pools, and the light ripples outward and the water shivers and then goes still again.
+
+This is where the occasional rain comes from. Not from above — from condensation. The moisture in the air, the suspended droplets, the breath of the columns — all of it collects on surfaces. On the underside of the shelf-fungi. On the vine-cables. On the bark of the columns. It beads and runs and gathers, and when enough of it has gathered, it falls. Not as rain — as a single heavy drop, then another, then a brief shower that rains down from the canopy onto whatever is below. The showers are localized and unpredictable. You might walk for an hour in dry air and then pass through a zone where it is raining — gently, persistently — from a source you cannot see. The water catches the light as it falls and looks like a curtain of liquid glass.
+
+---
+
+## III. The Nature of the Turbulence
+
+This place is not stable.
+
+That is the first thing you learn, and it is the most important thing, and it is the thing that will kill you if you forget it. The Bright Hollow is in a state of continuous transformation. Not gradual transformation — rapid, visible, almost violent transformation. The plants here do not grow on geological time. They grow on meteorological time. They grow the way weather changes.
+
+A column can appear in days.
+
+You see the evidence of this everywhere — young columns, still thin, still pale, pushing up from the root-floor with a vigor that is closer to eruption than growth. They are sharp at their tips, pointed, and they rise fast enough that if you sat and watched one for an hour, you would see it move. The air around a young column is warmer than the surrounding air, and if you put your hand near it, you can feel the heat radiating off it — the metabolic heat of something growing so fast it is burning energy like a fire. The young columns are the sharpest things in the hollow. Their bark hasn't formed yet. Their composite shell hasn't hardened. They are bare wood, pale and raw, and they smell like sap and something alkaline that stings your sinuses.
+
+And where new columns rise, old ones fall.
+
+The death of a column is a slow event on the surface and a fast event underneath. The root-network withdraws its support — you can see the floor around a dying column darken and soften as the roots there cease to grow and begin to decompose. The column leans. It takes hours or days. The vine-cables that connected it to the canopy stretch and some of them snap, and when they snap, the sound is enormous — a crack that echoes through the hollow and sends birds (there are a few birds, small, quick, nervous) scattering from nearby shelves. When the column finally goes, it falls in a direction that seems planned — it falls toward the nearest open space, not toward other columns, as if the network has decided where it should go. It crashes to the root-floor and lies there, and within hours, the decomposition begins. Fungi colonize it first — not the shelf-fungi but a different kind, a fast-growing crust that covers the fallen column in a white film and begins breaking down its structure. Then the mosses. Then the creepers. Within a week, the fallen column is a ridge of decomposing matter on the floor, already being incorporated into the root-mat, already becoming ground.
+
+The canopy above shifts in response. Where a column has fallen, the vine-cables sag. Gaps open. Light from somewhere above — you have never seen what is above the canopy, and you are not sure there is anything above it — pours through the gaps and creates bright columns of light in the hollow that are different from the ambient bioluminescence. This light is warmer. More direct. It hits the root-floor and triggers something — a bloom. Mosses in the lit area go into a growth spurt, swelling visibly, turning from blue-white to a green-gold that is shocking after all the cold light. Shelf-fungi near the gap tilt their growth toward the warmth, reaching for it, reorienting over hours. The space under the light-column becomes a different ecosystem, briefly, until the canopy closes the gap or the light shifts.
+
+This is the turbulence: the hollow is always rebuilding itself. Columns rise and fall. Canopy gaps open and close. The floor shifts and settles. The shelf-fungi grow and collapse — the large ones, the platform-sized ones, have a lifespan that is longer than a column but shorter than you'd expect, and when one of them fails, it peels away from its host column and drops, and the plants that lived on it go with it, and they all hit the floor together in a shower of soil and root and broken moss, and then the scavenging begins. The floor absorbs the debris. The light changes. The air currents shift. And something new grows in the space that has been made.
+
+The air itself is turbulent, though in a way that is hard to detect because the space is so large. The columns and shelves and vines create a complex architecture that channels air in ways you cannot predict from the ground. You feel it as sudden temperature changes — walking from a warm zone near a young column into a cold channel between two old ones, where the air is funneled and moves faster than anywhere else in the hollow. You feel it as moisture — passing through a zone where the air is saturated and your skin is suddenly wet, then through a zone where the air is dry and your lips crack. The weather here is local and it is fast and it is driven by the growth and death of the plants themselves.
+
+---
+
+## IV. The Sounds (or Their Absence)
+
+Mostly, it is quiet.
+
+The quiet is not silence. It is the sound of the hollow breathing — the collective respiration of millions of organisms, the slow creak of columns under tension, the imperceptible groan of the root-floor settling. These sounds are below the threshold of hearing. You feel them more than you hear them, a vibration in your sternum, a pressure in your ears that changes as you walk through different zones.
+
+What you do hear, occasionally, is:
+
+The snap of a vine-cable, which is sharp and flat and echoes for a long time, bouncing between columns, losing its edge, becoming a low moan before it fades.
+
+The drip of water from a shelf-fungus — a fat, heavy drop hitting a pool on the floor below. Each drop produces a sound like a finger tapped on a tight drum, and if you stand near a pool during a condensation-fall, you hear a sequence of these taps, irregular, almost musical, each one sending a ring of light across the pool's surface.
+
+The rustle of the small birds — and there are birds, though they are rare and strange. They are small, sparrow-sized, with translucent wings that show the bioluminescence of the hollow filtered through their membranes. They live in the shelf-fungi and eat the spores and the small insects that live in the moss. They are nervous and quick and they move in flocks of six or seven, and when they move, they rustle. The sound is dry and papery and very out of place in this wet, alive space.
+
+And sometimes, from far away — very far, kilometers maybe — you hear a sound that is harder to define. A low, sustained tone, almost like a note held on a cello, that rises and falls in volume over several minutes. It might be the wind moving through a particular configuration of columns. It might be a large organism in the deeper parts of the hollow. It might be the root-floor itself, vibrating at a frequency that is just barely audible. You hear it most often at what might be night, though the light never changes here, and when you hear it, you stop and you listen and you feel the floor under your feet and the cold air on your face, and the sound fills the whole space, and you are aware of how small you are inside it.
+
+---
+
+## V. The Structures (Such as They Are)
+
+There are built things here. Not many. Not large. But they exist, and they tell you that someone has been here before you, and that someone understood this place well enough to survive in it.
+
+The first structure you find is a shelter built into the underside of a large shelf-fungus, about three meters off the floor. You climb up to it — the column it grows from has handholds worn into its bark, old handholds, smoothed by many hands. The shelter itself is a frame of stripped branches lashed together with vine-fiber, forming a lean-to against the fungus's underside. It is weather-tight. The fungus above it provides a solid roof, and the frame provides walls on three sides. Inside, there is a sleeping platform of woven moss and a small fire-pit — though fire here would be impossible, you think, in all this wet. But the pit is blackened. Someone burned something in it. There is a small pile of material near the pit that you recognize as dried shelf-fungus fragments, and when you hold one near the ambient light, you see it has a fibrous, almost woody texture. It would burn. It must have burned.
+
+There are tools. A stone blade, roughly chipped, sitting on the sleeping platform. A woven bag made from moss-fiber, containing dried fungi and a quantity of the translucent slime from the root-floor pools, collected in a bladder made from — you think — bird skin. A staff, as tall as you are, made from a young column that was cut before it hardened. The staff is still slightly warm. It is still alive. Whoever made it cut a young column and stripped it and shaped it while it was still growing, and the wood kept growing, kept trying to become a column, and now it is a warped, twisted thing with a handle that fits a human hand and a tip that is still pointed, still sharp, still reaching for something.
+
+You find other structures as you travel. Another shelter, similar to the first, built against a different column. A platform — just four branches lashed between four root-ridges on the floor — that raises a sleeping surface a few centimeters above the wet. A cairn of sorts, made of broken shelf-fungus fragments arranged in a pattern on the root-floor, which might be a marker or might be art or might be both. Near one of the water-pools, someone has placed a series of small clay vessels — crude, hand-molded, unfired — that collect the condensation that drips from above. The vessels are full. The water in them is clear and cold and glows faintly.
+
+The structures are scattered widely. You walk for hours between them. Whoever made them was not numerous and did not stay in one place. They moved through the hollow the way the light moves through it — following the gaps, seeking the warm spots, avoiding the zones where the columns are falling. They knew this place. They read its turbulence the way a sailor reads the sea, and they built lightly and moved often and left almost nothing behind.
+
+---
+
+## VI. The Deep Hollow
+
+You go further. The columns get larger. The spaces between them get wider. The light gets brighter, not dimmer, which is wrong — you expected the deep hollow to be darker, more enclosed, but it is the opposite. The canopy above is thinner here, or higher, or both, and the light from above it — whatever that light is — comes through in broad, bright columns that illuminate vast open spaces. You walk through one of these light-columns and the warmth hits you like a wall. The air inside the column is ten degrees warmer than the air outside it. Moss on the floor inside the column is gold-green and growing visibly, its tips extending as you watch, reaching upward. Outside the column, the moss is blue-white and still.
+
+The root-floor here is older. You can feel it — it is firmer, denser, less springy. The roots are thicker and harder and the surface has a polished quality, as if it has been walked on for a very long time. Not by people. By the floor itself. The roots have grown and compressed and grown again until they are more like stone than wood, and the surface is smooth and cold and slightly damp.
+
+The columns here are enormous. The nearest one is thirty meters in diameter, its bark a complex ecosystem of mosses and lichens and small ferns and things that don't have names. Its surface is deeply fissured, and the fissures are inhabited — you see small eyes watching you from a crack near the base, and you catch a glimpse of something furred and quick that vanishes into the bark. There are animals here, in the deep hollow. Not many. But they exist, and they are shy, and they have adapted to a world that is made entirely of plants.
+
+The fauna is limited because the ecosystem is limited. Everything here is plant or fungus or dependent on plant or fungus. The birds eat spores. The small furred things eat — you don't know what they eat. Moss, maybe. Fungi. Each other. There are insects — small, pale, glowing faintly, living in the moss and the bark and the root-floor. They are the foundation of something that never quite becomes a food web because there isn't enough diversity to support one. The hollow is a monoculture that is trying very hard not to be.
+
+And then you reach a place where the floor drops.
+
+Not sharply. Gently. The root-floor slopes downward, and as it descends, the water increases. Not pools now — channels. Water moving slowly through the root-mat, finding paths of least resistance, flowing toward something lower. The channels are narrow and shallow at first, then wider, then they merge, and you are walking alongside a stream that runs over roots and between roots and under roots, and the stream glows brighter than the pools upstream, as if the water has been here longer and has absorbed more.
+
+The stream leads to a river. The river is wide and slow and cold and bright. It runs through a channel in the root-floor that the roots have grown around but not through — they form banks, walls, a channel, as if the river was here first and the roots grew to accommodate it. The river is maybe twenty meters across and you cannot see the bottom. The light comes from the water itself and from the roots that overhang it, and the combination produces an illumination that is green and white and blue and moves with the water, so the light on the walls of the root-channel shimmers and shifts like light on the bottom of a swimming pool.
+
+You follow the river. It goes deeper. The columns along the river are the largest you've seen — fifty meters across, maybe more, their bases lost in the root-floor, their tops lost in the canopy-haze above. The spaces between them are vast. You walk for what feels like an hour and the scenery doesn't change, and you realize you are in a place where the scale has become unmanageable. The hollow is so large here that your sense of distance breaks down. You can see columns that might be a kilometer away or might be ten kilometers away. The light is too uniform, the air too clear, the space too open. There is nothing to judge by.
+
+The river drops into something. You hear it before you see it — a low sound, that cello-note you heard earlier, but louder now, and you realize it was always the river. The river falling. The root-floor ends and the river falls away into a space below, and you stand at the edge and look down and the light goes with the water, falling, glowing, illuminating a space below that is larger than the space above.
+
+Another hollow. Below this one. Deeper. Brighter.
+
+The roots extend down into it, growing along the walls of the falls, and the columns here extend down to become columns there, and the canopy of the lower hollow is the floor of this one, and you understand finally that the Bright Hollow is not one place. It is many places. Layers. Stacked. Each one growing from the one below, each one feeding the one above. A architecture of living organisms so vast that it has become a geology, so old that it has become a landscape, so complex that it has become a world.
+
+You stand at the edge and the spray from the falls is cold on your face and the light is everywhere and the sound is the sound of water falling through living wood and you are very small and the hollow is very large and it is growing all around you, growing and dying and growing again, and it does not know you are here and it does not need to.

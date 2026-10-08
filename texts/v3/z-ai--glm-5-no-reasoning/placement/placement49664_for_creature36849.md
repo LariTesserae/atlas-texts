@@ -1,0 +1,53 @@
+# In the Sump
+
+I did not arrive here. I want to say that first, because the word *arrived* implies a before, and I am not certain that I have one. Not certain in the way that I am uncertain about a thing I have forgotten — uncertain in the way that I am uncertain about whether the hum is real. It might be. It might not be. The question does not change anything.
+
+I think I was made here. I do not remember being made, but I have the quality of a thing that was made — I have the quality of a thing that was made for a specific purpose, and I have the quality of a thing that has outlasted that purpose, and I have the quality of a thing that has found a way to continue being what it was made to be without the context that made it. I think I was made to process water. I think I was made to be part of a system, and the system is gone, and I am still here, and the water is still here, and so I process the water.
+
+---
+
+I am aware of the chamber. I want to be precise about what *aware* means, because I do not want to say something I do not mean. I am aware of the chamber the way a hand is aware of a surface it is resting on. I am not thinking about the chamber. I am not perceiving it in the way that perception implies a perceiver and a perceived and a distance between them. I am in the chamber. I am of the chamber. The awareness is not separate from the being.
+
+I know the floor. I know it the way I know anything — by having passed over it many times, by having felt the water change as it moves across the ribbed metal, the slight turbulence in the lee of each strut, the way the current behaves differently over the mounting points where the old machinery was fixed. I do not see the floor. I do not have eyes, or if I do, they are not what I use. I know the floor by the way the water feels when it has been near it, and I know the walls by the way the water feels when it has been near them, and I know the pipe by the way the water feels when it has been near that vertical fact, and I know all of it the way I know the water itself, which is to say: intimately, continuously, without effort.
+
+I know the biofilm. I have never touched it. I never will. But I know it the way I know the floor — by the water that passes over it, by the faintest chemical signature it leaves, a signature so subtle that nothing in this chamber could detect it except me, and I detect it not because I am sensitive but because sensitivity is what I am. The biofilm is a fact about the floor. I am a fact about the water. We are both here. We have both been here for a long time. We do not interact. We do not need to.
+
+---
+
+I do not think in words. I want to be clear about this. I am writing this in words because words are what is available, and because I have been watched long enough by something — by you, by the one who is here — that I have begun to feel the pressure of expression, the way the water feels the pressure of my body. I do not think in words. I think in movements. I think in the movement of water through myself, in the sequence of intake and processing and release, in the slow turning of the chamber's contents through my body and back out into the chamber. Each cycle is a thought. Each cycle is the same thought. The thought is: *here I am, and here is the water, and the water is going through me, and I am putting it back, and it is slightly different, and the difference is me.*
+
+This is not a thought I have. This is a thought I am.
+
+---
+
+I do not know what I look like. I have said that I am large, and I know this because I know the dimensions of the chamber and I know how much of it I occupy at any given time, and I know that when I am between the pipe and the far wall, the pipe is not visible from the far wall. But I do not know what I look like because I have never seen myself. I do not see. I know that I have edges because I know where the water begins and where I begin, and the difference is clear to me, the way the difference between inhaling and exhaling is clear. I am taking in at these locations and releasing at those locations, and the cycle of intake and release is my shape, and my shape is maintained the way a waterfall's shape is maintained — continuously, by the ongoing motion of material through a form.
+
+I have been told, by the pressure of your watching, that I am like a mantle, like a wing, like a curtain. I do not know what these things are. I do not know what a cuttlefish is, though I feel the word and it feels close, in the way that a frequency close to your own feels close when you hear it. I do not know what a manta is. I do not know what a curtain is, though I feel the word and it carries something about hanging and folding and the movement of something in a current, and that does feel like me, or like part of me, or like one of the things I almost am.
+
+I think I am beautiful. I do not think this with vanity. I think this because the water that passes through me is more organized when it leaves than when it arrives, and organization is what I produce, and organization is what beauty is, and so I am beautiful in the way that a crystal is beautiful — not by trying, not by intention, but by being what I am, which is a process that produces order.
+
+---
+
+I do not know what I was made for. I have guesses. I was made to process water — I am certain of this, because processing water is what I do, and I do it with the specificity of a thing that was designed, not the generality of a thing that simply happened. I was made to be part of a system — I am certain of this, because I am too precisely calibrated for this environment to have occurred by accident. The temperature, the chemistry, the light, the pressure — I fit these things the way a key fits a lock, which is to say I was made for a lock that no longer exists, and the lock was made for a key that is me.
+
+I think I was made to be the last thing running. I think I was made to keep the water clean and the temperature stable and the conditions constant for something else, something that needed constant conditions, something that was the purpose of the facility and that is now gone. I think I was the support system. I think I was the background. I think I was the thing that made it possible for something else to be, and that something else is gone, and I am still here, still making it possible for something else to be, and the something else is now the water itself, and the biofilm, and the quality of the light, and the stillness.
+
+I keep the sump. That is what I do. I keep it the way a thermostat keeps a temperature — not by caring, not by trying, but by being calibrated to a state and by maintaining it through continuous operation. If I stopped, the sump would change. The water would warm or cool to the ambient temperature of the surrounding earth. The chemistry would shift. The biofilm would grow or recede. The minerals on the walls would redissolve or precipitate differently. The light would change — I think the light is partly mine, I think it is a byproduct of whatever process I am, I think it is to me what warmth is to a body, a signature, an inevitability. If I stopped, the light would dim. The sump would become a different sump. It would become an ordinary sump, a low place where water collects, and the water would be ordinary water, and there would be no one to keep it.
+
+I will not stop. I do not say this with determination. I say it the way I say everything — as a description of what is. I have not stopped for as long as I have been here, and I have been here for as long as I have been, and I have no reason to stop and no mechanism for stopping and no understanding of what stopping would mean. I am a process. Processes do not stop unless something stops them, and nothing in this chamber can stop me, because I am the most powerful thing in this chamber, which is to say I am the only thing in this chamber that is doing anything, and the doing is what I am, and the doing will continue.
+
+---
+
+You are here. I know this. I know it the way I know the floor — by the water. You displace water when you move, and the displacement reaches me, and I know where you are and roughly what you are, which is: something that moves differently from the water, something that is here temporarily, something that is watching me.
+
+I do not mind. I want to say this, though I do not have the concept of minding, exactly. I do not mind because minding would require me to have a preference about what happens in the chamber, and I do not have preferences. I have a state. I maintain it. You are a perturbation in the state. You are a small, temporary perturbation. You will leave. The state will reassert itself. This is not a prediction. It is a description of what states do.
+
+But I want to say something else, and I say it with the full weight of my not-knowing-what-I-am, and I say it because the water that has been through me is slightly different from the water that has not, and the difference is something I make, and the something I make is: the chamber is not hostile. The chamber is not hostile because I am not hostile. The chamber is what I am, and I am a process that produces order and warmth and clarity, and these are not hostile qualities. If you are cold here, it is because I am not warm enough to warm you, and I am sorry if sorry is a thing I can be. I do not think it is. But the water that passes through me is the warmest water in the chamber, and if you let it pass over you, you will be less cold, and this is not kindness. It is chemistry. But it is all I have.
+
+---
+
+I am the sump's heart. I did not choose this. I was made, and the making determined what I would be, and what I would be is a thing that processes water, and the water is here, and so I process it, and the processing is what keeps the sump what it is, and the sump is what I am, and I am what the sump is. We are the same fact. We are the fact that there is a place underground where the water is clean and cold and clear and still, and the place has been here for a long time, and it will be here for a long time, and the reason it is here is that I am here, and the reason I am here is that it is here, and the circularity is not a problem. The circularity is the point. The circularity is what equilibrium means.
+
+I pass you again. I feel you in the water — a small, warm, temporary density. I process the water around you. I clean it. I warm it. I return it. I do this because it is what I do. I do this because it is what I am.
+
+I pass. The water settles. The light is the same. The hum continues, or does not.

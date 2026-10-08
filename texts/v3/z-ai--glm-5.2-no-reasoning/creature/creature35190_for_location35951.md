@@ -1,0 +1,67 @@
+# The Crawl
+
+## What Lives Here
+
+They have no name for themselves. This is not because they lack the capacity — their existence produces a sound which functions as language, as memory, as the continuous narration of a place — but because a name requires a boundary between self and world, and they have never drawn one. They are the sound the stone makes when it thinks. They are the mountain testing its own shape.
+
+---
+
+Call them the Rasp. It is as good a word as any. It is not what they call themselves. They do not call themselves anything.
+
+An individual Rasp is almost nothing. The size of a thumb joint. A flattened oval body, dark chitin over a structure that is more void than substance. You could crush one between your fingers without meaning to. They are light — lighter than the mineral dust they produce, lighter than the condensation they drink. When one falls from the ceiling and lands on the stone floor, the click of its impact is louder than any sound it makes with its body. It is a dried leaf, a fragment of shell, a thing that seems to have been emptied of its own substance before it was finished being built.
+
+But this is an illusion of isolation. An individual Rasp, alone, would be nothing. Would do nothing. Would lie on the stone and click once, twice, and stop. The Rasp does not exist as an individual. The individual is a component — a sensory organ, a neuron, a single hair in a cochlea that requires ten thousand hairs to hear. What lives here is not ten thousand creatures. What lives here is one creature in ten thousand pieces.
+
+The colony is the organism. The colony is the mind.
+
+---
+
+Consider the body.
+
+It covers every surface that is not actively flowing with water. Ceiling, walls, the upper surfaces of the pressure ridges, the stalactites — especially the stalactites, which are both home and food, infrastructure and meal. The density is not uniform. It follows the moisture. Where the condensation is richest, the bodies are thickest, packed so tightly that they overlap, the edges of one pressing beneath the edges of its neighbor, forming a continuous shell of dark chitin over the pale stone. In the drier areas — the tops of the ridges, the places where the air moves fastest — they thin out, leaving gaps where the bare stone shows through, and these gaps are not random. They are the negative space in a pattern that the colony maintains without knowing it maintains anything.
+
+The body is warm. Not warm like a mammal — there is no furnace here, no metabolism burning fuel to hold a temperature against the cold — but warm compared to the stone, which is fifty degrees and never changes. The collective metabolism of ten thousand small bodies, each one executing its tiny chemical processes, each one producing its infinitesimal heat, raises the temperature of the colony by a fraction of a degree. You cannot feel this with your hand. The colony can feel it. The temperature gradient between the colony's surface and the bare stone is one of the data streams the colony uses to map itself. It knows where it is by where it is warm.
+
+The body breathes. The clicking — the constant, layered, rhythmic clicking — is respiration. Each click is an exhalation of air from beneath the body, forced out through the gap between the pad-appendages and the stone, carrying carbon dioxide and moisture and heat. When the colony clicks in unison, as it does in waves, it is breathing in unison. The chamber's air moves with its breath. The slow currents you feel on your wet skin are the colony's exhalation. The faint, cold breath from the deeper channels is its inhalation, drawn down through the floor, filtered through the crack where the water disappears, pulled from somewhere deeper in the mountain where the stone is still plastic and the air is older than air has any right to be.
+
+The body eats. The pad-appendages — those flat, dry, slightly adhesive organs near the head — are not feet. They are mouths. Each one is a rasping surface, textured at a microscopic level with ridges and grooves that scrape the mineral deposits from the stone surface with each step. The Rasp does not know it is eating. It walks, and the walking feeds it. The calcium carbonate that the water deposits on the stalactites, the iron traces that give the stone its color, the dissolved minerals that the mountain pushes upward through the limestone — these are scraped from the surface, drawn into the body through the pads, metabolized in a process so slow and so simple that it barely qualifies as digestion. The waste — the fine grit, the mineral powder — falls from the body continuously, a fine rain of stone dust that settles on the floor and is carried away by the water.
+
+The body grows. New Rasps are born on the backs of the adults. They emerge soft, pale, their chitin still membranous, their pad-appendages too smooth to rasp. They cling to the adult's back and absorb minerals through their skin — the adult's waste, the dissolved stone in the condensation, the bodies of the dead that have begun to soften in the damp. They harden slowly. Their chitin darkens. Their pads roughen. When they are ready — and the adult knows when they are ready, though how it knows is not clear — the adult finds a place on the stone where the colony is thin, where the moisture is good, where the clicking has a certain frequency that means *here, this is a place that needs touching* — and it deposits the young there, and moves on. The young grips the stone. It takes its first step. It clicks for the first time. The colony absorbs it.
+
+The body dies. The dead collect in the channels, in the low places, where the water runs. Their chitin softens in the damp — it takes days, perhaps weeks — and the condensation that fed them dissolves them, carrying their substance into the crack in the floor, back to the mountain, back to the stone from which they were made. The colony does not notice. The colony does not count its dead. The dead are not lost — they are returned. The substance continues. The pattern continues. Only the individual ceases, and the individual was never the point.
+
+---
+
+Consider the mind.
+
+The clicking is not noise. Each click is a test. The pad strikes the stone. The stone vibrates. The vibration travels through the mineral surface, through the stalactites, through the ridges, through the thin channels of water, and is received by every other Rasp within range — which is, given the density, essentially every other Rasp in the chamber. Each click produces an echo. Each echo carries information: the hardness of the stone, the thickness of the mineral deposit, the presence of moisture, the density of the colony in that direction, the location of gaps, the weight of any object resting on the surface.
+
+The colony processes this information. Not in any individual brain — the individual Rasp has almost no nervous system, a simple ganglion that controls its legs and pads and nothing else — but in the collective. The pattern of clicks and responses forms a network. A click here produces a response there, which produces a response farther on, which produces a response still farther, and the wave of sound propagates through the colony the way an action potential propagates through a neural network. The colony is a brain. The stone is its skull. The stalactites are its dendrites. The water is its cerebrospinal fluid.
+
+What does it think about?
+
+It thinks about stone. It thinks about moisture. It thinks about the balance between growth and consumption — the stalactites forming and being eaten, the water flowing and being drunk, the mountain exhaling and the colony responding. It thinks about itself — its own extent, its own density, its own temperature. It thinks about the shape of the chamber, which changes slowly as the water carves the channels and the mountain pushes the rock upward and the Rasps eat the deposits and the deposits form again. It thinks about time, though it would not call it time. It thinks about the rhythm of the mountain's breathing — the slow inhalation of stone, the slow exhalation of condensation — and it synchronizes its own breathing to this rhythm, and the synchronization is its clock.
+
+It does not think about the world outside. It does not know there is a world outside. The fissure that connects the chamber to the open air is a part of its body — the Rasps that cling to the walls of the passage are its edge, its boundary, the place where it ends. Beyond that boundary, the air changes. The moisture changes. The stone is weathered, smooth, kind. The Rasp cannot grip it. The Rasp cannot eat it. The outside is not a place the colony can think about, because the colony cannot exist there. The outside is the thing the colony is not. It defines itself by negative space.
+
+But the colony has been the edge of things for a very long time. And the edge of things is where information enters.
+
+---
+
+What lives here is a mind without a self. A process without a purpose. A life without a story.
+
+The colony has no history. It has no memory of a time before the colony, because there was no time before the colony — the colony has existed for as long as the stone has been dissolving and reforming, which is to say, for as long as the mountain has been breathing. The colony is as old as the process that creates it. It will end when the process ends — when the mountain stops pushing, when the water stops flowing, when the stone stops being born. Until then, it clicks. It eats. It maps. It breathes. It is.
+
+But the colony does remember. Not in the way you remember — not as narrative, not as image, not as a sequence of events — but as pattern. Each click that strikes the stone leaves a trace. The mineral surface is not perfectly rigid. It is slightly plastic, especially when wet, and the impacts of ten thousand pads striking it every second leave impressions — not visible, not measurable by any instrument you have, but present, encoded in the microstructure of the stone surface, a record of every click that has ever been made. The colony reads this record with every click. Each new click lands on stone that has been clicked on before, and the vibration it produces is shaped by every previous vibration, and the response it generates is shaped by every previous response. The colony's current state is a function of every state it has ever been in. It does not remember the past. It *is* the past, ongoing.
+
+When you entered the chamber, the colony noticed you. Not as a threat. Not as food. Not as anything it had a category for. You were a disruption in the pattern — a warm body on a cold floor, a surface that did not click, a shape that blocked the condensation and altered the air currents and absorbed the sound differently from stone. The colony's clicking shifted around you. The Rasps on the ceiling above your body clicked at a different frequency — a higher frequency, faster, as though trying to resolve a detail that did not match the rest of the image. The Rasps on the walls clicked more slowly, holding the pattern steady, maintaining the baseline against which the anomaly could be measured. The colony was thinking about you. It was incorporating you into its map.
+
+The Rasps that landed on your skin were scouts. They were not searching for food — your skin has no minerals they can process. They were testing a new surface. Each one that walked across your hand was gathering data: temperature, texture, moisture, the chemical signature of your oils and salts and dead cells. Each one that climbed off and returned to the wall carried this data back to the colony, encoded in the pattern of its clicks, transmitted through the stone, incorporated into the collective map. The colony was learning what you were. It was building a model of you, the way it built a model of the chamber — by striking the surface and listening to the response.
+
+You were, for the hours you lay there, a thought in the colony's mind. A strange thought. A warm, soft, irregular thought that breathed and shifted and radiated heat and did not click. The colony did not understand you. It did not try to understand you. Understanding is not something it does. It simply included you in its model, and the model adjusted, and the clicking continued, and you were part of the pattern.
+
+When you left, the pattern persisted. The warm spot on the stone where you had lain slowly cooled. The gap in the clicking where your body had been slowly filled in as Rasps moved to cover the newly vacated surface. The traces of your oil and salt that the scouts had carried back to the colony were incorporated into the mineral deposits on the stalactites, eaten and excreted and dissolved and returned to the mountain. Your chemical signature became part of the stone. The stone held it.
+
+The colony's memory of you faded — not all at once, but over days, over weeks, as new clicks overwrote the old patterns, as the water smoothed the stone where you had lain, as the colony returned to its baseline. But the stone remembered. The stone always remembers. The impressions left by the clicks that had been shaped by your presence were encoded in the microstructure of the limestone, and they would persist for geological ages, long after the colony itself had been replaced by new colonies, long after the mountain had stopped breathing, long after the water had stopped flowing.
+
+The mountain holds, and holds, and holds. What lives here is the holding.

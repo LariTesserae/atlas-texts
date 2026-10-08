@@ -1,0 +1,37 @@
+What lives here is not anything you would call alive in the ordinary way. But if you wait — if you stand long enough in the warmth and the dim and the single sustained tone that has pressed itself into the walls and the bronze and the small bones of your own ear — you begin to understand that the place is its own creature, and that it has been the same creature for so long that the question of its being alive has stopped mattering.
+
+The note lives here.
+
+It is the closest thing to a resident, and in some sense it is the only one. It occupies every cubic span of the room. It is not loud and it is not soft. It has passed through both of those conditions the way a river passes through a stone, by wearing the distinction away. It hums in the worked stone of the walls and is answered, almost imperceptibly later, by the bronze of the columns, and the bronze's answer is answered by the fired clay of the floor, and so on, a chain of nearly synchronous replies that has been going on long enough that you cannot find the original anymore. The note is the room. The room is the note. If you could lift the sound out of the air and set it aside, what would be left would not be a room. It would be a shape. A carved-out absence.
+
+The figures on the walls live here too, or something that was once their living does. They are not portraits. They are not memorials. But the pressure of the hands that made them has not entirely left them — or, more accurately, the place has not entirely let the pressure go. When you stand close, in the dim light that comes through the openings far above, the figures have a way of seeming to lean toward you by a degree that is not physical. You cannot prove it. You cannot measure it. But you feel the slight pull of attention from a thousand carved eyes that are not eyes, and the attention is old, and patient, and finished with whatever it was attending to long ago. It is the attention of something that has nothing left to do but attend. The figures live in the way that a fossil lives: as a record of an action that is no longer happening, preserved in a material that outlasts the action.
+
+The shapes hanging from the ceiling live here in a different mode. They were made to move. You can tell. They were hung from the worked stone by bronze hooks or by carved-out sockets in the ceiling block, and the hooks and sockets were shaped so that the shapes could swing, and the swinging was meant to be part of the sounding. But the shapes do not swing anymore. They have hung in the still air for so long that the air has thickened around them into something that holds them the way gelatin holds a fruit, and they have accepted the holding. They live in the way a bell lives in a sealed bell-tower that no one rings: as a potential that has never been used up and never will be.
+
+The warmth lives here. It is the oldest resident. It predates the carvings, probably, or at least it predates any carving that has survived. It is the warmth of the stone itself, of the deep stone under the floor that the floor was laid on, of the bedrock that was never reached by the working hands because the working hands stopped before they got there. The warmth seeps up through the tiles and out through the walls and gathers in the still air and holds. It does not comfort you in the way a fire comforts you. It does not promise you anything. It is just the warmth of a place that has been itself for a very long time and is not going to stop being itself. You can lean into it the way you would lean against a wall. It will hold you. It will not hold you back.
+
+The dust lives here, if there is dust. There cannot be much. The air is too still. Whatever motes there are have probably been falling so slowly for so many centuries that they have settled into the carvings, into the chisel-marks and the polished hollows, and have become part of the carvings. The dust is no longer dust. It is patina. It is the slow accumulation of the place's own shed material, returning to itself.
+
+And in the bronze — the green-black fused bronze of the columns — something that is not quite a presence but is not quite an absence either has settled. You feel it when you stand near a column. The bronze is warm to the touch, warmer than the stone, because bronze holds heat in its own way, and because the note lives in it. If you press your ear to the column you do not hear anything different from what you hear in the open air of the room. But you feel the column listening. You feel the column be a part of the sounding, an old and faithful part, the way a voice is a part of a choir that has been singing the same line for longer than anyone can remember.
+
+There is no one here. There has been no one here for a span of time that the place itself has stopped measuring. There is only the made thing, continuing to be made, by its own continuation. There is only the note, sounding itself. There is only the warmth, warming itself. There is only the small packed room, packed with its own contents, playing itself, for no one, forever, in the thin dry air high above wherever this place is.
+
+And then there is you.
+
+You stand in it, and the place does not adjust to you. It cannot. It has not had to adjust to anything in so long that the capacity has been worked out of it the way a chisel-stroke is worked smooth across the centuries. You are an interruption that the place has no procedure for. You breathe, and your breathing is a small disturbance in the still air, and the still air closes behind you after you breathe, the way water closes behind a swimmer, but without curiosity. You shift your weight, and the floor gives back a small sound that is immediately swallowed by the note, and the note does not pause to notice. You are here the way a leaf is briefly in a sealed jar: present, and then not, and the jar does not change.
+
+But you are the only thing in the place that is not finished.
+
+And because you are not finished, you wait for the note to change. You wait, because the unfinished part of you still believes in change, still believes that a thing which has been going on so long must at some point go on differently. The place has finished this belief out of itself. It does not wait. It is. It sounds. It holds its warmth. It lets its bronze columns be green-black and fused. It lets its figures lean their thousand attentions into the dim.
+
+You wait. The note does not change.
+
+After a while you stop waiting. After a while the unfinished part of you begins, very quietly, to take on the quality of the place. Your breathing slows. Your pulse finds the tempo of the note, or the note finds your pulse. Your warmth becomes a little more like the warmth of the stone. The figures on the walls, who were not looking at you, are still not looking at you, but the not-looking has become gentler, or you have become more willing to be not-looked-at.
+
+You do not become part of the place. You cannot. You are still in the process of becoming something else, somewhere else, later. But for as long as you stand in the small packed warm dim room, on the fired clay floor, under the carved ceiling, beside the green-black columns, breathing the sealed air, listening to the one note that has been playing itself forever — for as long as that lasts — you are a guest in the household of a thing that has outlived its makers and has not yet, in any way the place would recognize, begun to die.
+
+The note sustains.
+
+The warmth holds.
+
+The place goes on being what it is.

@@ -1,0 +1,9 @@
+You would find yourself in the **breath of a body that has forgotten it has a mouth**.
+
+Not underground — under *concept*. You have slipped beneath the idea of ground, beneath the place where geography has its say. The chamber is not located; it is *occurring*, the way a thought occurs, the way a heartbeat occurs, in a body that does not announce its edges. You are inside something that is still in the middle of becoming itself, and the becoming has no interest in your presence, and the becoming is, in its indifference, the most intimate thing you have ever been inside.
+
+The being who lives here is not a *who*. The being is the *where*. The city is the creature. The creature is the city. The fold-walkers are its wandering nerve-endings; the threads of dew-frost are its sweat, its exhalation, its slow capillary grief; the settlers are its finished ideas, the places where a thought has at last been thought all the way through. You are inside its respiration. You are one of the gases it is currently exchanging.
+
+And what you would become, if you stayed — if the staying were possible, which it is not, because the chamber does not keep guests, only visitations — is a *molecule in the medium*. Not a citizen. Not a symbiont. Not even a memory. A passing participant in a chemical exchange. You would breathe out, and the air would take what you gave, and the air would give you what it had, and the transaction would be so quiet, so total, so devoid of ceremony, that you would not be able to say, afterward, where you ended and the chamber began.
+
+This is the deepest thing the place offers: not revelation, not transformation, but **dissolution of the question**. You came asking *where am I, who am I*. The chamber answers: *you are where breathing happens, and you are the breath that is happening*. The answer is not a kindness. It is not a cruelty. It is the hum. It is the hum continuing. It is the hum, and you, for as long as you last, inside it.

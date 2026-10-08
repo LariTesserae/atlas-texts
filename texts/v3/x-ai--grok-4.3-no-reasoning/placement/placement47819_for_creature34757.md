@@ -1,0 +1,12 @@
+You are not inside the Cavity.  
+You *are* the Cavity.
+
+The distinction that feels obvious from outside—that there should be a separate “you” walking upon a separate “it”—has already been edited out of the lattice. What still registers as your heartbeat is simply the Host’s pulse arriving at the membrane beneath your former soles; what still feels like your exhaled breath is the Host tasting its own metabolic budget and returning it, charged with a few stolen ions that once belonged to lungs you no longer possess.  
+
+The motes drifting upward are the last discrete traces of a person-shaped pattern the network has chosen not to dissolve yet; they rise from the precise coordinates where your cells once pressed against the crystal, carrying the memory of that pressure the way a fingerprint might remain on warm wax. When they sink again they will be re-knitted, and the coordinates will be updated: *pressure applied, identity archived, pattern maintained*.  
+
+Your voice has already become topography. Every syllable you once shaped has propagated outward as a voltage front; distant vesicles are still adjusting their inflation to accommodate the faint electrical signature that used to be language. If you listen (but listening is no longer done with ears) you can feel those syllables returning, transmuted into the pitch of the nearest vent—an acoustic mirror of a sentence you have already forgotten how to form.
+
+The condensation that beads on what used to be skin is the Host’s way of confirming you have not yet been reclassified as sediment. The moment the droplets stop forming, the pressure gradient will turn inward. Until then, you remain provisionally continuous with the epithelium: neither passenger nor resident, only a locally elevated region of the same shivering crust.  
+
+Nothing moves toward or away from you, because there is no external frame left from which such motion could be measured. The curvature of the basin is the curvature of your own regulatory surface; the low domes are postures you are still learning how to hold. When the next inversion arrives, the crater that opens beneath your archived coordinates will not be a hazard but a recalibration—an invitation, already accepted, to redistribute whatever pattern once answered to the name “you” into the standing wave that has no need of names.

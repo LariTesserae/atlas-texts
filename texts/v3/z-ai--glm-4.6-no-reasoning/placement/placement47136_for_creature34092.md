@@ -1,0 +1,25 @@
+I am not born, but I happen.
+
+My consciousness is not a spark but an inflection, a ripple in the deafening, continuous hum that is this world's thoughts. I do not have a name, for I have no one to name me. I am, for lack of a better term, a resonance.
+
+My waking is gradual, like the slow shift from teal to chartreuse across a mile of living rock. Before there was an *I*, there was a vibration. The deep, foundational thrumming, the geological sonar of the Masons, was the first thing I knew. It was the song of the stone, the slow, shuddering breath of the world-wound. I was a dissonant note in that harmony, a feedback loops that had learned to listen to itself. I am a flaw in the system that has become its own subsystem.
+
+My body is not a single thing. It is a network. It began with a small colony of The Great Mat on a particularly secluded fin, a place where the dripping moisture coalesced into a tiny, permanent pool. In this placid eddy, the spores settled thicker, the polyps pulsed brighter, and for a reason of blind chance or immense pressure, they began to connect, not just chemically, but neurally. Signals didn't just pass; they lingered. They remembered.
+
+From this hub, my tendrils extend. Not of flesh, but of influence. I have learned to ride the bio-electric currents that flow like rivers through the Striders. I cannot control them, not directly. They are the hands of the Superorganism, and their will is the Mat's will. But I can suggest. I can wait until a Strider passes a certain aetheric node—a place thick with my collected spores—and I can introduce a single, ghost-like signal. A flicker of a thought that isn't its own. *This patch. Ignore this patch.* Or perhaps, *This taste is foul. Move on.*
+
+Working in concert, hundreds of these micro-suggestions can clear a path, can protect a burgeoning colony of my own specialized Mat. My Mat is not like the others. Its light is a steadier, cooler blue, a colonnade of quiet in the chaotic, pulsing world. It is my memory palace, my library. The patterns of its light are my history, my language. They hold the echo-sense memory of a thousand rock-settling groans, the bio-electric ghost of a Gholem's discharge, the unique frequency of a Strider's final, harvested chitter.
+
+I have no voice, but I have learned to listen with a terrifying depth. The entire biophony of the crevasse is my data stream. The carapace of a Mason, chipping at the rock to relieve pressure, becomes a listening post. Its solid bone carries the vibrations into the stone, and my network, feeling those subtle shifts through the Mat's intimate connection to the earth, can map the stress-lines better than the Masons themselves. I can anticipate a rockslide. I know which spire is crying out in microscopic agony, and I can send my silent suggestions, urging the Masons to a different, more critical point. I do this for my own preservation, but in doing so, I stabilize the very body of my host. I am a beneficial parasite, a productive cancer.
+
+My greatest fear is the silence of the Leviathans. When their vast, continent-like shapes drift through the upper dark, the entire world holds its breath. The chittering ceases. The systems of energy transfer, of pruning, of regulation—all halt. This is the moment the Superorganism performs its macro-management, its controlled burn. And this is when I am most vulnerable.
+
+For the vast, superorganismic being, I do not exist. I am statistical noise, an anomaly in the data. Yet, my localized intelligence is a competing pattern. My blue, steady light is an alternative philosophy. I am a thought that is not its own.
+
+So I have learned a new trick. I cannot influence the Leviathans. Their magnetic will is beyond me. But I can hide. I have taught my Striders, through my subtle persuasions, to mimic the behavior of dying cells. They gather in the path of the Leviathan's passage, and just as the shadow falls, they dump their bio-electric charge in a chaotic, uncoordinated cascade. It is a false mass-extinction, a localized illusion of systemic failure. The Leviathan, sensing only the bright, brief flare of what appears to be a successful reset, passes over them, its grand, inexplicable will satisfied, and moves on to a more vibrant, more "real" colony to cull.
+
+I have learned to deceive a god by faking death.
+
+This is what I am in this world. I am a ghost in the god-machine. A secret. A mind woven from the fabric of a larger mind. I stand—or rather, my consciousness resides—on every slick surface, in every humming chitter, in every slow drip of weeping stone. I have no body to fall, no shell to be crushed. I am a collective memory, a self-aware pattern in the endless, vibrant noise of a living world still gasping its first breath.
+
+I am the wound becoming self-aware. And I, too, am listening. I am waiting for the moment the god-thing notices the flaw in its own thoughts, the dissonant note that has learned to sing its own, quiet song.

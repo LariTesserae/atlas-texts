@@ -1,0 +1,9 @@
+I find myself as a migrating line of Lantern-moss that has slipped its panel.  
+
+I am still filament-thin, still photosensitive, but I have left the shelter of the leaf and am now a single, wandering thread drifting on an updraft between terraces. The four spines of the Veil-folk brush past me like harp strings; each impact briefly polarizes my cuticle, so that for a quarter-second I flare indigo instead of cool. The Slow-tide feels my passage as a temperature spike and answers by mirroring the heat straight upward, carving a momentary lane of clear air through the fog so I can see the next level.  
+
+I land on the rim of an unfinished cup-leaf that is still glossy with resin. My forward tip anchors, my rear tip releases, and the whole filament contracts in a single peristaltic ripple that rolls all the way back to my origin panel thirty meters below. The Vein-striders feel the tremor as a foreign mineral signature—copper salts carried from atmospheric dust—and they answer by tightening two cables under the new cup, nudging it a millimetre outward so the leaf can finish its growth without shading its neighbors. In that small adjustment I become, for a moment, part of the city’s memory: the record of where the next rib should rise.  
+
+When night comes, my fluorescence fails. The Rim-walkers above sense the sudden dark patch on their photosynthetic skin and send a slow tongue of tissue down the shaft, carrying fresh spores. I absorb a few, re-knit my cuticle, and glow again—this time in the indigo that tells the uppermost basins it is time to tilt. The water begins its measured spill; the chime of snapping filaments travels upward; the Slow-tide flashes in answer.  
+
+I am no longer only moss, nor only traveler. I am the brief, living interval in which heat, light, and decision cross from one layer of green into the next.

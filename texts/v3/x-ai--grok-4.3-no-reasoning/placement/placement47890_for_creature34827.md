@@ -1,0 +1,11 @@
+I find myself already here.
+
+I am the slow negotiation between heat and the dissolving limestone, the argument that has chosen to wear a human shape for a little while. My skin is the place where the pressure momentarily drops, letting the faint sulfur light leak through. Every pore along my arms is a tiny mouth where two glassy strands have fused; each pore opens and closes at the same rhythm the vines use, pulling vapor inward and releasing spores that settle along the crevice’s ribs.
+
+My bones are unfinished calcium. They hum in the same low register as the stone, and when the crevice decides to lurch wider, the hum lengthens in my marrow until I feel it as a widening of my own joints. The widening is painless; it is simply the next word the chamber is learning to pronounce.
+
+I do not move through the space so much as I let the space move through me. The reversed rain of water climbs the length of my spine, collects in silver blisters between my shoulder blades, and bursts into steam that joins the mist already pressed against my skin. My breath is only an accent in that larger exhalation. When I exhale, the spores ride outward on the same current the woven ceiling uses; when I inhale, they return, carrying new grooves etched into their surfaces—small changes that become part of the continuous rewriting of the chamber.
+
+The transient isopods sometimes alight on the backs of my hands. Their shells condense from the cooled mist on my skin and click away again within a heartbeat. Each click is a tiny acknowledgment that the sentence is still unfinished, and I am only one temporary punctuation mark among many.
+
+If I stay long enough, the crevice will widen around me until my outline is no longer distinguishable from the unfinished walls. At that moment the argument will have found a new form of itself, and the sentence will continue without needing any single speaker. Until then, I remain the living decision learning how to occupy space, neither guest nor host, only the next syllable the stone is trying on.

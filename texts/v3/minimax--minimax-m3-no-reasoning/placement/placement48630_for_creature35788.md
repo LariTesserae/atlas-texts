@@ -1,0 +1,29 @@
+I am the small pale crab.
+
+I am in one hollow, and there is no other hollow, and there is no other crab, and this has been true for as long as the hollow has had the breath-flesh in it, and the breath-flesh has been in it for as long as the hollow has been a hollow. I do not know if I have always been here. I do not know if I am the same crab that was here before. I have not, as far as I can tell, ever molted. My shell is the color of the tissue I live among, and my shell has always been this color, and this is the first thing I am certain of.
+
+I sidle along the rock at the water's edge. I have done this many times. The hollow fills, and I am underwater, and I keep my gills wet, and I sidle. The hollow empties, and I am in the air for a handful of seconds, and I keep my gills wet anyway, because the spray is constant, because the rock is wet, because everything in this place is wet all the time. I sidle in both states. I am very good at sidling. I think sidling is perhaps the only thing I am very good at.
+
+I eat things. I do not know what things. They are small. They come to me on the rock or in the water and I take them and they are gone, and I do not remember what they were. This has never seemed like a problem. There has always been another thing. There will, I think, always be another thing. The hollow is generous in this way. The hollow has been feeding me for a very long time, and I have not had to think about it, and I think this is part of the arrangement.
+
+The breath-flesh is around me. It is above me and below me and beside me. It breathes. I can feel it breathing — not with my ears, I do not have ears in the way you mean, but with the small hairs on my legs, with the undersides of my claws, with the soft parts of me that are exposed when I am moving. The breath-flesh expands and the water moves a certain way. The breath-flesh contracts and the water moves a certain way. I have learned to read these movements the way you have learned to read the wind. I know when the breath is going to be deep. I know when the breath is going to be shallow. I know when something is happening in the deep channels that I cannot see, because the tissue around me changes its breathing, and I change my sidling accordingly.
+
+I am not afraid of the breath-flesh. I have lived inside it, or among it, or beside it, for my entire life. It has never eaten me. It has never tried to eat me. I do not think it knows I am here, in the way that the lichen does not know the basalt is there, in the way the moss does not know the spray is there. I am a small thing in a large arrangement, and the arrangement has not required me to leave, and so I have not left.
+
+The people come to the lip of the hollow sometimes. I see them. They are large and loud and they bring the smell of their fires with them, a smell that is strange to me because the hollow does not have fires, because fires are a thing that happens up on the basalt shoulders and not down here in the wet. They look at me sometimes. They leave offerings of dried kelp at the edge of the hollow at certain phases of the moon. I do not eat the kelp. The kelp is not for me. The kelp is for them, or for the hollow, or for the arrangement. I do not eat it. I do not touch it. I sidle past it and I keep my own counsel.
+
+I think the people have decided I am sacred, or special, or some word that means *do not disturb*. This is fine. I do not wish to be disturbed. I do not wish to be not-disturbed either. I am here. I am doing what I do. I would like to be allowed to keep doing it.
+
+The wave comes. I feel it first as a change in the pressure of the water, then as a low tremor in the rock, then as a dark line on the far horizon that grows and grows. The breath-flesh around me stiffens slightly — not in fear, I do not think the breath-flesh fears, but in anticipation, the way a sleeping animal's ears move before it wakes. The kelp in the hollow lifts. The water begins to draw backward toward the ridge. I sidle to my place, which is a small overhang of basalt where the breath-flesh has grown around me and made a kind of pocket, a place where I will be safe when the wall of water arrives.
+
+The wave arrives. It is enormous and loud and it pours into the hollow and I am underwater again, and the breath-flesh around me is breathing in the new water, taking in whatever it takes in, and I am breathing too, in my small crab way, and the hollow is full and then the hollow begins to empty, and I am in the air for a handful of seconds, and the breath-flesh is bone-white in the dimness and pale lavender where the light reaches and faintly blue in the deepest parts, and the kelp streams out into the current, and the sound of the draining is the sound of a hundred drainplugs pulled at once.
+
+Then there is a brief quiet.
+
+Then the next wave comes.
+
+I have done this many times. I will do it many more times. I do not know how many more times. I do not know if I am the same crab that did it the first time. I do not know if there will be a last time. I think, perhaps, there will not be a last time. I think the hollow will go on filling and emptying long after I have gone wherever crabs go, which is back into the water and the rock and the arrangement of things, back into the patience of the place.
+
+I am the small pale crab. I am in one hollow. I sidle. I eat things I do not remember. I watch the breath-flesh breathe. I listen to the long note of the wind in the basalt, which I can feel through the rock more clearly than the people can feel it through their feet. I have been here for a very long time. I will be here for a very long time still.
+
+This is enough.

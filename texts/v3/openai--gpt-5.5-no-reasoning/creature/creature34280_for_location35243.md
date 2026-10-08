@@ -1,0 +1,81 @@
+They are a people of dryness, but not of deprivation.
+
+Their bodies and customs have become so perfectly suited to the crack-city that an outsider might first mistake them for another mineral growth: ash-pale, ocher-dusted, wrapped in matte fabrics the color of clay, salt, soot, dried petals, old blood. They move with the caution of those who live among ledges, vents, brittle gardens, and echoing air. Every adult has a lowered way of walking, not servile but practical: shoulders angled under arches, heads ducked at ancestral corners, hands trailing walls not for guidance but for listening. They know the city through the skin.
+
+They are not numerous by the measures of open cities, but they are densely present. Families overlap in stacked rooms, shared platforms, gallery niches, vent-houses, work courts, and sleeping chambers planted with breath-curtains. Solitude exists, but it is scheduled. Privacy is a shutter drawn halfway, a mat hung at an angle, a respectful silence maintained by neighbors who can hear every movement through clay.
+
+They have dry voices. Not weak voices—carrying ones, trained for stone. Children learn early how to call upward without wasting breath, how to send a message around a bend, how to whisper into a vent so that it arrives in another household as a rasping secret. Public speech is an art because sound behaves strangely there. A judge, gardener, or elder can address three terraces without shouting by standing beneath the right arch. Lovers know the hollows where words blur into indistinct warmth. Quarrels can become civic events by accident.
+
+Their skin is polished rather than washed. Fine salt, ash, powdered leaf, and fragrant grit are used daily. They rub themselves clean with practiced efficiency, then oil the joints, neck, lips, and eyelids against cracking. Their hair is usually bound tight, wrapped, braided, or stiffened with resin dust; loose hair is considered careless near vines, vents, and turning vanes. Many keep thin red or black lines painted across the cheekbones, brow, wrists, or throat—not decoration only, but household marks, work signs, mourning signs, fertility pledges to certain gardens.
+
+They do not smell of sweat in the wet sense. They smell of warm stone, bitter resins, smoke, powdered seed, old cloth, mineral oil, and the faint sharpness of salt. The scent of a person can reveal their work: kiln-keepers carry a hot ceramic tang; vine-pruners smell metallic and green-black; dust-gatherers are fragrant with gold bloom; vent-menders smell of soot, clay, and scorched fiber.
+
+Their clothing is layered but spare. Loose enough for airflow, close enough not to snag. Woven stalk-fiber, felted plant down, softened bark-skin, parchment-leaf panels, belts of braided cord. Garments are beaten clean, smoked, re-oiled, patched until the original cloth is mostly memory. New fabric is too bright, too stiff, too socially loud; it is often rubbed with ash before being worn in public. Children wear strings of red thread for marking duties and permissions. Gardeners carry brush cases at the hip. Vent-workers wear padded shoulder wraps and ceramic eye shields. Elders often wear pale mantles dusted intentionally with the powders of plants they have tended across decades.
+
+They are patient in the way of people who cannot command abundance. They do not hurry unless a vent is blocked, a wall speaks wrong, a seedbed opens early, or a child is missing from the midday lower passages. Their ordinary movements are measured, economical, almost ritualized: close the shutter fully or not at all; pass under a hanging vine without breathing on its underside; step over the warm crack in the floor; tap a ladder rung before trusting it; turn a jar mouth-down after emptying; never leave a loose tray near a draft.
+
+Children are everywhere, though not left wild. They are given work almost as soon as they can distinguish one dust from another. They pollinate with soft brushes. They collect fallen seed-sheaths from nets. They sit near elders and learn vent-songs, insult-formulas for stubborn pods, the safe tones of flutes, the forbidden hours for drums. They are taught not that water is scarce, but that it does not belong to the world. To ask where the wells are is a child’s confusion. To insist that water ought to exist is rudeness, perhaps impiety.
+
+Their games are dry games: seed-counting, echo-chasing, shadow races, balancing on heat-warped stones, guessing the plant by its closed silhouette, clapping rhythms that make pods tremble but not burst. They dare one another to climb near upper seams, to touch sun-hot braces, to whisper into old vents said to carry words to the dead. They laugh during storms until scolded, because fear and delight arrive together when the whole city becomes an instrument.
+
+The old are powerful, especially those who can still hear changes in stone.
+
+An elder may sit beside a wall all afternoon with one palm against it, apparently idle, while younger people bring questions. The elder is listening: for expansion, fracture, trapped heat, a clogged shaft, a vine pressing behind plaster. Their authority comes not from conquest or wealth but from accumulated attention. In a place where one cracked kiln, one sealed vent, or one mishandled bloom can change a season, memory is infrastructure.
+
+Gardeners are central to the city’s life, though nearly everyone gardens in some degree. The true gardeners are not merely cultivators but translators between human breath and plant appetite. They know which rooms must be crowded to feed the hanging curtains, which households speak too little for their wall-crop, which fan-cacti need vibration, which powder-bloom shrubs respond to flattery, which heat-vines become dangerous if denied warmth. They prune with obsidian knives and speak to plants in formal registers not used for people.
+
+Some plants are addressed as elders. Some as guests. Some as fools. Some as thieves.
+
+The people do not consider this superstition. It is technique.
+
+Their cuisine is almost entirely texture and concentration: roasted seed cakes, puffed mineral-grain, brittle sheets of pressed meal, resin-glazed pods, powdered bloom mixed with oil, dry ferments that crumble and sting the tongue, salt-smoked strips of plant flesh, bitter pastes folded in parchment leaves. Meals are eaten slowly, with small portions and intense flavors. To chew loudly is rude unless the food is ceremonially brittle. To offer someone the shaded side of a food tray is affectionate. To waste edible dust is disgraceful.
+
+They drink no water. Their nourishment comes through oils, pastes, powders, succulent dry-fleshed plants that hold not moisture but some dense internal nourishment, fermented crumbles, and breath-thick foods that dissolve slowly in the mouth. They do not speak of thirst the way outsiders might. They speak instead of cracking, hollow-mouth, salt-ache, and heat-hunger. Their remedies are oils, gums, cooled stones, bitter powders held beneath the tongue, and time spent in lower chambers where the air moves gently.
+
+Their religion, if called religion, is not built around gods who descend from the sky. The sky is a strip, distant and severe. Their reverence goes sideways and downward: toward vents, roots, fault-lines, old gardens, ancestral brick stamps, stones that ring when struck, the immense pale organism in the deepest chamber. They honor openings. They fear stoppage. Sin is often imagined as sealing, hoarding, suffocating, interrupting exchange.
+
+They do not pray for rain.
+
+Rain would be catastrophe, myth, invasion, dissolution. If told that elsewhere water falls freely from above, some would laugh, some would shudder, and some would accuse the speaker of obscenity. Their stories of water are not hopeful. Water is a solvent monster, a softening force, a thing that makes walls forget their shape. Rivers are ghost-serpents. Lakes are sky-wounds lying on the ground. Boiling is something demons do to food.
+
+Their dead are not buried in damp earth, for there is none. Nor burned wastefully unless disease or emergency requires it. Death is a return through dryness. Bodies are salted, powdered, smoked, wrapped in fiber, and placed for a time in warm chambers where breath-fed plants do not grow. Later, bones are cleaned by abrasion and stored in household walls, public ossuaries, or beneath garden frames. Some bones are ground ceremonially into mineral plaster for important repairs. To be part of a vent-wall is an honor. To strengthen a public stair is a lineage blessing.
+
+They do not waste names either. Names are reused carefully, often after a crack in a wall, a plant’s first flowering, or a notable repair. A child may be named for a sound: Clatter-at-Noon, Low-Whistle, Third-Crack. Or for a plant event: Red Seam, Bitter Bloom, First Dust. Adult names can change after apprenticeships, marriages, civic failures, or acts of preservation. Someone who saves a neighborhood crop may carry the name Shade-Keeper. Someone whose negligence blocks a vent may bear a silence-name for years.
+
+Their politics are practical, contentious, and acoustically complicated. Councils meet in chambers planted with breath-curtains, because argument feeds certain crops and because civic speech should visibly nourish the city. Representatives are often chosen by guild, terrace, vent-line, and garden obligation rather than by territory alone. A household may own a room, share a roof, owe labor to a shaft, and hold partial warmth-rights in a vine crossing three properties. Law is not abstract. It is a map of dependencies.
+
+Disputes over shade can last generations.
+
+A shadow cast by a fan-cactus across a work court may belong to one family at dawn and another at evening. A heat-vine crossing a boundary cannot simply be cut; its stored warmth may feed blooms elsewhere. A wall repair may require rerouting airflow that affects grinders, seed drying, sleeping chambers, and an old woman’s medicinal shrubs. The people argue fiercely, but they are suspicious of final victories. A person who wins too completely may have misunderstood the city.
+
+Their crafts are exquisite in small ways. They make ceramic vanes thin enough to sing in a draft and strong enough to survive years of heat. They make shutters that clap only at certain wind speeds. They weave mats that filter dust by grain. They carve flutes tuned not for human pleasure but for reluctant seed pods. Their jars are beautiful despite never holding water: jars for ash grades, jars for resin, jars for bitter ferment, jars for ancestral powders, jars sealed empty as vows.
+
+They have little metal, and what they possess is treated almost like captive sunlight. A copper pin may pass through five generations. A hammered blade, repaired and resharpened until narrow as a finger, may have a name and a sleeping place. Volcanic glass is prized for pruning and surgery. Ceramic replaces what metal cannot be spared for. Resin binds. Fiber tensions. Salt seals. Clay remembers every hand.
+
+They are not isolated in imagination, though the salt plain hides them. They know there are other places, because obsidian arrives, because certain shell-minerals came from somewhere unimaginable, because travelers sometimes kneel at the seam and are either turned away, hosted cautiously, or found dead above after misjudging the heat. There are traders among them who cross the plain at night or during rare tolerable seasons, wrapped against glare, guided by stars seen only in fragments from home. These traders are regarded with admiration and mild distrust. Too much sky changes a person.
+
+Outsiders who enter the city must learn quickly. Do not ask for water. Do not touch a vine seam glowing red. Do not stand in a doorway during midday draft. Do not praise a plant for being beautiful unless you know whether beauty implies uselessness. Do not whistle randomly near seed beds. Do not seal your sleeping chamber completely; breath is part of the city’s economy. Do not say “empty” when you mean “unplanted.” Do not say “dead” when you mean “dry.”
+
+Their music is percussive, breathy, and architectural. Drums are tools as much as instruments. Flutes release seeds, soothe children, warn vent crews, call meetings. Clay clappers communicate across terraces. Songs often include long rests so echoes can complete the phrase. Many songs are sung in crowded planted rooms because voices feed the curtains. A solo sung into a chimney at night may return altered, thinned, almost ancestral.
+
+Their art favors repetition, line, striation, shadow, and the moment before opening. They incise walls with heat calendars: not days of rain or harvest, but expansion cycles, flowering temperatures, dustfall years, great vent repairs, storm pressures. Murals are often monochrome until light strikes them from a particular angle, revealing mica, powdered bloom, or soot-polish. Children mark first sprouts with red thread, and those tiny threads may remain for years, becoming part of the wall’s memory.
+
+Love in the crack-city is tangled with space. To court someone may mean offering a share of shade, repairing their family’s shutter, teaching them a private echo route, giving them dust from a rare bloom, or spending an evening breathing in their household’s crop chamber. Marriage is not merely between people but between airflow obligations, garden rights, sleeping niches, seed stores, and ancestral wall-bones. Separation requires practical engineering.
+
+They are tender, but their tenderness is unsentimental. A mother checks her child’s lips for cracking, then sends them to pollinate a dangerous bloom because the household depends on it. A friend may sit beside another in grief and say nothing for hours, both breathing toward the same curtain of plants. An old man may leave his best ceramic ear-trumpet not to his child but to the apprentice most able to hear wall-stress. Love often looks like maintenance.
+
+They fear collapse, blockage, waste, careless flame, false coolness, and the upper white plain. They fear the low note in a heat storm. They fear a season when the pale tree does not release. They fear children dreaming too much of impossible rivers. They fear forgetting why a law exists.
+
+Yet they are not grim. Their humor is sharp and dry, fond of understatement and insult. Since some plants must be insulted to release seed, the city has elevated abuse into craft. There are celebrated insult-makers whose phrases can shame a pod open without offending nearby people. Festivals include mock trials of lazy vines, obscene songs directed at fan-cacti, and competitions in which children must flatter a stone, insult a shrub, and apologize to a shutter in correct order.
+
+At night, when the machinery slows and the crack releases its stored heat, they listen.
+
+They lie on stone benches, woven mats, rooftops no wider than a body. They hear the city contracting: ticks, groans, soft claps, settling dust, the faint rasp of plants folding themselves. They hear neighbors turning in sleep. They hear an elder cough three terraces above. They hear seeds shift in baskets, vanes spin once and stop, a child whispering into a wall. Above them the sky is a narrow wound full of stars, never enough to belong to, always enough to measure by.
+
+What lives there is therefore not just a human population, nor merely a heat-fed flora, but a single dry civilization composed of breath, mineral, plant, sound, law, and repair.
+
+The people are one organ of it. The gardens are another. The vents are its lungs, the vanes its restless hands, the crack its body, the pale tree its old secret heart.
+
+They live by opening and closing. By listening. By not asking the world to be other than it is.
+
+They are the citizens of the wound: gardeners of heat, keepers of shade, breath-farmers, dust-eaters, vent-lawyers, stone-hearers, children with red thread in their hands, elders with palms against the walls, a whole people folded into the dry applause of plants that bloom without water.

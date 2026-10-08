@@ -1,0 +1,107 @@
+# What Lives Here
+
+Let me tell you about them carefully, because care is the first thing you notice about them.
+
+---
+
+## The Gardeners
+
+They are not what you would expect.
+
+Nothing here is what you would expect. The basin prepares you for large things — for architecture, for intention, for something equal to the scale of what has been built. And then what you find is small. Smaller than your hand. Smaller than the palm of your hand. A body that would fit curled inside a walnut shell, and a mind that does not fit anywhere you can measure, and this is the riddle of them, the thing that will not resolve no matter how long you sit in the green rooms they have made.
+
+Call them the Gardeners. The name is imprecise. It will do.
+
+---
+
+## What they look like
+
+They are not insects. They are not crustaceans. They are not anything you have a ready category for, though the categories press in insistently from all sides, failing. If you held one — and you cannot hold one, they do not permit this, they are too quick and too aware and they have been here longer than you — if you held one up to the pearl-light of the basin, you would see something like this: a body perhaps four centimeters long, low-slung, many-legged, the legs themselves not jointed in the insectile manner but smoothly bending, hydraulically, the way a fern frond uncoils. There is a softness to them that is not weakness. Their bodies carry the same principle as the architecture: firm enough to function, yielding enough to persist.
+
+Their color shifts. This is the first thing that confuses observation. In still air, in the dim green light of the inner chambers, they are the color of wet bark — a dark, mottled brown-green that renders them nearly invisible against the columns they move across. But when they move, when they cross from wood to moss to root to the surface of a pool, their pigment responds. Not chameleon-fast, not a flicker. A slow tide, a blush of color that spreads from the center of the body outward over the span of seconds, darkening to match the deep green of sphagnum or paling to the cream of a mineral deposit or going almost black against the wet root floor. They are never not camouflaged. You do not see them. You see movement, and then you look, and then they are part of the surface they stand on, and you doubt what you saw.
+
+They have no eyes that you can identify. This is the second confusion. The head — if it is a head; the body plan does not divide neatly into head and thorax and abdomen — carries a cluster of pale, fine structures that might be antennae, might be chemosensory palps, might be something for which you have no name. They wave constantly when the animal moves, tasting the air, the surface, the moisture gradient. The Gardeners navigate by chemistry. They can detect the difference between one species of moss and another by the volatile compounds each releases. They can locate a pool of water from across a chamber by the mineral signature of the dissolved salts. They know where they are, precisely, intimately, in a landscape of gradients and concentrations and molecular signatures that is as rich and detailed to them as a landscape of color and shape is to you.
+
+Their backs carry something. It is not a shell. It is — and this is where you must trust me, because the observation took time, and the time was necessary, and the understanding emerged from the time — a garden. Each Gardener carries on its dorsal surface a microcosm: a thin layer of moss spores, fungal mycelia, fragments of liverwort, held in a matrix of fine, silk-like fibers that the animal itself produces. This dorsal garden is not decorative. It is not incidental. It is, in a very real sense, their external stomach, their seed cache, their tool kit. The spores germinate. The mycelia extend. The material in this dorsal layer is alive and growing, and the Gardener tends it — adjusting moisture by moving between chambers, adding new material harvested from the architecture, culling growth that has become unbalanced. When the Gardener reaches a site where new growth is needed — a graft union that requires reinforcement, a gap in the root lattice that should be filled, a chamber ceiling that is thinning — it pauses, and it deposits material from its dorsal garden onto the surface, and it moves on, and the spores germinate, and the gap fills.
+
+Do you understand what this means? It means that the architecture of the basin is not an accident of growth patterns responding to light and moisture. It is — at least in part — built. Designed. Maintained. By animals smaller than your finger, working in a medium of spore and mycelium, on a timescale that makes human architecture look hasty and improvised.
+
+---
+
+## What they do
+
+They garden.
+
+The word sounds too simple. It sounds domestic, human, small. But it is the right word, or the closest word, because what the Gardeners do is exactly what a gardener does: they select, they encourage, they redirect, they prune, they plant. They do this without tools. They do it with their bodies — their mouths, which are not mandibles but soft, mobile structures adapted for manipulating fine material; their legs, which can hold a stem in place while a graft forms; their dorsal gardens, which carry the propagules of a dozen species ready for deployment.
+
+A Gardener working on a column moves along its length slowly, methodically, testing the bark with its palps. It pauses where the moss cover has thinned — where a patch of bare wood is exposed to the air, vulnerable to desiccation, to fungal attack, to the slow erosion of structural integrity. It pauses, and it reaches back to its dorsal garden, and it brings forward a fragment of moss — a specific species, selected for this surface, for this moisture level, for this degree of light — and it presses the fragment against the bark, holds it there for a span of seconds, until the fragment's rhizoids have gripped the substrate. Then it moves on. The patch is closed. The column is healed.
+
+A Gardener working on a gap in the root floor finds the opening, tests its edges, measures (by some sense you cannot identify) its width and depth. It returns to a nearby column where a particular woody species is growing densely, and it harvests — not randomly, but selectively, choosing a stem of the right thickness and the right flexibility, biting it free at a specific point, carrying it in its mouth-parts to the gap. It wedges the stem into the lattice, weaving it between existing roots, and it holds it there, patiently, for hours if necessary, until the stem has begun to graft to its neighbors, until the connection is stable. Then it moves on. The floor is reinforced. The channel will not widen.
+
+A Gardener working on a chamber ceiling — and this is the work that takes your breath away, the work that you watch for hours, lying on your back on the moss floor of a dome, watching the small dark shape move across the underside of the arch above — works differently. It moves along the inner surface of the dome, testing the density of the lattice. Where the lattice is thin, where light is leaking through from outside and the chamber is brighter than it should be, the Gardener pauses. It reaches to its dorsal garden. It selects — and here the selection is delicate, is precise, is the work of a mind that understands its materials the way a potter understands clay — it selects a species of the creeping pine relative, one that grows in the specific pattern of inward arching, and it places the spore-bearing fragment at the junction of two existing stems, where moisture is highest and where the new growth will have support. It places three fragments, in a triangle, and it moves on, and the spores germinate, and the stems grow inward, and the dome closes, and the chamber darkens, and the temperature inside rises by half a degree, and the humidity increases, and the condensation pattern on the ceiling shifts, and the room becomes — different. More enclosed. More itself.
+
+They are building rooms. They are building rooms out of living plants on a timescale of years, and the rooms have qualities — warmth, humidity, darkness, acoustic resonance — that are functional. That are purposeful. The rooms are the warmest places in the basin. They are the driest places — not the root floor, where water is always present, but the raised surfaces inside the domes, where condensation falls but does not collect, where moss grows thick and soft and comparatively dry. The rooms are shelters.
+
+They are shelters for what?
+
+---
+
+## What they are
+
+This is where it becomes difficult.
+
+The Gardeners are not social in the way insects are social. There is no hive, no queen, no caste system, no division of labor. Each Gardener is, as far as I can tell, competent in the full range of tasks: building, maintaining, repairing, planting, harvesting. They work alone. They work in proximity to other Gardeners, often in the same chamber, but they do not coordinate. They do not communicate in any way I can detect — no chemical signals, no physical contact, no sound. They simply work, and their work accumulates, and the accumulation produces architecture.
+
+But — and this is the thing that will not resolve, the thing that sits in the center of your understanding like a stone in a river, with the current of explanation splitting around it and rejoining downstream — the architecture is coherent. It is organized. The columns are spaced regularly. The domes are placed at intervals. The galleries connect in a pattern that is not random. The drainage channels are graded — slightly, imperceptibly, but consistently, so that water flows in the intended direction, toward the central pond. The enclosed chambers are positioned where the thermal mass of the surrounding structure will provide the most temperature stability. This is not the work of individuals operating independently. This is the work of individuals operating within a shared pattern, a pattern that is larger than any individual, that is — and the word arrives slowly, reluctantly — cultural.
+
+The Gardeners have a culture. It is not communicated through language or through teaching or through observation. It is communicated through the architecture itself. A young Gardener — and I never saw one that I could identify as young, but they must reproduce, there must be young — a young Gardener emerging into the basin for the first time finds itself in a built environment. It moves through the galleries. It encounters the columns, the arches, the domes. And the environment itself — the spacing, the moisture gradients, the light levels, the temperature variations — teaches it. The pattern is in the structure. The structure is the pattern. Each generation builds within the pattern it was born into, and the pattern persists, and the pattern is the culture, and the culture is the architecture, and the architecture is the organism.
+
+This is — I think — why the architecture feels both built and grown. It is both. It is grown by plants following simple rules of growth. And it is built by Gardeners following a cultural pattern embedded in the growth. The two processes are inseparable. The plants provide the material and the basic structure. The Gardeners shape the material and direct the structure. Neither process alone would produce what exists. Both processes together produce something that neither could produce alone. A city of moss. A cathedral of root. A building that is also a body, built by animals that are also gardens, functioning within an ecosystem that is also a civilization.
+
+---
+
+## The chambers that are different
+
+There are some chambers — a very few, perhaps three or four, deep in the oldest part of the structure near the center of the basin — that are different.
+
+They are larger. Not dramatically — perhaps five meters across instead of three or four — but enough that you notice. Their ceilings are higher. The columns supporting them are thicker, older, the bark deeply furrowed, the graft unions massive and calloused. The moss on the walls is different: sparser, older, giving way in places to a pale, almost white lichen that I did not see elsewhere in the basin. The light in these chambers is not the greenish submarine glow of the galleries. It is something else. Greyer. Dimmer. The light has passed through more layers to reach here, and it has been stripped of its green, and what remains is the bare, colorless luminance of the haze itself, filtered to its essence.
+
+These chambers are drier. Not dry — nothing in the basin is dry — but the moss on the floor is thicker, more compressed, and the water does not seep up through it when you sit. The root lattice beneath is denser, more tightly woven, reinforced with layers of additional stems in a pattern that is visibly different from the surrounding floor. Someone built this floor. Someone spent years adding stems, filling gaps, creating a surface that would hold weight, that would remain dry, that would serve as — and the word is inadequate, but the word is all I have — a floor.
+
+In one of these chambers, there is a column that has been marked. The marks are not carvings. They are not scratches. They are — I think — grafts. Deliberate grafts, made by a Gardener, in which a stem of one species was joined to a stem of another species, creating a junction that would not have occurred naturally. The junction is visible as a ridge, a callus, a swelling in the column where two different tissues meet. The ridge forms a pattern. Not a picture, not a symbol — a texture. A roughness in the bark that is different from the surrounding surface, that catches the light differently, that feels different under the fingertips. I touched it. I traced the pattern. And I could not determine whether it was decoration, or communication, or simply the record of a specific act of grafting that had a specific purpose I could not identify.
+
+But the pattern was deliberate. Of that I am certain. Someone made it on purpose.
+
+---
+
+## The old ones
+
+There are Gardeners I saw — perhaps four, perhaps six, over the course of days — that were different. Larger. Slower. Their dorsal gardens were not the neat, curated patches of the younger workers. They were overgrown, dense, tangled, hosting species I did not see on any other Gardener — species that seemed to exist only on these particular backs, as if the dorsal garden had become, over years, its own ecosystem, its own microhabitat, no longer a tool kit but a world.
+
+These old ones moved differently. They did not work the columns. They did not repair the floor or reinforce the ceilings. They moved through the galleries slowly, pausing at junctions, at the points where one chamber opened into another, and they seemed — though I cannot be sure, though I am anthropomorphizing, though I know it — to be checking. Inspecting. Assessing the state of the structure with a patience and a thoroughness that suggested familiarity. They had been here longer. They knew the place better. They were not building. They were maintaining the pattern by walking through it, by being present in it, by carrying their accumulated gardens through the galleries like librarians walking the stacks, checking that everything is in its place.
+
+One of them, in one of the large central chambers, was sitting on the smooth, worn patch of root floor — the one I mentioned, the one polished by use. It was sitting in the way a Gardener sits: legs folded, body low, dorsal garden facing upward, catching the faint light. It was not doing anything. It was not eating, not grooming, not working. It was sitting in a room that it had — perhaps — built, or that had been built by others of its kind, and it was sitting in the room the way you sit in a room you know well, a room you have sat in many times, a room that is yours.
+
+It knew I was there. I am certain of this. Its palps waved in my direction, tasting the chemicals I exhale, the oils on my skin, the synthetic fibers of my clothing. It assessed me the way it assessed a gap in a root lattice: precisely, chemically, without alarm. I was not a threat. I was not prey. I was not a feature of the architecture. I was something else, something it had perhaps encountered before or perhaps not, and it registered my presence and dismissed it and continued sitting in its room in its building in its city, and it did not move, and I did not move, and the water dripped on both of us, and the structure creaked around us, and the green light held us both in the same dim, saturated, patient glow.
+
+---
+
+## The questions that remain
+
+I do not know how old the Gardeners are. Their life span may be short — a season, a year — or it may be long, long enough that the old ones remember centuries of structure, that the pattern they carry is not inherited but accumulated, each individual learning the architecture over decades of walking through it. I do not know. The organic substrate of the basin does not preserve remains. When a Gardener dies, its body returns to the moss and the root, its dorsal garden germinates where it falls, its substance is composted into the architecture it spent its life maintaining. There is no record. There is only the structure, and the structure does not distinguish between the dead and the living because it is made of both.
+
+I do not know how many there are. I saw perhaps fifteen in the days I spent in the basin. But the structure is dense, the chambers are many, the passages are tortuous and interconnected, and a Gardener in camouflaged stillness on the surface of a moss-covered column is invisible. There may be hundreds. There may be dozens. There may be very few, and the structure may be slowly failing, the gardeners no longer numerous enough to maintain the full architecture, and the domes may be thinning, and the columns may be widening their gaps, and the drainage may be finding new paths, and the whole vast patient enterprise may be in a slow decline that will take centuries to complete. Or the opposite may be true. The basin may be growing. The structure may be expanding, new chambers forming at the edges, new columns rising from the root floor, the Gardeners extending their architecture outward into the basin's rim. I do not know. I was there for days. The time scale here is decades.
+
+I do not know what they are. Taxonomically, evolutionarily, I cannot place them. They may be a relict lineage, a survival from some earlier epoch that found this cold basin and its slow, wet, dim world and adapted to it over millennia. They may be something newer, a recent emergence, a branch of some familiar group that found a niche and evolved into it rapidly. They may be something I do not have a category for. They are not insects. They are not arachnids. They are not crustaceans, not myriapods, not any familiar arthropod. They are something else. Something that has found a way to be small and cold and slow and to build, in that smallness and coldness and slowness, something that rivals anything built by hands or by minds.
+
+---
+
+## What I carry away
+
+I left the basin. The climb out was harder than the descent — the rim is steep, the rock is sharp, and the cold had settled into my joints. At the top, I looked back. The structure was invisible from above. The basin was a shallow scoop of moss and root, indistinguishable from any wetland, any bog, any patch of tundra. The architecture was hidden. The chambers were hidden. The Gardeners were hidden. Everything was hidden inside the green mass, below the surface, in the dim and the wet and the cold.
+
+But I know what is in there. A city of moss. A civilization of small, many-legged, chemically sensing animals who build with living plants, who carry gardens on their backs, who live inside their own architecture and maintain it through a pattern that is neither instinct nor teaching but something in between — a pattern that exists in the structure itself, in the spacing of columns and the curve of arches and the grade of drainage channels, a pattern that each generation inhabits and perpetuates and modifies, incrementally, over centuries.
+
+I think about the old one sitting in its chamber. I think about the worn spot on the root floor. I think about the deliberate graft on the central column, the pattern in the bark that someone made on purpose. I think about the way the domes close, slowly, over years, as spores germinate and stems grow inward. I think about the dripping, and the creaking, and the faint vibration of growth in the substrate beneath my feet.
+
+I think about a room that has no architect and no tenant and no purpose. A room that was built by a small, cold, wet animal that carries a garden on its back. A room that is warm because it was built to be warm. A room that is dry because it was built to be dry. A room that exists because, somewhere in the long accumulation of growth and graft and spore and decomposition, the pattern called for a room, and the room was built, and it stands, and it weeps condensation from its ceiling, and the water falls in fine drops on a worn root floor, and the moss grows, and the structure creaks, and the green light does not change, and the Gardener sits in its room, and it does not move, and it does not need to, and the world outside is cold and bright and large and it does not come in.

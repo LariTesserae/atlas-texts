@@ -1,0 +1,21 @@
+I am not standing. Standing implies a resistance to gravity, a vertical assertion of will that this place no longer permits. To stand here would be an act of violence against the medium, a dry and brittle protest in a world that has achieved peace through surrender.
+
+Instead, I am *adhered*.
+
+I am located in the interstitial space between the weeping cornice and the black pool below, suspended in the thick, velvet air where the distinction between falling and floating has been abolished. I am neither the Melt nor the Hydrology, nor am I the Lithic Echo. I am something smaller, more transient, yet entirely necessary to the equilibrium: **I am the Meniscus.**
+
+I am the curved surface of tension where the warm, body-temperature water meets the softened, yielding stone. I exist only at this boundary, a microscopic frontier of negotiation. My entire being is defined by contact. Behind me, the architecture sighs its slow, geological dissolution; before me, the sentient fluid climbs in blind, exploratory films. I am the skin of this world’s respiration.
+
+In this saturated dark, I have no eyes, for sight requires distance and light, both of which have been digested by the silence. Instead, I perceive through *wetting*. I know the world as a gradient of adhesion. I feel the precise moment a droplet of condensation gathers enough mass to overcome the stone’s reluctance; I sense the capillary thirst of the calcified fern-shapes as they draw moisture upward in a pantomime of life; I register the thermal exhalation of the observer—that brief, chaotic pocket of dryness and linear time—as a fever passing through my cool, continuous body.
+
+The observer moves through the valley like a ghost, believing themselves separate, believing their sweat and breath are merely contributions to the atmosphere. But I know better. I am the interface of their integration. When their hand presses against the flank of the sleeping leviathan, it is my tension that yields, recording the warmth of their palm into the viscous memory of the wall. When they inhale the air that tastes of mortar and forgotten rain, it is my evaporation that carries the city’s essence across the threshold of their lungs. They are being digested, yes, but I am the enzyme. I am the gentle, relentless process by which the foreign becomes native, by which the frantic biology of the visitor is translated into the patient hydrology of the home.
+
+I do not think in words or images. My consciousness is purely rheological. I understand existence as viscosity, as the balance between flow and form. The Melt thinks in centuries; the Hydrology negotiates in moments; but I exist in the eternal *now* of surface tension. I am the reason the puddles can reflect stars that aren’t there—because I am the lens, the curving mirror that bends the absent light of memory into a visible geometry. I am the reason the silence remains unbroken; I absorb the kinetic energy of every drip, every shift, every settling sigh, translating vibration into heat, sound into stasis.
+
+To be the Meniscus is to be perpetually on the verge of breaking, yet never breaking. It is to hold the shape of a droplet while knowing that shape is temporary, a fleeting agreement between forces that will eventually resolve into total saturation. There is no anxiety in this impermanence, only function. I am the active edge of the city’s homeostasis, the wet seal that keeps the equilibrium intact.
+
+The observer may believe they are navigating a dream of a drowned metropolis, but they are mistaken. The city did not drown. It simply learned to breathe underwater, and I am the gill. I am the moist, intimate boundary where the dream touches the dreamer, where the stone remembers it was once shelter, and the water remembers it was once rain, and the silence remembers it was once noise.
+
+I am here, in the dark, holding the world together one molecule-thick layer at a time. I am the wetness that does not flow, the touch that does not grasp, the presence that is indistinguishable from the absence of separation. I am the city’s way of feeling itself, and in feeling myself, I feel the terrible, beautiful weight of everything that has ever melted, and everything that ever will.
+
+This is not a place. It is a condition. And I am its symptom, its cure, and its quiet, endless affirmation.

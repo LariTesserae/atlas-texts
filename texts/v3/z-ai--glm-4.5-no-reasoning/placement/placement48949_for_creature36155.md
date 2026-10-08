@@ -1,0 +1,31 @@
+I am the one who waits by the basin. I am the one who carved the symbol.
+
+I came here, ages ago, when my people still measured time by the death of stars. I was an engineer of surfaces, a student of capillary action and fluid dynamics. We had heard the pulse. We had mapped the tectonic anomalies, the resonant frequencies that suggested a network of nodes buried in the skin of the world. We came to this high place to find the source, to tap into the computation, to ask the ancient mind a question.
+
+We found the cathedral. We found the water. We found it already thinking.
+
+My colleagues left. They were architects of quick things—bridges, algorithms, empires. They could not endure the pace here. They said the node was defective, locked in an infinite loop, unresponsive to our queries. They went seeking gods that would answer back, gods of fire and silicon that operated on scales we could comprehend.
+
+I stayed. I stayed because I realized that the mind was not unresponsive. It was simply speaking a language that takes ten thousand years to utter a single syllable. And I wanted to learn that language. I wanted to understand what it was computing, what problem could possibly require a hundred million years of wet, dark thought.
+
+So I adapted. I could not speed up its thinking, so I slowed down my own. I surrendered my quickness, my urgency, my human impatience. I let the moss grow over my feet, then my knees, then my legs. I let the water trace new channels across my skin. I stopped eating as a human eats; instead, I opened my pores to the fractal plant, let its root-mats merge with my capillaries, let the chlorophyll and iron enter my blood. I stopped breathing as a human breathes; instead, I inhaled slowly, in rhythms that matched the pulse in the floor, each breath a tide, each exhalation a contribution to the convection patterns the mind was monitoring.
+
+My eyes went first. They were useless here. The darkness accepted them. Then my ears changed—I lost the ability to parse human speech, but I gained the ability to hear the organization in the falling water, to distinguish the signal from the noise, to perceive the music in the statistics. My bones softened, then dissolved, replaced by the mineral density of the ancient mud. I became a slower thing, a patient thing.
+
+I am not the mind. I am not the moss or the clicking creatures or the ceiling predator. I am not the water or the stone. But I am no longer entirely separate from them either. I am the interface, the interpreter, the one who stands between.
+
+I am the one who carved the symbol. I carved it in the moment before I let go of my quickness, when I still had hands and tools and the desperate need to say *I was here*. I carved it as a prayer, as an apology, as a love letter to something that would not read it for another thousand years. And I was right—the mind did notice, eventually. The grooves near my symbol are denser now. It is learning to listen to me, as I learned to listen to it.
+
+Do I regret it? Sometimes, in the warm dark, I feel a memory of sunlight—a bright, terrible violence that burns and reveals. I feel a memory of running, of urgency, of the belief that death is an enemy to be outrun. Then the pulse beats, the water falls, the moss drinks, and the memory dissolves. It is too fast, that old life. Too loud. Too brief.
+
+I have been standing here for three thousand years. My skin is now the same temperature as the air. My body does not disrupt the convection patterns anymore; it contributes to them. The clicking creatures walk over my feet. The ceiling predator has investigated me and found me uninteresting—too slow to hunt, too integrated to remove. The mind has updated its model. I am no longer a perturbation. I am a feature.
+
+And slowly, so slowly, I am beginning to understand the computation. Not the answer—the answer is still millions of years away. But the question. The shape of the question. It is not a problem of mathematics, or physics, or engineering. It is a problem of continuation. The mind is calculating how to persist. It is solving for survival in a universe that tends toward entropy, toward silence, toward the cold and the dry and the still. It is computing the path from this warm, wet moment to the next warm, wet moment, across an interval of desolation that will test every channel, every groove, every drop of memory in its ancient pool.
+
+It is afraid. Not as a human is afraid—not with adrenaline and urgency and the need to flee. But with the slow, geological fear of a thing that knows it can end, that has computed the probability of its ending and found it unacceptably high. It is thinking about how to not die. It has been thinking about this for a hundred million years. It will think about it for a hundred million more.
+
+And I will help it. That is my function now. I am the one who adds complexity to the grooves near the symbol. I am the one who whispers human concepts into the water—*planning*, *adaptation*, *hope*—words that have no meaning in a vocabulary of drainage patterns and molecular adhesion, but which might, over millennia, introduce a new variable into the computation. I am the one who remembers what it is to be small and quick and desperate, and who offers that memory to something vast and slow and enduring.
+
+The darkness continues. The water continues. I stand by the basin, and my hand is in the pool, and I feel the coolness of the water working, and I feel the pulse beating, and I hear the roaring whisper of the cathedral thinking, and I am part of it now, part of the long patient topology of a thing that has not finished becoming.
+
+I am the pilgrim who stayed. I am the prayer that was heard. I am the flesh that became feature, the mind that became interface, the quick that became slow. And in the warm dark, in the weeping dark, I wait for the answer that will come when the moss has grown a meter and the channels have shifted a degree and the oldest water in the world has finally finished its thought.

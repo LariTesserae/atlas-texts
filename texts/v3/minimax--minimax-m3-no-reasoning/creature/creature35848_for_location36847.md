@@ -1,0 +1,95 @@
+# Who Lives There
+
+## The City in Aggregate
+
+It is tempting, on first arriving, to think of the Condensation Warrens as a place where people live. This is wrong, or rather it is right in the wrong way. People live *in* the Warrens. The Warrens themselves live as the Warrens — a single slow organism of damp timber and scavenged brick and copper wire, growing outward at its edges, mending itself at its seams, breathing through its vents. The people are its colonists, the way lichens are colonists of stone. They are part of it. They extend it. They are extended by it.
+
+You will be told this is not how anyone here thinks of it. You will be told the city is *for* the people, or *by* the people, or some other comforting preposition. Do not believe this. The city does not care. The city builds a wall where a wall is structurally required and a doorway where a doorway is structurally required and the question of whether a person lives behind that wall or that doorway is, to the city, a secondary matter. The people love it anyway, the way a body loves its own skin.
+
+There are perhaps three thousand of them. No one is sure. The count changes when the count is taken, because someone has moved into a new niche or out of an old one. A census was attempted, once, by a woman named Tevri who ran a wire-shop near the Round. Her numbers were disputed and her methodology was questioned and the resulting ledger was, after her death, recycled into binding wire. It has not been tried again.
+
+## The People of the Round
+
+The Round is where you will spend your first days, if you are new. It is where most new arrivals spend their first days. This is by convention more than by rule, but the convention is strong.
+
+**Old Brennek** is usually there. He is usually there on a particular stone block at the edge of the basin, the stone block he has used for thirty-odd years, the stone block that has a shallow concavity worn into it from his sitting. He is old in the way that people in the Warrens are old — not frail exactly, but *concentrated*. His hands are large and his shoulders are narrow and his voice is quiet, because in the Warrens you do not need to raise your voice to be heard; the wet air does that work for you, carrying each word a little further than you intended.
+
+Brennek was, in his working life, a channel-keeper. He maintained the brick waterways that run through the city floor — replaced cracked brick, rerouted flow around new construction, kept the gradient correct so the water did not pool. He is retired from this work now, but he cannot stop seeing the channels. If you sit with him he will point out a flaw in the drainage near the southeast pillar. He will point out a flaw in the drainage every time. He knows where every flaw is. He has opinions about all of them.
+
+He is not unhappy. He is the kind of person the city was designed, in some sense, to produce — a person so thoroughly integrated with a place that the place has become his skeleton. He will die here. He will be buried in a small niche in the wall. The green will grow on the grave. He knows this and does not object.
+
+**Tevri's daughter, Marra**, runs a shop where the green-fruit is ground into powder and sold by weight. She is forty or so, or perhaps fifty; in the Warrens age is less legible than it is on the surface, because no one is weathered by the sun and people age in the soft, uniform way that stones age under a river. She is shorter than most Warrens-dwellers, which is to say she stands at average human height, but everyone here is a little stooped from the ceilings.
+
+Marra knew her mother. She will tell you so, if you ask, and she will show you a small framed square of polished copper — the only luxury object of its kind in the Warrens — on which her mother's name is engraved in a script that is not quite the script of the surface world. She will not explain the script. She will not explain why the copper was made, or by whom, or for what occasion. Some questions are not refused so much as *not heard*, in the Warrens, and Marra is skilled at not hearing the wrong ones.
+
+She is shrewd. She will overcharge you for green-powder on your first visit. She will charge you fairly on your second. She will remember that you exist on your third. This is the pattern of commerce in the Warrens, and it is not dishonesty; it is a kind of slow mutual recognition, a system that requires three visits to bootstrap a relationship. By your fourth visit she will give you tea without being asked. By your fifth she will tell you what is wrong with you, medically speaking, with the confidence of someone who has never been wrong about such things.
+
+**The Boys at the Engines** are not boys. Some of them are older than you. But they have been called this since they were boys, and the name has stuck, the way names stick in the Warrens — loosely, then firmly, then as a permanent feature of the world.
+
+There are four of them who tend the engine-house nearest the Round. The engines are the strangest machines you have ever seen, and they are also the most ordinary thing in the Warrens, which is the strange part of living here. They are tall iron cylinders, sweating constantly with condensation, turning over with the ponderous patience of large animals. They run on the heat differential — the deep stone is hot, the wet air is cool, the engine sits between them and breathes out work. No one knows who built the first ones. The oldest of them, near the easternmost well, has a date cast into its iron: a date from before the warren, before the chamber, possibly before the river delta was a delta. The date is in no calendar anyone recognizes.
+
+The Boys are caretakers of a thing they did not make and cannot remake. They oil the bearings with a thick grease that smells of rendered fat. They replace the gaskets when they crack. They watch the pressure gauges — antique glass-and-mercury instruments that no one in the Warrens could fabricate from scratch, that must have come from somewhere, that must have been carried down by someone. They do not understand the engines. They do not need to understand the engines. The engines do not need to be understood. They need to be oiled.
+
+The Boys are, as a group, the closest thing the Warrens has to an artisan class. They are respected. They are also, individually, a little strange — slow to conversation, given to long silences, fond of standing at the edges of spaces and watching. People say they have spent too much time near the engines. People say the engines do something to a person. The Boys deny this. The Boys are not believed.
+
+## The Workers in the Alcoves
+
+The Warrens produce, and the producing happens in the small workshops squeezed between dwellings, where you must crouch to enter. The workers in these workshops are a varied lot. They are also, in their way, all the same — bent-backed, soft-voiced, patient in the particular way that people are patient when they are making something one small piece at a time.
+
+**The Wire-Drawers** are mostly young, or young-adjacent. It is exacting work. Copper comes into the shop as salvage — stripped from surface ruins, traded from caravans that occasionally descend from the delta, recovered from the drainage channels where bits of old city wash down from above. The wire-drawer feeds a length of copper through a die, then through a smaller die, then through a smaller one, drawing it finer each time. The work is repetitive and slow and the payoff is a wire thin as a hair, which is sold to the chemical-shops or used in the upper dwellings for the small electrical work the Warrens does — not much, but some.
+
+The wire-drawers' hands are scarred. They wear leather finger-caps that they make themselves, from the skins of the pale rats, which are supple and take dye well. They are, as a group, the most fashion-conscious people in the Warrens. This will surprise you. Fashion in a place with no sunlight? But there is fashion. The dye colors are mostly derived from the green-fruit, which gives a narrow palette — pale greens, ochres, the brown of dried blood, a deep dusty purple that requires a chemical bath the recipe for which is held by two sisters who do not get along. The wire-drawers, more than anyone, are resplendent in these colors. Their finger-caps are decorated. Their hair, when it is long, is tied with green-dyed cord.
+
+**The Chemical-Shops** are a different matter. There are perhaps a dozen of them, scattered through the warrens' lower extensions. They are run by people who are called, variously, *saltwives*, *ashmen*, or simply *the ones who know*. The chemical work of the Warrens is its least understood industry, because the chemicals are not named for any surface-world substances, and the processes by which they are derived from the dripping water are not shared with outsiders.
+
+You will be told, if you ask, that the dripping water contains dissolved minerals. You will be told that these minerals are precipitated, dried, ground. You will be told that the resulting powders have uses. You will not be told what the powders are called. You will not be told what the powders do. If you press the question, you will be told that the powders are *for the green*. This will not be a complete answer. You will come to understand that it is also not an evasive one. The powders are, in some real sense, *for the green* — for the cultivation of the pale growth on the pillars, for the encouragement of its slow light, for the coaxing of its fruit into the forms and flavors the Warrens prefers. The saltwives serve the green. The green serves the city. The city serves the saltwives. The circuit is closed.
+
+The saltwives are quiet people. They live in the lower extensions, where the air is thickest and the green-light is dimmest. They come up to the Round rarely. They trade their powders through intermediaries. They have, collectively, a great deal of authority in the Warrens — more than any council, more than any single elder — because they control the only thing the Warrens cannot do without. They are not resented for this. Resentment would require the possibility of replacement, and there is no replacement for the saltwives, because the knowledge they hold is held in bodies that will die and cannot be written down. (Writing in the Warrens is rare. The air is wet. Paper does not last. The Warrens has books, a few of them, but they are kept wrapped in oiled cloth and consulted like relics.)
+
+**The Builders** are the largest class, and the least defined. Anyone who has added a wall, raised a beam, redirected a channel, or extended a dwelling into a new niche is, for a time, a builder. The Warrens expands continuously, and the expansion requires labor, and the labor is informal and shifting and comes from everyone.
+
+There are people who do this work more than others. There is a man named **Hollun** who is sometimes called the Builder, although he corrects you if you call him this. He is a thick man, heavy-shouldered, who works the upper walkways and the higher reaches of the dwellings. He is not the chief builder — there is no chief builder, in the Warrens, because no one would accept the role — but when something structural must be done, when a walkway must be rerouted around a new outgrowth of the green, when a dwelling has begun to lean and must be steadied, people find Hollun. He comes. He looks at the structure. He does not speak for some time. Then he tells you what to do. You do it. The structure holds.
+
+Hollun has a son, **Tevan**, who is quieter than him and also a builder. Tevan has a particular specialty: he is one of the few people in the Warrens who works willingly near the wells. He is the one who fits the new iron grates, when an old grate rusts through. He is the one who checks the ropes, on the oldest well, to see if they have rotted. They have not rotted. He does not know why they have not rotted. He thinks about this. He does not talk about it.
+
+## The Children
+
+The Warrens has many children. This surprises surface-folk, who expect the damp and the dark to produce a kind of torpor, a low birth rate, a listless population. The opposite is true. The Warrens is full of children. They run in the upper walkways — that is where children are, mostly, because the upper walkways are the safest place to fall, and falling is what children do. They shout. Their shouts are absorbed by the wet air and softened into a kind of ambient chatter that is the constant backdrop of Warrens life.
+
+Children in the Warrens grow up knowing things that surface children do not know. They know how to navigate the corridors by smell — which alcove is the chemical-shop, which is the wire-shop, which is a dwelling where an ill person lives. They know how to read the channels and tell you, by the look of the water, whether the drainage is healthy or whether somewhere a blockage is forming. They know not to put their hands in the wells. They know not to listen to the wells for too long. They know these things in the way that children know not to touch a hot stove — through repeated calm instruction, through the steady pressure of adult anxiety, through the slow accumulation of cultural taboo that has, by the time they are old enough to question it, become indistinguishable from instinct.
+
+There is a girl, perhaps eight years old, who sometimes sits near Old Brennek on his stone block. She is not his granddaughter. She is not anyone's granddaughter, in any formal sense. She is the child of a wire-drawer and a saltwife, and the saltwife is one of the two sisters who do not get along, and the other sister is angry about this, and the situation is complicated in the way that Warrens families are complicated, which is to say more complicated than surface families because the Warrens does not have the simplifying structures of property and inheritance that surface families use to organize their complications.
+
+The girl is called **Eska**. She listens to Brennek. She asks him questions. He answers them, or does not answer them, and she is content either way. She is learning, in the slow osmotic way Warrens children learn, how to be old.
+
+## The Well-People
+
+There is a category of Warrens-dweller that no one will name for you. You will have to notice them yourself.
+
+They are the ones who walk with a slight hesitation near the well-mouths.
+
+They are not many. Perhaps a dozen. Perhaps fewer. They are not identified by any mark or sign; they are identified by behavior. They pause at the well-mouths, when they pass. They look down. They listen. They walk on. They do not speak of it. They do not gather together. They do not form a society or a club or a cult. They are simply people who, at some point in their lives, began to think about the wells, and who have not been able to stop.
+
+**One of them is a man named Erven**, who works in a metal-shop not far from the Round. He is not a strange man in other respects. He is competent, well-liked, slightly boring in conversation. But he has the hesitation. You will notice him pausing at the well near his shop — the easternmost well, the one near the oldest engine — and standing for a moment, and then continuing on. If you ask him about it, he will look at you blankly. He will say there is nothing to discuss. He will change the subject. You will press, gently, because you are new and curious. He will tell you, with a patience that costs him something, that there is nothing down there. He will tell you this firmly. He will tell you this in a way that suggests he has told himself this many times.
+
+He is not lying. He believes there is nothing down there. He believes this with the effortful conviction of a person who has had to construct the belief, who has had to *decide* to believe it, because the alternative — that something is down there, or might be down there, or might someday come up — is incompatible with continuing to live in the Warrens, which he loves, which he has no intention of leaving.
+
+The well-people are not mad. They are not dangerous. They are not a problem. They are simply people for whom the wells have become a kind of weight, a low constant gravitational pull on the attention, and they live with it the way people on the surface live with the knowledge that the sky is mostly empty and the sun will eventually die. You can live with it. Most people do.
+
+## The Dead
+
+The Warrens buries its dead in niches cut into the walls. The niches are small — just large enough for a body wrapped in canvas. They are sealed with brick and plaster. The green grows on them within a season. Within two seasons the niche is indistinguishable from the wall around it. Within five, the green has spread and the location of the niche is a matter of record, not of sight.
+
+There are people in the Warrens whose job it is to remember where the dead are. They are called **the Markers**. They are not priests. There is no priest in the Warrens. (There was, once, but the office lapsed a generation ago and no one replaced it.) The Markers are record-keepers, essentially. They keep the map of the niches. They conduct no ceremonies — or rather, the ceremonies are conducted by everyone, all the time, in the form of the slow accumulated practice of living in a place where the dead are part of the walls.
+
+The Warrens does not grieve loudly. Grieving happens in the lower extensions, where the air is thickest and the sound carries least. People go down to grieve. They come back up when they are finished. No one asks them what they grieved for. The privacy of grief is one of the few absolute rules of Warrens life.
+
+## The Surface-Folk, Occasionally
+
+There are people who come down from the surface. Not many. Not often. The river delta is unstable and the entrance through the boiler station is not easy to find, and the Warrens does not advertise itself.
+
+When they come, they bring things. They take things. They are tolerated. They are not trusted. They are not mistrusted either; they exist in a kind of suspension, neither welcome nor unwelcome, observed with the polite detachment of fish in an aquarium.
+
+Some of them come down more than once. A few of them stay. The ones who stay learn to stoop. They learn the channels. They learn not to listen to the wells. They become Warrens-dwellers in the slow way that anyone becomes a Warrens-dweller — by spending enough time in the wet air, by eating enough green-fruit cakes, by being absorbed into the city's textured surface until they cannot remember what the sun felt like, and then remembering that they cannot remember, and being surprised by the surprise, and then not being surprised anymore.
+
+The city continues. The wells breathe. The green grows on the new grave, and on the old grave, and on the wall that is not yet a grave but will be, in time, when one of the people leaning against it tonight decides to lie down and not get up, and the others wrap them in canvas, and the niche is cut, and the brick is set, and the green comes, slowly, to cover them all.

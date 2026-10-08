@@ -1,0 +1,43 @@
+The native inhabitant is not something you find by looking harder. It finds you—or rather, it becomes findable, which is not the same thing. You learn this on the third rest-cycle, when the dimming light has gone deep blue-black and the bioluminescent seam-lines are the only geography.
+
+It begins with the nodules. On the ridge, where you've made a kind of camp against the warm flank of the welt, you notice that the knuckle-sized protrusions you climbed over are not fixed. Over hours, they've migrated. A few centimeters, maybe—but they've moved, each one tracking independently, slow as a star across a fixed lens. You watch one for a full breathing-cycle and confirm it: the nodule is mobile. It pulses with the thrum, advances a millimeter during the in-breath, pauses on the out. By the time the light begins its slow brightening, the nodule has traveled the length of your hand and joined a cluster of others near a wider seam-vent.
+
+When full daylight returns—that shadowless white-gold wash—you see what the cluster was forming. The nodules have assembled into a shape. Not a tool, not a sculpture, not anything representational. A shape, functional and temporary, like a sandcastle built by an incoming tide. It resembles a low spiral trough, carefully ridged, designed to channel the seam's exhalation across its surface. Condensation collects in the trough's grooves, more efficiently than on the flat ground. The cluster of nodules—there are seven of them—has created a moisture trap.
+
+They're not nodules. You understand this slowly, because the understanding requires you to abandon every category you brought with you. They're not animals; they don't eat, don't excrete, don't reproduce in any cycle you observe. They're not organs, because the larger body—the plain—is not an organism, precisely. They're something between the two: motile concretion, mineral intelligence, living components of a system so widely distributed that the boundary between self and environment is meaningless.
+
+Later, you'll piece together what they are. But first, the encounter.
+
+You're sitting in one of the shallow basins, the one with the rosettes, when a nodule detaches from the ridge-crest and descends toward you. It moves the way a lichen grows—no visible mechanism, just a steady, directed progression, rolling on microscopic deformations of its base. It stops a meter from your boot. It's the size of a child's fist, warm, pulsing at a frequency slightly higher than the ground's thrum. Its surface is the same tarnished copper as the skin it travels on, but finer-grained, smoother, with a single dark aperture on its upper surface, a pore that opens and closes with a wet, slow blink.
+
+It waits. So do you.
+
+What happens next is not communication as you know it. It's not telepathy, not language, not gesture. The nodule does nothing overt. But a sensation begins to form in your mind—a thought that doesn't feel like yours, though it uses the furniture of your own cognition to express itself. It's as if someone has rearranged the chairs in a room you know well, and the new arrangement is the message.
+
+The thought is: *You are here now. This is noted.*
+
+That's all. But the quality of it is extraordinary. The thought carries with it a sense of immense, unhurried attention—not the attention of a mind, but the attention of a system registering a perturbation. A thermostat noticing the door has been opened. A forest registering the first drop of rain after a drought. The nodule is not thinking about you; you are a variable being incorporated into a homeostatic calculation that spans the entire copper skin, possibly the entire planet.
+
+Before you can decide how to respond—what would responding even mean?—the nodule begins to change. Its surface flows, not melting but reorganizing, the copper particles migrating into a new conformation. It flattens, broadens, becomes a shallow dish no larger than your palm. In the dish, moisture gathers—condensing directly from the air, drawn by some thermal gradient the nodule generates internally. For the first time since you arrived, you are looking at free-standing water. Enough to drink.
+
+The gesture floors you. It's not kindness; it's something more disorienting. System maintenance. You are a process that has entered the plain. You are leaking heat, exhaling moisture, disturbing the seam-lines with your footfalls. The system is adjusting to you. Providing water is not hospitality; it's the plain's way of compensating for the disruption you represent. Like a body forming a callus where friction occurs.
+
+You drink. The water is warm and tastes faintly of ions, like blood serum.
+
+Over the cycles that follow, you learn more—not through inquiry, which the nodules don't acknowledge, but through observation and those silent, chair-rearranging thoughts that arrive unbidden when a cluster of them draws near.
+
+They are everywhere, you realize. What you took for knuckle-sized texture on the ridge is only the visible fraction. The plains' upper skin is riddled with them, embedded just beneath the surface, moving in slow convection currents through the membrane's deeper layers. On the breathing-cycle: they surface during the out-breath to vent heat, to form moisture traps, to adjust seam-widths, to gently guide the fibrous rosettes' root-connections if a link has broken. During the in-breath, they submerge again, disappearing into the subcutaneous warmth, carrying with them—you suspect—data. Chemical gradients, thermal profiles, stress measurements along the membrane's tension lines.
+
+They are the plain's mobile tissue. Its roving regulatory nodes. In a body, you'd call them cells; in a machine, actuators with onboard sensing; in an ecology, keystone organisms that modify their environment to sustain the whole. They are all of these, none of these entirely, because the plain is not an organism, not a machine, not an ecology of discrete individuals. It is a fourth thing: a unitary, distributed physical intelligence, slow as geology but responsive as skin, and the nodules are the hands of its thought.
+
+The thought itself—the mind of the plain—is not something you can locate. If the nodules are its cells, where is its brain? There isn't one. Or rather, the entire plain is the brain. The vibrations, the thrumming, the slow breathing-cycle: these are its neural oscillations, signals propagating not through axons but through tension-waves in the stretched copper membrane. The seam-lines are its connectome. The hissing is carrier noise. The bioluminescent glow at night is a side-effect of the signal traffic, a visual spillover of the plain's constant, low-grade calculation.
+
+And what does it think about? What occupies a mind the size of a world, with a metabolic cycle measured in heartbeats, with nothing but itself as environment?
+
+It thinks about itself. Not in vanity, but in engineering. The plain is not finished. It is being built, maintained, expanded. The moisture cycle you observed—condensation, reabsorption, exhalation at the ridge-vents—is not a closed loop. There is loss. The steam that rises from the seam-vents does not return; it drifts high enough eventually to escape into the white-gold sky, and something up there, some process you cannot see, strips the water into its components and returns only the oxygen. The hydrogen is lost. This is a planet desiccating slowly, and the plain is a compensatory mechanism—a planetary prosthesis designed to trap and cycle every available molecule of water before it's gone forever.
+
+The nodules are its caretakers. They patch, adjust, refine. The rosettes are its water-traps, the black moss its signal cabling. The ridges are its heat exchangers, its lungs. The plain is a life-support system, but the life it supports is not the rosettes, not the moss, not the nodules themselves. The life it supports is the process. The maintenance of maintenance. A world healing a wound you can't see, fighting an entropy you can barely measure, for a purpose you may never understand.
+
+One rest-cycle, as you lie against the warm ridge with the blue-green seam-map pulsing beneath you, the chair-rearranging thought comes again, more complex this time. It brings with it a question—not in words, but in a sudden, vertiginous rearrangement of your own memories. The plain has accessed something in you, some trace of your presence, and is asking, in its way: *Are you part of the calculation?*
+
+You don't know how to answer. But you feel the ground's thrum change slightly, a shift in frequency that persists for the remainder of the night, as if the plain is allotting a small fraction of its infinite attention to the variable that is you.

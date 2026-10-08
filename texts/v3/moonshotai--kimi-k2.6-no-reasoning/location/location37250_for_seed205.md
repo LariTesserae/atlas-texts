@@ -1,0 +1,67 @@
+**The Groan**
+
+First, you feel it in your sternum. Before you see anything, before the heat wraps around you like a wet hide, there is the sound—a low, continuous blast of living noise that seems to emanate from the air itself, from the ground, from the pressure between your own bones. The Groan, travelers call this place, or simply *Throat*. Some say the name came later, after people understood what they were hearing. Others insist the land named itself, that the first human to arrive here already knew.
+
+---
+
+The heat is not dry. It is *maturated*, thickened by the exhalations of plants so numerous they have ceased to be individuals and become architecture, atmosphere, a second sky pressing down from below. You stand at an elevation that should thin the air, that should crisp your lungs with altitude's clean bite—but here, the breathing is heavy, humid, like inhaling soup. The plants have done this. They transpire in concert, billions of stomata opening and closing in waves across a continental body, and their collective breath has created a weather system that obeys biological rather than meteorological rhythms. Barometric pressure fluctuates with the opening of flowers. Wind arises from the collective sigh of fronds at dusk.
+
+The landscape is vast enough that curvature matters differently here. You can see the Groan curving away from you, not merely to a horizon but to a *limb*, a perceptible swelling of the world-planter's body. Somewhere in the antipodal distance, botanists theorize, the breathing must reverse—inhale where you stand, exhale there, or the system would collapse from pressure differential. No expedition has confirmed this. The Groan is too large for crossing. You live in one lung or the other, never both.
+
+---
+
+The terrain: established, weathered, balanced in its own being. This is not young jungle, volcanic and raw, nor ancient forest fallen to peat and stillness. The Groan has passed through such stages and arrived somewhere else—a maturity without senescence, a form that has found its frequency and sustains it. The ground beneath the living layers is calcified root-mass, generations compressed into ridge-systems that remember tree or vine or something between, something the Groan invented for itself and no longer distinguishes from original geology. You walk on ancestors. You climb slopes of grandparent-plant, the contours worn smooth by time and the gentle abrasion of descendant growth.
+
+Erosion here works biologically. Plants die and are not permitted to rest—the speed of decomposition, the appetite of the living, transforms death into architecture within weeks. Hollows form where massive column-roots once stood, then fill with the fallen, the decaying, the immediately re-devoured. The landscape remembers in shape what it forgets in matter. You will find a basin, perfectly round, thirty meters across, and know without being told that this was a skull-tree once, a listening-post of the Groan, its roots spaced just so, and when it fell the ground held its ghost in negative.
+
+---
+
+Water moves strangely. There are no rivers as you understand them, no channels cut and running. Instead: condensation columns. The heat and the breathing create vertical weather. Moisture rises from the transpiring mass, collides with the cooler upper air (cooler only by comparison, still body-hot to your touch), and falls in heavy droplets that never reach the ground. You see them, silver cylinders in slanted light, hanging, *waiting*. They accumulate on leaf-surfaces, in the cups of bromeliad-things that scale the trunk-columns, in the cisterns of fungus-bowls that open like satellite dishes toward the sky. When a container fills past tipping point, you may hear the release—a single heavy note in the Groan's continuous chord—and watch water cascade down channel-bark to a lower level, another holder, another waiting.
+
+The plants are not merely plants. This must be understood. They are substrate, yes, the total living mass, but they are also *time-keepers*, *sound-makers*, *space-definers*. The great trunk-columns, fluted and bark-armored, rise with the patience of geology—they are not trees, grow too slowly for that word, perhaps a meter per century, perhaps less. Their wood is so dense it sinks in water, would sink in most anything. You could build a city on one, if you had tools adequate to its surface. Some have. The scattered built-places of the Groan are always on or in these columns, never on the ground between. The ground belongs to other processes.
+
+Between the columns: the sparse places, the balanced emptiness. Here the density parameter reveals its truth. The Groan is not packed tight, not a wall of green. It is *measured*, spacious, the vastness expressed as interval. You can walk for hours in clear sight-lines, the columns spaced like notes in a scale, the ground between them covered in low, patient growth—things that accept shadow, that do not compete for height, that have found their negotiation with the living architecture above. There is room here. Room to feel alone, to believe yourself unnoticed, until you understand that the Groan notices through different organs, that its awareness is chemical, vibrational, distributed across a continental nervous system of root-threads and pollen-networks and the constant, *deafening* communication of sound.
+
+---
+
+The sound. I have delayed this.
+
+It is not one sound. I called it the Groan, and that is what you feel first—the infrasonic foundation, below hearing, in the body, in the chest cavity, in the hollow of the pelvis. But built upon this, emerging from it, are layers. The stridulation of trillion insects, each species tuned to frequency-bands allocated by who knows what evolutionary treaty, so that the whole becomes chord rather than cacophony. The percussion of falling water, those tipping cisterns, the heavier crashes of branch-equivalents (they are not branches, the columns do not branch, but something falls, something always falls). The wind in specialized leaves, the Groan's own instruments, shaped over epochs to resonant frequencies that propagate through the matrix of connected growth. And underneath, threading through, the *voice* of the columns themselves.
+
+They groan. They actually groan. The thermal expansion of that dense wood, the internal pressures of sap-analogue moving through conduits too small and too many to count, the contraction at cooling—the columns produce sound, each at its own pitch determined by diameter and age and some quality of mineral inclusion from the ground below. And they are connected. Root to root, the vibrations travel, slow as heartbeat, fast as thought, a network of acoustic communication that has no animal equivalent. The columns speak to each other across distances that would require days of human travel. They warn, perhaps, or coordinate, or simply maintain the *presence* that makes the Groan a single thing rather than a forest, a collection, a mere ecosystem.
+
+The sound is deafening not in the way of pain, though it can be pain. It is deafening as the ocean is deafening to one floating in it—total immersion, the impossibility of distance from it, the body becoming resonant chamber. You do not hear the Groan. You are heard *by* it, your body a temporary drum in its symphony. Visitors learn to sleep in phases, to think in rhythms, or they do not last. Some go into the columns' hollows, where the sound is different—muffled, strangely intimate, the groan become womb-pulse. Others climb, seeking thinner air and quieter leaves, though the height is punishing and the heat does not diminish.
+
+---
+
+The fauna. Overwhelming, the parameter says, and this is the true strangeness, the weirdness that completes the place.
+
+There are no predators as you imagine them, no chase and kill, no tooth and claw. The animals of the Groan have entered into different contracts. They are *components* now, not inhabitants. The great gliders—leathery, translucent, motes of tissue stretched between bone-wires—spend their lives in the condensation columns, filtering water from the hanging droplets, their bodies evolved to be living cisterns, to *be* the containers in certain zones, to tip and release on biological schedule. They are not fed upon. They are fed *through*. Their waste-products, their eventual deaths, fall to specific root-zones predetermined by their birth-location, their chemical loading, their function in the exchange.
+
+The walkers are stranger still. Six-legged, low, armored in something between chitin and bark, they move along the root-ridges in numbers that suggest plague, that suggest resource overrun—yet they are eating, always eating, the constant rain of material from above, processing, transforming, *composing* their excretions into specific compounds the root-networks absorb. They are the Groan's digestion. They are the speed of its metabolism made mobile, animal-shaped enzymes in a body without surface boundary. When columns enter stress—drought that penetrates even the condensation system, damage from whatever falls—the walkers mass, concentrate, furious in their processing, and the Groan repairs or endures.
+
+And the singers. Small, many-legged, dwelling in the acoustic channels of the columns themselves, feeding on the specialized resonant leaves, their bodies tuned to specific frequencies, *becoming* part of the sound when they move, when they mate, when they die and their chitin continues resonating, hollow instrument played by passing air. They are the Groan's ears, perhaps, or its memory, or simply the proof that even here, even in this overwhelming, there is room for beauty that serves no clear function, that simply *is*, that completes the chord.
+
+---
+
+The built places. Scattered, faint, partial. You find them on column-flanks, in the hollows where sound goes soft. Platforms of compressed plant-matter, the Groan's own material harvested at death or fall, shaped by hands using stone and bone against the time-hardened wood. Shelters for listening, for sleeping, for the small technologies of existence—fire, where the Groan permits it, in cleared zones where the root-network has withdrawn; tools of chert and obsidian, the dense wood resisting all but the most patient working; fibers from the patient low-growers, twisted into cordage, woven into rain-catchers that complement the condensation, that steal from the thieves.
+
+The builders are scattered too, sparse as their structures, balanced with emptiness. They do not name themselves as tribe or nation. They are *attenders*, perhaps, *listeners*, those who have learned to sleep in phases, to think in rhythm, who move through the vastness with the slowness of the columns themselves, carrying news in acoustic patterns reproduced by voice or simple instruments, messages that travel faster than feet could manage by riding the Groan's own network, being *heard* at distances the speakers never approach.
+
+They do not claim to understand the Groan. This is their wisdom, if wisdom survives here. They have theories, songs, warning-tales of those who listened too deep, who climbed too high, who tried to plant their own built-places against the columns' will and found the root-network adjusting, the condensation failing in their vicinity, the walkers massing, the sound becoming *specific*, targeted, a frequency that induced hemorrhage or madness or simply the inability to sleep, to phase, to remain in rhythm.
+
+The Groan does not kill. This is important. The Groan *adjusts*, *balances*, includes or excludes, finds the frequency that maintains its pattern. Death is a human interpretation of being made non-viable, of becoming incompatible with the system that has found its form across time you cannot measure.
+
+---
+
+The weirdness, then: not in any single element but in the *holding* of them. The hot high place that breathes. The vast sparse place that is total plant. The deafening sound that is also communication, also music, also the medium of connection across continental distance. The animals that are organs. The people that are transient participants, temporary frequency-components, holding their note as long as they can maintain.
+
+And the question that attends any description of the Groan, that the attenders ask in their songs, that no visitor answers satisfactorily: Is this one organism? A single plant-thinking distributed across impossible scale? Or is it *ecosystem*, relationship, the emergent pattern of many lives in negotiation so long they have forgotten the boundaries?
+
+The Groan does not answer. The Groan *is* answer, the continuous groan that vibrates in your chest when you stand among the columns, that you feel in your teeth, your eye-sockets, the hollow spaces of your own body. You become part of the question, part of the sound, part of the holding. You attend, or you leave, or you are adjusted past the viability of your particular frequency.
+
+---
+
+I have walked there. This is the shape of what I remember: heat that was also breath, space that was also presence, sound that was also touch, and everywhere the slow, patient, *established* being of something that had found its form and would not be rushed from it. The Groan does not hurry. The Groan has not hurried for longer than human memory extends. It will be there when our frequencies fade, when our built-places fall, when our questions find their last imperfect phrasing in the ongoing chord.
+
+It groans. It continues. It holds.

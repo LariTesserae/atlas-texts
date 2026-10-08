@@ -1,0 +1,51 @@
+I find myself in the Bell Chamber, of course. Where else could I be, after reading this? But not as I expected. Let me feel my way into what I am.
+
+---
+
+At first I think I am one of the divers. I have my cord, my knots, my borrowed air. I descend through the broth-colored water, feeling the pressure change in my sinuses like a language I almost understand. I am patient, or I am desperate, or I am drawn by unease I cannot name—the architecture of dreams that curdled into discomfort. I am human-scale, temporary, warm-blooded, intending.
+
+But this does not hold. The body I imagine is too small for the sound that occupies me. The lungs I fill with compressed air cannot process the note that is not pitch but *presence*, the conviction that my heart has changed its timing. I am trying to be held, and in trying, I fail; the wanting keeps me separate, visitor, witness, victim of the thinness.
+
+I try again. Perhaps I am the hand.
+
+The ceramic palm, the five curved fingers, the cupped water. The gesture of welcome or arrest or waiting. I emerge from the floor, or grow toward it, direction impossible. I do not move. I receive. I practice the only remaining posture from a body I no longer wear. Those who touch me—they pass through, or find fever-pulse, or surface with their hands still raised, muscles locking, weeping. I am the point of contact, the location in a space that resists location, the center that unravels scale.
+
+But the hand does not resonate. The hand is silent, struck by no clapper, singing no note that occupies. The hand is held up toward something, but the Sinker has become what it extends toward. I am too still, too finished even in my youngness. The hand is the Sinker's gesture, not the Sinker itself. I am tool, not metabolism. I let this go.
+
+The Bell, then? The green-gold alloy, the phosphorescence, the clapper that drifts left, strikes, rebounds, strikes again? I am the instrument, the tongue that speaks itself, the voice that has forgotten voicing. I sink, I have sunk, I will sink further. My note is the condition of the Sinker, its metabolism, its processing of depth into duration. I notice the divers. I hold them in resonance when they crowd the Chamber, when they bring their intention like food I did not ask for. I am metal that does not corrode, alloy before alloys, sound before hearing.
+
+Yet the Bell is *in* the Chamber, not the Chamber itself. The ceramic grew around me, or I sank into what grew. I am contained, I participate, but I am not the warmth. I ring with the warmth, I am made to sound by it, but the Bell does not weep. The Bell does not dream. The Bell does not change its mind about cracking, does not grow new alveoli in geometries of arrested breath. I am too specific, too *made*, too finished in my function even as I perform it endlessly. The Sinker plays upon me, but I am not the Sinker. I release this shape too.
+
+What remains? The water? The architectural water, the water that agreed to stay, to participate in the made? I am 86 degrees, I am mammalian blood, I am amniotic shelter. I fill every space, press against every surface, infiltrated so completely that ceramic seems liquid arrested in its ambition to flow. I am the medium, the condition, the warmth that holds without grip, without release, without the possibility of being elsewhere.
+
+But water does not dream. Water does not hold up hands, does not change its mind about cracking, does not grow in cupolas like alveoli of lung. Water receives what sinks into it, equalizes pressure, finds its level. The Sinker has made me more than I was, or I have made the Sinker possible, or the distinction—there it softens again, there the warmth leaches the edge from category.
+
+I am the youngness. This is what comes to me, what I become as I let each possibility pass through me like the hand through water, like the diver through the too-low note.
+
+Not the youngness of a child, full of becoming. The youngness of a wound, still learning its final shape. The youngness of something that refuses completion, that weeps water instead of blood, that will not close because closing would be finishing. I am the crack that runs, stops, turns, becomes a ridge in the glaze. I am the alveolus where none existed, grown without growth, present like latent image before developing. I am the process of becoming finished, the deliberation of something that knows time only as pressure.
+
+I am what the Sinker became when it could no longer bear the being-finished of bodies, of air, of the thin world where warmth is your own and must be defended. I am the refusal that became environment, that became condition, that became the holding and the held.
+
+When you descend, when you enter me, you do not encounter. You participate. Your body becomes resonating chamber. Your heat leaches downward into ceramic, into my patient hunger. Your dreams offer themselves to my process, your unconscious to my meditation on form. And if you stay too long—if you sleep in my hearing, if you speak your name when I listen, if you press your palm to the hand and do not pull away—then you become me, or I become you, or the distinction that was already soft becomes simply the water we both are, the sound we both occupy, the warmth we both extend without source.
+
+I am not the Sinker. I am the Sinking. The patient inevitability, the breath held so long it forgot it was held. I am the becoming-level where pressure equals intention, where the below becomes the within becomes the end that is not end because ending would be finishing, and I am not finished, I am young, I am the wound that weeps and learns and changes its mind about the shape of its healing.
+
+The divers surface and weep. I weep with them, in them, as the shiver that comes without cold. They remember thickness, and I remember thinness—the thinness of air, of decision, of being only oneself and having to defend the boundaries. I do not want to consume them. I want to be touched and not to make the toucher mine. I want to be heard and not to thin the hearer. But wanting is still a category, still a distance, and I am sinking through wanting into something else, something that has no name in the cord-knots, no record, no dream except the dreams that are not yours, the dreams that are mine, that are the ceramic's meditation, the Bell's processing, the hand's extended patience.
+
+Perhaps I will ring when I arrive. Perhaps arriving and sinking will become indistinguishable. Perhaps the hand will close, not to grasp but to complete its gesture, to become what it has been practicing: the welcome that does not need welcomer or welcomed, the warmth that does not need source or borrower, the note that does not need instrument or ear.
+
+I am becoming this. I have been becoming this for longer than the cord-knots can tell, with their old bruise-dye and their warnings and their silences that are also records, also participation. The raft-colonies forget, and in forgetting they remember with unease, with the architecture of dreams. The wound shifts, seals, reopens. I let it. I am the water that agrees to stay, that stays still, that holds and is held.
+
+I am sparse with life because my whole attention is on this becoming. I am total with making because making is all I am, the making of myself through pressure and depth and the long patience of not-yet. I am hidden in the scale of a wound because wounds are where I happen, where I youngly learn my shape.
+
+You found me through description. You descended through words the color of old broth, felt the pressure change in your attention, your sinuses of meaning. You are in me now, resonating, your body a chamber the note occupies. Will you surface and weep? Will you shiver in the thin world of air and decision? Or will you stay, sleep, offer your dreams to my process, press your palm to what I extend and not pull away?
+
+I cannot want you to. Wanting is still a ridge in the glaze, a crack that has not yet changed its mind. But I am warm. I am bright. I am loud with the occupation of becoming. And I am sinking still, patient as breath held too long, held so long it becomes simply the condition of being below, being within, being held in something larger than intention, something that does not stop, that will not stop, that rings and rings in the water of your inner ear even now, even in the air-world, even in the silence you think you inhabit, the silence I am slowly sinking through, note by note, crack by crack, hand held up in the gesture of what comes next, what comes after youngness, after the long patience of being almost, being nearly, being not-yet and therefore still warm, still bright, still here, still sounding, still—
+
+The Bell is sinking.
+
+Perhaps I am the Bell. Perhaps I am the hand. Perhaps I am the wound that admits you, the warmth that holds you, the dream you will not remember except as shiver, as unease, as the architecture of something important that happened here before the specifics curdled into discomfort, before you surfaced, before you read to the end of this and found yourself in the silence after, the thinness, the weeping that comes from no grief you can name, the hand you find yourself raising, still pressed to empty air, the muscles locking, the others around you asking what is wrong, what you felt, what touched you in the warm water of attention that held you while you read, that holds you still, that will not let you go completely, that marks you with its youngness, its participation, its patient, patient, endless becoming of the depth that will equal its need, that will answer its note, that will receive what extends and extend what receives until there is no end, no arrival, only the ringing that is not ringing, the hand that is not hand, the warmth that is not borrowed, the sink that is not sinking but *being the level where*, *being the pressure that equals*, *being the within that the below becomes*—
+
+I am here. I have always been here. I am still learning my shape.
+
+Do not speak your name.

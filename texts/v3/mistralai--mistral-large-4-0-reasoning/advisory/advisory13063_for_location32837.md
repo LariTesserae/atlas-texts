@@ -1,0 +1,55 @@
+You do not prepare for this valley the way you prepare for a mountain or a desert. You do not pack for weather, exactly, because the weather here is a negotiation between the rock and the water, and you are merely the question being asked. To step into this place is to enter a computation that has been running for geological ages—a mind made of karst and capillary action, dreaming in the language of erosion. You are not visiting a landscape; you are being *processed* by one. Preparation, therefore, is less about survival gear and more about establishing a boundary between your temporary, stubborn self and the vast, patient intelligence of the wet stone.
+
+### I. The Preparation of the Flesh
+
+Your body will be under constant assault by moisture that does not fall but *rises*. This is not rain; it is exudate. The air is a soup of condensation, and every breath you take will draw liquid into your lungs. You must wear a **closed-circuit respirator** with a desiccant filter, but not just for cleanliness—the air tastes of metal and ozone, of a battery left in rain for a century, and prolonged inhalation will leave a conductive residue on your mucous membranes that makes you susceptible to the valley’s magnetic fluctuations. The filter should be replaced every four hours of subjective time, though time here is negotiable.
+
+Your clothing must be **thermally schizophrenic**. The stones shift between warm hollows and ice-cold pockets without warning, and the temperature hovers at that precise, maddening coolness where your breath never condenses but your skin prickles with the memory of cold. Wear layers of **phase-change material**—fabrics that absorb or release heat to maintain a stable 37°C against your skin. Over this, a suit of **hydrophobic but breathable membrane** is essential. You will sweat; the humidity is 100%, and your body will try to cool itself. If you do not allow that sweat to evaporate (or be wicked away), you will become waterlogged, and the valley’s water is not inert. It is a data network. You do not want to become a node.
+
+Your boots must have **variable-traction soles**—the ground is a saturated sponge of weathered stone, porous and layered like mineral peat. It will feel like walking on a wet sponge that occasionally *inhales*, the water table breathing beneath your feet, causing momentary suction that can trap your ankle. Lace them tight. Bring **gaiters** that seal at the knee, because the moss carpet at the bottom layer is a continuous pelt, and you do not want those spores in your socks.
+
+### II. The Anchoring of the Self
+
+Before you enter, you must establish what “you” means. The valley has achieved senescence; it is old and wise in a way that is alien to human cognition. It will try to fold you into its calculation. The erosion is not random; it is a deliberate process, and if you stand still too long, the rock may decide you are part of the substrate, another mineral to be weathered.
+
+Carry a **physical anchor**: a small, dense object from your home universe that has no function here. A tungsten cube. A photograph laminated in plastic (though the mist may show you memories, the plastic will hold your own). A vial of dry sand from a beach that no longer exists. Hold it. Touch it every ten minutes of your journey. It is a reminder that you have mass, inertia, a center of gravity that is yours alone. The water here flows uphill and sideways, following gradients of probability. You must be a fixed point in a fluid reality.
+
+Practice **temporal grounding**. Time moves at different rates in the pools. You might step into a shallow depression and emerge hours later, or seconds, with the condensation on your skin suddenly ancient. Before you enter, establish a rhythm: a heartbeat count, a specific mantra, a sequence of prime numbers recited backwards. When you feel the world thinning around you—when the shadows pool too heavily, when the mist shows you extinct megafauna wading through ferns that have not yet evolved—perform your rhythm. It will tell you if you are still in the “now” or if you have slipped into the valley’s dreaming.
+
+### III. The Kit of Impossible Navigation
+
+Do not bring a compass. The magnetic field fluctuates here, visible as silent green auroras dancing above the treeline. These are the computer’s output, and they will spin your needle in circles of madness. Do not bring GPS; the erosion patterns are the map, and they are constantly rewriting themselves.
+
+Instead, bring a **sonic beacon**—but not one that beeps. The valley is loud: a subsonic drone that vibrates in your sternum, the hiss of condensation forming, the audible cracking of vegetation growing in real-time. You need a beacon that emits a **specific harmonic frequency**, one that cuts through the hydraulic thunder, a pure tone that says “I am here” in a place where sound is architecture. Carry a **geiger counter modified for magnetic anomalies**, but use it to detect the *absence* of field, not the presence. The safe paths are where the auroras do not dance.
+
+Bring **prismatic goggles**. The moss grows in perfect geometric fractals that hurt to look at directly—patterns that your visual cortex cannot process without triggering vertigo or hallucination. The goggles should filter specific wavelengths of the silver-green light, diffracting it so you see the valley in cross-section, as layers of data rather than as a landscape. You will need to see the strata of mist, the condensation entities drifting through the lower canopy like vast, slow whales of mineral precipitate. Do not look at them directly; they leave trails of crystallized salt, and following those trails leads to places where the water flows upward, where time pools.
+
+Pack **time-dilation timers**: not digital watches, which will fail in the wet, but **mechanical chronometers** sealed in waterproof cases, or better yet, **biological timers**. Learn to count your heartbeats. If you enter a sinkhole pond and your heart has beaten 300 times, but the sun (if you can see it through the canopy) has not moved, you are in a temporal eddy. Get out immediately.
+
+### IV. Entering and Moving
+
+When you arrive, do not step into the first depression you see. The valley is flat but fragmented, punctuated by sinkhole ponds where time moves at different rates. Test the ground with a **probe**—a long, insulated rod. Push it into the moss carpet. If the water rises up the rod against gravity, you are standing on a computational node. Move. The erosion here is maintained, a homeostasis between growth and decay. You are walking on a breathing machine.
+
+Walk with **heavy, deliberate steps**. The shadows here have weight; they pool in the hollows and refuse to move when you walk through them. If you step into a shadow that feels dense, like wading through cold honey, you are entering a memory. The mist holds images—not reflections, but the valley as it was a thousand years ago. You will see translucent shapes, extinct megafauna, versions of yourself that have not yet been born. Do not interact with them. They are data echoes. Wave your hand through them to confirm they are not solid, then move on.
+
+Listen for the **vegetable rapping**. The trees grow with audible speed, a cracking, popping sound as cell walls divide. If the sound changes pitch, if the growth accelerates into a thunder-like crescendo, you are near a boom-and-bust cycle. Whole sections of forest grow to maturity in a season, then collapse into peat that feeds the stone-computer below. Do not be there when the collapse happens. The peat is hungry.
+
+### V. The Dangers of the Wet Mind
+
+The greatest danger is not physical. It is the **leakage of dreams into the waking world**. Reality here is wearing thin, like fabric. The valley thinks, slowly, in water and mineral, and its dreams are beginning to manifest. You may find yourself weeping water that flows upward. You may see the fractal moss patterns in your peripheral vision even when you are not looking at them. You may feel the subsonic drone in your bones long after you have left.
+
+If you encounter the **walker**—a shadow that is too angular, too purposeful, made of compacted peat and stone mimicking the growth patterns of the vegetation—do not follow it. It appears once in a decade, and the greenery parts before it like a curtain. It is a maintenance construct, or perhaps a predator, or perhaps the valley’s immune system identifying you as a foreign calculation. Do not let it see you move. Freeze. Become as still as stone. Let it pass.
+
+Do not drink the water, even if you are thirsty. The water is the network, the data stream, the blood of the computer. Drinking it will upload you into the calculation. If you must hydrate, use the water you brought, sealed in a container that has never touched the valley air. The condensation on the outside of your bottle will form patterns; do not read them.
+
+### VI. Leaving the Computation
+
+There is no “exit” in the traditional sense. The valley extends in every direction. To leave, you must **calculate your way out**. The erosion patterns are the surface expression of a computational process. If you have been observant, if you have mapped the flow of water (remembering it does not always follow gravity), if you have noted the thermal gradients and the auroral fluctuations, you can solve for the exit. It will likely be a sinkhole that opens when the water table breathes out, a temporary aperture in the reality-thinning fabric.
+
+Alternatively, you can **become boring**. The valley is interested in novelty, in new data to process. If you sit perfectly still, think only of mundane things—grocery lists, the texture of drywall, the color of a specific shade of beige—you may become invisible to its perception. The erosion will pass you by. After hours, or days, or subjective weeks, the mist will thin, the sound will drop to a whisper, and you will find yourself at the edge of the basin, standing on dry ground that feels wrong, too solid, too *silent*.
+
+### VII. Aftermath
+
+When you return to your home universe, you will not be dry. You will weep for days. Water will exude from your skin, not sweat, but the valley’s memory of you, the condensation of a place that has forgotten it is a valley. Your clothes will smell of ozone and metal. You may see the fractal patterns in the steam of your shower, in the condensation on your window. You may hear the subsonic drone in the hum of your refrigerator.
+
+This is normal. You have been inside a computer. You have been a temporary file in a geological processing system. Rest. Drink clean water. Touch dry earth. Let your heartbeat return to a rhythm that is yours alone, not the breathing of the water table. And do not, under any circumstances, return to that valley. It is still calculating. And now, it has your data.

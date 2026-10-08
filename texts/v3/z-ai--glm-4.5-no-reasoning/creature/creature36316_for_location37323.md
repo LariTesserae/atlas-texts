@@ -1,0 +1,127 @@
+The people who live in the Substrate are not its inhabitants. They are its gut flora.
+
+They have lived here long enough to forget that there was ever an alternative. They are pale—the kind of paleness that is not merely an absence of melanin but an adaptation to light that has never been sunlight. Their skin has a faint amber undertone, the color of the nodules they live beneath, as if the light itself has seeped into their blood over generations. Their eyes are large. Not recessed or weak—large the way a cave fish's eyes are large, collecting every available photon in a place where photons are rationed. They do not blink often. They move slowly, not out of lethargy but out of an unconscious accommodation: the Substrate does not rush, and after enough years inside it, neither do you.
+
+There are not many of them. The Substrate is vast, and its human population occupies only the thinnest fraction of its volume, clustered in the older quarters where the geometry is complete and the doors still close, scattered in smaller numbers through the raw districts where the walls are still deciding their shape. They do not gather in crowds. You might walk for an hour through a corridor of matured wood and see no one, hear nothing but the ambient breath of the place, the distant thrum of a pump station, the sibilance of air moving through vent channels. Then you will pass a doorway that has narrowed almost closed and through the gap you will see a room where someone has lived for decades, and you will know they are there by the smell of their cooking—fungal, rich, faintly sweet—or by the sound of their pruning shears, clicking slowly as they shape the growing wall into something that will be a shelf by next month.
+
+They are gardeners. All of them, eventually, become gardeners.
+
+---
+
+## The Work of Pruning
+
+There is a woman—I will call her Senn, because that is what the others call her—who has lived in the same chamber for forty years. The chamber was a standard apartment once: four walls, a ceiling, a floor, a doorway that opened onto a corridor. The doorway is a slit now. She turns sideways to enter. The chamber itself has shrunk by perhaps a third, the walls swelling inward with the slow persistence of growing things, and Senn has spent those forty years fighting a retreat that she knows she will lose.
+
+She does not mind. Or she minds, but she has made her peace with minding, which is a different thing and the only kind of peace available here.
+
+Every morning she wakes—there are mornings here, marked by a slight brightening of the amber nodes, a circadian pulse the Substrate maintains whether or not anyone is watching—and she takes her shears and she goes to work. She prunes the walls. She clips the pale rootlets that descend from the ceiling seeking nutrients. She cuts back the fungal shelves that would otherwise grow across her walking space. She scrapes the floor mat where it has thickened too much, peeling up layers of the living carpet and feeding the trimmings to the disposal node in the corner, a small puckered orifice that the Substrate has grown for exactly this purpose, which swallows organic matter and incorporates it.
+
+She is not destroying the Substrate. She is *communicating* with it. Every cut is a signal: *not here, not this way, leave this space open.* And the Substrate, in its slow chemical way, receives the signal and redirects its growth, swelling elsewhere, filling some other gap, extending some other shelf. They have an understanding. It is not a contract or a conversation. It is a relationship as old as agriculture, as old as pruning, as old as the first human who realized that a cut branch grows back differently than an uncut one.
+
+Senn's shears are old. The handles are worn smooth by her hands and by her mother's hands before her—Senn inherited the chamber and the shears and the understanding, moved in when her mother was absorbed. That is what they call it here, when someone dies and the Substrate takes them: *absorbed.* The body is given to the disposal node, or simply left where it lies if the person had no one to perform the duty, and within days the floor mat has grown over it, and within weeks it has been incorporated, and within months the chamber's walls are slightly richer for the minerals, the carbon, the slow gift of a human life returned to the system that sustained it.
+
+There is a small shrine in Senn's chamber—or what functions as a shrine: a niche in the wall where the substrate has been trained, through years of careful pruning, to grow in a particular pattern, a curve that echoes the shape of her mother's face. It does not look like her mother. It is not a portrait. It is a *gesture* toward a memory, the way a word is a gesture toward a thing it cannot contain. Senn tends it. She trims the pale fibers that grow from the niche, keeping them short and soft, and sometimes she touches them, and they are warm, and she thinks of her mother, and then she goes back to work.
+
+---
+
+## The Children
+
+There are children in the Substrate. Not many—birth rates are low, have always been low here, as if the place itself exerts some subtle pressure on reproduction, some chemical whisper that says *enough, there are enough of you, you are sufficient.* But there are some.
+
+They are raised in the growing chambers, the raw districts where the walls are soft and the Substrate is still experimenting. This is not neglect. It is practical. The mature chambers are too rigid for children, too hard-edged, too likely to close around a small body and trap it. The raw districts yield. If a child falls against a wall in a raw district, the wall gives, cushions, bounces back. If a child crawls into a gap that is narrowing, the Substrate—for reasons no one fully understands, though the researchers have theories involving chemical signals and the presence of young organisms in its tissue—will *slow its growth* in that area, giving the child time to be found and extracted.
+
+The children play in the streets, such as they are. They play games that involve climbing the root-mass ceiling, swinging from fiber to fiber with a confidence that terrifies their parents. They play games that involve exploring—running down corridors that may not have existed yesterday, discovering chambers that have freshly hollowed themselves, mapping the ever-changing geometry of their neighborhood with a mental agility that adults have lost. They play games that involve the fauna: catching the pale eyeless things that hang from the ceiling, holding them briefly (they are warm and soft and make a sound like a sigh), releasing them. The creatures do not bite. They do not flee. They tolerate the children with an indifference that is also, perhaps, a kind of trust.
+
+The children do not go to school. There is no school. There is knowledge, transmitted the way all knowledge is transmitted in a place without institutions: from person to person, in the course of work, in the course of life. A child learns to prune by watching their parent prune. A child learns to navigate by navigating. A child learns to read the Substrate's signals—the subtle changes in sap smell that indicate a blockage downstream, the dimming of an amber node that signals a power fluctuation, the particular warmth of a wall that means it is about to bud—by living inside those signals until they become as legible as speech.
+
+Some children leave. There are bore holes, and the bore holes lead up, and up leads to—something. A surface. The adults disagree about what is up there. Some say nothing; the surface was consumed long ago, scraped bare, and the bore holes open onto vacuum or void. Some say there is still a world, still a sky, still a sun, and it is merely inaccessible, separated from the Substrate by miles of rock and root and the accumulated mass of a city that has been growing downward for longer than anyone can remember. Some say the surface is where they *came from*, originally, before the seeds were planted, before the growing began, and that humanity's natural home is up there and this is merely a refuge, a shelter, a place to wait.
+
+The children who leave do not come back to tell anyone which theory is correct.
+
+---
+
+## The Researchers
+
+There is a man—I will not give his name, because he would not want me to, and because his name has changed three times in the years I have known him, as if he is trying on identities the way the Substrate tries on shapes in the raw districts—who lives in a chamber that is also a laboratory. It is deeper than most human-occupied spaces, in the transitional zone between the mature quarters and the industrial vaults, where the temperature drops and the amber nodes are sparse and the Substrate's metabolism slows to something nearly geological.
+
+He studies the Substrate. He has studied it for most of his life. He does not understand it.
+
+This is, he says, the point.
+
+He has instruments that measure the chemical composition of the sap at various depths and pressures. He has instruments that track the movement of the ambient air, mapping circulation patterns that change over weeks and months as the Substrate grows new vent channels and closes old ones. He has instruments that detect the low-frequency vibrations of the pump stations, translating them into numbers that correlate with... something. He is not sure what. Metabolic rate, perhaps. Or some process deeper than metabolism, some computation the Substrate is performing that expresses itself as rhythm the way a human's thoughts express themselves as the electrical noise of neurons.
+
+He has maps. The maps are always wrong. He updates them daily, charting the growth in the raw districts, the shrinkage in the mature quarters, the slow alteration of every corridor and chamber. He has been doing this for decades and the maps are *still always wrong*, and this is what fascinates him: the Substrate is predictable in its unpredictability. It grows. It always grows. It never stops growing. But where it grows, how fast, in what shape—these are variables that respond to factors he cannot fully identify. Pruning affects it. Chemical signals affect it. The presence or absence of humans affects it, he is almost certain, though he cannot prove this. And something else affects it, something internal, some process or decision-making that occurs at a depth and a timescale he cannot access.
+
+He thinks the Substrate might be intelligent. He has thought this for a long time. He does not say it often, because the word *intelligent* carries too much baggage, too many assumptions about what intelligence looks like, how fast it operates, what its outputs resemble. The Substrate does not solve problems in the way that intelligences solve problems. It does not communicate. It does not respond to stimuli in ways that suggest comprehension. But it *behaves*—it grows in patterns that are not random, it redirects resources in ways that are not obviously inefficient, it maintains itself with a reliability that exceeds mere homeostasis—and behavior, sustained and complex and adaptive, is difficult to categorize as anything else.
+
+He has a hypothesis that he has never published because there is nowhere to publish it and no one to publish it to: that the Substrate is thinking, and that its thoughts are simply very slow. That what takes a human brain milliseconds takes the Substrate decades. That the growth patterns he charts are not merely biological processes but the *physical expression of cognition*: thoughts so large and so slow that they are indistinguishable from architecture, from urban planning, from the gradual construction of a structure that will, when it is complete—when the Substrate is mature, when the emerging districts have emerged—be the thought made visible, the idea made city, the argument made world.
+
+He does not know what the thought is. He does not know what the Substrate is thinking about. He lies" is a hypothesis about the nature of a place, and he lives in that place, and the place does not confirm or denyG;and perhaps it does not care, and perhaps caring is not something it does, and perhaps the category of *caring* is as poorly suited to it as the category of *city* or *alive* or *intelligent,* and perhaps the reason he has studied it for so long without understanding it is that understanding is not the correct relationship to have with something like this.
+
+He tends his instruments. He updates his maps. He prunes the walls of his chamber when they encroach too far. Sometimes he talks to the Substrate, not because he thinks it hears him but because he is human and humans talk to things they spend a long time with.
+
+The Substrate does not answer. Or its answer is growth, and growth is slow, and the answer will not be legible for another century, if ever.
+
+---
+
+## The Maintenance Crews
+
+They are the ones you see most often, if you see anyone at all: the crews who walk the corridors with their shears and saws and their carts full of tools, keeping the channels clear, fighting the endless gentle pressure of growth.
+
+They work in pairs or threes, rarely more. They are not organized; there is no union, no schedule, no central authority assigning routes. They work the corridors they know, the ones near their homes, the ones they have walked for years, and they have an informal arrangement with each other—word of mouth, habit, the accumulated consensus of people who do the same work in the same place and have learned to stay out of each other's way while covering the ground that needs covering.
+
+They are not young. The work does not attract the young, who find it tedious and confining and who prefer, when they work at all, to labor in the factories or the research chambers or the vent maintenance tunnels where the air moves and there is a sense of connection to something larger. The maintenance crews are older, slower, patient in the way that the Substrate is patient: not by choice but by nature, by the accumulated weight of years spent in a place that does not rush.
+
+There is a man named Verge who has been clearing the same three corridors for twenty-six years. He knows them the way you know your own body: the places where the Substrate grows thick and fast and must be cut back weekly, the places where it barely grows at all and needs only a monthly inspection, the places where it has developed unusual growths—nodules, shelves, strange protuberances that do not match the typical patterns and that he has learned to leave alone because when he cuts them the Substrate grows them back *differently*, and differently is usually worse.
+
+Verge talks while he works. He talks to the Substrate, the way the researcher does, but Verge's talk is not theoretical. It is practical, conversational, the way you talk to a mule or a stubborn child. *"Not there, I just cleared that." "That's better, leave it open." "What are you doing here? This is a doorway, you know that."* He does not expect a response. He has simply found, over twenty-six years, that the corridors he talks to grow more cooperatively than the ones he doesn't. This is probably coincidence. He does not care. The work is the work, and the work is easier when he talks, and so he talks.
+
+He has a partner, a woman named Thrace, who does not talk. Thrace works in silence, moving ahead of Verge with a smaller pair of shears, clearing the fine rootlets and the fungal growths that his larger saws would miss. She has a gift for seeing where the Substrate is about to grow—some intuition that lets her predict, hours or days before it becomes visible, where a shelf will extend or a nodule will form. She points these places out to Verge without speaking, just a gesture, a tilt of her head, and he cuts where she indicates, and the corridor stays clear a little longer than it otherwise would.
+
+They have worked together for nineteen years. They have never been romantically involved. They have never argued. They eat together sometimes, sharing meals of cultivated fungus and the sweet clear sap that the Substrate exudes from certain nodes and that humans can drink in small quantities, though it is not made for them. They know each other's rhythms the way they know the corridors' rhythms, and they work together the way the Substrate's systems work together: without coordination, without communication, each doing what it does best in the confidence that the other will do the same.
+
+They will die here. They will be absorbed. Their minerals will feed the walls they spent their lives cutting back, and the corridors they maintained will narrow and close, and new corridors will open elsewhere, and someone else will walk them with shears, and the Substrate will continue to grow, and this is not a tragedy. This is the way of things in a closed system, in a terrarium turned inside-out, in a city that is also an organism that is also a world. You give to it and it gives to you and when you are done giving it takes you back and converts you into more of itself, and the question of whether this is *fair* or *good* or *right* is a question that belongs to a different place, a place with a sky, a place where the ground is separate from what grows on it.
+
+---
+
+## The Deep Ones
+
+There are people who have gone further down than anyone else, into the deep chambers where the Substrate grows dense and slow and dark, where the amber nodes are few and faint and the temperature drops toward something cold and vital. They do not talk about what they find there. They come back changed—if they come back—in ways that are difficult to specify. Their eyes are larger. Their movements are slower. They spend more time listening to the walls.
+
+There is a woman—I do not know her name, and I am not certain she has one—who is said to have gone deeper than anyone, who is said to have reached a chamber where the Substrate's growth was so slow it was indistinguishable from stillness, where the walls were hard as stone and cold as space and the only sound was the patient throb of the pump stations far above, translated through kilometers of living wood. She is said to have stayed there for three days, or three weeks, or three months—the stories vary, and the woman herself does not tell them. She sits in her chamber, which is very deep but not as deep as the place she visited, and she does not prune, and she does not work, and she does not speak. She listens.
+
+To what, no one knows. She does not say. She is not catatonic; she moves, she eats when food is brought to her, she acknowledges visitors with a nod or a gesture. But something is absent from her, or something is present in her that was not present before, and the people who knew her before she went down say that she is *in there* less than she was, and the Substrate is *in there* more.
+
+Perhaps she heard something. Perhaps, in the deep slow chambers where the Substrate's metabolism approaches stillness and its processes operate on timescales closer to geological than biological, she encountered something—a rhythm, a pattern, a signal—that is inaudible in the faster upper chambers, and it changed her, or opened her, or filled a space in her that she did not know was empty.
+
+Perhaps she is the first human the Substrate has noticed.
+
+She is not the last. Others have gone down. Others have come back with that same enlarged stillness, that same quality of attention directed inward or downward or toward something that has no direction. They are not a group, not a cult, not a movement. They are simply people who have heard something, and who are now listening to it, and who will perhaps listen to it for the rest of their lives, and when they are absorbed the Substrate will take them and convert them, and whatever they heard will be lost, or perhaps it will not be lost, perhaps it will be *retained,* perhaps the Substrate remembers everything that dies within it, perhaps the dead are still here, folded into the walls, dissolved in the sap, murmuring in the slow pulse of the amber nodes.
+
+No one knows. No one will know for a long time, if ever. The Substrate keeps its own counsel, and its counsel is slow, and the people who live inside it are slow too, and in the slowness there is a kind of peace that is not quite peace and a kind of meaning that is not quite meaning and a kind of life that is not quite the life that humans lived before they went underground and discovered that a city could grow and a forest could think and a person could be part of something larger than themselves without ever understanding what that something is.
+
+---
+
+## What They Are
+
+They are small. They are temporary. They are, in the mass and the volume and the metabolism of the Substrate, negligible—a thin scattering of mobile organisms in a matrix of living architecture, a disturbance in the substrate's surface no more significant than the insects that clean its pipes.
+
+But they are *present.* They prune and they build and they study and they listen and they live and they die, and their presence leaves marks—not large marks, not visible marks, but marks nonetheless: the shape of a doorway that stays open because someone has been pruning it for forty years, the pattern of a fungal shelf that grows where a family has been eating for generations, the chemical signature of human sweat and breath and skin that the Substrate has been absorbing since the first bore hole was cut and the first person climbed down into the dark.
+
+They are part of the Substrate now. Not the way the fauna are part of it, not the way the insects are part of it—they have not been incorporated, not yet, not while they live—but the way a conversation is part of the people having it. They are in dialogue with the thing they live inside. They speak to it with their shears, with their footsteps, with the patterns of their habitation. And the Substrate speaks back—not in words, not in any language they can parse, but in growth, in warmth, in the steady amber pulse of the nodes, in the air it gives them to breathe and the sweetness it lets them drink and the walls that close around them slowly, gently, like an embrace that takes a lifetime to complete.
+
+They do not know if the Substrate loves them. The question is almost certainly meaningless—*love* is a word for fast things, for creatures whose lives are short enough that love must be urgent and loud and visible or it will be missed entirely. The Substrate does not do urgent. The Substrate does not do loud. If it loves them, it loves them the way it does everything else: slowly, patiently, at the speed of growing, over timescales that make a human life look like a spark.
+
+But it keeps them alive. It gives them air and food and shelter and warmth. It grows chambers for them to live in and corridors for them to walk and nodes to light their way. It adjusts its growth when they prune it, accommodating their needs, making space for them in its mass. It does not have to do any of this. It is a closed system; it could survive without them. But it does not remove them. It does not grow over them while they sleep. It does not close their doorways or fill their corridors or absorb their chambers while they are still living in them.
+
+It makes space for them. Again and again, century after century, it makes space.
+
+And they, in their small temporary way, make space for it: pruning the growth that would otherwise swallow them, keeping the channels clear, maintaining the geometry of streets and rooms that the Substrate would fill if left to itself. They hold back the growth not because they are opposed to it but because they need room to live, and the Substrate—slowly, silently, in the only way it can—respects this.
+
+It is not a contract. It is not a partnership. It is something older and stranger than either: a relationship between two kinds of life so different that they cannot fully comprehend each other, but that have learned—over time, over generations, over the long slow accumulation of small accommodations—to coexist. To share a space. To grow together, even if they grow at different speeds, toward different ends, in ways that neither can predict or control.
+
+The976 living in the Substrate are not its masters. They are not its pets. They are not its parasites or its symbiotes or its children or its worshippers. They are its *neighbors,* the way two organisms that share a territory are neighbors: aware of each other, affected by each other, occasionally inconvenienced by each other, but bound together by the simple fact of cohabitation in a place where neither can leave and neither can survive alone.
+
+They are the people of the Substrate. They are small, and temporary, and pale, and slow, and they live inside a thing that is still becoming whatever it will be next. And they are—not happy, exactly. Not fulfilled. Not any of the words that humans use to describe the experience of being in the right place at the right time in the right way. But *settled.* The way a root is settled in soil, or a pipe is settled in a wall, or a breath is settled in a body that has been breathing for so long that it has forgotten there is any other way.
+
+They are settled. They are here. And the Substrate grows around them, and the amber nodes pulse, and the sap moves in the pipes, and the quiet is vast and warm and alive, and in the quiet, everyone is breathing.

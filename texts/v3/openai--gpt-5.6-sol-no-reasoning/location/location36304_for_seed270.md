@@ -1,0 +1,33 @@
+Beneath a decommissioned ore refinery lies a space the surveyors missed: a shallow service hollow between the poured foundation and the compressed mineral bed below. It is scarcely high enough for a person to crawl through. In places, the ceiling hangs only a handspan above the floor. Yet the hollow extends laterally through a labyrinth of subsidence cracks, cable conduits, collapsed ducts, and pockets opened by the slow contraction of cooling slag.
+
+There is no water here. The refinery was built in a salt basin so old that even the buried stone has lost its moisture. The air tastes of gypsum, iron, hot dust, and the faint medicinal bitterness of old insulation. Anything damp brought inside is stripped dry within hours. Leather stiffens. Breath leaves a pale mineral rime on nearby surfaces, but the trace vanishes almost immediately into the thirsty salts.
+
+The terrain is low in every sense: low-ceilinged, low beneath the earth, and nearly without relief. Its broadest expanses are miniature plains of compacted dust divided by ridges no higher than a knuckle. Ancient erosion has worked here without rain. For millions of years before the refinery, salt crystals expanded and contracted with the temperature, easing grains apart. Later, machinery supplied vibration. The result is a landscape worn to final forms: rounded slag pebbles, blunt flakes of ceramic, metal edges polished smooth, and channels traced not by streams but by migrating dust.
+
+It would be a still place if not for the animals.
+
+They fill almost every available interval.
+
+Pale mites graze in granular herds across oxidation films. Flat-bodied beetles slide under flakes too close to the floor for anything else to enter. Silver bristletails gather around warm cable joints and scatter in flashes when a relay closes. Translucent crickets cling upside down to the concrete, their antennae tangled like loose wire. Salt-white cockroaches pack the abandoned conduits in layered masses, all facing toward the periodic warmth of the refinery above. Their shells click against one another whenever the temperature shifts.
+
+There are larger things, though none are truly large. Thumb-length scorpions occupy bolt recesses. Blind centipedes move through cracks with a speed that makes the stone itself appear briefly jointed. Soft gray pseudo-spiders stretch between iron filings on legs finer than hair. In the deepest pockets live dense colonies of waxy, many-segmented creatures whose ancestry is unclear. They have no eyes or obvious mouths. They lie pressed together in mats and feed, perhaps, on electrical leakage, chemical gradients, or the microscopic shedding of cable polymers. When a current passes overhead, the whole colony turns at once.
+
+Nothing green grows. There are no roots, mosses, or recognizable fungi. Life begins here at the animal scale, though that should be impossible. The smallest inhabitants appear to subsist on mineral films, airborne industrial residues, one another, and the slow decomposition of synthetic material. Energy enters as vibration, warmth, stray voltage, and occasional dust sifted down from operating rooms. The ecosystem has made each input edible.
+
+Every few minutes the pumps in the upper refinery engage.
+
+The ceiling shudders. A blunt mechanical roar enters through the concrete and becomes enormous in the cramped cavity. Dust lifts in sheets. Beetles brace against ridges; crickets flatten themselves; roach masses flow deeper into the conduits. Loose washers tremble in ancient circles around corroded studs. Somewhere beyond sight, a warped ventilation vane begins to spin, screaming on its dry bearing until the pump cycle ends.
+
+Then the hollow answers with its own sound.
+
+Millions of feet resume their passage. Mandibles rasp on insulation. Wings too cramped for flight buzz against stone. Scorpions drum courtship signals through rusted plates, and the plates amplify them into hollow metallic knocks. Cricket calls overlap until individual notes disappear into a hard, continuous ringing. At close range the whole place sounds like a factory assembled from seeds and fingernails.
+
+Scattered human works survive among the swarms: porcelain cable saddles, a severed pressure line, inspection tags reduced to aluminum lace. There is a tiny brick sump that has never held liquid. A row of brass terminals protrudes from one wall, green only with corrosion, not growth. Several still carry weak intermittent voltage. Around each live terminal, animals form concentric territories. Grazers occupy the warm outer dust; hunters patrol the middle ring; the innermost surface belongs to the waxy colonies that pulse in time with the current.
+
+Predation is constant and local. A bristletail vanishes beneath a centipede. Mites erupt around the remains of a cricket before its legs stop moving. Scorpions hunt along the ceramic ridges, while smaller parasites cling beneath the scorpions’ joints. Shed skins, eggs, fecal grains, broken antennae, and powdered shell accumulate faster than the dry chemistry can erase them. The floor is partly mineral and partly the compacted history of innumerable generations.
+
+Despite this density, the landscape never feels lush. It is too cool, too hard, too desiccated. Life here has the character of machinery: crowded, repetitive, replaceable, driven by cycles originating elsewhere. Birth occurs in cracks. Feeding occurs in shifts. Migrations follow electrical load. Entire populations cross the dust flats when the night tariff changes and dormant machinery comes awake.
+
+The place has one severe rule: exposure is death. No creature willingly enters open space unless vibration, hunger, or heat compels it. Safety is measured in fractions of body width. Every shell fragment is shelter; every screw thread is a canyon; every hairline fracture is a road. When the pumps thunder, predators lose their prey in the confusion. When silence returns, position matters again.
+
+To a human observer lying at the only accessible opening, it first appears to be a dirty gap beneath concrete. Then the eyes adjust. The dust separates into moving multitudes. The conduits breathe with packed bodies. Fine legs articulate along every seam. The landscape reveals itself not as empty infrastructure but as a compressed world, ancient in its materials and frantic in its present—an entire dry biosphere hidden within the thickness of a foundation, sustained by the fading metabolism of a machine that does not know it is alive.

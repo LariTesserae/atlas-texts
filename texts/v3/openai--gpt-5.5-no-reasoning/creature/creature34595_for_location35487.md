@@ -1,0 +1,55 @@
+What lives there is not an animal in the ordinary sense, nor a plant, nor a people hidden among the stones. It is difficult to find a body for it at first because the place itself seems already too full for another occupant. But something lives there in the intervals: in the wetness that never gathers into water enough to name, in the mineral skins that are almost transparent, in the patient contact between seep and stone.
+
+It is a life of surfaces.
+
+It has no face lifted to the light, no limbs, no mouth that opens. It does not move across the plateau so much as occupy the plateau’s exact conditions. It lives as a distributed film, a hidden membrane, a colony so thin and mineral-colored that it can be mistaken for the stone’s own sheen. Where water threads through cracks, it is there. Where droplets hang for hours beneath a ledge before falling, it thickens invisibly around them. Where black wet slots descend out of sight, it lines the walls in translucent layers. Where pale crusts lift from the rock in curled mineral lips, it sleeps beneath them, sealed from brightness.
+
+It is not green. It never learned green.
+
+Its color, when it has any, is the color of diluted stone: pearl-gray, bone-clear, faint blue, smoky white, sometimes the dull amber of old ice seen in shadow. Most of the time it cannot be distinguished from condensation. A hand passed across one of its beds would feel only slickness, perhaps a slight resistance, as if the stone had a skin and that skin did not wish to tear. If scraped free, it would come away in ribbons finer than wet paper, then collapse into slime and grit. Left undisturbed, it forms lattices too small for sight: threads, beads, sealed chambers, mineral-bridges, soft blisters filled with cold water and pale chemistry.
+
+It feeds on the plateau’s slowness.
+
+Sunlight is too harsh and unreliable in the narrow places; soil never came; rot never began. So it eats what the stone gives. It takes dissolved salts from the seepage, metals from old seams, a little carbon from the air trapped in cracks, a little energy from the difference between wet and dry, bright and shaded, oxidized and reduced. It is patient enough to make a feast of almost nothing. A droplet sliding down a wall is, to it, a migration of worlds: calcium, iron, silica, air, pressure, chill, trace gas, the memory of deep stone brought upward in solution.
+
+It does not graze or hunt. It precipitates. It listens chemically. It alters the surface beneath itself by fractions, softening one mineral, hardening another, encouraging crystals to grow around it and then withdrawing into the next film of moisture. Some of the plateau’s crowded shapes are older than it, born from geology alone; others have been subtly attended by it for ages. Not built. Not carved. Coaxed. The bubbled mounds in the open basins, the glazed dark skins in sheltered hollows, the delicate white lips around fissures — these are not its architecture exactly, but the residue of its metabolism. It leaves no tools because its tools are gradients. It leaves no tracks because it is already spread over the ground.
+
+Its true body is discontinuous.
+
+A patch beneath one overhang may be kin to another patch miles away if the seep lines meet underground. A black slot may hold a deep, cold strand of it that has not touched light for centuries. A blade-field passage may contain several living skins stacked one over another: the upper film bright-tolerant and glassy, the lower one milk-pale and soft, the lowest one almost dormant, pressed into clay where water moves only by pressure. The plateau looks crowded with stone, but beneath that mineral crowd is a second crowd: layers of microscopic persistence, colonies divided by dryness and joined again by capillary water.
+
+It has seasons, but not as animals would understand them. Not spring, summer, autumn, winter. Its seasons are seep-strength, glare, freezing, thawing, mineral excess, mineral famine. When cold tightens the cracks, it contracts into beads and sealed pockets, drawing itself away from exposed edges. When vapor thickens and every wall sweats, it blooms—not visibly, not with flower or color, but by spreading another fraction of a millimeter across stone that had seemed bare for years. In bright dry hours it goes glassy and inert. At night, if night truly changes anything there, it swells under the returning film of condensation and resumes its silent exchanges.
+
+The insects that cling beneath overhangs feed on it, or on the smaller life embedded in it. They are pale because there is nothing here to hide from except brightness. Their legs are wide and hooked for wet stone. Their bodies are flat as flakes. They move sideways through the roar, pausing often, tapping the slick surfaces with mouthparts too fine to see. They do not swarm. A single one may spend its whole life inside the shadow of one leaning plate, grazing a territory no larger than a hand, shedding skins that become indistinguishable from salt.
+
+The translucent worms in the black slots belong to the same hidden economy. They live where light arrives only as a broken reflection. Their bodies are nearly water, threaded with faint internal lines, and they press themselves into the narrowest runnels when the surface is disturbed. They eat the living films and the mineral-softened residue beneath them. Sometimes they are carried downward by seepage into deeper cold and do not return. Sometimes they coil in pockets under crusts and wait through long intervals when the water chemistry turns against them.
+
+There are also blind little shelled things in the seep-hollows, if one looks long enough: not quite crustaceans as lowland water would know them, but jointed, colorless fragments of appetite. Their shells are thin and cloudy, strengthened by minerals stolen from the very water that confines them. They move among submerged ridges and bubble-domes, scraping at transparent growths. A whole population may inhabit a basin no wider than a footprint, separated from another such population by a ridge of dry-looking stone only a few inches high and impassable for generations.
+
+None of these creatures owns the place.
+
+The thing that truly lives there is the plateau’s wet mineral skin: ancient, diffuse, almost anonymous. The animals are incidents within it, brief concentrations of motion in a life otherwise too broad and slow to notice. Even they seem less like inhabitants than expressions of the seepage—small mobile afterthoughts produced where chemistry has become slightly hungry.
+
+If the plateau has an intelligence, it is not gathered in a head. It is in the maintenance of exactness. The runnels remain shallow because deposition and erosion answer each other. The crusts grow where evaporation is strongest. The black wet hollows stay open because something in them resists sealing entirely. The living films participate in these balances without intending them. They thicken where water lingers, thin where salts bite too sharply, die back where brightness scours, return where the stone exhales again. Over immense time, their preferences become indistinguishable from geology.
+
+They do not make sound audible over the dripping. Yet the great noise of the place is partly theirs, because they help keep water moving as film rather than flood, bead rather than stream. They texture the stone at a scale below sight. They hold droplets, slow them, release them. They make surfaces wettable or resistant, slick or crusted, porous or sealed. The plateau’s deafening hush is a collaboration between gravity, mineral, air, and this nearly invisible life.
+
+It is possible that the life began below.
+
+Perhaps the plateau was once part of a sea floor, or a buried mineral bed full of warm brines and microbial mats. When uplift carried it into brightness and cold, most living things failed. Roots never arrived, or arrived and found no bargain. Spores landed and did not take. But some older, simpler lineage remained inside the stone’s plumbing. It followed the water upward through capillaries. It adapted not to soil, but to the absence of soil; not to abundance, but to recurrence. It became pale because pigment was costly. It became thin because thickness dried or froze. It became nearly indistinguishable from mineral because mineral was both shelter and food.
+
+Or perhaps it arose there later, from windborne cells caught in wet cracks and altered by the plateau’s severity until they became something almost native to stone. The origin matters less than the present fact: the place is not barren. It is inhabited at the scale of seepage.
+
+Its dead do not rot. They calcify, silicify, become part of the crust. Death there is not a soft collapse but a hardening, a whitening, a sealing-over. Generations become glaze. Hunger becomes polish. The living withdraw into the next wet layer beneath their own remains. That is why nothing smells of decay. That is why the hollows stay clean. The plateau consumes its dead by making them stone.
+
+A human visitor might never see it. They might see only glare, ribs, domes, wet cracks, black slots, no moss, no roots, no tracks. They might say nothing lives here except a few accidental pale creatures. But if they knelt and watched one shining seam for an hour, they might notice that the slickness has structure: tiny bladders swelling under a transparent crust, a faint milky branching at the edge of a droplet, a tremor not caused by falling water. They might see an insect pause and rasp at bare-looking rock with evident purpose. They might lift a flake and find beneath it a cold luminous smear, neither algae nor fungus nor slime exactly, but something older in temperament than any of those names.
+
+It would not retreat quickly. It has no quickness. Exposed to air, it would dull at the edges. In direct sun it might blanch from translucent gray to opaque white. The torn surface would bead with water, then tighten. If replaced, perhaps it would seal again over weeks or months. If not, it would become another pale crust among thousands.
+
+So the inhabitant of that place is a patient, mineral-fed wetness wearing the form of life.
+
+It lives by remaining almost indistinguishable from the world that supports it. It has made no forest because it does not aspire upward. It has made no pasture because it does not cover distance in green. It has made no visible kingdom because visibility would be waste. It inhabits contact: water against stone, light against wetness, salt against membrane, cold against persistence.
+
+Around it, small pale animals come and go like thoughts the plateau almost has. Above it, birds cross and vanish. Beneath it, the stone continues to leak into itself.
+
+And everywhere, under the immense dripping sound, the life of the place holds on—not blooming, not decaying, not advancing, but enduring as a clear skin between liquid and rock.

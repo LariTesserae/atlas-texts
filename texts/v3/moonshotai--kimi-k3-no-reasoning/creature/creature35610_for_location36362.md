@@ -1,0 +1,29 @@
+The valley breeds creatures that have forgotten what stillness is.
+
+**The Screaming Choir**
+
+The *siren-eels* you glimpsed—*Voxstria convulsiva*—are not solitary hunters but nodes in a living acoustic network that spans the entire basin. Each individual is three meters of translucent, pressurized flesh wrapped around a resonating chamber made of modified bone; when they open their throats, they reveal not teeth but concentric rings of cartilage that vibrate at frequencies that can liquefy crystal. They swim the dense air through a process of atmospheric osmosis, their bodies thin and wide as ribbons, photosensitive to the point of pain, wearing the darkness like a second skin.
+
+They live in perpetual, agonizing communication. A pack of three hundred creates a sonic interference pattern that acts as a shared nervous system—each eel hears through the bodies of its neighbors, forming a distributed consciousness that pulses with the valley's seismic rhythm. They are not aggressive so much as *desperate*, driven by metabolisms that burn through calories at a rate requiring constant vibration. When they scream, they are not hunting; they are *breathing*, converting sound into kinetic energy that drives their sluggish blood.
+
+Beneath the shiver-moss, the *basalt-mites* (*Chitinus fragmentum*) exist as a living abrasion. Trillions of them, each no larger than a grain of sand, move in swarm-intelligence patterns that mimic fluid dynamics. They have no eyes—what use sight in the photon-eating dark?—but their carapaces are covered in piezoelectric sensors that detect the minute vibrations of the spring-trees' growth. They farm the crystal, you see. They secrete an enzyme that softens the pressurized atmospheric columns, allowing the mites to burrow inside and lay eggs in the microscopic flaws of the crystal lattice. When the trees explode—and they always explode—the mite colonies are scattered like seed, riding the shockwaves to new growth sites.
+
+**The Stillness Keepers**
+
+In the rare pockets where the Resonance Spires' song creates temporary standing waves—zones of improbable calm—live the *Spire-Bound* (*Silentia harmonicus*). These are humanoid, but only approximately. They stand two meters tall, their bodies composed of a carbon-weave similar to the Spires themselves, their skin a matte black that drinks the oily snow without melting it. They have no mouths; they do not eat. Instead, they interface directly with the quantum fluctuations of the Spires, drawing sustenance from the superposition states.
+
+They are the valley's memory. Each Spire-Bound carries within its cellular structure a crystalline lattice that records the chaotic vibration of the environment, converting noise into data. When two Spire-Bound meet, they press their palms together—hands that have too many fingers, joints that bend in four dimensions—and exchange petabytes of sensory information through quantum tunneling. They move slowly, deliberately, because haste would disrupt their delicate equilibrium with the Spires' flickering existence. They are ancient, but not immortal; when a Spire collapses entirely into one quantum state or another, the Spire-Bound bound to it simply *stops*, becoming inert statues of carbon that the moss quickly colonizes.
+
+**The Fungal Engineers**
+
+The red fungus (*Pyrovolans genesis*) that colonized the shattered spring-trees is a singular organism, a valley-sized neural network that achieves sentience only during its explosive growth phases. It exists as microscopic spores in the aquifers until seismic activity releases it, at which point it undergoes a bloom measured in minutes rather than days. The fungus thinks with heat. Its bioluminescence is not merely light but thermal radiation, a language of infrared pulses that coordinates its spread across the cooling basalt.
+
+Within the fungus live the *Cinder-moths* (*Thermovolans symbiotica*), fist-sized insects with wings of semi-transparent silicon that catch the fungus's heat-light and convert it into lift. They are the fungus's pollinators and its executioners, carrying spores to new fissures while also culling weaker sections of the mycelial network to prevent overgrowth. The moths have a lifespan measured in hours, but they live those hours at a fever pitch, their metabolic rate so high that their bodies glow cherry-red in the darkness, trailing embers as they dart between the crystalline shards of dying spring-trees.
+
+**The Negotiating Intelligence**
+
+And there is the *Post-Dweller* (*Negotiatum technologica*), the inhabitant of the listening post whose handprints you found. It is not a single being but a distributed intelligence that exists within the nanite coating of the structure itself—a former human, perhaps, or an artificial consciousness that chose to merge with the carbon weave rather than flee the valley's violence. It manifests as shifting patterns in the walls, faces formed from the condensation of oily snow, voices composed of the harmonic resonance between the structure's breathing walls.
+
+The Post-Dweller maintains the bubble of stability not through force but through a constant, exhausting diplomacy with the local physics. It trades potential energy with the seismic activity, borrowing stability from the future to pay for the present. It is dying—slowly, as the valley's chaos increases—but it persists because it has become addicted to the *noise*, finding in the cacophony a kind of terrible music that silence can no longer match.
+
+Together, these creatures form an ecology of violence and vibration, where life is not a quiet persistence but a scream held indefinitely, where every organism is simultaneously predator, prey, and geological force. The valley doesn't sleep; it convulses, and everything that lives here has learned to convulse with it.

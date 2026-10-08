@@ -1,0 +1,15 @@
+The plateau is a knife laid flat across the world’s spine.  
+
+From any single point you can look for three full days and never see another line of horizon. The surface is pale, wind-scrubbed travertine, hardened from mineral water that once welled here in slow, chalky ribbons. Over ages the water left, leaving only ghost-marks: milky veins and frost-feather crystals that shatter underfoot into a fine white grit. In the center, where the plateau is broadest, the rock has sagged into a dish so shallow that water can gather for a single night before it evaporates again; each dawn the shallow collects dew, each noon it lifts away.  
+
+Nothing tall grows. Low cushions of gray lichen—nearly mineral themselves—cling to fractures where nightly moisture condenses between stone plates. Their color matches the rock so exactly that a walker might pass an entire colony without noticing until the sole of a boot lifts away a powdery gray smear. Farther out, between the cushions, a grid of black fly-orchids rises finger-high only on the days after rain; their bloom is over in an hour, the petals crumbling to soot that the wind immediately removes.  
+
+The air is cool, and because the plateau sits alone at altitude the sky above it never clouds. Sunlight slams down in a steady white flood, reflected upward from the stone until shadows seem carved rather than cast. Eyes adjust slowly; after a time, distance dissolves. The far cliffs look painted onto the same plane as the near stones.  
+
+Wind never stops. It does not gust; it presses, a constant wall of sound, equal in every direction. The sound is the plateau itself: every cubic meter of air carries the same hiss of travertine crystals abrading each other, the same low, glassy friction of surfaces that have been sliding together since the plateau first froze in place. It is a single, unbroken tone. Creatures born here have never heard silence.  
+
+Birds—flat, membrane-winged gliders the color of frost—ride this tone. Their wings are stretched cartilage, translucent enough that midday light passes straight through them. They do not flap; they tilt, letting the constant wind translate into lift. When two pass each other the air pressure between their wings cracks like a whip, yet the sound folds instantly back into the plateau’s single, deaf note.  
+
+Below the surface run galleries opened by vanished rivers. From time to time a sheet of water, condensed on the ceiling of some deeper fissure, lets go and falls in a brief, private storm; it strikes the floor of the gallery and the percussion travels upward through solid rock to emerge, muffled, as a drum-beat in the wind. Walkers above feel it more as a pressure in the teeth than as hearing.  
+
+No tool marks, no stacked stones, no thread of path; the plateau records nothing that is done on it. Any object left will, after a handful of nights, be scoured to the same pale powder that already coats everything else. The wind and the light together enforce a rule: nothing new may be introduced, nothing old may be taken away. The plateau does not resist change; it has already outlasted every rate of change that could matter here.

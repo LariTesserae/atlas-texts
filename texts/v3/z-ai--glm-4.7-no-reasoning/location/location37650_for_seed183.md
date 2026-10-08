@@ -1,0 +1,23 @@
+The air here is too loud to be merely empty, yet too bright to be full.
+
+You stand on a ridge of pitted, grey basalt that juts from the mountainside like a shattered bone. The elevation is crushing; this is not a place for lungs, but for observation. Below, the valley floor is not a basin of earth, but a chaotic, shallow sea of standing water—perhaps ten meters deep—broken only by the crowns of drowned boulders and the skeletal ribs of a sunken geography.
+
+The water is not alive. It is mercury-heavy, sluggish, and utterly devoid of algae or scum. It reflects the sky with a painful, mirror-sheen that doubles the intensity of the light. Above, the sun is a white, blinding needle, surrounded by a halo that seems to fracture into razor-shard spectrums. There are no clouds, only a wash of pale, irradiated blue that hurts the eyes. Shadows are not soft; they are black, binary, and razor-edged, cut away from the world as if by a scalpel. The brightness is absolute, revealing every imperfection on the stone with ruthless clarity.
+
+This is a mineral world. There is no grass, no moss, no lichen clinging to the rocks. The vegetation score is zero because the rock itself has taken the role of the forest. The slopes are dense with formations that *look* organic but are entirely geological. Spirals of calcite grow like horns from the cliff faces; stalagmites in the shallows twist in shapes that suggest vertebrae and femurs. The erosion is established—this landscape has settled into a bizarre equilibrium, weathered not by wind and rain alone, but by a slow, grinding geological dialogue.
+
+The humidity is oppressive. The air weeps. It doesn’t rain; the moisture simply condenses out of the white void above, a constant, heavy mist that slicks every surface. The rocks weep constant tears of calcified water, creating curtains of slick mineral runoff that freeze into drips before they can hit the ground. The water level is high, anoxic, and predatory in its stillness. It sits at the lip of the land, waiting to swallow the next shelf of stone.
+
+Sound is the constant, violent companion here. It is not the noise of animals or birds—those are long extinct or evolved away—but the roar of the earth settling. The deep groans of tectonic compression echo up the valley walls. The water, though still, emits a low, thrumming vibration, a resonant frequency that makes the teeth ache. When the wind funnels through the high passes, it doesn't whistle; it screams, a high-pitched keening that sounds like metal dragged across glass. The silence between the gusts is heavy, pressurized, waiting to break.
+
+And then, there is the breakdown.
+
+At a scale of open regional grandeur, the weirdness manifests as a failure of distance. The valley looks miles deep, yet you can see the microscopic scratches on a boulder halfway across the water as clearly as if it were in your hand. Perspective is a suggestion, not a law. Gravity feels negotiable. Pebbles don’t just roll down the slope; they sometimes hesitate, drift sideways, or float upward in slow, languid arcs before shattering against the ground.
+
+The landscape is dotted with the scattered, primitive remains of those who tried to live here. They are small structures, rough-hewn shelters made of stacked local stone, mortared with mud that has long since washed away. They look like cairns or temporary blinds. Inside, there are no hearths, no tools left behind—just smooth, hollowed-out bowls in the floor where the builders likely crouched, covering their eyes and ears against the sensory overload. The tech level was barely neolithic; they used stone hammers and their hands, trying to build walls against a reality that cracks under its own weight.
+
+The atmosphere is thick with motion that has no source. Ripples cross the surface of the lake without a breeze. Light fractures into geometric patterns that hang in the air like dust motes made of glass. Shadows detach from their objects and drift for a moment before snapping back. It is an active, dynamic ecosystem of non-life. The "fauna" here is physics itself, predatory and uncaring.
+
+You move from the shelter of one rock formation to another. The stone feels warm, vibrating with that deep, sub-audible thrum. The wetness soaks through everything, cold and clinging. Every step is slippery, perilous. There is a distinct feeling that if you were to fall into the water, you wouldn't sink; you might simply dissolve, becoming another mineral echo in this blinding, deafening hall of mirrors.
+
+This is a place where the world forgot how to be biological and became purely, aggressively geological—a bright, wet, screaming machine of stone and light, eroding slowly in a reality that is fraying at the edges.

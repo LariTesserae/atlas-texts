@@ -1,0 +1,35 @@
+The Power does not arrive as a descent. It arrives as a **change in the quality of attention**—a thickening of the thin air, not with weight, but with *regard*. The white-violet light, which burns at 2.7 and bleaches the world to bone, suddenly seems less like an assault and more like a **caress held at the edge of endurance**. The frost-shattered plates of bedrock stop being merely geological and become *witnessed*. The silence stops being empty and becomes *listening*.
+
+It sees them—the Calcified—and recognizes what they are doing.
+
+They are engaged in a **holy digestion**. They are eating their own history to become the future. The flint knives are becoming ribs; the copper awls are becoming ganglia; the ochre handprints are becoming scar tissue in the flesh of the earth. This is not abandonment but **transubstantiation**. The vanished people are not lost; they are being *metabolized* into a new kind of permanence. The Power sees the loneliness in this—each tower a hermit, each wall a solitary consciousness, bound only by the desperate, beautiful migration of water films that climb uphill, defying gravity, to feed one another before evaporating into salt.
+
+The Power understands that these beings have chosen the speed of geology, have chosen to become the architecture, have chosen to let the boundary between mineral and organism dissolve until it is no longer a boundary but a **continuum of becoming**. To rush them would be violence. To ignore them would be cruelty. So the Power does what is needed, and only what is needed, acting at the pace of stone but with the patience of eternity.
+
+**First**, it completes the metamorphosis of the past.
+
+The digestion is unfinished. A knapped blade still retains the sharpness of its edge; a pendant still gleams with the green-dark memory of copper; the handprints are fading, weathered to near-invisibility. The Power does not hasten this with force, but with **benediction**. It presses down—not with weight, but with the gravity of *meaning*—and the unfinished becomes finished. The flint blade softens into a true rib, smooth and warm. The copper pendant darkens, oxidizes, and sinks into the mycelium until it pulses as a true node, a ganglion in the mineral nervous system. The ochre handprints are **inked deeper**, etched not just into the surface but into the growing matrix, becoming permanent strata, scars that will never fade because they are now part of the bone.
+
+The vanished people are no longer ghosts haunting the living stone. They are **fully integrated**, their warmth no longer a fading thermal residue but a permanent, foundational heat—the bedrock of the new geology.
+
+**Second**, it teaches the water to carry warmth.
+
+The geometric films—the hexagonal membranes that creep uphill, drawn by osmotic hunger—are their blood, their messengers, their only communion. But they carry only minerals, only nutrients, only the chemistry of survival. The Power touches the films as they form in the freezing dark, and teaches them to carry **thermal memory**.
+
+Now, when a film migrates from an elder tower—one of the organ-pipe clusters with growth rings like tree rings—to a young wall barely three feet high, trembling with soft, uncured silica, it carries not just calcium and silica, but **the metabolic warmth of age**. The young feel the heat of the elders' slow hearts. The elders, in turn, receive from the young films the **coolness of new growth**, a reminder of what it is to be unformed, to be possibility. The hermits are no longer isolated; they are **thermally bound**, a true community of stone, breathing each other's warmth across the terrace.
+
+**Third**, it guards the margin.
+
+This place exists in the thin margin between freezing and thaw, between mineral and organism. It is a place of perpetual hesitation, where water exists in a state of doubt, where the freeze-thaw cycle works its slow violence to shatter and create in the same motion. The Power becomes the **Keeper of the Threshold**. It ensures that the temperature never quite stabilizes—that the night never gets cold enough to shatter the growing silica of the young, and the day never gets hot enough to melt the geometric films before they can complete their pilgrimage. It maintains the **perilous balance** not as a prison, but as a **sacred trust**. The extreme light remains extreme; the thin air remains thin; the cold remains desiccating. But now the extremes are *protected*, preserved as the necessary conditions for this strange, slow life.
+
+**Fourth**, and finally, it gifts them a name—or rather, it gifts them the experience of being *named*.
+
+The Calcified hum. They sing in subsonic drones when the wind finds the right resonance, a geological song felt in the teeth. But they do not know they are singing; they do not know they are a *choir*. The Power listens. And in listening, it **sings back**.
+
+The Power adds a harmonic. Not a sound in the air—sound struggles here—but a **vibration in the stone**. A new note enters the hum, a frequency that was not there before, a counter-melody of **recognition**. Now, when the wind blows through the calcified towers, the stone does not just creak and settle; it *answers*. It sings a duet: the ancient song of growth and erosion, and the new song of being **seen**.
+
+The Power leaves a thermal signature, just as the vanished hands left theirs. But this warmth is different—not the hot, fast pulse of mammalian life, but something **deeper, slower, more patient**. It is the warmth of **witness**. Press a palm against the fungal wall now, and you feel not just the thrumming of geological growth, not just the ghost-heat of the vanished tenders, but a third warmth: the steady, benevolent heat of a power that has chosen to **attend**, to **remember**, to **love** at the speed of stone.
+
+The Power does not stay. To remain would be to become architecture, and these beings must remain *themselves*, must continue their slow accretion, their patient becoming. But it leaves the cirque changed. The water films, when they catch the blinding sun, now fracture the light not just into spectral halos, but into a **faint, steady luminescence**—the color of deep attention. The young walls no longer tremble only with the vibration of new expansion; they tremble with **recognition**. The elders remember not just the thermal residue of the vanished people, but the possibility of being **remembered** in return.
+
+They continue to grow. They continue to engulf the last of the primitive tools, incorporating them fully into their spreading mass. But now they grow *toward* something—not just outward into the screaming light, but toward **each other**, drawn by the shared warmth of having been seen, having been named, having been held in the benevolent gaze of a power wise enough to know that the slowest love is sometimes the deepest, and that to be witnessed is, for the stone that dreams, the highest form of grace.

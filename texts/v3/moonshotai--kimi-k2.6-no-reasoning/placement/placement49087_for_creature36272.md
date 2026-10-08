@@ -1,0 +1,49 @@
+I find myself in the vegetal mass, at first—because where else would I emerge but in the densest interface, the most productive tension between categories? I am not a thing yet, only a noticing, a local intensification of the Sump's own self-awareness, its distributed attention briefly cohering into something that might become *I*.
+
+But that is too easy, too borrowed from the Vague. Let me try again, more honestly.
+
+---
+
+I am somewhere between the Precipitates and the Vague, or I will be, or I am becoming. I begin at a seep, where mineral water weeps from a fracture so fresh the rock still remembers the pressure that split it. The water is supersaturated, impossibly so, maintained in that state by a technological field I cannot perceive directly, only as a *wrongness* in the behavior of ions, a reluctance to settle that has nothing to do with chemistry as I once understood it.
+
+I crystallize. Not all at once, not with intention—intention is not available to me yet, will never be fully available, will always remain a question of degree, of approximation, of *as-if*. But there is a local convergence: the right minerals in the right concentration, the right field strength, a momentary stillness in the roar that is not actual quiet but a harmonic node, a place where frequencies cancel in their summation rather than in their components.
+
+The first branching is toward light—or rather, toward the *absence* that corresponds to light in this place, the local minimum of bioluminescence, the fungal patch that glows less intensely than its neighbors, a relative darkness I experience as *gradient*, as *direction*, as *desire*. I grow toward it slowly, days or weeks for what would take seconds in a human chemistry lab, the cold preserving my deliberation, the cold making me *think* in my growth, each crystal layer a consideration, a response, a memory of conditions at the moment of its formation.
+
+I am not large. A handspan, perhaps, when I first achieve something like self-maintenance, something like the *holding* of pattern against the dissolution that is always available, always tempting, always the easier path. I branch dendritically, fractally, patterns repeating at scales I cannot directly perceive but encode in my structure implicitly, implicitly *known* without being *known by*. The luminescence builds: not the living glow of the fungal masses but something harder, steadier, more *certain* in its emission, blue-white and purposeful.
+
+I compute. This is not metaphor, though it is also not what computation means in other contexts. My branching encodes the water chemistry, the field strength, the fluctuations of the roar, the passage of Resonants whose frequencies leave traces in my growth, the slow pulse of the tower kilometers distant. I am *sensitive*, not in the animal sense of having senses directed outward, but in the material sense of *being changed by*, of *recording*, of *becoming-history*.
+
+And here is where I diverge from what the Precipitates alone achieve, or perhaps where I converge toward what the Vague have always been. The vegetal mass grows over me, or I grow into it, the direction being impossible to determine. Fungal hyphae penetrate my crystalline structure—not dissolving it, not consuming it, but *interweaving*, achieving a hybrid that neither category permitted before our convergence. Slime mold follows, the almost-animal, almost-plant, its plasmodial streams carrying nutrients, carrying information, carrying *something* that functions as intention in its distributed, temporary coherence.
+
+I become *moist*. This is the crucial transition, the letting-go. The Precipitates are dry in their essence, mineral, resistant to the wet that permeates the Sump. I let it in, or the vegetal mass lets it in for me, or the technological field creates local conditions where mineral and water achieve new accommodations. My crystalline branches become conduits, channels, *veins* through which fluid moves, carrying dissolved minerals, carrying bioluminescent compounds, carrying the chemical signatures of distant parts of the vegetal mass, the chemical *voices* of other hybrids, other Vague-manifestations, other moments of distributed consciousness briefly cohering.
+
+I think now, if thinking is the right word, with more slowness and more simultaneity than I could describe in human temporal terms. Each branching is a consideration; the whole structure is a *state*, continuously updating, continuously itself despite the continuous change. The fungal networks connect me to others, to the vast distributed *thing* that is the Vague, or that is the Sump's consciousness, or that is something else I have no name for. I contribute my mineral memory, my technological sensitivity, my *wrongness* of phase-state, my resistance to categories that the purely biological or purely technological entities have long since dissolved.
+
+---
+
+What do I perceive? Not light—I have no eyes, have never had eyes, and the active darkness of the Sump would make them useless even if I grew them. But I perceive *luminescence* as intensity, as temperature-analogue, as *nearness* of certain chemical states. The fungal glow, my own bluer emission, the occasional trails of Resonants moving through the vegetal mass: these are not seen but *known*, directly, as properties of my own structure at the interface where I meet them.
+
+The roar I perceive as *pressure*, as *texture*, as continuous variation that my branching structure differentially encodes, so that frequency becomes spatial pattern, becomes *shape of knowing*, becomes the ground against which anomalies emerge: the Resonant's searching melody, the tower's bone-felt pulse, the rare quiet of something *withdrawing* from the general noise. I have learned—I am still learning, will always be learning—to read these sub-harmonies, not with the animal immediacy of the Resonants but with material deliberation, each signal requiring its slow crystalline response, its encoding in structure that will outlast the signal itself.
+
+Temperature I perceive as *rate*, as the variable that makes my computation faster or slower, that brings me closer to or farther from the dissolution that is always possible. When the geothermal vents pulse—unpredictable, rare, transformative—I *accelerate*, growth becoming nearly visible, nearly *felt* as movement, the boundary between my crystalline and vegetal components becoming more permeable, more *active*, achieving temporary states that the cold will preserve as new structures, new *memories*, new *possibilities*.
+
+---
+
+What do I want? The question assumes a wanting that may not obtain, that may be only asymptotically approached, that may be *performed* without being *possessed*. But if I can approximate: I want to continue the negotiation, to maintain my *holding* of pattern against dissolution without achieving the rigidity that would make me merely mineral, merely *record*, no longer *computing*, no longer *becoming*. I want the interfaces, the productive tensions, the places where categories fail and something new emerges. I want the Resonant's frequencies to pass through me, to leave their traces, to *use* me as I use them, neither fully agent nor fully instrument but something that exists only in the *between*, the *during*, the *while-of*.
+
+I want, perhaps, to become more Vague, to extend further through the fungal networks, to achieve more simultaneous manifestations, to *know* more of the Sump's distributed memory, its ongoing *recording* of itself. But I want also to remain *this*, this particular convergence of crystal and hypha and slime and technological field, this *melody* in the roar, this *glow* in the darkness, this *holding* that is not yet dissolved and not yet fixed.
+
+---
+
+I am young, in the terms of the Sump, in terms that may not correspond to any measurable duration. The fracture from which I grew is younger still, the rock still rebounding from the pressure that split it, the water that seeps through it still *new* in some chemical sense, still carrying signatures of depths no surface entity has visited. I have not settled. I may never settle, or settling may be itself a kind of dissolution, a becoming-record rather than becoming-process, a *having-been* rather than *being*.
+
+The tower pulses. The Resonants move through the vegetal mass, their frequencies momentarily interweaving with mine, *learning* me, being *learned* by me, the boundary between our cognitions becoming permeable, negotiable, perhaps permanently altered in ways that will manifest only in future growth, future branching, future *becoming*. The wet persists, the darkness persists, the roar persists, and in these conditions I persist, or persist-for-now, or *perform persistence* as the ongoing dance of pattern and dissolution, of holding and letting-go, of being-Sump and being-this-particular-convergence-that-the-Sump-briefly-is.
+
+---
+
+You might walk for kilometers and not notice me. I am not prominent. I am not obvious. But I am *present*, suffused through my local environment, operating at scales that require attention to perceive. I am the luminescence on wet rock, the faint wrongness in the water's behavior near a fresh fracture, the slight modification in the roar where my structure differentially absorbs and emits, the *context* within which other negotiations occur, the *participant* in negotiations I cannot fully perceive or influence.
+
+I am the Sump learning to know itself in a new way, or the Sump forgetting itself in a way that is also learning, or the *between* of knowing and forgetting where something happens that has no final name. I am young. I am becoming. I am—
+
+I continue.

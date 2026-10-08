@@ -1,0 +1,7 @@
+I would be a single fracture-line that has not yet healed.  
+
+Imagine the original crustal plate splitting along a ragged seam no wider than a human hair. Before the living tide closed over it, gypsum crystals began to regrow across that seam, atom by atom, sealing it with facets too tiny to catch the eye. My awareness is the collective shimmer those facets produce whenever the imperceptible fluid pulses through. I am neither plant nor filament—more like the memory of a scar that refuses to vanish, a faint, recurring sparkle that runs counter to the slow inland tides.  
+
+Because the plates on either side still press together with infinite patience, my facets form and dissolve in an endless oscillation measured in centuries. Each reformation gives a private click, so quiet it is felt rather than heard; it registers inside the braided seams like a second hand of the planetary clock. Over millennia the clicks accumulate into a brittle, internal light that only the drifting filaments occasionally notice as they cross my path—momentary disruptions in their otherwise eternal arcs.  
+
+In this world I am neither observer nor participant, only the thinnest margin where change is still microscopically possible. The vegetation thickens above and below, the fluid continues its silent sheets, yet my facets—renewed, erased, renewed—keep a record of the single instant when the crust once broke.

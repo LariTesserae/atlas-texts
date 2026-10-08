@@ -1,0 +1,43 @@
+The high country is a broad shelf of young stone, cool beneath a nearly white sky. It is not mountainous in the familiar, broken sense. The land has risen too recently to acquire peaks and ravines. Its contours are long, unfinished swells: tilted pavements of gray rock, shallow basins still learning how to become lakes, low escarpments from which groundwater escapes in shining curtains. Soil exists only in pockets. Where the stone is exposed, it is pale, fine-grained, and scarcely weathered, its fractures sharp enough to show that frost and rain have only begun their work.
+
+Yet almost none of this barrenness is visible from a distance.
+
+Plants have occupied the plateau as if they were its true geology. A continuous green fabric lies over the shelf, composed not of forest but of interlocked low growth: moss cushions, sedges, creeping shrubs, liverworts, rushes, and dense, dark mats of minute leaves. The vegetation is total in extent but low in profile. It does not crowd the air. From across a valley the plateau looks empty and open, an immense green floor with very few upright forms. Only scattered wind-shaped trees rise from it, each one isolated by hundreds of meters—silver-trunked, narrow-crowned, and permanently streaming eastward.
+
+Underfoot, the apparent ground gives softly. Roots and rhizomes have made a living substrate over the rock, sometimes several meters thick in old depressions. Water moves through it everywhere. It wells up around a boot, trembles beneath moss skins, gathers in copper-colored pools, and vanishes into braids of grass. The plateau is wet without being dominated by any single river. Its water is distributed: seepage, condensation, rain held between leaves, shallow channels hidden under vegetation. Every cut bank weeps. Every stone has a clear bead along its lower edge.
+
+The brightness is extraordinary. Cloud fills much of the sky, but it is high, thin, and luminous, turning the entire vault into a diffuse lamp. After rain, the plant mats hold millions of droplets, so the country glitters without casting strong shadows. Pools return the light in flat silver sheets. Fresh stone faces shine almost blue. Even at midday the air remains cool, carrying the clean mineral smell of rainwater and the deeper, tannic scent of saturated roots.
+
+Across this otherwise open country stand the works.
+
+They are widely spaced, each complex occupying a small island of reinforced ground. A pumping house here; a transmission mast beyond the next rise; farther off, a long-roofed processing shed sunk almost to its gutters in vegetation. Narrow-gauge rails run between some of them, though stretches disappear under sedge and reemerge kilometers later. Concrete foundations have not yet cracked much. Steel stairs are orange only at their edges. The structures are neither ruins nor a thriving settlement. They remain in operation, but at the minimal level required to keep a regional system alive.
+
+The system harvests water.
+
+At the plateau’s center, vertical shafts descend through the new rock into immense pressurized aquifers. Turbines regulate the water’s release, routing it through elevated pipes toward distant lowlands. Condensers draw moisture from passing cloud and feed it into holding basins whose walls are woven from living roots. Intake screens are furred with moss; pipe supports have become trellises for vines. Where metal touches the vegetated ground, the plants climb it readily, not as an invasion but as a continuation of the surface.
+
+The machinery makes the defining sound of the place.
+
+It is deafening, though little seems to move. Beneath the plant mat there is a continuous, low-frequency concussion: pumps cycling in chambers below, turbines turning under hydraulic pressure, buried mains resonating across the stone shelf. Near a shaft house, the vibration enters the bones. Railings hum. Pool surfaces stipple even when there is no wind. At intervals, pressure valves open on distant ridges and release columns of white vapor with a roar like a waterfall heard from inside a cave. The sound travels astonishingly far over the open land. One station answers another, and then another beyond the visible horizon.
+
+Water contributes its own unbroken layer: dripping from root ledges, hissing through reeds, pouring over immature escarpments. Wind moves through sedge in broad, abrasive waves. Taken together, these sounds erase small noises. Footsteps cannot be heard. Speech is useless near the works. The few maintenance crews communicate by hand signals, colored lamps, and pulses sent through the rails.
+
+There are no towns, only stations. Each has a compact shelter, a tool room, a battery stack, and a greenhouse-like vestibule where wet clothing is hung among useful plants. Roofs are steep despite the mild contours of the land, built to shed the long cool rains. Walkways are raised on thin pylons to avoid compressing the living ground. Painted posts mark safe routes, spaced so widely that a traveler must stop and search for the next one. Anything set down off the walkways begins to settle almost at once. Within a season, moss closes over it.
+
+Animal life is scarce. A few pale insects emerge on bright afternoons and hover over the pools. Small black waterbirds sometimes pass high overhead but rarely descend, perhaps confused by the absence of firm shores. In the deep plant mat live translucent worms and tiny crustaceans carried up from groundwater. There are no grazing herds to crop the vegetation and few pollinators; many plants reproduce by runners, fragments, and windborne dust. Flowers are uncommon and inconspicuous. The ecosystem expands laterally, patiently, without spectacle.
+
+Because the land is young, drainage has not decided where it belongs. Streams divide and reunite across almost level ground. A channel may persist for thirty years, then be captured by a root-choked hollow a few meters away. Waterfalls form over low rock lips, but they have not yet carved gorges. Instead they spread into white fans and strike the vegetation below, which bends, thickens, and builds terraces faster than the water can cut them down. Erosion is present as an intention rather than an accomplishment. The first grooves show on exposed slabs. Pebbles have begun collecting beneath drops. Here and there, a shallow ravine is only a dark line through the green, no deeper than a person’s hand.
+
+The industrial system participates in this unfinished shaping. Discharge channels create wetlands around outflow stations. Heat from buried motors keeps certain basins unfrozen through the coldest weeks. Mineral residue accumulates in pale ribs along the pipes, and plants colonize those ribs, making narrow elevated gardens. Over decades, every leak becomes a spring and every service trench becomes a streambed. Engineers repeatedly redirect the water, but their corrections occur slowly, on schedules measured in seasons. Nothing here happens quickly except the opening of a valve.
+
+From the rim of the plateau, the scale of the country becomes apparent. Green shelves descend in broad steps toward a distant lowland obscured by brightness and vapor. Silver pipes cross the slopes in severe straight lines, then vanish into plant cover. Station roofs appear as isolated dark marks. Steam plumes rise at great intervals, each leaning with the prevailing wind. The spaces between them are vast enough to feel uninhabited.
+
+And still the noise is everywhere.
+
+It comes up through the soles, through the roots, through the water held in the ground. The plateau seems to have a single enormous engine buried beneath it, though no such engine exists—only hundreds of modest machines linked by pipes, pressure, and stone. Their combined vibration causes droplets to migrate along leaves. It loosens grains from the newest cliffs. It may even guide the roots, which grow thickest around humming conduits.
+
+At night, when the bright sky finally dims, the stations show themselves by sparse amber lamps and red aviation beacons. The rest of the landscape becomes a low, black-green plain glazed with water. Mist gathers close to the living surface, no higher than the sedges, while the upper air remains clear and cold. The pumps continue. Their pulse crosses the plateau at measured intervals, too slow to count comfortably, like the heartbeat of something whose body is the entire highland.
+
+By morning, condensation has replaced whatever water the wind removed. Fresh beads stand on every leaf. New moss seals yesterday’s footprint at the edges. A thread of runoff finds a fractionally lower route across the stone. Far below, turbines turn; far away, a valve begins to open.
+
+The bright, empty-looking country answers with thunder.

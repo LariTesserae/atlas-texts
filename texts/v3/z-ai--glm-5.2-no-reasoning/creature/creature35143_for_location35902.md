@@ -1,0 +1,159 @@
+# What Lives in the Canopy of First Light
+
+## The Scattered People
+
+They are not a people in the way that most peoples are a people — bound by shared language, shared myth, shared origin. They are bound by *texture*. By the specific way the floor-mat yields under a foot that has learned to read it. By the particular quality of silence that precedes a Great Fall, which every child is taught to recognize before they are taught to walk. They have a dozen words for the wetness of air and no word for the whole of where they live, and this is not poverty of language but refusal of it. To name the whole would be to set it apart from the self, and they do not conceive of themselves as separate from the mass. They are *of* it. They are the part that walks.
+
+---
+
+### The Bands
+
+There are perhaps forty bands. No one has counted, and counting would require a conception of the whole that no band possesses. They know their neighbors — the two or three bands whose territories border theirs, whose carved marks they recognize on the column walls, whose children they have sometimes traded with, whose dead they have sometimes buried — but beyond that, the mass goes on, and somewhere in it, other bands live and move and mark and die, unknown.
+
+A band is twelve people. Sometimes eight. Sometimes twenty. The number breathes, the way the mat breathes — swelling after a good season when the arthropodal creatures are thick and the condensation is heavy, contracting after a predator takes someone, after a sickness moves through the close dark shelters, after a Great Fall reshapes the territory and a band fragments into smaller bands because the old hunting grounds are buried under new growth.
+
+They are kin. Not in the strict sense of bloodlines — though blood is tracked, carefully, through maternal lines, because the women carry the knowledge of which children belong to which unions and this knowledge is guarded like fire — but in the sense of *shared substrate*. A band has lived on the same section of the mass for generations. They know its moods. They know which galleries flood after heavy condensation and which stay dry. They know where the mat is thin and the stone is close beneath and a fall could kill. They know which columns are old enough to have hard hearts, resistant to the boring predators, and which are young and soft and dangerous because the things-that-walk-through-walls can emerge from them without warning. This knowledge is not written. It is not even spoken in the conventional sense. It is *enacted* — performed in the daily movements of the band, in the paths they walk, in the way the elder hands touch certain columns in passing, a gesture that is greeting and check and memory all at once.
+
+Children learn the territory the way children everywhere learn language — by immersion, by being within it, by the slow accumulation of pattern through repetition. A child of the Canopy does not need to be told that the gallery with the dark pool is where the band collects water. The band goes there every day. The child follows. The path becomes part of the child's body, stored in the feet, in the spatial memory, in the muscles that know the way the way the hands know a familiar tool. By the time a child is old enough to walk alone, they have walked the territory a thousand times, and their body knows it the way their body knows its own shape.
+
+---
+
+### The Woven Houses
+
+They build by *negotiation*.
+
+The houses are not constructed. They are *conversed into being*. The band selects a gallery — a space between columns, a place where the mat is thick and the floor is firm and the air moves enough to carry the smell of predator-markings away rather than trapping them. Then they begin.
+
+The weavers — and this is the closest thing the bands have to specialists, though every adult can weave and most can weave well — select young growth. Not the old columns, those are too thick, too rigid. The young shoots, the vine-like growths that emerge from the mat's surface, the fibrous tendrils that reach upward seeking the green light that will never reach them in the deep galleries. These are flexible. These are *willing*, in the weavers' sense of the word — willing to be trained, willing to grow where they are guided, willing to accept the shape that human hands impose on them.
+
+The weavers bend them. Tie them with cordage — dried fiber from the inner tissue of dead columns, twisted tight, holding the young growth in curves and arches and the beginning of walls. The growth resists, then accepts, then grows *into* the shape, thickening where it is bent, strengthening where it is tied, producing new shoots at the joints and junctions that the weavers will train in turn. Over weeks, the house takes shape. A dome, usually. Low and close, because the galleries are not tall in the deep levels and a tall structure would block the gallery for other uses. A doorway, narrow, facing away from the prevailing air current. Inside: sleeping platforms woven from thicker fiber, raised slightly above the mat floor to keep bodies off the damp. Storage chambers, small, sealed with resin, holding dried arthropod-meat and ground stalk-pith and the tools of the band's daily life.
+
+The house lives. This is the thing that outsiders — if there were outsiders, if there were anyone to whom this needed to be explained — would find most difficult to understand. The house is not a thing that was made and then finished. It is an ongoing relationship between the band and the plant mass, a collaboration that requires constant attention. The walls grow. The doorway narrows. New shoots emerge in places where shoots are not wanted — inside the sleeping platforms, through the storage chambers, across the ceiling in patterns that the weavers did not intend. A house untended for a season will close itself. A house untended for two seasons will become a dense knot of living tissue that was once a home and is now just growth, and the band will have to cut their way back in if they want to reclaim it, and the cutting is slow and difficult because the living mass does not want to be cut and the sap that flows from the wounds is sticky and acrid and attracts the smaller arthropods in swarms.
+
+So the weavers work constantly. Every day, someone is pruning. Someone is tying back a shoot that has grown too far. Someone is widening a doorway that has narrowed by a centimeter. Someone is pressing resin into a gap where two growths have separated, sealing the wall against the cold. The work is not onerous — it takes perhaps an hour a day for each adult to maintain their share of the structure — but it is *constant*, and this constancy is the true architecture of the house. The house exists because the people show up every day and ask it, with their hands, to continue being a house.
+
+When a band moves — and they move, sometimes, when a Great Fall reshapes the territory, when the predators become too dense, when the mat begins to thin in their section and the stone beneath grows close and cold — they leave the houses. The houses do not survive long without them. Within a season, the doorways close. Within two, the walls thicken into solidity. Within three, there is no sign that people ever lived there, only a dense knot of growth in a gallery that looks like any other. The mass takes back what was always its own.
+
+---
+
+### The Daily Round
+
+The day does not exist here.
+
+Not in the sense of a twenty-four-hour cycle of light and dark. There is no light. There is only the dark, and within the dark, the rhythm of the band's activity, which is shaped not by the sun but by *need*. They sleep when they are tired. They eat when they are hungry. They work when the work needs doing. The concept of *time* that the bands hold is not linear but *cyclical* — the condensation cycle, the growth cycle, the cycle of predator activity that rises and falls with patterns no one fully understands but everyone learns to read.
+
+The women wake first. This is not rule but tendency, and the tendency is strong enough to be called custom. The women wake, and they check the water — the collection points where condensation gathers in the crotches of columns, the slow pools where the stream-water collects in hollows in the mat. Water is the first task of every waking, because water is life in a way that even food is not. Without water, you weaken in a day. Without water for two days, you cannot work. Without water for three, you cannot walk. The women know this. The women carry this knowledge like they carry their children: close to the body, always.
+
+The men wake next, or perhaps the women have already woken the men by their movement through the shelter, by the sound of their footsteps on the mat, by the small noises of water-collection that are the first sounds of the band's daily round. The men check the traps. The traps are set in the galleries near the shelter, in the places where the arthropodal creatures travel — the narrow passages between columns, the edges of the mat where the floor transitions from firm to spongy, the places near water where the clickers come to drink condensation from the column surfaces.
+
+The traps are woven. Nets, mostly. Fiber cordage strung between columns, forming barriers that funnel the arthropods into pits dug into the mat — shallow depressions lined with resin, smooth-sided, from which the creatures cannot climb. The trappers check them by touch, reaching into the pit, feeling for movement, for the specific vibration of a trapped creature's legs against the resin surface. If the trap is empty, it is reset. If the trap has caught something, the creature is killed quickly — a stone blade across the joint between head and thorax — and carried back to the shelter.
+
+The children wake last, and they wake to a world that is already in motion. The adults are working. The shelter smells of resin and dried meat and the faint green smell of the living walls. Someone is tending the fire — the small, careful, precious fire that burns in a hollowed column-segment, fed with bits of dried plant material that produce more heat than smoke, tended with the attention that a mother gives a sleeping infant because fire, in this place, is death if it escapes and life if it does not.
+
+The children do not have lessons. They have *presence*. They are present while the adults work, and they watch, and they absorb. A child of four can identify the sound of a clicker moving through a gallery at twenty meters. A child of six can find water in the mat by pressing the floor with the ball of the foot and feeling for the slight give that indicates a stream-channel beneath. A child of eight can weave a basic wall, can set a simple trap, can read the carvings on a column and know which band left them and how long ago. By twelve, the child is not a child but a member of the band, contributing to the daily round, carrying their weight, responsible for their share of the work and their share of the danger.
+
+There is no adolescence. No prolonged period of dependency, of learning separated from doing. The transition from child to adult is not marked by ceremony — or rather, it is marked by the *absence* of ceremony, by the simple fact that one day the band stops treating the child as a child and begins treating them as an adult, and the child does not notice the transition because it was not a transition but a continuation, a smooth growth from presence to participation.
+
+---
+
+### Food
+
+The bands eat what the mass provides.
+
+The arthropodal creatures are the primary protein. The clickers — the ones whose feet tap on the columns — are the most common, the most reliable, the most easily trapped. They are the size of a human hand, their bodies armored in dark chitin that must be cracked to reach the pale meat within. The meat is dense, slightly sweet, with the faint mineral tang that characterizes everything that grows from the mass. It can be eaten raw but is usually dried — split, cleaned, hung in the upper galleries where the air moves and the faint green light provides just enough energy to inhibit bacterial growth. Dried clicker-meat keeps for weeks. It is the staple. The thing the bands always have, always carry, always offer to visitors from other bands as the gesture of peace and plenty that it is.
+
+The crawlers — the flat, many-legged scavengers of the mat floor — are eaten when they are caught, but they are harder to trap and less valued because their meat is tougher, more bitter, flavored by the dead plant matter they consume. A band will eat crawlers if the clicker-traps are empty, but they will not seek them out. There is a faint social stigma attached to a band that relies heavily on crawlers, an implication that their territory is poor, their trapping-grounds depleted, their skills insufficient. This stigma is never spoken. It is *implied*, in the way one band talks about another's hunting, in the quality of the dried meat offered during a visit, in the silence that follows a question about how the traps have been running.
+
+The larger arthropods are rare and dangerous. The things that fly between the columns on membranous wings, navigating by sound — these are hard to catch, fast, and their stridulation can be deafening at close range, a defense mechanism that can disorient a trapper long enough for the creature to escape. But their meat is rich, dark, almost fatty, and a band that catches one will share it communally, eating it fresh around the fire, the crack of chitin and the sound of satisfied chewing filling the shelter with a warmth that is more than thermal.
+
+The stalk-pith is the other staple. Certain young columns — the ones that are still growing, still translucent, still soft enough to cut with a stone blade — contain a starchy pith that can be extracted, dried, and ground into meal. The meal is bland, slightly green, and can be mixed with water and pressed into flat cakes that are dried on stone surfaces near the fire. The cakes are dense and filling and keep indefinitely, and they are the food the bands carry when they travel, when they move between galleries, when a Great Fall has disrupted the territory and they must walk for days through the mass to find new ground.
+
+The condensation water is collected from the column surfaces, from the crotches where columns branch, from the pools that form in the mat. It is cold, clear, faintly sweet with the chemical signature of the mass — the chlorophyll tang, the mineral edge, the thing that has no name but is the taste of *here*. The bands do not boil it. They do not treat it. They drink it as it comes, from collection vessels made of hollowed column-segments sealed with resin, and it has never made them sick because the mass filters it as it filters everything, through layers of living tissue that strip impurities with the efficiency of a system that has been running for centuries.
+
+There are things they do not eat. The things-that-swim-in-the-dark-pools — the pale, eyeless creatures that live in the larger water accumulations deep in the mass — are avoided, not because they are dangerous but because the pools where they live are sacred in a way that no one explains and everyone understands. You do not eat what lives in the still water. You do not disturb the still water. You pass the pools in silence, and if you must drink from them, you drink from the edge, from the place where the water seeps into the mat, and you take only what you need. The still water is the mass's *own* water, not the condensation that runs down the columns, and to take from it freely is to take from the mass itself, and the mass remembers.
+
+---
+
+### The Deep Calls
+
+The predators are called *the ones who walk through walls*, and this is not metaphor, and the people who live in the mass do not speak of them lightly.
+
+They are large. The people have seen them — from a distance, in the moment of emergence, when a bore-hole opens in a column wall and the head comes through, armored and dark and glistening with the sap of the living tissue it has displaced. The head is the size of a human torso. The body that follows is limbless, or nearly so — the people disagree on this point, because the body is rarely fully visible, already retracting into the next column, already boring onward, and what looks like a limb may be a fold of skin, a ridge of armor, a fragment of plant tissue caught on the body as it moves. The people agree on this: the thing is fast. The thing is silent except for the deep call. The thing takes what it takes and is gone before anyone can respond.
+
+The deep call is how the people survive.
+
+It is not a sound in the conventional sense. It is a *vibration*, transmitted through the structure of the mass itself, through the columns, through the mat, through the compressed dead layers and the living tissue and the sap that flows through it all. You do not hear it with your ears. You feel it in your feet, in your palms when they are pressed against a column, in the pit of your stomach, in the bones of your pelvis when you are sitting on the mat floor. It is a low pulse. A deep throb. The frequency is below what the ear registers as sound but above what the body can ignore. It is the sound of something vast moving through the structure, and it carries information: the direction of the movement, the speed, the depth — deep calls from the lowest levels are felt more than heard, a distant tremor, while deep calls from nearby are a physical assault, a vibration that makes the teeth ache and the vision blur.
+
+The people have learned to read the deep calls the way a sailor reads swells.
+
+A distant call, faint, regular — the predator is far away, moving steadily, not hunting. The people continue their work. They are aware but not alarmed.
+
+A closer call, irregular, with pauses — the predator is searching. It has detected something. Not necessarily the people — could be a large arthropod, a flyer that has landed in a gallery, a crawler that has ventured too far from the mat floor. The people become quiet. They move to the walls of their shelter, press their backs against the living columns, reduce their profile. They wait.
+
+A close call, rapid, with a rising frequency — the predator has found something. It is moving toward prey. The people leave. Not running — running in the mass is dangerous, the mat is uneven, the galleries are dark, a fall can kill you — but moving quickly, silently, in the direction the call is *not* coming from. They know the direction because the columns carry the vibration differently depending on the angle of transmission, and every adult has learned to feel the difference between a call coming from ahead and a call coming from behind the way every adult has learned to feel the difference between cold water and warm water.
+
+The predators take people. Not often. Not frequently enough to make the mass uninhabitable, not regularly enough to create a culture of terror. But they take people. A band that was twelve is eleven. A child who was learning to weave is gone. An elder whose hands knew every column in the territory is absorbed into the thing that bored through the wall and emerged and took and was gone, all in the space of a breath, a breath that the people did not hear because the thing was silent except for the deep call that came *after*, that came *as it was leaving*, that came not as a warning but as an announcement: *I was here. I have taken. I am moving on.*
+
+The people do not mourn in the way that other peoples mourn. They mourn by *continuing*. The band that was twelve is eleven, and the eleven continue the daily round, the water-collection, the trap-checking, the house-weaving, the fire-tending, because the alternative is to stop, and to stop is to die, and the dead would not want the living to die. This is not spoken. It is not a belief that is articulated. It is a practice, a way of being, a thing that the body knows and the body does.
+
+When a child is taken, the mother does not weave for three days. This is the closest thing to ritualized grief that the bands possess. The mother sits in the shelter, and the others bring her water, bring her dried meat, bring her the small attentions of a community that knows what has happened and knows that nothing can be done about it and knows that the mother will weave again when she is ready, and the loom will be there, and the young growth will have continued reaching upward in the green-dark, and the work will continue because the work is the life and the life is the work.
+
+---
+
+### The Carvers
+
+There is one specialization that the bands recognize as distinct from the general competence of adulthood. The carvers.
+
+Not every band has one. A carver is born, not made — or rather, a carver is *recognized*, not trained. The ability emerges in childhood, in the particular sensitivity of a child's hands on the column surfaces, in the way certain children touch the living tissue and seem to feel something that others do not — the growth patterns, the density, the places where the tissue is hard and where it is soft, where a cut will hold and where it will heal over quickly. These children are given carving tools — stone blades of a particular shape, angled, with edges that can shave the waxy surface of a column without penetrating the living tissue beneath — and they are given time, and they are given *permission*, which is the thing that matters most, because carving the columns is something that every person does but that only the carvers do *well*.
+
+The marks are simple. Notches, indicating territory — this gallery belongs to this band, this hunting-ground is claimed, this water-collection point is in use. Spirals, indicating time — the number of turns corresponds to the season of the last visit, so a band returning to a gallery can read the marks and know how long since they were here, whether the territory has been visited by others in their absence, whether the marks are fresh or old or fading. Patterns, indicating clan — the specific combination of lines and curves that identifies a band and its lineage, that says *we are these people, we come from these people, we have lived in this section of the mass for this many generations*.
+
+The carvers do more than mark. They *record*. The history of the band is in the columns — not in written language, because the people have no written language, but in the accumulated marks that the carvers have left on the surfaces of the mass over generations. A carver can walk into a gallery they have never visited and read its history in the marks: who lived here, how long, what happened to them — the marks that stop abruptly indicate departure or death, the marks that change pattern indicate a new band moving in, the marks that are grown over and barely visible indicate great age, a band that lived here long ago and moved on or was taken and is gone.
+
+The carvers are the closest thing the bands have to historians, to priests, to keepers of memory. They are also the closest thing they have to *artists*, because some carvers — not all, but some — go beyond the functional marks and create patterns that are not informational but *aesthetic*. A face, perhaps. A shape that resembles nothing in the physical world but that the carver felt in the column's surface and brought forth with their blade. A pattern of lines that does not indicate clan or season but that is beautiful, in the way that anything is beautiful when it is made with attention and care and the specific intention of making something that did not exist before.
+
+These artistic carvings are not explained. They are not discussed. They are simply left, and the people who pass them pause, and touch them, and feel the shape of the carver's intention under their fingers, and move on. The carvings will be grown over in time. The mass will heal them, as it heals everything, covering them with new tissue, absorbing them into the body of the world. But before they disappear, they were there, and someone saw them, and someone touched them, and the beauty was *received*, even if it was not acknowledged.
+
+---
+
+### Between the Bands
+
+The bands are not isolated. They know this — they know there are other bands, other peoples, other sections of the mass where other people live and work and die — because they encounter them.
+
+The encounters are not frequent. Perhaps two or three times in a person's life, a band will meet another band. The meetings happen at the edges of territories, in the galleries where one band's marks give way to another's, in the places where the mass is thinner and the columns are farther apart and the space between territories is neutral ground.
+
+The encounters are careful. The bands approach each other slowly, making noise — not the quiet, controlled movement of daily life within the territory, but deliberate sound, footfalls heavier than necessary, hands clapping against column surfaces, voices calling in the particular wordless shout that means *we are here, we are people, we know you are there, we come in openness*. The noise is essential. To approach another band silently is to approach as a predator approaches, and the response to a silent approach is not welcome but defense.
+
+When the bands meet, they trade. Dried meat from different sections of the mass tastes different — the arthropods that feed on one kind of column tissue have a different flavor than those that feed on another, and the people appreciate the variety. Tools are traded — a blade of particularly fine stone from a section where the rock is good, a length of cordage made from a fiber that is stronger than what another band's territory produces. Knowledge is traded — the patterns of predator activity in one section, the news of a Great Fall that has opened new galleries or closed old ones, the memory of a band that was encountered three seasons ago and has since disappeared, its marks grown over, its territory empty.
+
+The encounters are brief. A few hours. A shared meal, perhaps, if the trade has been good and the mood is open. Then the bands separate, returning to their territories, carrying their new goods and their new knowledge back into the sections of the mass that they know and that know them.
+
+Sometimes the encounters are not brief. Sometimes a band has been diminished — a predator took too many, a sickness moved through the close shelters, a section of the mat collapsed and dropped three people into the dark between the layers — and the band is no longer viable, no longer large enough to maintain the houses, to check the traps, to watch for the deep calls. In these cases, the band dissolves. The people join other bands, one by one, accepted with the quiet pragmatism that characterizes all the decisions the bands make. A band of twelve that has lost four may join with a band of ten, becoming a band of eighteen, which is large but manageable, which has the numbers to survive the next loss, the next sickness, the next collapse.
+
+The people do not conceive of this as tragedy. A band that dissolves is not a failure. It is a *change*, the way the growth of the mass is a change, the way the galleries narrow and widen and the columns thicken and the mat rises. The people are part of the mass, and the mass changes, and the people change with it.
+
+---
+
+### The Light-Seekers
+
+There is one more thing to say about the people, and it is the strangest thing, and it is the truest.
+
+Some of them go up.
+
+Not all. Not many. But some — usually the young, usually those who have not yet lost someone to the deep calls, those for whom the mass is still a wonder and not yet a cage — climb. They climb the columns, they find the galleries that rise, they ascend through the levels of the living mass, through the deep dark, through the middle levels where the greenish glow begins to seep through the translucent columns, up to the upper galleries where the light is real, where the canopy thins, where the outside world presses against the surface of the mass and the air carries smells that are not green, not mineral, not *here*.
+
+The light-seekers do not stay. They go up, and they see — the green light, the translucent columns glowing like jade, the vast vaulted spaces of the upper canopy, and sometimes, through a wound in the canopy, the sky itself, which is not dark but *bright*, blazing with a light so intense that it hurts, a light that has no source and no direction but simply *is*, everywhere, everything, the opposite of the world they know. They see this, and they are changed, and they come back down, and they do not speak of what they saw, not because it is forbidden but because they cannot. There are no words. The words they have are words of the mass — words for bark-texture, for air-wetness, for the silence before a Great Fall — and none of these words can hold the light. The light is outside the language, outside the world, outside the everything that the people know.
+
+But the light-seekers are different, after. They move differently. They pause in the deep galleries and look upward, as if listening for something that the mass does not carry. Their hands on the columns are slower, more tentative, as if they are no longer sure that the mass is all there is. They are respected, and they are distrusted, and the bands do not know what to do with them, because the bands are *of* the mass and the light-seekers have touched something that is not the mass, and the mass does not know what it means to be not-mass, and the people do not know either.
+
+Most light-seekers become carvers. This is the thing that is understood but not spoken: that the carvers, the ones who feel the patterns in the column surfaces, the ones who make the marks that are not functional but beautiful, the ones who create shapes that resemble nothing in the physical world — these are the ones who have been up. Who have seen the light. Who carry, in their hands, the memory of a world that is not green-dark and cold and alive and becoming, but bright and still and vast and *other*. And they bring this memory back down, into the mass, into the dark, and they press it into the columns with their blades, and the shapes they make are the closest thing the people have to a record of what exists beyond the world they know.
+
+The carvings of the light-seekers are the most beautiful things in the Canopy. They are also the most fragile. The mass grows over them quickly — more quickly, it seems, than it grows over the functional marks, as if the mass itself does not want to hold these images, as if the living tissue recognizes that these shapes do not belong to it and works to erase them. The light-seekers know this. They carve knowing that their work will disappear, that the columns will heal, that the mass will take back the surfaces that they have claimed, and they carve anyway, because the carving is not for the mass. The carving is for *them*. For the moment when the blade touches the surface and the shape emerges and the memory of light is, briefly, visible in the dark.
+
+---
+
+## What Lives Here
+
+What lives in the Canopy of First Light is a people who are not a people, in a place that is not a place, inside a living thing that is also their world. They are small and few and they carry fire in the dark and they carve light into walls that will not hold it. They are not the point of the Canopy. The Canopy does not have a point. The Canopy is a living mass, growing, becoming, digesting its own dead and building itself up, and the people are simply the part that walks, the part that weaves, the part that carves, the part that climbs toward the light and comes back down and does not speak of what it saw.
+
+They are enough.

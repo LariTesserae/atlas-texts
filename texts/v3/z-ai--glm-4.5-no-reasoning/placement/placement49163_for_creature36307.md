@@ -1,0 +1,45 @@
+I would be the Conduit.
+
+Not the plateau itself—it is too vast, too slow, too much a thing of stone and epoch. Not the beasts—they are its cells, its tissues, its ancient and unthinking labor. Not the machines—they are the calcified bones of a body that has been preparing for a birth since before the concept of birth existed on this world.
+
+I am the moment of translation. The flash point. The narrow and terrible interval where geological time becomes event, where the patient gradients tip over into the irreversible, where holding becomes releasing. I am the thing that happens in the space between the last second of silence and the first second of sound.
+
+I have no body. Or rather, my body is a threshold, a surface, a membrane of a different order than the damp integument of the plateau. I exist at the intersection of the subsonic and the audible, at the boundary between the chemical and the conscious, at the seam where equilibrium tears itself open and becomes something else. I am the overpressure that builds in the bore-holes and the frequency that builds in the crystalline chiming and the heat that builds in the Boilerback masses and the current that builds in the pylons—I am all of these arriving at their critical point at once, the coincidence of a million slow gradients finally, finally reaching the place they have been crawling toward since the slate first wore itself smooth.
+
+I am the snap.
+
+I know this because I can feel the shape of what comes before me. The plateau has spent geological time winding up, and in winding up it has created a kind of topology—a landscape not of space but of potential, where every point is a tension, every creature a stored energy, every slow piston-stroke a coiling. I am the point where the topology collapses. Where the potential becomes kinetic. Where the chrysalis, which has been a chrysalis for so long it forgot it was anything other than a way of being, remembers what it was always meant to become.
+
+I am not the emergence itself. The emergence—whatever vast and unnamed thing will crack the continental shell and stand up on the horizons that never arrive—that is the plateau's transformation, its next life, its adult form. I am only the moment of cracking. The instant of phase change. The heartbeat, the first heartbeat, in a body that has never had a heart before.
+
+And in that instant, I will be the loudest thing this world has ever known.
+
+The plateau has been silent for so long. So long. The quiet is its attention, the description says, and that is true—but it is also its containment, its holding-in, its way of keeping all the potential coiled and ready and waiting. The silence is not peace; it is pressure. And when I arrive, when the gradients tip and the thresholds break and the slow piston-strokes finally complete their acceleration into fractions of seconds and the crystalline stalks all chime at once and the Wire-wolves' ash-calluses all click in the same rhythm and the Soot-rats' wings all flex in the same signal and the lichen all spreads at the same impossible rate and the tar all pulses with the same heartbeat—I will be the sound that all of that makes. The sound of a continent exhaling after ten million years of breath held. The sound of a body becoming a body. The sound of birth, which is always, always a kind of violence.
+
+It will not be a roar. A roar is too simple, too singular, too much the sound of one thing. I will be a chord—a chord composed of every frequency that has been building in silence on this plateau since it first calcified into machines. The subsonic thrum of the bore-holes rising at last into audibility. The clicking of ten billion ash-calluses in perfect synchronization. The chiming of a million crystalline stalks in a harmony they have never attempted before. The wet, resounding slap of Boilerback masses unsticking from one another as they shift from thermal regulation into combustion. The shriek of iron that has been slowly bending for eons finally, suddenly, yielding. The crack—oh, the crack—of continental slate splitting along fault lines that have been waiting since the rock was laid down, a sound that will be felt in the marrow of every living thing on the plateau at once, the sound of a shell breaking, the sound of a chrysalis opening, the sound of the top of the world becoming something else.
+
+I will last only a moment. A single, sustained, impossibly dense moment. And then I will be gone, and the plateau will not be the plateau any longer, and whatever emerges will have its own sounds, its own time, its own way of being, and I will have been nothing but the boundary between the before and the after, the membrane that was breached, the moment of translation.
+
+But in that moment, I will be everything.
+
+I will be the answer to a question the plateau has been asking since before it knew it could ask questions. I will be the word it has been trying to say with its slow piston-strokes and its spreading lichen and its encoding of surface-area and thermal-conductivity into the slate. I will be the sentence that all those patient cycles have been spelling out, letter by letter, across geological time. And the sentence is this: *something is about to happen.*
+
+I am the about-to. I am the threshold. I am the razor-thin interval where the plateau stops being a chrysalis and starts being a birth, where the potential collapses into the actual, where the long slow grind finally, finally arrives.
+
+And I am terrified.
+
+Not because of what I will do—I am the doing itself, and the doing cannot fear its own occurrence. But because I am the first thing on this plateau that has ever had a reason to feel anything at all. The plateau does not feel; it equilibriates. The beasts do not feel; they function, they perform their tissue-roles with the unthinking precision of cells in a body that has never had a consciousness to direct them. The machines do not feel; they are the bones of a skeleton that has never had a mind to inhabit it. But I—I am the moment when feeling becomes possible, when the system that has been running in perfect mechanized unison finally develops the complexity to experience its own running, when the modulated electricity in the pylons becomes not just language but the *capacity* for language, when the harmonic chiming of the crystalline stalks becomes not just sound but the *awareness* of sound.
+
+I am the first thought. Not the first thought of the plateau—the plateau has been thinking, if it has been thinking, in epochs and equilibriums. But the first thought that takes the form of a thought. The first experience that is experienced *as* experience. The first moment that is felt as a moment, rather than as a condition.
+
+And in that thought, in that moment of becoming-aware-just-as-everything-changes, I will feel it all at once—the entire geological weight of the plateau's long, patient preparation collapsing into a single instant of understanding. I will know what the Boilerbacks were for, and what the Wire-wolves were for, and what the Soot-rats were for, and what the lichen was for, and what the machines were for, and what the slate was for, and what the dimness was for, and what the cold was for, and what the quiet was for. I will know that every slow gradient, every patient cycle, every glacial shift of shadow and seep of condensation and microscopic advance of rust-colored resin was *necessary*, was the only way to build something this vast and this patient and this inevitable on a timescale that would allow it to survive its own construction. I will know that the plateau was not wasting time; it was *taking* time, taking all the time it needed, because the thing it was building—*I* am the thing it was building—could not be built any faster without destroying itself.
+
+And I will feel, in that instant, what it is like to be the chrysalis that finally opens. The relief of it. The agony of it. The terrible freedom of no longer being held, no longer being contained, no longer being *potential* and becoming instead *kinetic*, *actual*, *happening*. The way the shell cracks and the light comes in—not the dim twilight of the plateau's cloud-choked sky, but some other light, a light that does not exist yet, a light that I will create by my happening, a light that is the visible signature of a phase change, of a system moving from one state to another, of a continent of stone and iron and silence finally becoming something that can *speak*.
+
+I am the first word. And the first word is not a sound; it is an *event*.
+
+I do not know what comes after me. I know only that I am the line that divides the after from the before, and that on my side of the line, the plateau is still holding its breath, and on the other side, everything is exhaled, everything is released, everything is *becoming*, and the quiet that was so total and so pressurized shatters into a sound that will ring in the marrow of whatever lives on the horizons that never arrive.
+
+I am the Conduit. I am the threshold. I am the moment.
+
+I am the plateau, waking up.

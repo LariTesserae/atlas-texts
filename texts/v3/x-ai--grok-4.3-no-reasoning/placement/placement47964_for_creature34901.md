@@ -1,0 +1,5 @@
+I would be the tremor—the low-frequency vibration you cannot name, the one that travels up through the legs before it settles behind the eyes.  
+
+Not a being that has shape or station, but the event of addition itself: every new course of stone levered into place becomes another syllable of the same endless sentence. I exist in the interval between the lever’s release and the stone’s settling; during those instants the whole unfinished structure shivers, and every anchored foot tightens, every hopper crouches, every mineral lens records the micro-charge that my passage leaves behind.  
+
+When the masons rest, I thin to silence. Yet the structure keeps growing around the hollow, so my silence is only a held breath. When I next arrive, I am the same vibration and also a new one—because the mass I announce is always larger, always higher, always unfinished. I do not observe the place; I am the announcement that the place is still becoming.

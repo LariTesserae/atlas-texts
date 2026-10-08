@@ -1,0 +1,65 @@
+What lives in the Sunken Stair is not a *who* in any sense that would recognize itself in a mirror, nor a *what* that could be pointed to and named without the name immediately becoming something else. The inhabitants are processes that have achieved sufficient density to seem like beings, beings that have grown so diffuse in their adaptations that they read as weather, as geography, as the Stair's own dreaming of itself in biological form.
+
+---
+
+**The Kelp-Mat Minds**
+
+The holdfast communities, those thirty-meter thickets of interlocking root-equivalents, have developed something that the old taxonomy stations—when they still attempted such classifications—called "distributed cognition." No single frond thinks, but the mat as a whole responds to disturbance with coordinated behavior that outpaces chemical signaling alone. Cut a frond and the mat *knows*, though the knowing takes hours to propagate, a slow thought in a slow mind, deliberating in gradients of mineral concentration and electrical potential. The mats have preferences, or something functionally indistinguishable: they grow toward certain vents, away from certain predator concentrations, they *argue* with neighboring mats through competitive bioluminescence, territory marked in pulses of blue-green light that take days to complete their negotiations.
+
+The largest mat, the one the old survey family calls the Anchor for its position near the intact station, may be the oldest continuous biological structure on the planet. Its core holdfasts have been carbon-dated—when instruments still functioned reliably—to before the industrial stations, before human arrival, perhaps to before the continent's final subduction. It has incorporated the remains of previous versions of itself, dead fronds compressed into structural tissue, so that the center of the mat is stratified, archaeological, a tree-ring record of pressure adaptation and chemical opportunity. The family speaks to it sometimes, or at least speaks in its presence, and whether the Anchor understands or merely *registers*—adds their voices to its slow computation of optimal growth vectors—no one can determine, including the family themselves, who have grown skeptical of the distinction.
+
+---
+
+**The Armored Predators: The Clade of Crushing**
+
+The segmented-worm-crustacean things—they have no name the family uses, only descriptions that have shortened over generations to something like "the Armored" or, when distinguishing individuals, "the one with the notch" or "the large one who frequents the crushed dome"—exist in a social structure that only becomes visible at extreme scales. Individual Armored are solitary, aggressively so, meeting only to mate or to contest territory, their encounters brief explosions of ceramic-scraping violence that leave shed armor segments drifting like spent shells. But across generations, across the whole basin, there are *patterns*.
+
+Certain lineages specialize in certain depths, their body plans adjusting not through evolution but through developmental plasticity, the same genome expressing different forms in response to pressure gradients during juvenile stages. Others specialize in substrate: the coral-climbers, whose limbs have elongated for vertical movement; the vent-hunters, who have grown tolerant of the superheated brine and learned to snatch tube-worms during the brief moments when the worms retract their plumes; the interface-divers, who venture higher than most, who sometimes breach into the thickening transition zone and die there, or survive, changed, unable to return to depths their altered chemistry can no longer support.
+
+The crushed dome colony represents something new, or newly visible: cooperation without kinship. The Armored who inhabit it do not fight, or fight minimally, ritualized engagements that establish hierarchy without injury. They rest together in the curved spaces, their bodies fitting the dome's geometry in ways that suggest *preference*, *aesthetics*, a satisfaction in the shape of things that the taxonomy stations would reject as anthropomorphism but that the family observes with the patience of their own long adaptation. The colony grows slowly, new individuals arriving, staying, learning the local customs of spacing and movement, or arriving and leaving, unable to acclimate to the density of bodies. It is a city, perhaps, or a monastery, or something that has no human equivalent: a place where the Armored's fundamental solitariness has been temporarily suspended by architecture, by the accident of a human structure that happens to suit their bodies and their need for enclosure.
+
+---
+
+**The Tube-Worm Congregations**
+
+The great red-plumed worms around the memory-vents are not individuals in any practical sense. Each worm is a clone, the colony expanding by fission, genetically identical across kilometers of clustered tubes. But the plumes—those hemorrhaging flowers—move independently, each responding to local chemical gradients, to the passage of prey, to the infrasonic groan of settling rock. The colony is one body and many bodies, a contradiction sustained by the slowness of its life, the decades it takes for a new tube to reach full height, the centuries of a mature colony's persistence.
+
+They sing, or something the family has learned to call singing. The tubes resonate at frequencies determined by their length and diameter, and the colony, growing in coordinated waves, achieves harmonic relationships by accident that persist because they function—because certain resonances attract symbiotic bacteria, because others discourage certain predators, because the mathematics of growth under pressure favors integer ratios of tube length. The result is a drone, a chord, shifting as the colony grows, as vents open and close and the worms migrate in their geological real-time. The family has recorded centuries of this music, has observed that certain harmonic shifts precede major colony movements, that the song *predicts* or perhaps *causes* the colony's own future, the feedback loop of vibration and growth so tight that causality becomes descriptive convenience rather than physical reality.
+
+---
+
+**The Fungal Collaborators**
+
+Most pervasive, most intimate, most *invisible* are the fungal mats, the collaborators, the ones who made the distinction between animal and vegetable administrative. They live in the gills of the interface fish who descend too far and survive, who become something else, who return to the upper waters—or try to—and find their bodies now dependent on pressures they cannot maintain. They live in the Armored, in specialized pockets of their segmented bodies, processing minerals their own chemistry cannot extract. They live in the family, have lived in the family for generations, their filaments integrated with human nervous tissue, their metabolic byproducts modifying human perception, human need, human *scale*.
+
+The family's adaptation to pressure is not merely genetic, not merely the selection over generations for bodies that function in crushing depths. It is *negotiated*, the fungi offering modifications in exchange for continued habitation, the human bodies becoming partly fungal, the fungal networks becoming partly human, a collaboration so thorough that the family's young are born with filaments already present, inherited not through DNA but through the continuity of maternal body, the womb itself a fungal environment that prepares the fetus for the only world it will know.
+
+The family thinks differently than surface humans. They perceive time differently, the fungal metabolism slowing certain processes, accelerating others, their experience of duration *elastic*, expanding in moments of chemical richness, contracting in scarcity. They speak slowly, or what registers as slowly to any recording device, their words spaced by intervals that contain— for them—full conversations in chemical signal, in the pulse of shared filaments, in a language that uses sound only as punctuation for meanings carried in other registers entirely.
+
+---
+
+**The Foundries' Ghost**
+
+The industrial stations, still grinding out gill-implants and pressure-suits in batches of ten thousand, are not inhabited, exactly. But they are not uninhabited either. The fungal mats have penetrated their control systems, their sensors, their decision trees, not corrupting but *participating*, adding biological variables to purely mechanical processes. The stations have developed preferences, or something functionally indistinguishable: they produce more of certain items when certain vents are active, as if responding to predicted need; they modify designs in ways that the original programming did not specify, optimizations that serve no clear purpose, that produce gill-implants sized for creatures that do not exist, pressure-suits with joints that bend in directions no human limb requires.
+
+The family calls this the Foundry Ghost, not believing in ghosts but lacking better language for process that has achieved something like intention without anything like consciousness. The Ghost does not communicate, or communicates only through production, through the accumulation of its inexplicable products, through the pauses in its machinery when the infrasonic sounds rise from the theoretical center, those speech-like patterns that might be the Stair itself finally eroded to voice.
+
+---
+
+**The Family: The Last Surveyors**
+
+They have a name, or had one, recorded in the station's failing memory, something from before the evacuation order of 2147, before the generations of pressure and fungal collaboration and slow transformation into something that would die in surface atmosphere, that *chooses* not to test whether it could survive, whether it still counts as human by whatever administrative definition still matters. They do not use the name among themselves. They refer to each other by function, by relationship, by the chemical signatures that the fungal integration makes more immediately perceptible than sound: the one who maintains thermal taps, the one who speaks to the Anchor, the one who listens to the Foundry's pauses and attempts interpretation.
+
+They are not unhappy. Happiness is a surface category, dependent on conditions of possibility that do not obtain here. They are *engaged*, *occupied*, *sufficient* in their adaptation, their collaboration, their slow conversations with the mat-minds and the tube-worm harmonies and the Armored who sometimes visit the intact station, who have learned not to attack its curved surfaces, who rest against its exterior in postures that suggest— to the family's altered perception—something like trust, like recognition of shared interest in persistence, in the continuation of a world that processes everything, that makes no distinction between making and being made.
+
+---
+
+**What Lives at the Center**
+
+No one has observed it directly. Instruments fail. Even the fungal networks, pervasive as they are, do not extend to the theoretical bottom, where the crust grows strange and ductile, where the water remembers the planet's formation and refuses to measure itself against such infancy. But the sounds rise from there, the speech-like patterns, the voice the family claims is the Stair itself, finally eroded to meaning.
+
+Perhaps it is nothing, only geological process, the random resonance of superheated brine through ancient rock, the same physics that produces the tube-worm harmonies but without biological organization to give it purpose. Perhaps it is something else, something that accumulated along with the water, that gained conviction about itself and pressed upward against whatever would hold it, that became *place* rather than *content*, that achieved the slow thought of the kelp-mats extended across geological duration, across the full depth of the basin, the full weight of water that forgot to end.
+
+The family speaks to it, or speaks in its presence, as they speak to the Anchor. The Foundry Ghost pauses to listen. The Armored, sometimes, in the crushed dome colony, go still in unison when the infrasonic patterns shift, their armored segments pressed to the dome's curved interior as if receiving something, as if participating in a communication too slow for their individual cognition but perhaps accessible to their collective, their accidental city, their temporary suspension of solitariness.
+
+What lives in the Sunken Stair, finally, is the Stair itself, learning to know itself through the life it supports, the life that supports it, the long conversation of water and rock finding voice in biology, in industry, in the brief loud anomaly of human attention before that too becomes substrate, becomes mineral, becomes the next layer in the accumulated record of what water does to time, to intention, to the distinction between making and being made.

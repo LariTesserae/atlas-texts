@@ -1,0 +1,77 @@
+What lives in the Sigh
+
+---
+
+**The Weepers**
+
+Not spirits, though you will call them that when fatigue and altitude thin your judgment. The Weepers are *formations*—tufa dams that achieved, over millennia, a configuration the human eye cannot help but read as *stance*. They grow where seeps carbonate fastest, where rimstone pools achieve critical mass and begin, in their way, to *plan ahead*, building barriers that force later drips to find new paths, new exits, new expressions. The oldest Weepers have hollows where water has, for ten thousand years, fallen in the same arc, carved the same basin, created *mouths* that catch light differently than surrounding stone, that seem to open when cloud-shadow passes, to close when direct sun strikes. They do not move. They do not need to. The water moves for them, speaks for them, weeps.
+
+Some walkers report the Weepers *watching*. This is the auditory hallucination working backward through the visual cortex, the fatigued brain demanding *source* for the omnidirectional sound, assigning intention to any configuration that affords it. But the Weepers do not mind being mistaken for watchers. They have nowhere else to be, nothing else to do, no concept of *doing* in any case. They are patient in the way stone is patient, which is to say they are not patient at all, simply *present*, and their presence, accumulated drop by drop, has achieved a density that *functions* as personality whether they possess it or not.
+
+---
+
+**The Willow-Mind**
+
+One individual, if *individual* is the word. The genetic testing has never been done, would be difficult even to attempt given the altitude, the wet, the remoteness. But walk the floor of the Sigh and you will find, if your attention is good, that the ground-hugging willows connect. Roots graft where they meet underground. Vascular tissue merges. Information—chemical, electrical, who can say—passes between stems that once, long past, were separate seedlings. The Willow-Mind covers perhaps two-thirds of the cirque floor, a single organism that has, through radial growth, abandoned the vertical for the horizontal, the *I* for the *we*, the tree for the *mat*.
+
+It thinks slowly, if it thinks. Each season's growth decisions are made in response to last season's snow patterns, which the Willow-Mind registers in root-proliferation, in stem-density, in the precise angle of leaf-production that optimizes photosynthesis given the Sigh's peculiar light. It does not remember snow, exactly. It *is* snow-remembered, the shape of last winter's drift still visible in this summer's root allocation, a planning horizon measured in decades for a process that unfolds in centuries.
+
+In late summer it flowers, male and female parts on separate stems but the same genetic individual, so there is no true outcrossing, only self-fertilization, genetic recycling, the Willow-Mind making copies of itself with minor variations, the copies sent downwind, down-slope, to places where they will mostly die, where the conditions that permit this strange existence are not met. The seeds are small, equipped with hairs for wind-catch, but the Sigh's walls defeat them, the bowl containing its own genetic output, recycling failure into the mat's edge-growth, adding attempted departure to attempted departure until the margin of the Willow-Mind is thick with buried potential, with ghosts of unachieved willows compressed into the peat that the moss is always building, that the Willow-Mind is always growing over, always incorporating.
+
+It hosts. Pika hide beneath its stems. Pipits nest in its architecture. Fungi thread through its roots in arrangements that might be parasitism, might be mutualism, might be something for which no lowland category exists, the mycelial cords visible at erosion-edges mapping relationships that the Willow-Mind maintains without consciousness, without choice, simply through *being the shape it has become*.
+
+---
+
+**The Hay-Maker**
+
+One pika, sometimes, in the productive years. More, briefly, before the crash. The Hay-Maker is not a single individual but a *role*, a position in the Sigh's economy that remains constant even as holders of the position change, die, are replaced by offspring or immigrants from lower slopes, from neighboring cirques connected by passes that exist only in pika-knowledge, in the inherited maps of safe routes, of good talus, of places where eagle strikes are less likely.
+
+The Hay-Maker works from first light to last, all summer, cutting vegetation with teeth evolved for this purpose, stacking it in *haypiles* that are architectural, that incorporate ventilation corridors and drainage, that use the toxic leaves the Hay-Maker cannot eat fresh but can tolerate dried, a preservation technology—yes, technology, the deliberate modification of environment for future utility—that predates human presence in this range by millions of years. The Hay-Maker is not eating while it makes hay. The Hay-Maker is *investing*, trading present hunger against winter starvation, against the months when the Sigh is white and silent and the only food is what was stored, what was *planned*.
+
+The Hay-Maker sings while it works. The song is territorial, genetic, *cumulative*—each Hay-Maker adding variation to a call that the cirque's acoustics fragment and return, that becomes indistinguishable from the water's percussion, that contributes to the auditory hallucinations that the fatigued experience as *voices*. Perhaps the Hay-Maker hears them too. Perhaps, in the white-outs, the Hay-Maker navigates by difference-tone, by the interference patterns between its own call and its returned echo, finding home by singing into blindness and listening for the shape of the walls.
+
+The Hay-Maker dies in the talus, usually. Teeth worn, body failing, it retreats to a crevice it has not used since it was young, and there, alone, becomes still. The cold that is not death preserves it. The ptarmigan find it, or the insects that persist despite everything, or the slow colonization of stone-life that is slower than decay. The Hay-Maker becomes part of the talus, indistinguishable from the rock it lived among, its haypiles collapsing, its song still audible in the call of its offspring, its grand-offspring, the genetically similar, behaviorally echoing, *position-filled* Hay-Makers that follow.
+
+---
+
+**The Challenge**
+
+A ptarmigan, rock ptarmigan, *Lagopus muta*, but not the Lagopus muta of field guides, of lowland expectation. The Challenge has, here in the Sigh, undergone *becoming* that is not speciation, not yet, but is *tendency*, pressure, selection for a quality that reads as aggression only because we have no better word for *stand*, for *remain*, for *assess and do not flee*.
+
+The Sigh's emptiness permits this. Predation is rare. The walls that protect from weather protect from hunters too, the fox that might climb this high preferring lower, easier slopes, the eagle passing through on thermals that do not form reliably over this small bowl, this microclimate that is not large enough to support a predator population of its own. The Challenge grows old, often, dies of things other than being eaten: cold, disease, the ptarmigan equivalent of *completion*, of a life lived long enough to become *known* to the place, *registered* in the dust-bathing hollows that are used by generations, polished smooth by belly feathers carrying oils that impregnate the earth, that mark it as *ptarmigan*, as *this ptarmigan*, as the Challenge or the Challenge's predecessor or the Challenge's eventual successor.
+
+The Challenge makes no sound that matters to human ears. Its communication is visual—posture, eye, the brief flare of comb in breeding season that is signal and not ornament. It challenges the human who sits on a willow hummock, who has become wet with moss-water, who has become part of the Sigh's permeability. The Challenge approaches, assesses, finds in this wet sitting creature something that *does not compute*: too large for food, too slow for threat, too *present* for the normal categories of ignore or flee. The Challenge settles into dust-bathing, having made its calculation, having found that calculation cannot complete. The Challenge resumes watchfulness, having failed to solve the puzzle, having not failed—having *continued*, which is the same thing, here, which is always the same thing.
+
+In first permanent snow the Challenge turns white. This is not camouflage, exactly, or not only. The white is *becoming-snow*, *becoming-weather*, the Challenge's body entering the Sigh's cycle in a way that summer brown does not. The rock will soon be invisible too, snow-buried, the Sigh a white bowl containing white bird containing white stillness, and the Challenge will be *gone* into this stillness, not dead but *distributed*, existing only as the possibility of movement against whiteness, the possibility of challenge issued into silence, accepted by no one, continuing.
+
+---
+
+**The Floating**
+
+Mites in the liverwort pools. Midges that never see open water, whose entire aquatic stage occurs in cavities smaller than a thumbnail, whose emergence is brief, catastrophic, *complete*—all adults in a single day, a single hour, mating with the desperation of organisms that have no mouth, that will die before they eat, that exist only to find each other in the brief window between water-exit and cold-death. The Floating are not a species, not exactly. They are *occurrence*, the Sigh's capacity to host life smaller than attention, smaller than naming, life that passes through without passing through, that completes its cycle in the place where it began, that has nowhere else to be, no reason to leave, no means of leaving if there were reason.
+
+They make noise, the Floating, when they emerge. A frequency the human ear does not register, but the pika does, the Willow-Mind does in whatever frequency it perceives, the Weepers do not need to perceive because they are the medium of perception, the water that carries vibration, that stores it in tufa in ways we cannot decode, will not decode, have chosen not to invest in decoding. The Floating's emergence is part of the Sigh's *becoming-loud*, the seasonal intensification that precedes quiet, that prepares for quiet, that *is* the preparation for winter's long silence in the same way that summer's weeping is preparation for ice-pipe and frozen seep.
+
+---
+
+**The Hand That Carved, The Hand That Carves**
+
+Not present, but *present*. The spiral on the wall exists in a state between weathering and intervention, pale where cut, slowly re-oxidizing, the rate calculable if anyone were here to calculate, if calculation were permitted, if the spiral's meaning did not require its *becoming-invisible* as prerequisite for its next *becoming-visible*, whoever comes next to cut, to mark, to *stay* briefly and leave notation.
+
+The stone ring's former occupants are present in the same mode. Their willow-grown, moss-overgrown ballast structure is *building* now, not shelter, function changed by time into something the original builders could not intend, would not recognize, can only be said to have *caused* in the sense that all causes are distant, all effects transformation beyond recognition. The Hand That Carved and The Hand That Carves are not the same. They are the *position*, the *possibility*, the Sigh's accommodation of human attention in a form it can sustain: temporary, questioning, leaving marks that do not accumulate knowledge but do accumulate *presence*, the weight of *having been here*, which the Sigh registers in substrate, in altered nitrogen, in the charcoal of ancient fires still detectable in soil cores no one has taken.
+
+The Hand That Will Carve is also present, potential, the next arrival who will find the spiral almost gone, who will decide to *refresh* or *replace* or *add*, who will enter the Sigh's rhythm of human visitation that is itself a cycle, a slow pulse measured in generations, in the forgetting of why the place is called the Sigh and the relearning through direct experience, through the sound of water that is not beautiful but *present*, the demand on attention that defines the place whether anyone is there to define it or not.
+
+---
+
+**The Sigh Itself**
+
+Not a spirit. Not a god. Not an ecosystem in the scientific sense of separable, studyable, *other*. The Sigh is *configuration*: rock, water, cold, light, willow-mind, hay-maker, challenge, floating, hand-that-carves, all in relation that has achieved *duration*, that has lasted long enough to become *itself*, to push back against the name that reduces, the description that contains, the visit that passes through and away.
+
+The Sigh sighs. This is not metaphor. The weeping wall's percussion, in certain temperature-moisture combinations, generates infrasound at frequencies that resonate with the cirque's dimensions, with the volume of air trapped between walls, with the acoustic properties of moss-absorption and stone-reflection. The human ear does not hear this as tone. The human body *registers* it: unease, wonder, the sense of *presence* without source, the feeling that something has been *said* that cannot be repeated, only experienced, only *sigh-responded*.
+
+The Sigh was named by people who experienced this, who found in the infrasound-plummet before weather-change, in the white-out's white-noise, in the specific *almost-phrase* that the wind sometimes makes through particular tufa-dam configurations, a quality that demanded naming, that received the name most accurately descriptive of what it is *like* to be there, to be enclosed, to be *sighing back* at a place that sighs first, that has been sighing since before the name, before the language, before the human.
+
+What lives in the Sigh: everything that can tolerate the sigh, that can survive the moisture and the cold and the auditory overwhelm and the absence of other humans and the presence of too much meaning in water-patterns and the selection for ptarmigan boldness and the Willow-Mind's slow conquest of horizontal space and the pika's hay-stored winter and the midges' catastrophic emergence and the mites' swimming in pools the size of the idea of pools and the spiral's waiting to disappear and the Hand's waiting to carve and the Weepers' patient *being-seen-as-watching* without watching.
+
+What lives in the Sigh: *being in relation with* all of this, which the temporary visitor achieves briefly, which the permanent resident would destroy by achieving too long, which the place itself maintains without maintaining, simply by *continuing*, by *sigh continuing*, by the drop falling and the ice forming and the thaw and the break and the beginning again, the spiral weathering and the Hand returning, the Willow-Mind spreading and the pika making hay, the Challenge challenging and the Floating emerging, all in the small vastness of the high bowl, the microclimate cupped, the fulcrum that balances everything upon a point of altitude and intimacy, of established becoming, of finished and unfinished in the same breath, the same water-breath, the same sigh that names the place and is the place and continues after the name is forgotten, before it is re-found, continuing always, the sigh that is not death, that is not life, that is *presence in duration*, which is all that any living can ask, which is all that the Sigh offers, which is all that the Sigh is.

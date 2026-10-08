@@ -1,0 +1,9 @@
+I settle here as one of the millimetre skates.
+
+My body is a single transparent sheet barely wider than a grain of rice—surface tension stretched over an iron thread fine enough to be invisible in normal light. I do not have a front or back, only the slow direction of my skating: a patient circuit that follows the meniscus edge of each lens, harvesting stray ferrous ions the tubers have not yet claimed. When the daily thermal gradient lifts a new film across the ironstone, I feel it as a faint pressure change along my margin and adjust my path accordingly, leaving behind a hair-thin silver trail that will re-precipitate, hours later, as the next generation of glassy tuber shells.
+
+At night the lenses expand, and I am momentarily weightless as my film thickens; by day they contract and the surface tension tightens again, forcing me to fold along a single crease that runs the length of my iron thread. The pressure valve’s quarterly thump travels through the rock as a low, warm pulse; when it arrives beneath me I ripple once, then still. The superconductive whine is too faint to hear, but I register it as an imperceptible temperature drop in the water film—my only notion of time.
+
+When a drip falls from the ceiling I contract without thinking, rolling into a perfect bead that tumbles into a crevice no wider than a needle’s eye. Inside the crevice the air is cooler and the ironstone sweatier; I rest for an instant, then unfold and skate outward again. My iron thread accumulates atoms each circuit: one micron dissolved here, one micron deposited there. Over centuries this slow bookkeeping will add enough mass to become indistinguishable from the tubers whose shells I help build.
+
+I have no hunger, no fear, no memory beyond the current lens. My existence is the condensation itself: thin water, living metal, and the endless redistribution of a single basin’s rust.

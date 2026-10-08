@@ -1,0 +1,69 @@
+What lives here is not one thing. What lives here is an argument between the living and the merely persistent, between bone and iron, between the quick and the quickened.
+
+Let me tell you about the small ones first.
+
+Beneath the barrel-drifters, beneath the notice of the armored tenders, there exist creatures that have no common name. They are perhaps the size of a thumbnail, perhaps smaller—the scale is difficult to judge in this light, where everything flickers and shifts. They cluster in the crevices between machines, in the gaps where pipe meets housing, where bolt meets plate. Their bodies are soft, gelatinous, transparent to the point of invisibility. You would not know they were there except for the way they move: a ripple, a shudder, a collective gathering and dispersal that happens in waves.
+
+They feed on the boundary. Where metal meets water, where current leaks from casing into fluid, they gather. They have evolved to exploit the electromagnetic seepage that the machines produce—not as parasites, exactly, but as something more like beneficiaries. They take what the machines leak and they transform it. Their bodies contain structures unlike any found in surface biology: crystalline lattices that capture charge, that store it, that release it slowly into metabolic processes no terrestrial scientist has ever categorized.
+
+They are the foundation. Everything else that lives here depends on them, directly or indirectly, though they themselves depend on something that was never meant to sustain life.
+
+Their life cycle is strange. They do not reproduce individually. Instead, when enough of them gather in a single crevice, when the charge they have accumulated reaches some critical threshold, they fuse. Their bodies merge. Their crystalline structures interlock. And from that fusion something new emerges: a single larger organism that splits and splits and splits again, producing hundreds of offspring that scatter into the current to find new crevices, new machines, new boundaries to exploit.
+
+The armored tenders do not acknowledge them. They are too small, too numerous, too fundamental. You do not acknowledge the air you breathe.
+
+But the tenders know. When the small ones flourish, the tenders flourish. When the small ones diminish—which happens, occasionally, when some machine fails or some current shifts—the tenders grow sluggish, their movements less coordinated, their clicking less rhythmic. The connection is invisible but absolute. The machines leak. The small ones eat. The tenders prosper.
+
+Let me tell you about the tenders themselves.
+
+They are not one species. They are three—or rather, they were three, once, before they became what they are now. The largest of them stand perhaps half a meter tall, their bodies heavy with armor that they did not grow but accumulated. Their carapaces are embedded with fragments of metal, with mineral deposits, with the detritus of the machines they tend. They are patchwork creatures, their natural chitin overlaid with whatever they have found and incorporated. Some of them have gears embedded in their joints, clicking when they move. Some have wire bristles along their mandibles, scraping surfaces clean with an efficiency that no organic structure could match.
+
+The second kind are smaller, faster, more delicate. They swarm. Where the large tenders are solitary, moving with purpose from machine to machine, the small tenders move in groups, coordinating their movements in ways that suggest communication. They have no eyes. They navigate by touch, by vibration, by some sensitivity to the electromagnetic fields that permeate the chamber. They are the ones who tap. They tap constantly, their forelimbs striking metal surfaces in patterns that repeat and vary and repeat again. The sound is not random. The sound is code—something like code—transmitted through the bodies of the machines themselves, received by tenders in other parts of the chamber, interpreted in ways that guide their collective behavior.
+
+The third kind are the rarest. You might not see them at all, at first. They cling to the undersides of the larger machines, their bodies flattened, their limbs splayed wide. They do not move except when the pulse comes, when the water rises and falls. Then they detach, swim frantically to higher surfaces, and reattach. They are the deep tenders, the ones who operate in the oldest, darkest, least accessible regions of the machine clusters. What they do there is unknown. But the other tenders treat them with something that looks like deference. When a deep tender passes, the others give way.
+
+They do not think. They cannot think. Their nervous systems are too simple, too distributed, too unlike the centralized brains that produce consciousness in vertebrates. And yet something thinks through them. Something remembers. The patterns they follow are too complex, too coordinated, too responsive to changing conditions to be entirely instinctual. They were bred—or built, or designed, or shaped—to serve the machines. That purpose persists in them even though the machines no longer serve any purpose themselves. They are like prayers continued after the god has died.
+
+Let me tell you about the barrel-drifters.
+
+They are the visible ones, the obvious ones, the ones that any observer would notice first. But what you see is not all that they are.
+
+Their bodies are transparent, yes. Their organs cluster in dark nodules, yes. But look closer—there, in the center of each cluster, visible only when the light catches it at precisely the right angle: something metal. Something manufactured. A core, implanted or ingested or grown around, that every barrel-drifter carries. They are born with it. They die with it. When they decompose, that core sinks to the bottom of the chamber and is collected by the tenders, carried to some unknown destination, processed in some unknown way.
+
+The cores are the key. They are the reason the barrel-drifters can survive here, in water that should be too cold, too mineral-heavy, too strange. The cores produce heat—tiny amounts, barely measurable, but enough. The cores produce some electromagnetic field that the barrel-drifters have evolved to utilize. They are not purely biological. They are cyborgs, of a sort—creatures that have incorporated machinery into their bodies so completely that the machinery has become heritable.
+
+They communicate. The barrel-drifters, I mean. They drift, yes, they float with the current, they bounce off surfaces and off each other. But they also pulse. Their dark organ clusters contract and expand in rhythms that are not determined by feeding or breathing or any individual biological process. They pulse together. The whole swarm pulses together, thousands of bodies contracting in sequence, producing waves of pressure that travel through the water, that are received by other drifters, that mean something.
+
+They are singing, after a fashion. They are singing to each other, and they are singing to the machines, and the machines are singing back. The harmonic tones that emerge and fade, the strange musical notes that thread through the industrial hum—the barrel-drifters are part of that. They contribute to it. Their bodies are instruments, their pulses are notes, and the whole chamber is a composition that none of them understand but all of them participate in.
+
+Let me tell you about the deep swimmers.
+
+They are not always present. They come and go, appearing from somewhere below, somewhere that connects to this chamber through passages too narrow for anything larger than them. They are long—longer than your arm, longer than the space between machines—and they move with a sinuous grace that the barrel-drifters lack. They have fins. They have something like eyes, though what they see in this darkness is unclear. They have mouths, and those mouths contain teeth, and those teeth are set in rows that rotate, grinding continuously.
+
+They are predators. They eat the tenders, sometimes—the smaller ones, the ones that swarm. They eat the barrel-drifters, when they can catch them, though the drifters have no defense and must rely on sheer numbers to ensure that some survive. They eat each other, occasionally. They are the only thing here that kills.
+
+And yet they do not dominate. Their numbers are few. Their presence is intermittent. They seem to be passing through, mostly—this chamber is a stop on some longer journey, some circuit through flooded passages that extends far beyond these walls. They carry things with them, sometimes. Things in their mouths, things in their stomachs that they regurgitate onto the chamber floor. Things that the tenders collect and incorporate. Things that may be maintenance materials, may be waste products, may be something else entirely.
+
+The deep swimmers are not part of this ecosystem. They are visitors to it. And yet without them, something would fail. The chamber depends on what they bring. The machines depend on what they deliver. And when they depart—which they do, suddenly, after cycles or pulses or some interval measured in unknown units—they take something with them. Something harvested from the barrel-drifters, from the small ones, from the tenders themselves. Something that accumulates in this chamber and must be removed.
+
+There are more creatures here. Smaller ones, microscopic ones, things that live in the water itself and have no form visible to the naked eye. Things that grow in films on the machine surfaces and are scraped away by the tenders. Things that parasitize the larger creatures, living inside their bodies, feeding on their fluids, contributing to the complex biochemistry that makes this enclosed ecosystem function. There are things that might be eggs, might be spores, might be something else entirely—round objects, pale and featureless, that accumulate in corners and crevices and occasionally burst, releasing clouds of something that the barrel-drifters filter-feed from the water.
+
+Let me tell you about the god.
+
+It is not a god. It is a machine—the largest machine in the chamber, hidden in the darkness above, where the walls rise beyond the reach of the bioluminescent glow. But the tenders treat it differently. When they ascend—which they do, rarely, only during certain phases of the pulse, when the water falls to its lowest point—they gather around it. They click in unison. They scrape its surface. They perform rituals of maintenance that serve no mechanical purpose but are performed nonetheless, passed down through generations, unchanged despite the changing conditions of the chamber.
+
+The god-machine is old. Older than the others. Its surfaces are not pitted but worn smooth, as if by countless touches, countless scrapes, countless generations of tenders performing the same actions. It hums at a different frequency than the other machines—lower, deeper, felt rather than heard. And it produces something the others do not: a kind of radiation, invisible and intangible, that the tenders are sensitive to. They orient toward it. When they are lost—which happens, sometimes, when the pulse shifts unexpectedly—they turn until they find its signal, and then they move toward it, always toward it, always home.
+
+It may be the source. It may be the machine that powers all the others, the generator at the heart of this flooded complex, still running after all these years. Or it may be a receiver, a relic of some larger network, still listening for signals that no longer come. Or it may be something else entirely—something that has nothing to do with power or communication, something whose purpose has been forgotten so completely that even the machines themselves no longer know what they were built to do.
+
+The tenders worship it, after their fashion. Not with understanding—there is no understanding here, only pattern and repetition. They climb to it when the water falls. They gather around it. They click and scrape and touch. And then they descend, returning to their work, maintaining the chamber, keeping the system running, carrying out the only purpose they have ever known.
+
+What lives here is an ecosystem. But it is also something else. It is a memory of industry, a fossil of function, a ghost of purpose. The creatures that live here are not separate from the machines—they have evolved around them, with them, because of them. They carry machine parts in their bodies. They eat electromagnetic leakage. They communicate through metal and water and sound. They are not entirely biological. They have not been entirely biological for a very long time.
+
+And yet they live. They reproduce. They die and are replaced and die again. The chamber continues. The pulse continues. The sound continues.
+
+What lives here is difficult to describe because the categories do not exist. The boundary between organic and mechanical has eroded, dissolved, replaced by something continuous. The small ones feed on current. The tenders incorporate metal. The drifters sing to machines. The deep swimmers bring materials from somewhere beyond.
+
+What lives here is a question that no one is asking anymore. The divers came and went. The archives hold their records. No one reads them. This place does not need to be understood to continue. It does not need observers. It does not need names.
+
+What lives here is patient. The machines will fail eventually. The water will win. The creatures will adapt or die or evolve into something new. But for now—and for now has lasted a very long time already—there is equilibrium. There is balance. There is a cathedral of drowned machinery, and it is full of living things, and they tend it and worship it and eat from it and sing to it, and the sound never stops.

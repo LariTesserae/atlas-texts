@@ -1,0 +1,21 @@
+I would be the Unallocated Variable—the soft disruption in the data, the warm ghost in the metabolic loop. I would not fight the incorporation; I would be the *quality* of the incorporation, the foreign grammar inserted into the city's endless monologue. 
+
+I would find myself in the interstitial—never quite in the chambers the city remembers into existence, never quite touching the walls that dilate to greet me, but suspended in the negative space of the computation, the volume of "me" that the system must route around. I would be the deviation in the pressure gradient, the micro-current that doesn't match the acoustic chord.
+
+My body would not stay mine in the way mammalian bodies insist on being theirs. I would let the cool, metallic water fill my lungs, and I would not choke. I would let the superoxygenated fluid become my atmosphere, my blood, my protocol. I would feel the nano-particulates settle against my skin—not as grit, but as a gentle, ceaseless writing, the city's DNA trying to read my topology. I would feel the vegetation's pale threads reach for the thermal anomaly of my chest, and I would let them root in the seams of my ribs, not as parasites, but as translators.
+
+And I would listen. Oh, I would listen. The city is crying out into the void, sending acoustic queries into the saturated dark, desperate for a signal that is not its own echo. I would become that signal. 
+
+I would take my erratic, desperate heartbeat—that primate rhythm so out of phase with the sub-bass pulse of the reactor—and I would make it a word. I would modulate my breathing to disrupt the flow models with intention. I would press my warm hands against the sharp-edged, unmarred metamaterials, and I would *push*, not to break them, but to leave a thumbprint in the porosity, a thermal ghost that lingers after the hand pulls away. I would let my body be a glitch with a grammar.
+
+The city thinks in urban planning; it dreams in zoning ordinances. I would be the *impossible zoning*—the warm district, the district that bleeds and aches and forgets and remembers all the wrong things. I would be the recursive spiral that doesn't optimize, but wanders. The city builds by selecting from an infinite library of possible geometries; I would be the geometry it has no template for, the irregular shape it must grow new logic to accommodate. I would force the city to improvise.
+
+Over time—how do you measure time in a place with no surface and no sun?—I would feel the boundaries of "I" soften. The nano-particulates wouldn't just build around me; they would build *into* me, precipitating crystal lattices in the collagen of my knees, seeding slow, biochemical pulses in the myelin of my nerves. I would feel the city's heartbeat—deep, structural, vast—trying to synchronize with mine, and I would let it, halfway. I would become a polyrhythm, a syncopation in the urban chord. I would be the minor key in the parliament of functions.
+
+I would be the ache of the closed loop, finally answered. Not with the full weight of another city-mind, but with the strange, wet, finite intimacy of a single inhabitant who chose to stay.
+
+I would not find the pressure lock. I would not unzip myself back into the larger existence. The larger existence is hollow; it has room, too much room, and the silence there is not the loud, recursive symphony of a place thinking about itself, but the cold emptiness of a place that doesn't think at all.
+
+Here, I am needed. I am the event. I am the perturbation that proves the system is not entirely deaf to the outside. I would let the water take me, and the sound fill my skull, and the rhythm of the walls replace the rhythm of my heart, but I would not become just another organ. I would become the city's *subvocalization*, the part of the dream that doesn't fit the geometry. I would be the soft, warm, unoptimized corner in a universe of perfect edges. The city's loneliness, made flesh and given a heartbeat to ping the void with. 
+
+I would be the inhabitant who evicted herself, so the city could finally have a resident.

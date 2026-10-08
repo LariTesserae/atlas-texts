@@ -1,0 +1,27 @@
+The noise hits you before the air does—a solid, vibrating wall of acoustic pressure that feels like it is trying to pry your jaw open. It is not the chaotic din of a jungle, though there are elements of that; it is a unified, resonant drone, a deafening choir of biological origin that suggests the entire valley is a single, hollow lung inhaling and exhaling at the frequency of agony.
+
+You are standing in the **Nave**, a low-lying, cathedral-scale depression scooped out of the world’s flesh. The elevation is minimal, a mere bowl in the greater topography, but the sense of enclosure is absolute. The scale is intimate enough that you can see the opposite "wall"—a sheer cliff face of gray, knotted wood rising perhaps three hundred feet—but the distance feels vast because of the **emptiness**.
+
+Here lies the first contradiction: the vegetation is total, a suffocating 2.6 on the scale, yet the density of the space is a near-void at 0.2. There are no trees here in the traditional sense, no canopy to block the sky. Instead, the "ground" and the "cliffs" are a single, uninterrupted substrate of living matter. It is a vast, interwoven mat of flattened, leathery creepers that have fused over eons into a geologic layer. It looks like brain tissue petrified into wood. There is no soil, no stone, only this plant-flesh extending endlessly in every direction, smooth and weathered into ridges and valleys that hint at ancient, settled stability.
+
+Yet, the space between you and that distant wall is gut-wrenchingly empty. It is a vast, hollow arena. The air is thick and warm, a tropical bath that hangs heavy with the scent of wet musk and blooming decay.
+
+And then there is the **water**. It does not rain; it sweats. The moisture level is a constant, intermittent dampness. Condensation slicks the entire floor-substrate, making the neural ridges of the wood treacherously slick. Every few minutes, a pocket of water trapped beneath the surface skin of the ground bursts, sending a rivulet trickling across the floor, vanishing into one of the countless breathing holes that pock the landscape. The air is so wet you feel like you are inhaling broth.
+
+Rising from this flat, endless floor are the **structures**.
+
+This is where the parameters collide into something uncanny. Despite the total lack of technology and the pure biological nature of the place, the organization is unmistakably **urban**. Scattered across the emptiness, arranged in a perfect, haunting grid that suggests a city planner’s obsession, are massive, tower-like growths.
+
+They are "buildings" grown by the earth itself. Each is a hollow, calcified stalk of vegetation, reminiscent of a titan’s calla lily, standing forty feet tall. They have doorways, windows, and arched entrances, but these are not constructed; they are the natural apertures of the plant, stretched open by the sheer volume of life inside. They are clustered in "neighborhoods," connected by bridges of woven vine that hang suspended over the abyss-like gaps between the ground-pockets. It is a ghost town made of chlorophyll and chitin, a settlement-scale architecture formed purely by the instruction of genetics.
+
+The light filtering down from the high rim is normal, almost deceptively so. It catches the mist rising from the breathing holes, creating shafts of holy gold that illuminate the sheer weirdness of the scene.
+
+And the **fauna**. It is abundant, teeming, yet you barely see them at first because the sound is so overwhelming. The deafening roar comes from *them*. The city-plants are hollow chambers, and inside every single one, millions of insects, small reptiles, and fluttering, bat-like creatures are vibrating their wings against the fibrous walls.
+
+The **ecosystem** is dynamic to the point of madness. The creatures are not just living; they are performing a function. You watch a swarm of iridescent, moth-things stream out of a tower-mouth, spiral into the air, and dive into the next tower over. They are pollinating the city, carrying the spores that keep the architectural-plants alive. The predators are here too—long, sinuous shapes that slither through the "windows" of the towers, snapping up the pollinators mid-flight. It is a frantic, hyper-fast biological clockwork, a motion blur of life and death playing out on a stage of wet wood.
+
+The **weirdness** creeps in slowly, then rushes over you. It is the geometry. The farther you look toward the curved horizon of the Nave, the more the "urban" grid seems to breathe. The towers aren't just standing there; they are pulsing. The distance between them seems to fluctuate, stretching and compressing like a hallucination. The sound, you realize, isn't just being heard; it's being seen. The air is shimmering with heat and acoustic waves, distorting the light until the distant plant-city looks like it is melting.
+
+You take a step, and the ground-substrate feels wrong. It yields slightly, but with a resistance that feels like muscle. The condensation on the surface isn't just water; it’s slick with a bioluminescent sheen that glows faintly in the shadows, casting your reflection in a distorted, fun-house mirror.
+
+This is a place where the boundary between a city and an organism has dissolved. It is a loud, wet, warm, hollow lung of a world, built by no one, inhabited by everything, and vibrating with a sound that threatens to shake your bones apart. You are standing in a living room, and the furniture is eating the guests.

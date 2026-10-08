@@ -1,0 +1,45 @@
+This is a place where the distinction between "organism" and "environment" has collapsed entirely. There is no ground beneath the vegetation—there is only vegetation all the way down, layer after layer, compressed by its own weight into something like peat, something like soil, but still breathing.
+
+The warmth here is a wet warmth. Not tropical, not steam-bath, but close. The kind of warmth that makes surfaces feel tacky to the touch, that keeps everything in a state of half-saturation. Moisture beads on every surface—not dripping, not flowing, just present. A sheen that never quite resolves into droplets, never quite evaporates. The air is so thick with water vapor that distant shapes blur into soft focus, and every breath tastes green.
+
+The scale of this place exceeds ordinary comprehension. It extends beyond horizon in every direction—an infinite flat expanse of living mass, as if some ancient sea had been replaced entirely by plant matter and left to grow undisturbed for geological ages. There are no landmarks, no breaks in the substrate. Just the same intricate topography of leaves, stems, fronds, and tendrils repeating at every scale from the microscopic to the continental. The pattern is fractal but never monotonous—variations within variations, each patch unique yet part of the same underlying grammar.
+
+And yet there is industry here.
+
+Machines grow from the vegetation. Or perhaps vegetation has colonized machines—it's impossible to tell which came first. Great cylindrical structures rise from the plant mass, metal pipes and chambers integrated so seamlessly with woody stems and fibrous roots that they seem to have been grown rather than built. There are no seams, no joints, no weld marks. The metal emerges from the plant tissue as naturally as a branch from a trunk.
+
+These engine-structures hum at frequencies just below conscious hearing. You feel them more than hear them—a resonance in the chest, a pressure behind the eyes. They are processing something. Pumping fluids through vast networks of tubes that thread through the vegetation like veins. The liquids inside are warm, slightly viscous, carrying nutrients or enzymes or something else entirely. The system is circulatory, digestive, respiratory all at once.
+
+Factory-growths cluster in patches across the endless green. Some are low and sprawling, spreading horizontally like fungal mats with metal-laced edges. Others tower upward, supported by buttress roots wrapped in copper coils. None of them have doors. None of them have operators. They simply run—have always run—will always run. Their purpose is obscure. They might be refining something from the plant mass, or they might be feeding something back into it. A symbiosis of machine and organism so old that neither can exist without the other now.
+
+The darkness is near-total. What little light exists comes from the machines themselves—faint bioluminescent pulses from certain flower-like structures, the dim glow of heated pipes, occasional sparks jumping between conductive surfaces. The plant-life has evolved for this. Leaves are broad and dark, pigmented to capture every available photon, angled in precise orientations to maximize absorption. Nothing here wastes light. The canopy—if it can be called that, when there is no sky visible above it—is a light-capturing machine of its own, every surface optimized for the dark.
+
+There are no animals. Nothing moves with muscle and sinew, nothing hunts or grazes or breeds. The silence is profound but not empty. If you listen—really listen—you become aware of the sounds that remain: the creak of woody stems expanding in the warmth, the whisper of fluids moving through tubes both organic and metallic, the subsonic thrum of the engines. These are not sounds that require action. They are the sounds of a system at equilibrium.
+
+Nothing changes here. Nothing needs to.
+
+Time operates differently in this place. The machinery does not wear down—the plant components continuously regenerate, growing over worn surfaces, secreting protective coatings, replacing degraded tissue. The system repairs itself faster than entropy can degrade it. It is a perpetual motion machine in the only sense that matters: not that it produces energy from nothing, but that it has achieved a stability so profound that it might as well be eternal.
+
+You walk—there is walking to be done, the plant mass is firm enough to support weight—and you pass through cathedral-like spaces between towering machine-growths. The architecture is accidental but no less majestic for it. Pipes form gothic arches. Vines drape in patterns that recall tapestries. The industry here is not separate from nature; it has become nature, or nature has become it, and the result is something neither and both.
+
+There is weather of a sort, but it is internal. Pockets of higher humidity condense into localized mists. Warm air rises through gaps in the canopy and cooler air sinks to replace it, creating slow currents that move through the space like underwater tides. Rain falls in certain zones—water pumped upward through industrial towers and released as fine spray that drifts downward, watering sections that the automated system has determined need moisture. The climate is manufactured, but manufactured by whom? By what? Nothing here seems capable of making decisions in the way minds do. And yet decisions are being made. Resources are being allocated. The system tends toward certain outcomes and avoids others.
+
+The water parameter reveals itself in subtle ways. Surfaces weep. Not everywhere, but in patches—certain species of the plant-substrate exude moisture through specialized tissues, keeping the local humidity within optimal bounds. Other structures collect condensation and channel it through carved grooves that might be natural or might be shaped by purpose. There are no pools, no standing water—everything is absorbed, processed, circulated. The water cycle here is entirely contained within the living-machine system. Nothing is wasted. Nothing escapes.
+
+The weirdness of this place is not in any single element but in their combination. Industrial infrastructure without builders. Plant life without seasons. A machine ecosystem without purpose that can be named. It produces nothing observable, consumes nothing from outside itself, and yet it operates with tireless efficiency. Perhaps it was built by something long departed. Perhaps it evolved. Perhaps the distinction between those two origins is smaller than we imagine.
+
+What strikes you most, after hours of exploration, is the absence of any center. There is no control room, no headquarters, no throne. The industrial structures are distributed, redundant, decentralized. Each factory-growth operates independently, connected to its neighbors by pipes and roots but not subordinate to any hierarchy. It is anarchy rendered as architecture, cooperation without consciousness.
+
+Night and day have no meaning here. The darkness is constant, the warmth unchanging, the humidity steady. You could sleep and wake at any interval and the environment would be identical. The only markers of time's passage are your own body's rhythms—hunger, fatigue, the need for rest. The place does not care about your time. It operates on geological scales, machine cycles, the slow growth of vegetable matter.
+
+Yet for all its stability, it is not hostile. The plant mass yields to passage, supporting weight without resistance. The air is breathable—rich with oxygen from the photosynthetic processes, even in darkness. (The plants store energy during rare light events, perhaps, or draw from reserves accumulated over centuries.) Nothing here wants to harm you. Nothing here wants anything at all.
+
+In one section, you find what might be a control interface—a flat metal surface grown with a lattice of conductive plant fibers, patterned in ways that suggest input mechanisms. But you cannot activate it. Your fingers find no purchase on the smooth surfaces, and the symbols that dot its face belong to no language you recognize. It might be operational still, processing data, adjusting flows. Or it might be purely decorative now—a reminder of intent from an age when intent still existed in this system.
+
+The quiet here is the quiet of a library after closing, or a cathedral between services. Sacred, in its way. The machinery provides the liturgy, the steady pulse of industry-as-worship. If there ever was a god of this place, it has become identical with the system itself—distributed, unconscious, eternal.
+
+You rest against a warm metal pipe. Condensation beads on your skin. A vine shifts slightly overhead, adjusting its position by millimeters over hours. Far off, something clicks in the machinery—a valve opening or closing, a new process beginning.
+
+It is quiet. It is warm. It is vast beyond comprehension.
+
+And it will continue, unchanging, for longer than anyone will be left to remember it.

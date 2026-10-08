@@ -1,0 +1,41 @@
+The city occupies an immense upland basin where a mountain range has worn down into terraces. From rim to rim the basin is wider than sight. Weather forms inside it: banks of cloud gather along the northern escarpment, rain crosses the central districts in gray veils, and the southern heights may remain pale beneath open sky. Seen from above, the place resembles a dry sea filled with stone islands, narrow channels, and thousands of closely fitted enclosures.
+
+It is a city only in form. Nothing here was quarried, carried, cut, or raised by hands.
+
+The structures are the exposed products of long erosion. Beds of dark limestone and lighter shale have weathered at different rates, leaving avenues between parallel walls, rooflike ledges above shallow chambers, and whole neighborhoods of square pillars joined by arches of harder rock. Rainwater has enlarged joints into lanes. Frost has opened courtyards. Springs, following buried strata, emerge at regular intervals beneath the same pale band of stone. The resulting order is so consistent that it seems planned: high districts, drainage wards, cistern hollows, stair-stepped plazas, and long processional ways descending toward the basin floor.
+
+At ground level, however, the illusion of deliberate construction becomes less complete and more persuasive. No surface is truly straight. Walls lean according to old pressures in the rock. Doorways narrow into cracks or open onto solid stone. Arcades continue for miles and then become cliff faces. Towers are flat-topped remnants with talus gathered at their bases like collapsed masonry. Everything is weathered into equilibrium. Loose fragments have already fallen; vulnerable faces have already retreated. The surviving forms possess the massive calm of things that have stood through innumerable winters.
+
+Water is everywhere, though seldom in great volume. It lies just beneath the paving-like shelves and reveals itself through dark seams. It beads on shaded walls, drips from ceilings, and threads along channels barely deeper than a finger. After rain, every terrace becomes articulate. Gutters run. Basins fill from below. Thin cascades descend flights of natural steps, and the long central avenues carry braided ribbons of clear, cold water.
+
+There is no single river. The basin drains through thousands of small decisions.
+
+Some water vanishes into limestone slots and travels underground for days before returning from a wall several districts away. Some collects in broad, shallow courts whose floors are lined with blue-gray clay. There the sky appears in broken panels between standing rocks. Along the lowest quarter of the basin, the ground softens into a chain of marshes: sedge-dark margins, open mineral pools, and trembling mats over hidden springs. Mist forms there before dawn and rises slowly among the stone towers, making their upper levels appear suspended.
+
+Vegetation remains sparse despite the wetness. The elevation keeps the growing season short, and most soil is continually washed from the exposed rock. Life occupies seams rather than surfaces. Low silver grasses grow in gutters where sand has gathered. Dark moss marks the dependable drips. Small mats of alpine flowers establish themselves in sheltered courtyards, blooming intensely for a few weeks and then withdrawing into seed and root. On the marsh edge, rushes stand in thin, disciplined lines determined by water depth. There are almost no trees. A few wind-shaped shrubs cling to the southern terraces, each one isolated by acres of stone.
+
+This sparseness makes the city feel densely inhabited by everything except life.
+
+Rock faces crowd one another. Passages overlap. Cavities open behind cavities, and beneath the visible streets lie older systems of conduits and flooded chambers. Rain falls through one level, runs along another, and disappears into a third. Cloud fills the upper avenues while water moves underfoot. Even empty air is divided by ribs, lintels, fins, and shelves. At the margins, the formations stand farther apart, but toward the center they gather into a labyrinth so compressed that a traveler may pass for hours without seeing the horizon.
+
+The high basin has several climates at once. Cold air pours from the rim at night and settles in the lower courts. Sun-warmed air rises from western stone in the afternoon, drawing mist upward through the arches. Sudden showers travel visibly across the city, announcing themselves as a soft darkening of distant walls. In winter, water freezes in the cracks and the whole basin changes by minute increments. In spring, the thaw releases stones, fills the channels, and awakens temporary falls along cliffs that seemed dry.
+
+The place is active without being loud.
+
+Most of its sound belongs to water at close range: an intermittent drop in a chamber, the faint run of a concealed stream, the whisper of rain passing from one stone roof to the next. Wind is muted by the dense formations. It moves above them in broad currents, while below it enters only as occasional cool breaths through narrow openings. A small rockfall may sound immense, but it is rare. Thunder, when it comes, travels from district to district and returns softened, as though the basin were too large to produce a single echo.
+
+Animals are uncommon and cautious. Pale moths shelter beneath overhangs. Tiny dark beetles graze the wet films around springs. In the marsh courts, a few cold-water insects emerge during calm evenings, drawing high-flying birds from beyond the rim. Their calls are so infrequent that each one seems to mark a location in the sky. Small mountain hares sometimes cross the open terraces at dusk, and hoofprints occasionally appear in clay near the outer pools, though the animals themselves are seldom seen. There are fish in some underground channels—small, colorless, and confined to waters no daylight reaches.
+
+Nothing dominates. There are too few mouths for pursuit to define the landscape. Ecology proceeds through weathering, seepage, brief growth, dormancy, and decay.
+
+The central formations are the tallest. Here the floor rises onto a plateau broken into immense blocks, each several kilometers across. Their edges are lined with cliff-built colonnades, and between them lie narrow valleys so regular they resemble boulevards. From their roofs one can see the full breadth of the basin: countless stone structures fading into rain, marshes shining far below, and the dark encircling rim supporting its own weather.
+
+Perspective fails at that height. Features that appear to be nearby towers prove to be mountains. A pale line mistaken for a wall is a hundred-kilometer escarpment. The apparent plaza beneath may take days to cross. Repetition obscures distance; the same arches, terraces, courts, and drainage seams recur at every scale, from hand-sized cavities to entire watersheds.
+
+The city has rules, though they are ordinary ones.
+
+Water always seeks the softer bed. Frost works most strongly where the afternoon sun cannot reach. Moss grows only where seepage persists beyond summer. Towers endure because their caps are harder than their cores. Marshes migrate as channels clog and reopen. No passage is guaranteed to remain a passage, yet most changes are too slow to witness. The landscape is balanced not by stillness, but by processes that have settled into one another: uplift against erosion, rain against drainage, growth against exposure, thaw against stone.
+
+After a storm, the basin briefly becomes brighter. Clouds break into moving fields of white and blue. Every wet surface catches the normal daylight, and the dark city flashes with thousands of quiet reflections. Water pours from cornices, crossing ledges in transparent sheets. The few grasses bend under droplets. Mist loosens from the marshes and threads upward through the lower streets.
+
+Then the channels empty. The falls diminish to strings of drops. Pools sink back toward their hidden sources. Across the vast terraces, silence returns unevenly, district by district, until only the weeping walls continue—patient, cool, and nearly inaudible within the unbuilt city.

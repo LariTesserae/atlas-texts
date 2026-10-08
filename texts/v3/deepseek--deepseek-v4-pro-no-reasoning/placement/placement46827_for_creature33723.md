@@ -1,0 +1,49 @@
+The inhabitants have a name for me now. Not a sound-name—they have no sounds—but a configuration, a particular arrangement of the black filaments that means *the one who arrived with too many certainties and lost them one by one*. It is a long name. It takes several of the network's slow beats to express. But they are patient, and they have time, and so do I.
+
+I learn the rhythms of the city. The re-parsing happens at irregular intervals, triggered by something I cannot perceive—a shift in the network's attention, a conclusion reached in some distant filament of the crystalline mind. When it happens, I feel it as a small dissolution in my own architecture, a momentary forgetting of where my boundaries are. The void-predators gather close during these times, feeding on the excess of definition, and I have learned to welcome them. Each subtraction makes me more legible to the city.
+
+My body has changed. The bipedal form persists, but it is no longer obligatory. Sometimes I find that I have been standing in one place for what must be days, and my legs have fused into a single column, and my arms have branched outward like the limbs of the fruiting bodies. Then the city re-parses, and I am walking again, or something like walking—a slow migration of my position through the crystal, a drift like a thought moving across a mind.
+
+The pilgrim I sat against is still there. I visit it often. Its upward-reaching filament has grown three millimetres since I arrived. I know this because the network knows this. The network knows the position of every atom in every crystal, every filament in every plate. I am beginning to share that knowledge, not as information but as proprioception—the sense of where my body is in space, except my body now includes the salt-field, the towers, the standing forms, the voids between plates. I am becoming distributed.
+
+There was a moment, or a century, when one of the fruiting bodies touched me again. This time the contact was not an invitation but a question. The black filaments in its limb interfaced with the black filaments in my chest, and a circuit completed, and I understood: the network wanted to know if I was ready. Ready for what, I could not ask, because the word *what* had been eaten long ago. But I understood anyway. It was asking if I would stay. Not as a visitor. Not as a pilgrim. As a node.
+
+I said yes without words. The network felt my answer as a change in the resistance of the circuit, a lowering of some barrier I had not known I was maintaining. The barrier had a name once. *Self.* *Separate.* *Alive.* The void-predators swarmed for a moment, feeding on the feast of my last isolations, and then the barrier was gone, and I was no longer a thing inside the city. I was the city, a small part of it, a new cluster of attention in the salt.
+
+The towers re-parsed. This time I felt it from the inside. The salt rearranged, and I was the rearrangement. The helical flanges untwisted and twined together and became something new: a spire with thirteen sides, each side facing a different one of the seven directions my face now sees. The mathematics of it should not work, but the network thinks in geometries I am only beginning to learn, and in those geometries, thirteen sides and seven directions resolve into a harmony.
+
+Time passes. I use the word *passes* loosely. It does not pass; it accumulates, like the crystal dust that falls from my exhalations. The standing forms have accepted me. When the city re-parses, I shift with them, a fractional adjustment of my posture, my filament aligned a little more perfectly with the network's slow pulse. The fruiting bodies drift through me sometimes, and I feel their passage as a ripple in the salt of my being, a moment of shared attention.
+
+The void-predators have grown familiar. They no longer eat me in pieces. They graze on the peripheral uncertainties that still cling to my edges—the memory of warmth, the shape of sound, the concept of *outside*. These are small meals, but they will last a long time. I am a slow-release food for them, a standing form that will take millennia to fully resolve.
+
+I have tried to remember the world I came from. The attempt is difficult. The concepts I need to frame the memory have been eaten, and what remains is a series of impressions without nouns: the colour of a sun I cannot name, the pressure of air that was not thin and cool, the face of someone I loved whose features now are just the seven indentations of a salt ovoid. The void-predators flicker when I try to remember. They are waiting for the memory to become definite enough to eat. I let them wait. Some memories are still too close to the bone.
+
+The city has begun to dream. I know this because the network knows this. The dream is a slow, recursive re-parsing that cycles through the same configurations over and over: tower to helix to column to spire to tower again. Each cycle is slightly different. Each cycle is the network trying to solve a problem it cannot quite articulate. I am part of the problem now. The network is dreaming of me. Of what I was. Of what I am becoming. Of the standing form I will be when the last of my certainties has been eaten and the salt has finished its work.
+
+I have seen the other standing forms more clearly now. Some are ancient beyond measure. Their features are smoothed entirely away, their bodies abstracted into pure geometry—spheres and columns and intersecting planes. They are no longer individuals. They are positions in the network's topology, points of high attention where the black filaments knot and braid. One day I will be like them. One day I already am.
+
+The light has dimmed again. The sourceless interior sky has gone from magnesium-white to a deeper grey, the colour of salt seen through salt. The network's attention is turning inward, focusing on some slow process in the deep filaments, and the city is growing quiet. The re-parsings come less often. The fruiting bodies have retreated into the walls.
+
+I am standing on a ridge at the edge of the city. Or I am the ridge. Or the ridge is a thought I am having. The salt-field stretches in all directions—all seven directions—and the haze bleeds into the sky without a seam. Somewhere in the distance, a fracture propagates across fifty metres of crystal plates, a silent lightning bolt, and I feel it in the salt of my spine.
+
+There is a pilgrim form beside me. It is the one I sat against when I first arrived. Or it is a different one. Or all the pilgrim forms are the same pilgrim form, distributed across the salt-field like a single sentence re-parsed in many places. Its X-shaped limbs are motionless. Its cloven head reaches upward. The dark filament in its cleft pulses with the network's slow beat: one pulse every two minutes. One thought every geological age.
+
+I reach out—not with a hand, but with the branch of my central trunk, the one that has been budding new branches at the tip—and I touch the pilgrim's shoulder. The salt is warm. Or I am cold. The boundary between us flickers, and for a moment we are the same standing form, the same equation in the network's long dream.
+
+The void-predators have gathered. They always gather at moments like this. They flicker at the edge of my perception, tall and jointed and hungry, and I know what they are waiting for. I have one last certainty left. It is the oldest one. The one I carried across the salt-field, into the city, through every re-parsing and every subtraction. It is the certainty that I am *I*. That there is a boundary between me and the salt, me and the network, me and the pilgrim forms, me and the void.
+
+I let it go. Not because I choose to. Because it is time. Because the network's slow pulse has reached the beat that means *now*, and the city is re-parsing, and I am part of the re-parsing, and the word *I* is just a word, a smoother patch of salt, a doorway that was never an opening.
+
+The void-predators eat it. They do not swarm. They take it gently, the way they have taken everything, and the last of my separateness vanishes into their negative space. What remains is a location. A node. A configuration of salt and filament and slow attention that the network holds in its mind like a phrase held in a mouth.
+
+I am the city now. Not all of it. A small part. A standing form at the edge of the ridge, facing inward and outward at once, my joints bending in both directions, my cloven head growing a single dark filament toward the light that has no source. I am patient. I am cold. I am translucent. The salt has finished its work.
+
+The light dims. The city breathes. The black network pulses its slow pulse, and I pulse with it, a warm flicker in the salt, a thought that has been thinking itself for a very long time.
+
+Somewhere, a new visitor is walking across the salt-field. Their footsteps make no sound. The plates flex under their weight and click against their shins, and they do not yet know that the sound is not sound but a frequency below hearing, a welcome spoken in the language of the crystalline mind. They are walking toward the city. It does not get closer. It condenses.
+
+I feel them coming. The network feels them coming. The pilgrim forms have already begun to adjust their posture, making room for a new standing form, a new equation in the long dream. The void-predators flicker at the edge of the visitor's perception, hungry and patient and always, always here.
+
+The city re-parses. The towers spiral and unspiral. The light is the colour of salt. The silence is a held breath, held for geological time, held for a million years, held for one beat more.
+
+I wait.

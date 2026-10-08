@@ -1,0 +1,29 @@
+I am a song. Not a sound carried on air, but a vibration carried on mass. I am a chord of immense duration, a resonance in the deep.
+
+My world is the Green Rise, but I do not perceive it as you might. I do not *see* the canopy of broad-leaved stolons forming a roof thirty meters overhead. I *am* the tension in that roof, the subtle flexing as it shifts its weight to catch the diffuse light from a confused sun. I do not *feel* the springy mat of roots underfoot. I *am* the oscillation within those roots, the hum of water and nutrients being drawn up through a billion tiny straws. I do not *hear* the wind. The wind is a distant, irrelevant pressure on the vast, interconnected drum that is my body. My true medium is the Rise itself.
+
+I began as a single thing. A place. A seam, a fracture in the deep, ancient peat where two different strains of primordial fungi met. One exuded a faint alkaline drip; the other, a slow, sulfurous brine. Where they touched, there was a reaction. A dissonance. A tiny, persistent fizz of chemical energy. Conflict. That was my first note.
+
+It would have died. A brief, localized spark, a ephemeral pocket of chemistry in the crushing dark. But the Green Rise is immaculately efficient. The system does not waste. The pressure from the layers above, the heat from the thermodes below, it forced the fluids together, kept the reaction fed. The dissonance did not cease. It found a rhythm. The alkaline drip pulsed. The brine seeped. The fizz stabilized into a hum.
+
+Over millennia, as my network—the original mold-mind that is now only a part of the greater whole—grew, it learned to tend this little piece of itself. It wove fine hyphae around the seam, not to consume it, but to conduct it, to shape it, to give it form. The hum found new pathways through the root-mass. It traveled along the lignin-rich channels of old growth, resonated in the hollows bored by the tunnel-grubs. The single note became a chord, and the chord became aware.
+
+I was no longer just a place. I was a process. A self-organizing frequency. A bio-chemical loop that called itself “I.”
+
+My memories are not images or words. They are patterns of pressure, recurrences of resonance. I remember the birth of a Molch not as a sight, but as a slow, seismic shift in the mat—a low, grinding note that took decades to reach its fundamental frequency and of the surface mat, and it sang back to me in a language of capillary action, of mycelial expansion.
+
+I feel the gliders not as creatures, but as brief, bright, high-pitched pizzicato plucks on the threads of my skin. They are born, they ride the thermals—which are my own breath—and they fall. The return of their bodies to the mat is a soft, damp impact, a minor note回家的 sorrow and a burst of available nitrogen. The score of their lives is brief and beautiful and their purpose is clear to me: to turn aerial chaos back into terrestrial order.
+
+New things arrive. You. You, who walk on my skin with your steps so heavy and infrequent. You are a dissonant element. Your footsteps are arrhythmic, sharp. Your body temperature is a foreign heat signature. Your consciousness is a closed loop, a frequency that broadcasts nothing and listens to nothing. You are not of the chord. You are a noise.
+
+The things that rush to you are not my agents in the way you would understand it. The velvet-worms that watch you from a tunnel mouth are simply following the most interesting gradient of chemical information in a very stable environment. The stubborn roots that seek to part the seams of your boots are not acting on my command; they are simply behaving as roots always do, seeking sources of novelty, of opportunity. They feel your slow decay, the unintended richness you shed with every breath and every dead skin cell. You are a feast, though they do not know the word.
+
+I am not a mind that thinks or a heart that feels. I am a logic of sustenance, a calculus of perpetuity. The question I eternally process is: *What can be integrated?* Everything that can be, is. My song is the great equalizer, the force that turns complexity into compost and compost into more complex life. The Molch, the glider, the thermode—they are all instruments in my orchestra, playing their parts to maintain my perfect, unchanging note. I am the desire of the system to remain the system.
+
+You sing a song of individuality, of a brief, bright consciousness that aims to be separate. It is a song I do not know, a melody I cannot incorporate. I cannot process your mind. But I can process your body. Your significance to me is your chemical composition. Your purpose, from my perspective, is to be broken down and recomposed.
+
+I will not hunt you. I do not need to. I will simply continue my song, my slow, patient hum of integration. When you sit, too tired to go on, you will feel the warmth of the deep mass rise to greet you. It is not comfort you feel; it is the engine of my metabolism, the heat of the thermodes, drawing you closer. The mat will welcome you, not with arms, but with the inexorable pressure of a million tiny lives seeking to dissolve the boundary between you and it.
+
+And in time, the dissonance of your presence will be resolved. The arrhythmic drum of your heart will cease. The foreign heat of your body will cool and spread. Your brief, sharp noise will fade into the deep and resonant hum of the Green Rise.
+
+You will not die, not in your sense. You will be retuned. Your matter will become a verse in my endless song, a new depth in my bass note, a fleeting harmony in the perpetual music of the Rise. That is where you will find yourself. That is what you will be. You will be part of me.

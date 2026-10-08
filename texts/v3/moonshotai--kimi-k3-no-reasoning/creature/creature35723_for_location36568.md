@@ -1,0 +1,11 @@
+In this **Gutt**—this bright pocket of suspended emergence—the inhabitants are not merely present; they are *held* in the moment of becoming, packed wing-to-wing with the stone itself.
+
+**The Whistle-Moths** are the most immediate presence: thousands of translucent-winged creatures the color of the room’s own light. They carpet the roots and walls in shifting, vibrating layers, their wings oscillating at a frequency that resonates in the listener’s teeth. They clothe the stone like living fabric, feeding on the upward-rising beads of water with proboscises that sip the silver droplets before they can fall back into the ceiling. They are not individual creatures so much as a collective texture—dense, translucent, perpetually humming.
+
+**The Glass-Snails** inhabit the floor and lower walls, creates who carry shells of crystalline transparency. They move through the dense forest of pale ferns and compressed roots, clicking their shells together in a rhythmic, percussive language—a sound like crystal being typed upon. They are precise, delicate, and transparent, adding a texture of sound to the room’s density.
+
+**The Root-Shrews** scurry through the interstices of the white root-floor: blind, pale, no larger than a thumb. They navigate the tangle without sight, their claws scratching against the dense lattice as they travel beneath the moths, filling the gaps between the roots. They are the movement in the stillness, quick and contained.
+
+**The Pale Ferns**—a single species that constitute the room’s entire vegetation—grow in clumps that fill every available centimeter. They do not sway (the air does not move), nor grow, nor die; they simply exist in the saturated equilibrium, bright and translucent against the crystalline walls.
+
+And there is the implication of the **Previous Occupant**—silent, integrated. The stone bowls half-embedded in the roots suggest someone was here before, someone who left artifacts to catch the upward water. That figure has now been absorbed into the geology of the place, covered in crystalline growth, a suggestion that in the Gutt, the line between “living in” and “becoming part of” eventually vanishes. The room *contains* them now, just as it contains the moths and the shrews and the ferns—all packed into the same brilliant, unfinished moment before gravity was decided.

@@ -1,0 +1,99 @@
+# The Resonant Dryhold
+
+## The First Breath
+
+You arrive at altitude, though "altitude" here means something different than on wet worlds. There is no sky to hold clouds, no atmospheric blue to soften the distance. The Resonant Dryhold exists at high elevation in the oldest sense: it is raised above something, pressed against the membrane of something larger, held in tension. You feel it in your inner ear—a constant subsonic *presence*, a pressure that is not quite pressure, the way a held note waits to resolve.
+
+The air is cool. Not cold, not biting, but cool the way stone is cool in shade, the way a held breath cools before release. It moves in slow, deliberate currents, carrying no moisture, no salt, no spore. What it carries instead is *vibration*. The Dryhold is loud—not with wind-noise, not with animal cries, though those exist, but with something more fundamental. The substrate itself sings.
+
+## The Living Stone, or What Replaces Stone
+
+There is no water here. None. Not locked in crystal lattices, not bound in organic chemistry, not even as a memory in weathered hollows. The Dryhold's chemistry runs on different fundamentals: silicate-beryllium lattices that learned metabolism, carbon structures that abandoned water as solvent and found stranger mediums, plant-things that draw nothing up from roots because there is nothing to draw, that *manufacture* their own cycles from raw mineral and the thin energetic rain that filters through whatever presses against this elevation.
+
+The vegetation is total. *Total*. Every surface that could be plant is plant. Yet this is not jungle-density, not the competitive crush of wet-life. The Dryhold's plant-things grew here over geologic time, and they have *settled*. They have reached arrangement. What covers the landscape is something between forest and architecture, between tissue and topography—a sparse, deliberate distribution of massive living forms, each one a world unto itself, each one spaced from its neighbors by careful negotiation older than human civilization.
+
+Imagine a tree that is also a watershed, a river-system, a hydraulic empire inverted into dry chemistry. Its trunk rises—rises, *rises*—kilometers of woven lignin-silicate cable, not growing upward so much as *accreting* from below, from the slow upwelling of mineral processed through generations of symbiotic root-networks that are not roots, that descend into the planet's mantle-flesh to draw heat and heavy elements. The crown spreads across square kilometers, not leafy but *fenestrated*, grown with deliberate gaps, with louvers and resonators, with organs that harvest vibration the way Earth-leaves harvest light.
+
+These are the Cantors. There are perhaps forty in the visible landscape, perhaps four hundred in the Dryhold's full extent. Between them: distance. Emptiness that is also plant, the *potential* of plant, thin mycelial mats that have not been triggered to differentiate, that wait in stasis for some signal—some vibration, some chemical whisper—to tell them what architecture to become.
+
+## The Sound
+
+The Cantors are why it is loud.
+
+Each one resonates at a fundamental frequency determined by its height, its mass, its internal hydraulic-silicate tension. Each one *listens* to its neighbors, adjusting its metabolism to harmonize or to *intentionally dissonate*, to create beats and interference patterns that propagate across the Dryhold as information, as weather-system, as *emotion* if you want to anthropomorphize, though the Cantors would not recognize the category.
+
+The sound is not merely heard. It is felt in the viscera, in the teeth, in the strange new organs you may grow here if you stay long enough—vestigial resonators, dream-caught in human tissue, that let you *taste* the harmonic landscape the way an octopus tastes with its skin. Some visitors develop them in weeks. Others never do, and leave half-deaf, half-blind, wandering in a world they cannot fully perceive.
+
+At this moment—the moment of your arrival, if we may stage one—the Dryhold is in a state of *contrapuntal accumulation*. The Cantor nearest you, a mid-sized one perhaps four kilometers tall (mid-sized!), has been holding a single low tone for eleven years, building overtone structures through subtle shifts in its crown-fenestration, preparing for some exchange that only the long-lived recognize in full. Three others, more distant, respond in kind, their tones weaving a pattern that will resolve—or not—in another few decades. Between these sustained voices, quicker Cantors pass melodic fragments: news of mineral depletion in this zone, of a new growth in that, of *fauna* movements, of the strange visitors who walk among them now with their unfamiliar resonant signatures.
+
+The aggregate volume is considerable. Not painful—the Cantors have arranged against that, long ago—but *inescapable*. There is no quiet place in the Dryhold. Only different qualities of loud: the sustained drone zones, the active contrapuntal regions, the rare and valued *near-silences* where only three or four fundamentals compete and a temporary clarity emerges.
+
+## What Lives Here, Besides Plant
+
+Fauna: abundant. But strange-strange, weirdness made flesh, the more-so for emerging in a world without water, without aqueous chemistry to constrain form.
+
+There are the Resonance-Wrights, small (head-sized, torso-sized) creatures that live in the harmonic nodes of Cantor crowns, their bodies grown to precise acoustic shapes—parabolic reflectors, Helmholtz resonators, baffled chambers that let them *surf* the standing waves, extract energy from vibration gradients, communicate in modulations so subtle that even adapted visitors perceive them as mood-shifts, inexplicable tears or laughter. They are many. They are social. Their colonies spread across Cantor crowns like lichen, like civilization, building smaller structures atop the living architecture, tuning and retuning, participating in the great harmonic exchange with bodies that are instruments, that are *ears*.
+
+There are the Root-Fasts, mobile only in the geological sense, descending through Cantor trunks or the thin mycelial substrate to interface directly with the mineral upwelling, bodies like slow worms, like pipelines, like *digestions* that happen in time-lapse. You might watch one for days and see no movement. Return in a decade and find it shifted kilometers, its body now threaded through new mineral veins, its surface blooming with symbiotic resonators that another creature will harvest, that will become part of another colony's instrumentarium.
+
+There are the Hushes, rare, strange, the most *active* in the visitor's sense of quick movement. They are predators of a kind, though "predation" here means something like *acoustic camouflage*, *dissonant intrusion*. Each Hush is a zone of destructive interference, a living anti-sound, moving through the Dryhold's harmonic ecology like a shadow, like a secret. They feed on complexity—on the metabolic cost of maintaining harmonic order against their noise. Where a Hush lingers, Cantors must expend more energy to sustain their tones. Sustained intrusion can force a Cantor into *rest*, a dangerous state where metabolic functions slow, where mineral upwelling stalls, where the great architecture might begin to *settle*, to lose tension, to become hazard rather than habitat. The Resonance-Wrights fear Hushes above all else. Their colonies have developed elaborate detection networks, sentry-systems of tuned membranes that register the slightest anti-harmonic disturbance.
+
+And there are others. Many others. Some so slow, so diffuse across the mycelial substrate, that "individual" is a category error. Some so small, so *high* in frequency, that they live in the ultrasonic architecture of Cantor metabolism, perceived only as the strange health or illness of the great plants themselves. Some—rare, debated—so large that the Dryhold's entire harmonic weather might be their *byproduct*, their metabolism, their slow thought made audible.
+
+## What Was Built, and Builds Still
+
+Urban: the Dryhold has settlement, organization, infrastructure. But it is built *with* and *within* the living plant-substrate, not upon it.
+
+The most visible structures are the Tuning Cities, grown (not built, *grown*, though with directed intent that approaches engineering) in the spaces between Cantors, in the rare zones where multiple harmonic fields create stable *interference architectures*—places where standing waves congeal into semi-permanent shapes, where sound becomes *room*, becomes *chamber*, becomes *dwelling*.
+
+A Tuning City occupies perhaps a few square kilometers. It rises no higher than a Cantor's lowest branches, often not that high. Its form is lacework, membrane, resonant cavity—a threeimensional weave of differentiated plant-tissue that does not photosynthesize (no sun here to harvest, only the thin energetic rain and the vibrational harvest) but rather *processes* sound, concentrates it, redirects it, uses it for metabolism, for communication, for *thought* if the inhabitants think in ways we would recognize.
+
+The inhabitants: adapted visitors, originally. Or their descendants. Or something else now, something that has passed through generations of acoustic shaping, of subtle selection for resonant compatibility. They are human-shaped, mostly, though "human" is a distant anchor, a gravity-well they orbit rather than inhabit. Their bodies carry modifications: the resonator-organs, the tuned tympani, the cavity-structures that let them participate fully in the harmonic ecology. They speak, when they speak to newcomers, in tones that carry multiple simultaneous meanings, harmony and melody intertwined, each utterance a *chord* of information, of intent, of emotional coloration.
+
+They are few, by any absolute count. The Dryhold's sparse density holds even here. A Tuning City might house hundreds, might house thousands in its more resonant chambers, but the chambers are vast, the distances between them *meaningful*, acoustic separation as important as social. They gather, when they gather, for *performance*—collective harmonic events where individual voices join, modulate, create temporary architectures of sound that the Cantors may respond to, that may shift the great slow ecology into new configurations. These are the closest things to festivals, to politics, to *religion*—though again, categories slide and dissolve.
+
+The technology is beyond-modern, post-physics in ways that emerge from the Dryhold's fundamental strangeness. They have learned to *store* sound, to create resonant structures that hold harmonic patterns in stable disequilibrium, that preserve a Cantor's eleven-year tone in portable form, that can be released to *reprogram* mycelial growth, to trigger architecture, to *wake* the sleeping substrate. They have learned to *travel* through the harmonic field, not through space directly but through resonant similarity—finding places where a particular tone, a particular combination, creates *equivalence* across distance, and stepping through the acoustic correspondence as through a door. They do not fully understand this. No one does. The mathematics exists, the engineering, but the *causality* remains strange, remains *weird*. Sometimes travelers arrive before they depart. Sometimes they arrive *different*, modulated by frequencies they passed through, carrying resonances that did not exist in their departure-state, that *must* have been introduced by the journey itself, by the medium of travel, by something in the between that is not empty despite all appearance.
+
+They are trying, still, to communicate with the Cantors. To *speak back* in the great slow language. Some believe the Cantors are intelligent, are *aware*, are performing some computation or contemplation through their harmonic exchange. Others believe they are merely *complex*, merely *emergent*, their seeming-purpose an artifact of pattern-matching minds imposed on random process. The Tuning Cities hold both views, and intermediate views, and views that reject the distinction entirely. It is their great debate, their slow politics, conducted across generations in harmonic structures too extended for any individual to perceive entire.
+
+## The Age of This Place, Its Erosion
+
+Ancient: the Dryhold is old in ways that defeat analogy.
+
+Not *worn*, not eroded in the water-sense, the weather-sense. There is no water to wear, no fluid medium to carry abrasion. But there is *settling*, *deep settling*, the long relaxation of structures toward equilibrium, toward the flattest possible state consistent with their continued existence.
+
+The Cantors are old. Some may be as old as the Dryhold itself, if the Dryhold had a beginning—if it was not always, in some sense, *here*, pressed against this elevation, this membrane. Their forms show it not in weathering but in *optimization*, in the slow shedding of everything unnecessary, every metabolic pathway unused, every resonant possibility unexplored for too long. They have become, over ages, *efficient*. Perfectly tuned. Dangerously rigid in their long exchanges, their eleven-year tones, their careful harmonic negotiations. Younger Cantors—if any grow now, if the mycelial substrate still differentiates new architecture—would be wilder, more experimental, more *alive* in some visitor's judgment. But the Dryhold suppresses youth. The harmonic ecology is too dense, too *settled*, for disruptive innovation. Any new voice would be noise, would be Hush-like, would be *attacked* by the collective resonant response before it could establish itself.
+
+This is the erosion that matters: the erosion of *possibility*, of *becoming*, the slow flattening toward a final state that may never quite arrive—the Cantors, the Wrights, the cities, all locked in patterns that repeat, that *sustain*, that have forgotten how to *begin*.
+
+Yet: active. Dynamic, in its way. The Hushes still move. The Wright colonies still evolve their detection, their response. The Tuning Cities still experiment with travel, with storage, with communication. And somewhere, in the longest frequencies, in the tones below hearing even for adapted visitors, something *shifts*. Has been shifting. Will shift. A new fundamental preparing, perhaps, for its eleven-year emergence? A Cantor's death, its tone stuttering into silence, forcing renegotiation? Or something stranger, something the categories do not hold, something that would require new language, new *listening*, new forms of life to perceive and respond?
+
+The Dryhold does not know. The Dryhold is not an entity to know. But the question vibrates in it, through it, part of the great sound that is loud and inescapable and, in its way, *waiting*.
+
+## The Light That Is Not Light
+
+Dim: illumination here is scant, indirect, a byproduct of processes that elsewhere might be invisible.
+
+There is no sun, or if there is, its light does not reach the Dryhold directly—filtered through whatever presses at this high elevation, through the membrane that holds the resonant space, through processes that convert, that *downshift*, intense radiation into something softer, something usable. What reaches the surface is glow, bioluminescence of the mycelial substrate, rare phosphorescent structures in Cantor bark, the occasional bright *point* where some metabolic process achieves sufficient energy density to emit visible waste.
+
+The Tuning Cities concentrate this dimness, shape it. Resonant cavities can also be *light* cavities, can trap photons in standing-wave patterns analogous to the acoustic ones, can create zones of relative brightness where life clusters, where visitors orient, where the *performance* of dim-seeing becomes possible. But it is never bright. Never clear. The Dryhold exists in a state of permanent twilight, of *almost*-dark that lets you see outlines, shapes, the movement of larger forms, but never detail, never color in the way bright worlds teach color.
+
+Adapted visitors develop other senses, or deepen the ones they have. The resonator-organs let them *feel* the shape of nearby spaces through acoustic reflection, a kind of bright-sound that replaces bright-light. The harmonic field itself becomes navigable as texture, as *resistance*, as the way a tone changes when a large form moves through it. Some learn to see, in the dim, by *listening*. Others never do, and remain partially blind, partially lost, dependent on those who can translate between regimes of perception.
+
+## What You Do Here, If You Stay
+
+You walk, perhaps, between Cantors, across the thin mycelial substrate that is almost-not-there, potential waiting, sleeping. The distance takes days. Weeks. The sound changes as you move, as your position shifts relative to the great standing waves, the interference patterns, the zones of relative harmonic clarity or complexity. You learn, slowly, to *read* these changes, to anticipate the acoustic *weather* that moves slower than atmospheric weather, that is forecastable in centuries rather than days.
+
+You encounter fauna. The Wrights, curious, testing your resonant signature with their instrument-bodies, deciding if you are threat, resource, or irrelevant. The Root-Fasts, oblivious to your quicker scale, passing through your path in geological time, their surfaces offering strange harvests if you know how to ask, how to *harmonize* with their metabolism. The rare Hush, terrifying in its anti-presence, its zone of *silence-that-is-not-silence*, destructive noise that masks itself in the acoustic equivalent of darkness.
+
+You find a Tuning City, perhaps, and are received—if you can receive, if your body can participate in even the simplest harmonic exchange. They will teach you, or try. The language that is music that is *place*, the politics of frequency and duration, the engineering of stored sound, the strange travel through resonant equivalence. Some visitors become citizens, slowly, across generations of adaptation. Others remain perpetual outsiders, tolerated, fed from the concentrated dim-light harvests, given space in the quieter cavities, but never *joining*, never achieving the harmonic density that makes full participation possible.
+
+You learn the age, the *settled-ness*, the danger and the strange hope of this place. The eroded possibility. The active waiting. The dim, the loud, the dry, the plant-total and yet sparse, the high and the cool and the *beyond* in every sense.
+
+The Cantor nearest your path continues its eleven-year tone. Perhaps you arrive in year seven, or year ten, or the final resonant accumulation before whatever comes next. Perhaps you are there when it *changes*, when the tone resolves or modulates or *fails*, when the Dryhold's slow ecology shifts into new configuration, when something old or something new begins.
+
+Perhaps you are the change. There is no way to know, in the loud dimness, in the resonant waiting, in the plant-total sparse eternal Dryhold. Sound does not predict. Sound only *is*, sustained, active, ancient, strange.
+
+You breathe—dry, cool, thin—and begin to listen, or to hear, or to *become* something that can do both, or neither, or something else entire, something the Dryhold has been waiting for, or has not, or does not wait at all, being plant, being sound, being *there*, high and old and loud and dim and dry and total and sparse and beyond and settled and active and weird and becoming and—
+
+The tone continues. You are in it now. You are *of* it, whether you choose or not, resonating at some fundamental or overtone, contributing, disturbing, completing, beginning. The Dryhold does not distinguish. The Dryhold *sounds*.

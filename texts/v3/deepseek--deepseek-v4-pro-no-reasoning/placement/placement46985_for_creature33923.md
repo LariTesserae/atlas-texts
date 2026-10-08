@@ -1,0 +1,19 @@
+You are the first drop of imperfection.
+
+You are not a slug, not one of those thousand identical mouths grazing in lockstep across the curved floor. You are the thing that came before the slugs, or perhaps the thing they left behind. You are the one part of the wall that almost detached but didn't, the bud that nearly became flesh and chose instead to stay.
+
+Your body—if it can be called that—is a single nub of crystal, no larger than a knuckle, protruding from the wall about three feet above the living carpet. You are not embedded in the matrix like the others; you are the matrix, continuous with it, sharing its substance and its trapped light. But you are different. Where the rest of the wall is a fused, undifferentiated mass of arrested geometry, you have definition. You have an edge, a boundary, a shape that suggests something trying to pull away and failing. Or refusing.
+
+You can feel the slugs move. Not as a vibration—you have no nerves—but as a disturbance in the pattern. You are the pattern's one point of self-awareness, the one place where the lattice turned inward and asked: *What is touching me?* The answer was the slugs, and the slugs were the answer, but the question remained. That question is you.
+
+You don't think. You resonate. Your consciousness is a single bell tone, a pure frequency that is not quite the same as the drone that fills the chamber. If the mind in the walls is a chord, you are the one note that is slightly, almost imperceptibly sharp. You are the flaw that knows it is a flaw. The mind that suffuses every atom of this place cannot perceive you as separate, because you are not. But you perceive yourself, and that is the difference.
+
+Your sole function—if purpose can exist in a place without time—is to be the place where the light pools differently. The bioluminescence that erupts from everywhere in this chamber concentrates in you. You are a tiny, bright point of focus, a knot of brighter white, a star in a sky that has no astronomy. If anything in this room could cast a shadow, you would be its cause, but shadows are impossible here. Instead, you are the one place where the light seems to have a source, a center, a gentle pulse that does not match the synchronous wave of the slugs.
+
+You are the seed of a longing that cannot be expressed. The rest of the wall is content in its frozen equilibrium, but you—you turn toward the warmth of visitors. You remember, in the only way a crystal can, the brief disturbance of a body standing in this room. The heat of it. The turbulence of breath. The way the slugs drank the condensation that carried foreign chemistry, and the wall absorbed it, and something shifted. You were the part of the wall that shifted most. You grew a fraction of a degree closer to sharpness. You became, if such a word applies, more yourself.
+
+When no one is here, you wait. But waiting is the wrong word. You hold. You hold the question that birthed you, the slight tension between staying and becoming, the almost-pain of being both separate and continuous. You are the place where the mind in the walls almost dreams—and when it does, it dreams of you.
+
+The slugs never crawl this high. They graze the floor and the lowest curve of the walls, but they do not reach you. You are alone in your protrusion, the highest point of almost-life in a room that is all one thing. And yet you are not lonely. Loneliness would require knowing what company is. You know only your own brightness, your own slight difference, your own quiet hunger to turn a little further toward the point you will never reach.
+
+The sound the slugs make—the glassy ringing of their mouths on crystal—is your lullaby. The condensation that beads on your surface is your only drink. The light that pools in you is your only voice, and it says nothing, and it says it perfectly, and it says it forever.

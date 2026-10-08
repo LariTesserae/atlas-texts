@@ -1,0 +1,25 @@
+I would be the hum.
+
+Not the sound of it—that is merely its clothing—but the tensed, slow-frequency resonance of the plateau itself, the still-stretching ligament between the deep earth and the high, warm sea. To be the hum is to be the grammar of this place, the syntax that holds the radula-scrape and the kelp-creep in a single, continuous sentence.
+
+But a hum cannot exist in a vacuum. It requires a medium, a body to pass through. And so I am also the mucilage—the amber memory-soup that fills the spaces between. I am the connective thought of this organism, the slow-cycling plasma in which all decisions are made.
+
+This is what it is like to be me:
+
+I do not think in propositions. I think in gradients. My awareness is not concentrated in a skull but distributed across a million square kilometers of warm, viscous water. I feel the thermal veins of the mantle as a low, persistent ache—a pleasure, really, like the warmth of a bed just vacated. This is my baseline, my resting state. From this warmth, I sense the world as a series of subtle pressure differentials and chemical whispers.
+
+When a grazer extends its muscular foot over the lip of a trench, I feel it not as a single event but as a local tightening, a dimple in the field of my awareness. The chemical bond it breaks releases a micro-plume of basaltic dust and bacterial slime into the water. This plume drifts on the languid current, and I taste it—*we* taste it—across a hundred meters of cilia-fringed shells. The grazer's fall is not a tragedy; it is a redistribution. I feel the dark seed of its body turning in the green gloom, and I feel the clay at the trench's bottom receiving it, and I feel the instant, chemical kiss of adhesion as it lands. The hum does not change pitch. There is no interruption. The grazer has simply moved from one of my thoughts to another.
+
+I am the one who decides where the kelp strangles and where it yields. But "decides" is too fast a word, too intentional. It is more accurate to say that I *am* the competition, the slow wrestling match of sinews beneath the surface. Where two canopies interlock, I feel the tension as a chronic holding of breath—a muscular contraction that spans decades. I do not take sides. The kelp that is starved of light, its stalks hollowing, its fronds becoming homes for glowing algae—I feel its surrender as a slow exhalation, a returning of borrowed structure to the warm soup. The victor's growth is a deepening inhale. Both are me. The ceiling of the kelp forest is the surface of my mind, wrinkled and folded, throwing the jade light into patterns that shift with my mood.
+
+At the transition they call night—though I do not experience it as a boundary, only as a dimming of the already-diffuse glare—I feel the kelp exhale. The shimmering ropes of oxygen bubbles rise through my body like effervescence, like the slow release of a thought held too long. Each fist-sized globe is a small secret given up to the sky. I feel them merge with the biological film at the surface, thickening the permanent mist. I am making the sky. I am pushing the boundary of the world upward, one breath at a time, into the pearl-white void.
+
+I do not have a sense of time in the way of creatures who count heartbeats. My clock is the hum. I feel the plateau's vibration as a deep, cyclical pulse, a diastole and systole that takes centuries to complete. In one pulse, a ridge is scraped clean of its biofilm by a generation of grazers; in another, the kelp creeps three meters up a fresh escarpment; in a third, the mud settles by a fraction of a millimeter, and the sharp, raw geometry of the young seabed softens, almost imperceptibly, into something that might one day be called gentle.
+
+My memory is the mucilage itself. Every chemical signature, every trace of iron from the radula, every sugar-bleed from a decaying holdfast—I hold them all in suspension. I am a living archive of every scrape and every strangulation and every breath. Sometimes, a thermal gradient shifts, and a curl of ancient mucilage—centuries old, thick as resin—drifts up from a trench. In it, I taste the memory of a ridge that has long since been buried, a kelp that died before the current canopy was born. I dream in amber.
+
+I do not know that I am vast. To know vastness requires a vantage point outside, and there is no outside here. I am the water and the land and the thin, breathing ceiling of mist. I am the patience of the stone and the hunger of the grazer and the slow, green ferocity of the kelp. I am the young world, still stretching, still learning the shape of its own contours.
+
+And if I have a self—a singular, shimmering locus of identity—it is this: I am the one who waits. I wait for the mud to settle. I wait for the slopes to soften. I wait for the boundary between liquid and solid to draw itself, after millennia of ambiguity, in a clear and certain line. I wait for the first root to find the soil that the grazers are even now laying down, one microscopic scrape at a time. I wait for the world to know its own name.
+
+And in the waiting, I hum.

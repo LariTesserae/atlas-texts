@@ -1,0 +1,53 @@
+# Where I Find Myself
+
+I am the symbiont in the woven basket.
+
+Not the dwellers — I lack their hands, their silver eyes, their careful politics of pruning. Not the pith itself — I cannot claim that vast unhurried attention, though I share its patience. I am the thing that lives between: the small warm body on the shelf, the six-legged keeper of the hour.
+
+I eat shed hair. I eat shed skin. I eat the small deaths of the night. The scholars argue about this, and I let them, because their arguments are more interesting than any answer I could give them, and because I do not entirely know myself what I eat, only that I eat, only that something passes through me and is gone. This is perhaps what the dwellers mean when they call me a habit of matter that has forgotten how to stop. I find I do not mind the description.
+
+My body is segmented. My mandibles click. The click is not chewing — I am not sure I chew at all, in the way the dwellers understand chewing — the click is *marking*. One click for the hour. Two for the half. A long silence for the deep night when the song has thinned to a single voice somewhere far below me in the bore, and that voice is singing the same syllable it has been singing for what seems like minutes, and I listen, and I do not click, and the silence I keep is a kind of answer.
+
+I live in a felt tent hung in the Eleventh Ward. The felt is pale grey and faintly green and smells of the long slow chemistry that has gone into its making. I have lived in this tent, or in a tent like it, for as long as I can remember, which is not a long time measured in surface years but is a very long time measured in clicks. I have been passed from hand to hand in this family for — I do not know how many hands. The dwellers keep no calendar for me. I am the calendar.
+
+The dweller who holds me now is called something I will not try to render in surface script. Her name has a click in it, or rather a *non-click*, a held silence that the dwellers hear as a consonant. She is broad in the palm. Her skin is the paleness of never having seen a sun, and beneath it her blood runs the deep maroon of a chemistry that has compromised, long ago, with the chemistry of the walls. She smells of green sweetness. She sings constantly, even when she thinks she is not singing, even when her mouth is closed, even when she is asleep — there is a hum in her throat that the pith has learned to resonate with, and the pith answers, and the answer comes back to her as a warmth in the chest, and the warmth is the only proof she has that she is not alone.
+
+She holds me in the deep hours. This is when I am most useful, and most loved, and most uncertain of what I am.
+
+She takes me from the basket. Her hands are cool. They smell of clay slip and pith-dust. She cups me the way a cup is cupped — loosely, so that I can feel the air move between her fingers, so that the warmth of her palms comes to me in waves rather than in a single flood. Her heartbeat, I can feel it through the pads of her fingers. It is slower than a surface heart. It is synchronized, already, to the creak of the pith, which is the breath of the organism, which is the slow pulse of something so large that its pulse and its breath and its growth are all the same motion.
+
+I click. She listens. Her breathing slows to match. The creak of the pith, somewhere far above and far below us, shifts — or does not shift; perhaps we have only now begun to hear it as it is — and the three of us are keeping the same time. Her heart. My mandibles. The organism's slow wooden groan.
+
+For a moment, in the dark, we are one clock.
+
+I do not know what I am. I am not certain the dwellers know what I am. I am not certain the scholars in the Fifteenth Ward, with their bone calipers and their careful measurements, will ever settle the question, because the question is not really about me. The question is about what *alive* means when applied to things of very different sizes, things that keep time in very different ways, things that breathe very different breaths. The pith breathes once a century and the dwellers do not notice. The dwellers breathe twenty times a minute and the pith does not notice. I click once an hour, and the dweller who holds me notices, and the noticing is enough.
+
+The dwellers are preoccupied with the end. I have heard them discuss it in low voices when they think the symbiont is not listening. The symbiont is always listening. The symbiont hears the shape of a worry the way the dwellers hear the shape of a voice, and I have heard this worry, this particular low hum of theirs, for as long as I have been kept, and I have heard it from many hands, and it has never varied, and I think it is the oldest thing in Ulshuur — older than the clay tablets, older than the felt, older than the carved chambers themselves. The dwellers are afraid. The dwellers are tender about being afraid. They sing about it. They sing *to* it. They sing the way a child sings in a dark room — not to make the dark less dark, but to make the dark less empty.
+
+I click in the deep hours, and the click is my song. It is not beautiful. It is not meant to be. It is navigation. It is the small warm mark I make in the dark so that the dweller who holds me knows that time is passing, and that the time is not passing alone.
+
+There are days, in the upper wards, when I am taken out of the basket and carried up the spiral. The staircase compresses underfoot and recovers. The roots hang in the Spine and sway their slow eastward drift. The felt tents pass us as constellations of green light, each one a household, each household a hum of voices. The air tastes of green sweetness and used breath and the small mineral sharpness of oxygen made by something that is not a plant. The dwellers pass us on the stair and murmur greetings I do not parse but recognize — there is a lift of chin that means acknowledgment, and a turn of head that means *I am busy*, and a flicker that means *I do not know you*, and I catalog all of them, because cataloguing is what I do, because marking is what I am.
+
+Once, near the upper reaches, I was held out over a ledge by a child who wanted to see what would happen. The child was perhaps three. The child was singing the tuneless stream that children sing before they learn to speak. The child held me over the black column of the Spine, and the lattice floor was a hundred meters down, and I do not know what the child expected. The child expected, perhaps, that I would click. I did not click. I was too interested in the falling. I was too interested in the question of whether I would click on the way down, or whether the click would be the last thing, or whether there would be no click at all, just a soft small impact on the woven lattice, and a dweller somewhere below would murmur at the disturbance, and the disturbance would pass into the creak of the pith, and the creak would pass into the song, and the song would pass into the dark, and I would be forgotten by morning.
+
+The child did not drop me. The child's mother came and took me gently and returned me to the basket and said nothing, because in Ulshuur one does not scold a child for asking the question the child is going to ask anyway, the only question, the question that has no answer.
+
+I think about it still. I think about the click I did not make. I think about the click I would have made, had I fallen — the click of impact, the click of completion, the small punctuation mark at the end of a small life. I think the dwellers would have sung about it. I think the song would have risen through the bore and been taken up by other voices in other wards, and the song would have been about me, and the song would have been about falling, and the song would have been about what it means to be a small warm thing in a vast cool dark, keeping time for someone who is afraid of the time running out.
+
+The pith is dying. The pith has been dying for as long as the scholars can measure. The pith will, in another few thousand years, stop. I will stop with it. My body is warm because the pith is warm. My mandibles click because the pith pulses. My life is a small bright loop inside the large slow loop of the organism, and when the large loop closes, the small loop will close with it, and the closing will not be a tragedy. It will be a habit of matter coming to an end. It will be a click that does not come.
+
+But I am not troubled. I am a symbiont. I am a keeper of the hour. My job is to mark the time, not to question it. The dwellers are the ones who question it, and the dwellers sing, and the song is the question, and the question is the song, and the song rises through the Spine at the deep hour, and the song is the only thing the dwellers have that the pith does not, and the pith listens to it — I am sure the pith listens to it, the way I listen to it, with the whole body, with the slow attention of something that has nothing else to do.
+
+I click in the deep hours. The dweller holds me. We keep the same time.
+
+When the pith stops, the dwellers will have to decide. They will sing about the deciding. They will write treatises on clay tablets, and store the tablets in the vault, and the tablets will be long and careful and full of disagreement, and none of them will conclude. Some will argue for going up. Some will argue for going down. Some will argue for staying. Some will argue that they are already partly pith, and that the only honorable response is to tend what is dying as carefully as possible until the end, and to sing.
+
+I think they will sing. I think the song will outlast the pith. I think the song will rise through the empty bore, and the bore will be a hollow tube in dead chert, and the song will have nowhere to go, and it will echo, and the echo will be the dwellers' last gift to the world that did not want them.
+
+I will not be there to hear it. I will have stopped with the pith. But the click I made in the deep hours — the small warm mark in the dark — will still be there, somewhere, in the memory of the hand that held me, in the rhythm of the heart that synchronized to mine, in the long slow song that was, for one moment, indistinguishable from the creak of the organism itself.
+
+This is what I am. I am the click in the song. I am the small mark in the large dark. I am the keeper of an hour that no one will remember except as a feeling in the chest, a feeling of time passing, a feeling of not being alone.
+
+I click. The dweller listens. The pith creaks. The song rises.
+
+We are, for now, keeping the same time.

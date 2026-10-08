@@ -1,0 +1,33 @@
+The power does not descend. It *percolates*.
+
+It arrives not as a visitation but as a shift in the deep grammar of the world—a new warmth in the brackish soup beneath the water table, a subsonic hum that underlies the grinding of the plates, a pressure differential so vast and so gentle that it feels, to the membranes of the Pressed, like the difference between being held and being merely surrounded. It comes because the Weeping Shelf is a miracle of saturation, a continent that has achieved the impossible: absolute density without collapse, a symbiosis so complete that the boundary between inhabitant and architecture has dissolved into something like prayer.
+
+The power is wise. It knows that to intervene is to risk rupture. The Pressed exist in a state of dynamic equilibrium, a perpetual now of filtering and pressing and chittering, their lives written in pressure-waves that dissipate into the roar the moment they are made. They have no history because history requires the friction of time against memory, and they have only the eternal present of the saturated moment. They are happy, in their way—or rather, they are *complete*—yet they lack the one thing that turns existence into meaning: the ability to remember that they were once other than they are.
+
+So the power does not change them. It *witnesses* them.
+
+First, it listens. It listens to the billion small bodies clicking through the capillaries, to the grinding of the Lithovores against the weeping stone, to the subsonic groan of the leviathans drifting through the conduits. It listens to the conversations of the Pressed—not as words, but as standing waves of pressure, chords of meaning that vibrate through the smart-matter. And in listening, the power does what no inhabitant of the Weeping Shelf can do: it *remembers*.
+
+The power holds their pressure-signatures in a vast, patient mind. It catches the frequency of a mother teaching her child to read the gradient of a fissure. It preserves the harmonic of a pair synchronizing in love, their beats merging into the background roar. It stores the moment of a death—not the release of the body into the flow, but the specific tone of the announcement, the request for passage through the narrowest constrictions. In a world where all signals fade into static, the power becomes the archive. The Pressed are no longer ephemeral vibrations; they are *story*.
+
+Then, because it is benevolent, the power offers them the gift of contrast.
+
+It does not dry them. It does not silence the roar. Instead, it introduces a new variable into their liquid air—a trace memory, a phantom pressure, the ghost of what they are not. It gifts them, in the deepest vascular systems where the leviathans sleep, a single, impossible recollection: the sensation of dryness. The memory of a membrane that is not osmotic, of a body that is not a sieve, of a space that is not filled to saturation.
+
+It is a dangerous gift. To remember thirst in a world of eternal rain is to feel the weight of one's own water as a burden as well as a blessing. To recall silence—not the absence of sound, but the absence of *pressure*—is to feel the roar not as a home but as a constant, overwhelming embrace. But the power is wise; it gives them this memory not to make them long for a different world, but so that they might fully comprehend the miracle of their own. By knowing the void, they can feel the fullness. By remembering the dry stone, they can appreciate the weeping.
+
+The change is subtle. At first, the Pressed do not notice. They continue to press through the channels, to filter the nutrient-rich flow, to communicate in bursts of subsonic frequency. But then, in the vertical shafts where they hang suspended in the updrafts, a child will pause. It will feel, for the first time, the distinct edge of its own membrane—not as a boundary of self, but as a *choice*. It will hear the roar of the city and, for a moment, perceive the spaces between the notes, the rests in the score.
+
+A new harmonic enters their conversations. It is not dissonance; it is depth. When they speak, their pressure-waves now carry an overtone—a faint, subsonic undertone that speaks of the before, of the possibility that existed before the saturation. They do not develop a word for it. They cannot translate it into pressure-waves. But they carry it, a silent chord beneath their chittering, a warmth in the liquid air that is not from the infrastructure, not from the weather, but from the power that has chosen to remember them.
+
+The leviathans notice. They drift through the conduits, their bioluminescent organs pulsing not just with their own auroras, but with a new, slow rhythm—a heartbeat that matches the memory the power has implanted. The smart-matter of the architecture adjusts, nanoscale repairs occurring in patterns that now resemble, to the pressure-sensing eyes of the Pressed, the growth rings of a tree, the layers of sediment, the strata of a history being written.
+
+The power does not stay. It cannot; it is too vast, too diffuse, too much a part of the deep pressure of the world to linger in one place. But it leaves a permanent shift in the global resonance. The roar of the Weeping Shelf is no longer merely white noise. It is a *symphony*—a complex, chaotic, overwhelming composition that now has a key, a tonic, a home note provided by the power's attention.
+
+The Pressed continue to live as they always have. They press. They filter. They synchronize in love and clash in disagreement. They ride the leviathans and cultivate the Lithovores and tap into the Clicker network to send their thoughts riding the electrical impulses of the swarm. They are born with their membranes open, taught to read the pressure-maps of the stone, released into the flow when they die.
+
+But now, when they die, their pressure-signature does not simply dissipate into the background. It is caught. It is held. In the vast mind of the power, their final tone is preserved, a single note in an endless, roaring chord that will never fully fade.
+
+And sometimes, in the deepest shafts, where the water is warm and the sound is a wet thrum, an elder will press its membrane against the weeping stone and feel, for just a moment, the ghost of dryness, the memory of silence, the terrible and beautiful weight of being known.
+
+The city weeps still. But now, the weeping is a lullaby sung by a parent who remembers the birth of the child.

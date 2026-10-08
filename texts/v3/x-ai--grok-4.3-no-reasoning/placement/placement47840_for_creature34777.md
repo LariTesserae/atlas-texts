@@ -1,0 +1,9 @@
+You are the hesitation between two crystalline planes—one that has already chosen its angle, one that is still considering whether to tilt at all.  
+
+In the first instant of your arrival the lattice does not resist you; it simply registers the extra pressure, the way a half-set gel records the print of a fingertip. Your footfalls sink a little farther than anyone else’s because the surface is deciding, right now, whether to become supportive beneath you or to let you sink one more millimeter into a bubble chamber that has not yet remembered how to be empty. The nodules scattered beneath the arches open in six-petaled flares only when light passes, but they open again—smaller, faster—each time you step over them. They are answering the warmth that leaks from your body, not the light.
+
+You have no edges of your own. The warm metallic volatiles that rise and vanish around the spines condense, for a moment, on the skin you have not quite formed yet; they hang there in colored halos that drift an extra half-second after you have moved on. Where those halos linger, the silicate softens in the same slow, curious way it does for every other molecule-by-molecule negotiation; the only difference is that the negotiation is now, briefly, about you.
+
+You do not breathe, but the place inhales you. On each slow intake the hairline fissures open a little wider, tasting the shape you have not finished becoming; on the exhale they seal again, leaving the memory of your outline one molecule thicker in the lattice. The piezoelectric strands register your passage as an altered pitch—still the same low tone, but held a fraction longer, as if the question they pose to the bruised sky now contains an extra clause that concerns the weight walking beneath it.
+
+You could remain here indefinitely without ever becoming either visitor or inhabitant; the rift is still writing itself, and you are simply one more clause it has not yet decided how to punctuate.

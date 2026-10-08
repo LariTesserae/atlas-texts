@@ -1,0 +1,32 @@
+The place is not a mountain, nor a valley, but a **Cracked Plate**.
+
+Imagine a slab of obsidian-black stone, no larger than a tennis court, suspended in the void. It floats at an elevation so high that the air is thin enough to taste metal on the tongue, yet the heat radiating from the core below is immense. This is a geothermal island in the upper stratosphere, a fragment of a world recently shattered.
+
+### The Terrain and Erosion
+The stone is young. Its edges are razor-sharp, unpolished by wind or water, still glowing with a faint, internal violet luminescence where the crust has fractured. There is no soil here, only a lattice of crystalline growths—sharp, geometric spires of silicate that have erupted from the fissures. These are the "vegetation," though they are not plants in any biological sense. They are **thermal flora**, engineered by nanites to capture heat and convert it into structural density. They look like jagged shards of blue glass, growing in sparse clusters across the plate. Between them lies vast emptiness, the black stone bare and smooth, reflecting the sky above with a distorted, watery sheen.
+
+### Water and Atmosphere
+Water exists here, but it does not flow; it *hovers*. Due to the extreme heat and low pressure, the liquid forms a persistent, condensing fog that clings to the surface of the plate. It is a heavy, warm mist, smelling of ozone and wet iron. Droplets do not fall; they coalesce on the sharp points of the thermal flora, grow large, and then burst into micro-mists that drift upward, caught in the convection currents rising from the cracks. The rocks weep this moisture continuously. If you touch the black stone, your hand comes away slick with warm, mineral-rich dew. The atmosphere is thick with vapor, creating a localized weather system within this small area: sudden gusts of hot wind, brief showers of boiling mist, and long stretches of eerie, humid stillness.
+
+### Built Structures and Technology
+Scattered across the plate are remnants of what might be called "buildings," though they are barely distinguishable from the natural fractures. They are **partial remains** of pre-collapse infrastructure: twisted alloys, fused ceramics, and segments of transparent tubing. One structure stands out—a single, slender pillar of white composite material, about three meters tall, embedded near the center of the plate. It is silent, smooth, and utterly out of place among the jagged crystal growths. At its base, a pool of mercury-like fluid pools, reflecting the surrounding chaos.
+
+This is the domain of **beyond-modern tech**. The pillar is a beacon, or perhaps a grave marker. It hums at a frequency below hearing, vibrating the water droplets around it into perfect, stationary spheres. The nanites that created the thermal flora are still active, repairing the cracks in the plate in real-time. You can watch the edges of the stone slowly knit themselves together, new crystal spikes erupting to fill gaps, only to be eroded again by the thermal winds. The technology is invisible, ambient, and pervasive—it is the ecology itself.
+
+### Light and Sound
+The light is normal, harsh sunlight from a nearby star, unfiltered by clouds because there are no clouds—only this local mist. Shadows are deep and absolute, cast by the sharp crystals. Because of the scale (small) and density (sparse), there is a lot of open space between objects, allowing the light to pool dramatically in the empty areas.
+
+Sound is nearly absent. The wind makes a low, hollow moan through the crystal spires, a sound like a finger rubbed on the rim of a wine glass, stretched and distorted. The water drips and bursts in slow motion, creating soft *pops* that echo briefly before being swallowed by the humidity. It is mostly quiet, a silence so profound it feels pressurized. When the thermal vents shift, there is a sudden hiss, a release of steam, followed by immediate return to stillness.
+
+### Fauna and Weirdness
+Life is rare. There are no animals, no birds. But there is **weirdness** in the form of semi-sentient phenomena. Small, iridescent motes of dust drift through the mist. These are **nanite swarms**, programmed to maintain the environment. They cluster around the thermal flora, polishing the crystals, removing debris. Occasionally, a swarm will detach and form a temporary shape—a bird, a face, a hand—before dissolving back into dust. These shapes linger for seconds, watching, then vanish.
+
+A deeper strangeness lies in the gravity. It is inconsistent. Near the edge of the plate, objects feel lighter; near the central pillar, they feel heavier. A drop of water released near the edge might float upward; one released near the center might sink into the stone as if the ground were quicksand. The rules of physics here are bent by the lingering effects of the catastrophic event that formed the plate. Time seems to dilate slightly in the thickest patches of mist—a butterfly’s wingbeat (if such a thing existed) would seem to take minutes, while the flash of lightning in the distance occurs instantly.
+
+### Ecology and Dynamics
+The ecosystem is a cycle of destruction and reformation. The heat rises from below, cracking the plate. The nanites rush in, sealing the cracks with new crystal growth. The wind and mist erode these crystals, sending shards flying. The shards land elsewhere, embedding in the stone, becoming new nucleation points for further growth. It is a landscape in constant, subtle motion. Nothing stays the same for long. The sparse vegetation shifts position daily. The water pools change location hourly. The scattered ruins sink deeper or rise higher depending on the thermal load.
+
+There is a predator-prey dynamic, but it is abstract. The **mist** is the prey of the **crystals**, which drink its moisture to fuel their growth. The **crystals** are hunted by the **wind**, which tries to shatter them. The **nanites** are the scavengers, cleaning up the aftermath. And the **pillar** watches it all, recording data, emitting its low, infrasonic pulse that keeps the mist from freezing despite the cold upper atmosphere.
+
+### Overall Impression
+You stand on a floating shard of a dead world, wrapped in warm, wet fog. Around you, sharp blue crystals grow like ice flowers, tended by invisible machines. The air tastes of rust and rain. In the distance, the void yawns, silent and dark. Here, life persists in a strange, mechanical way—not through blood and bone, but through code and condensation. It is beautiful, terrifying, and profoundly lonely.

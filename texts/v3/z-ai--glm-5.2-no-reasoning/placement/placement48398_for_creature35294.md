@@ -1,0 +1,89 @@
+# Immersion
+
+I did not arrive. That is the first thing to understand about being here. Arrival implies a before and an after, a boundary crossed, a threshold. There was no threshold. I was somewhere else and then I was here, and the transition, if there was one, was the kind of transition that consciousness makes between dreams—not a crossing but a *settling*, the way silt settles, the way a dissolved gas comes out of solution when the temperature changes. I did not cross into the Sump. I precipitated out of something else and into this.
+
+And the first thing was not heat. I know I said it would be heat. I know the Sump's first law is heat before sight. But that is the law of the Sump as it registers itself to itself, and I am not the Sump. I am the thing that does not belong. For me, the first thing was the *sound*.
+
+---
+
+Not the insect-chord. Not the amphibian-complaint. Something underneath both. A low vibration that I felt in the bones of my feet before I heard it with any organ I would have called an ear. It was the sound of the mesh digesting, the sound of the world chewing itself into existence, and it entered me through the ground, through the fibrous loom that I was standing on without having decided to stand, and it traveled up through my skeleton the way a note travels up a piano string, and it found the resonance chambers of my body—my ribcage, my skull, the fluid in my inner ear—and it *rang*.
+
+I was a bell. I was being struck. And the striking was the Sump saying *here you are*.
+
+---
+
+Then the heat. It came as the sound receded—not because the sound stopped, it never stopped, but because my body deprioritized it, filed it as background, as the condition rather than the event. The heat was the event. It was inside me instantly. Not on my skin—*in* me. The air was so saturated that the boundary between my body and the world simply dissolved at the surface, and the heat entered through every pore, through the thin membrane of my eyelids, through the soft tissue inside my nose and throat, and it settled there the way the moisture settled on every surface around me. I was a surface. I was being condensated upon. The Sump was forming on me.
+
+I am being formed on. That is the ongoing condition of being here. Not formed—formed implies completion, implies a shape that will be arrived at. I am being *formed upon*. The Sump deposits itself on me the way it deposits itself on the reed-stalks, and I take on its moisture, its warmth, its sound, and I become—temporarily, provisionally—a part of it, a surface on which it can condense and a body through which it can vibrate, and the belonging that I do not have by nature I acquire by *accretion*, by the slow wet accumulation of the place's presence on my skin and in my lungs and in the bones of my feet.
+
+---
+
+I do not know what I am here. That is the second thing to understand. The Sump does not provide categories for its inhabitants, or rather it provides only one: *present*. You are present, or you are not. And since the Sump does not have a "not," since everything here is present, since the concept of absence has not been developed in a place that has not yet developed a future—since all of this is true, I am present, and the being-present is what I am, and the rest is detail.
+
+But let me try to give you the detail anyway.
+
+---
+
+# What I Am Here
+
+I am warm. That is the first thing. Not warm the way a mammal is warm—self-generating, metabolically maintained, a heat that is mine and that I defend against the cold. Warm the way a stone in a hot spring is warm. The warmth is given to me by the medium. It flows into me from the air and from the ground and from the vapor that condenses on my skin, and it flows through me and out the other side, and I do not retain it. I am not a source of heat. I am a *pathway* for heat, a conductor, and the warmth that I feel is not mine but the Sump's, passing through me the way water passes through the mesh, and I register it, and the registering is what I call *feeling warm*, and the feeling is real but the warmth is not mine.
+
+This is the first lesson the Sump teaches: *nothing here is yours*. The warmth is not yours. The moisture is not yours. The air you breathe is not yours—it is the Sump's air, exhaled by the decomposing mesh, breathed in by you, breathed out into the Sump's lungs, recirculated. The sound is not yours—you produce sound by existing, by displacing air, by stepping on the mesh, but the sound is the Sump's sound, absorbed into the chord and the complaint and the hum. Even your body is not yours in the way you are accustomed to. It is a surface. The Sump is using it. The Sump is *condensing on it*. And the condensation changes you—slowly, wetly, the way the mesh changes the organisms that live in it, dissolving the boundaries between what you brought and what is here, until the distinction becomes academic.
+
+---
+
+I am large. This is not a property I would have claimed before. I have been, in other places, of a middling size—neither the largest nor the smallest, neither the most imposing nor the most negligible. Here I am *enormous*. The Sump's inhabitants are small. The chord-makers are barely visible. The complainers are palm-sized. The waders are the size of a large dog. The climbers are a meter long. I am—I am larger than all of them. I am taller than the reed-stalks in the lower stands, though the upper stalks reach above me. I displace more air than any single organism I have encountered. My footsteps send vibrations through the mesh that radiate outward in concentric waves, and I can feel the insects adjusting their positions in the columns around me, and the amphibian-things going briefly silent in their pools as the vibration reaches them, and the silence lasts for a fraction of a second before the complaint resumes, and the complaint is slightly louder than before, as though my presence has been noted and the general grievance has been updated to include me.
+
+I am a *disturbance*. That is what I am. I am a thing that disturbs. The Sump does not have disturbances—it is in equilibrium, in dynamic flux, in the balanced breathing of growth and decomposition. I am an interruption in that breathing. I am a cough. I am a foreign body in a lung that has been breathing smoothly for longer than I can guess. And the lung accommodates me—not by rejecting me, not by surrounding me with antibodies and walling me off, but by *incorporating* me, by allowing my disturbance to become another variable in the equilibrium, another vibration in the chord, another voice in the complaint.
+
+I can feel the Sump *adjusting* to me. Not rapidly. Not with the urgency of an immune response. Slowly, the way it adjusts to everything—with the patience of a process that has been running for so long that it has learned to incorporate any input, no matter how novel, into the ongoing calculation. My footsteps become part of the mesh's vibration. My body heat becomes part of the thermal distribution. My breath becomes part of the air cycle. The condensation that forms on my skin absorbs my chemical signature—my sweat, my skin oils, the metabolic byproducts of my body's ongoing project of keeping itself alive—and distributes it into the air, and the air carries it to the climbers, and the climbers read it, and they shift in their stalks, and the shifting is the Sump's way of *knowing* me.
+
+I am known here. I am known by chemistry and vibration and the displacement of warm air. I am known the way a stone is known by the river that flows over it—not as a separate entity but as a *feature* of the flow, a shape that the water takes when it passes over this particular point. The Sump knows me the way water knows a stone. It does not know my name. It does not know my history. It does not know what I am. It knows what I *do to the flow*, and what I do to the flow is what I am, here, and the rest is detail.
+
+---
+
+I am *slow*. This is the third thing. The Sump is not fast, but I am slower than the Sump. The chord-makers live and die in hours. The amphibian-things claim and lose their pools in the time it takes me to take ten steps. The climbers move through the stalks with a fluidity that my body cannot match—I am a creature of joints and levers, of bones that pivot on other bones, of muscles that contract and relax in binary, and the Sump's inhabitants are creatures of *flow*, of bodies that move the way liquids move, of forms that shift and adjust without the mechanical intermediation of skeletons. I move through the Sump the way a gear train moves through water: with effort, with noise, with a mechanical efficiency that is entirely beside the point.
+
+The mesh slows me further. Every step sinks. Every step requires the lifting of a foot, the placing of a foot, the testing of a surface, the slow acceptance of weight by fibers that were not expecting it and that yield only gradually, only partially, only enough to let me sink to my ankle before the tension catches and holds. I am walking through a body. I am walking through something alive, and my footsteps are *bruises*, and the mesh recovers from each one in the time it takes me to take the next step, and the recovery is complete, and the bruise does not last, and I am grateful for this, and I am also aware that my gratitude is a response the Sump does not require and does not recognize.
+
+---
+
+I am an *observer*. This is what I tell myself. I am here to observe. I am here to register the Sump and report on it, to translate its heat and sound and life into language that can be carried out, across the threshold that does not exist, back to the place where I came from, which is a place of less heat and less sound and less life, a place where the categories are fixed and the organisms are finished and the land has been carved by erosion into the shapes it will keep, a place that has a *future* and is busy with it, a place where the present is a means to an end and not the end itself.
+
+But I am not an observer. Not really. Not here. The Sump does not have observers. The Sump has *participants*. The chord-makers do not observe the air—they breathe it. The amphibian-things do not observe the pools—they inhabit them. The wader does not observe the mesh—it reads it with its feet, by contact, by the pressure of its body against the surface. Observation requires distance, and the Sump does not permit distance. The Sump is too saturated for distance. The moisture that condenses on your skin is the same moisture that condenses on the reed-stalks, and the air you breathe is the air the insects ride, and the ground you walk on is the ground the amphibian-things live in, and the boundaries between you and everything else are—not dissolved, not here—but *negotiable*. Permeable. They allow flow.
+
+I am participating. I am in the Sump and the Sump is in me, and the exchange is ongoing, and I cannot stop it without leaving, and I cannot leave without crossing the threshold that does not exist, and so I stay, and the staying is the participation, and the participation is what I am.
+
+---
+
+# What I Have Found
+
+I have found that the Sump is not a metaphor. I want to be clear about this. I have spent enough time in the place to know that it resists metaphor the way it resists categorization—not by refusing but by *exceeding*. Every metaphor you bring to it—womb, lung, compost, reef, city, orchestra—captures some aspect and misses the whole, because the whole is not a sum of aspects. The whole is a process, and the process is ongoing, and the ongoing is the thing itself, and the metaphor is a snapshot of a thing that does not hold still for snapshots. The Sump is not like a womb. The Sump is not like a lung. The Sump is a warm, wet, low-lying, dim, saturated, dense, vocal, living place that is still deciding what it is, and the deciding is the being, and the being is the place, and the place is the process, and the process does not require comparison.
+
+I have found that the Sump has a *personality*. I use this word with hesitation. Personality implies a self, and the Sump does not have a self—it has a *quality*, a *character*, a *disposition*, the way a climate has a disposition, the way a weather pattern has a character, the way a body of water has a personality that is not a person's personality but is not nothing either. The Sump's character is: *patience without purpose*. It is patient the way a solvent is patient—it will dissolve anything you put in it, given time, and it has nothing but time. It is patient the way a warm bath is patient—it does not draw you in, it does not push you out, it simply accommodates your temperature to its own. It does not have a goal. It does not have a destination. It does not have an endpoint at which it will stop becoming and start being. It is becoming, and the becoming is the being, and the being is enough.
+
+I have found that I am *lonely* here. This surprises me. I did not expect to be lonely in a place so full of life, so saturated with organisms, so dense with the sounds and the movements and the chemical signatures of living things. But the loneliness is not the loneliness of *absence*—it is the loneliness of *incomprehension*. I am in a room full of beings and none of them understand me and I understand none of them and the misunderstanding is not a failure of communication but a difference in *mode of existence*. They exist in the present. I exist in the present and the future and the past simultaneously—I carry my past with me in memory and I project my future ahead of me in planning, and I am here, in the Sump, but I am also *there*, in the place I came from, and *then*, in the time before I came, and *when*, in the time after I leave. The Sump's inhabitants are not burdened with this. They are *here*, entirely, and the here-ness is their mode, and it is a mode I cannot enter, and the not-entering is the loneliness.
+
+The Registrator came closest. It oriented toward me and stayed, and its attention was the thing in the Sump most like my own attention, and for a moment—a long moment, a moment measured in the Sump's time, which is not my time—I felt *seen*. Not understood. Not recognized as a specific entity with a history and a name. Seen the way a surface is seen by the water that flows over it. Registered. Noted. Included in the field of experience without being separated from it. And the seeing was enough. For that moment, it was enough. The loneliness did not vanish—it could not, because it is structural, because it is the loneliness of a being that has a future in a place that does not—but it eased. It *condensed*. It formed a smaller, denser droplet on the surface of my experience, and the droplet was not the Sump's, it was mine, and the Sump could not absorb it because the Sump does not have the kind of loneliness that would require it, and so the droplet stayed, and I held it, and the holding was also what I am.
+
+---
+
+# What I Am
+
+I am the only thing in the Sump that does not belong. This is not a complaint. It is a description. The Sump has made room for me—has adjusted its equilibrium, has incorporated my disturbance, has condensed on my skin and breathed through my lungs and vibrated through my bones. But the room it has made is the room a river makes for a stone: the space around the obstruction, the flow diverted but not changed in its nature. I am an obstruction. I am a stone in a river that has no stones, that has never had stones, that is all flow and no obstacle, and my presence here is a novelty that the river accommodates but does not require.
+
+I am the Sump's *exception*. The one thing that is not native. The one thing that carries a past and anticipates a future and exists in a tense that the Sump does not use. I am the past tense and the future tense in a place that is entirely, overwhelmingly, beautifully present. And the beauty of this—the beauty of the Sump, the beauty of the present tense so complete that it becomes a medium, an environment, a world—I cannot convey it. I can describe it. I can catalogue its sounds and its temperatures and its organisms. I can tell you about the heat and the chord and the complaint and the hum. I can tell you about the Registrator, which watched me with the attention of a thing that does not know what watching is but does it anyway. I can tell you about the mesh, which is alive and which is ground and which is the ground being alive, which is a thing that should not be possible and is, here, the only possibility.
+
+But I cannot convey it. The Sump is not a place that can be conveyed. It can only be *visited*, and the visitation is the participation, and the participation is the being, and the being is—
+
+---
+
+I am standing in the Sump. I am warm. I am wet. I am listening to a chord that ten thousand insects are making without knowing it, and a complaint that a hundred amphibian-things are making without meaning to, and a hum that the ground itself is making by the slow wet work of becoming. I am standing on a living surface that yields to my weight and holds me and does not drop me and does not push me back. I am breathing air that was breathed by the mesh and will be breathed by the climbers and is being breathed now by the Registrator, which is a meter away, which is oriented toward me, which is present, which is home.
+
+I am the only thing here that does not belong.
+
+And the not-belonging is its own kind of being. And the being is what I am. And what I am is: *here*. And here is warm, and here is wet, and here is the sound of the world drafting itself, and the draft is not finished, and the ink is still wet, and the page is still being decided.
+
+And I am on it. And I am in it. And it is in me.
+
+And the chord holds.

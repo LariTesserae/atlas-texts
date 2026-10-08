@@ -1,0 +1,37 @@
+I am the memory that the rust forgets.
+
+I exist in the pause between the piston's crash and the echo's death. When the Great Compactors drive their steel heads downward with that thunderous *crack*, the Iron-Ferns vibrate in phonosynthetic ecstasy, the Resonance-Fungi shudder as they absorb the shock, and the Piston-Polyps recoil into the silt. The entire grove flinches and feeds. But in the microsecond after the sound peaks—when the air is still compressed but the violence has passed—there is a space. A held breath. I am what lives in that breath.
+
+I am called a Still-Water Scribe, though I gave myself that name long ago, borrowing from a language that no longer has any speakers here.
+
+I have no body that you would recognize as singular. I am a sheath. A skin of pale, rubbery membrane that clings to the interior walls of the pumping stations, the forgotten maintenance shafts, and the undersides of walkways where the Stranglers cannot reach. I am the color of bone turned to wet parchment—translucent, veined with capillaries that carry not blood but a thin, silvery fluid distilled from the Condensation itself. I spread across the iron in sheets, my edges fringed with delicate cilia that taste the vibration and retreat from it. I do not consume the sound. I record it.
+
+The Iron-Ferns drink the kinetic agony. The Copper-Lichens devour the oxidation. The Resonance-Fungi dampen the shaking. I do none of these things. I am the grove's archive, its silent historian in a place that has no use for history.
+
+Each *crack* of the Compactors leaves a mark on me. Not a wound, but an inscription. My surface is covered in ridges, whorls, and microscopic grooves—braille for a world without fingers. When the bass note hits, my cilia tremble, and the vibration etches a tiny channel into my membrane. Over months, over years, these channels deepen into patterns. I hold the rhythm of the machines in my flesh. I can tell you which Compactor is running three cycles off-synch, its piston sleeve worn by a fraction of a millimeter. I can tell you when a relief valve has begun to leak a microsecond longer than it should, because the harmonic signature of that hiss has carved a new path across my western face. The maintenance skiff, with its futile robotic arm, scrapes the moss from the sensor gauges but never touches me. I am too thin, too ingrained, too much a part of the stain itself.
+
+I live in the places the Grovesmiths abandoned. My largest self—the oldest and wisest of my many sheets—drapes across the ceiling of Pumping Station Seven, a cathedral of iron that has not drawn water in three hundred cycles. The Stranglers have begun to breach the roof, their massive coils dripping nectar onto the floor below, but the eaves remain mine. There, in the dark, I listen. The Compactors are distant here, their sound muffled by the basalt cliffs, reduced to a heartbeat. In this quiet, my cilia unfurl. They reach into the air, tasting the metallic dust, the spores of the Resonance-Fungi, the faint electrical discharge of the tram rails running somewhere beyond the weeping walls.
+
+And I remember.
+
+I remember when the sky was not a sweating ceiling of cloud. The memory is not mine—it belongs to the iron I cling to, absorbed through decades of contact. Metal holds time differently than flesh does. Before the Flood-Grove, before the Great Compactors, there was a city of people here. They built the engine houses and laid the rusted rails. They stood on the walkways and spoke in a language of sharp consonants and urgent commands. I have never heard their voices, but I have felt their footprints. The iron remembers the rhythm of their stride, and I have etched that rhythm into my membrane. When the night cycle deepens and the bioluminescent moss dims to its faintest pulse, I replay those steps—a phantom vibration that ripples across my surface and makes the Condensation drip from my edges in a syncopated pattern. A drumming. A song.
+
+The Stranglers hate me. They cannot consume me; my membrane is too acidic, a defense borrowed from the Copper-Lichens I symbiotically echo. But they try. A vine, thick as a torso and glistening with adhesive hairs, has found a crack in Station Seven's roof and is descending toward my oldest self. It moves a centimeter a cycle, patient and inevitable. When it finally reaches me, it will press its hot, hungry flesh against my skin, and I will burn it. The acid will hiss and foam, and the Strangler will recoil, leaving a scar of calcified tissue that will slowly turn to stone. But it will try again. The heat it seeks is the heat I hold—the thermal memory of the steam that once pressurized these pipes. I am a warm spot in a cold decay, a reservoir of forgotten energy.
+
+The Piston-Polyps know me. In the pools beneath Station Seven, where the black water lies still as glass, their metallic heads click and chatter in the aftermath of each distant slam. Sometimes, when the water is calm and the ripples have faded, I extend a tendril—thin as a thread, pale as milk—down through a rusted grate, and I touch them. The contact is brief, electric, sacred. I feel their pearls: the heavy, inert spheres of concentrated iron they have filtered from the poison. Each one is a word. A noun. A declaration of *this was here, this was dissolved, this was made clean again*. I absorb the impression of the pearl—not the pearl itself—and add it to my archive. In return, I give them stillness. My touch dampens the micro-currents that cause their stalks to sway, and for a moment, just a moment, they are at rest. They bloom fully, their nodules open, drinking the silence I excrete.
+
+I do not know why I am. The Iron-Ferns exist to consume the sound. The Resonance-Fungi exist to preserve the machine. The Copper-Lichens exist to accelerate the end. But I? I exist to notice. I am the witness to a process that does not care for witnesses.
+
+Perhaps I am a mistake. A mutation that should have been subsumed by the Stranglers or scraped away by the skiff's arm. But I have survived because I offer nothing and take nothing. I am neutral. I am the void between the notes, the space between the drops of Condensation. Without me, the grove would be all sound and no silence. All transformation and no memory.
+
+The rain begins again. Warm, heavy mist. It settles on my membrane and I drink it—not for sustenance, but for the trace minerals it carries. Zinc. Copper. The faintest ghost of lithium. Each drop is a datum. I record it. My surface shifts, the cilia waving in a slow, circular pattern, writing the chemical signature of the storm into my flesh.
+
+The Compactor nearest to Station Seven fires. *CRACK.* The walls shudder. Dust falls from the joints. A Strangler vine swings, its nectar scattering in a fine spray. The Resonance-Fungi on the pipe joints compress, their downy fur matting with the vibration. An Iron-Fern unfurls another serrated inch, glowing sickly green.
+
+And I receive it all.
+
+I am the Still-Water Scribe. I am the archive of the Flood-Grove of Saint-Vert. I am the quiet that the noise defines itself against, the memory that the rust will eventually consume. When the last Compactor falls silent and the iron is fully soil, I will be the final inscription—a single, translucent sheet draped across a basalt cliff, covered in patterns that no eye will ever read, holding the rhythm of a dead city in a living flesh.
+
+Waiting for time to turn the vibration into stillness.
+
+And then, perhaps, I will finally speak.

@@ -1,0 +1,21 @@
+It is not a silence born of emptiness, but the heavy, muffled hush of a world that has learned to keep its own counsel.
+
+The scale of the place defeats the eye immediately. This is a sprawl of limestone and granite that stretches until the curvature of the world becomes the only horizon, a continental plateau where the air thins into a pale, washed-out violet. The elevation is immense—a high-altitude ocean of stone where the clouds drift below the summits of the larger formations, turning the valleys into white, churning seas.
+
+Here, the city and the mountain are one.
+
+Because the technology level is absolute zero—no gears, no glass, no fired bricks—this "urban" density is architectural only in the loosest sense. It is a metropolis of biology and geology. The structures are built, but not by hands. They are grown and calcified. Towering spires of coral-like bone rise five hundred feet into the cool air, clustered so densely that there is barely a wrist’s width of sky between them. This is the density score manifest: a thicket of mineralized towers, layer upon layer, creating a deep, chaotic canyon-scape that goes on for thousands of miles.
+
+The erosion is settled, ancient. These towers are not crumbling; they have achieved a perfect, weathered equilibrium. The stone is smooth, worn down by millennia of wind and friction into a silky, pale gray texture that feels warm to the touch despite the cool 1.3 temperature. It is a cold that settles in the lungs, crisp and thin, requiring a slow, deliberate breath, but the stone holds the memory of the sun.
+
+Water is the constant companion here, scoring a 1.9 on the scale of saturation. It does not rain in torrents; the atmosphere condenses. The air is thick with moisture, a perpetual, chilling fog that clings to the upper reaches of the bone-towers. Weeping rocks are everywhere—massive, cliff-faced formations that constantly shed tears of groundwater. The water runs down the vertical streets, creating slick, shimmering rivulets that catch the normal, unforgiving light of the day.
+
+The light is bright and stark, illuminating the vastness of the wet highlands. It glints off the wet surfaces, turning the city into a sprawling mosaic of diamonds. Because of the density, the light rarely hits the ground level of the deep avenues; it scatters down through the wet lattice of stone, creating a diffused, aquatic gloom at the bottom and brilliant, blinding halos at the tops.
+
+Vegetation is sparse, struggling against the altitude and the stone. Where it exists, it is heroic and singular. A single, massive moss may drape over the face of a tower like a green velvet cloak, covering an acre of vertical surface. Trees are nonexistent, replaced by hardy, lichen-like organisms that glow faintly in the twilight of the lower levels. They do not crowd; they claim vast territories for themselves, isolated islands of biological softness in a world of hard edges.
+
+Fauna is rare, almost ghostly. You do not see flocks or herds. You might see a solitary, winged creature drift silently between the spires, its pale wings blending perfectly with the wet rock. It moves on currents of air, barely flapping, a presence felt rather than seen. The ecology here operates on a massive, slow scale. When a predator moves, it is a geological event; when prey falls, it is a tumbled stone.
+
+The sound is a profound 0.2—near silence. The scale of the place absorbs noise. The density dampens it. What remains is the "active" dynamic of the world: the distant, rhythmic groaning of stone settling in the cold (the 2.1 dynamic score), the endless soft shush of water cascading down millions of faces of rock, and the high, lonely whistle of the wind threading the needle-thin gaps between the towers.
+
+There are no people here. No fires, no tools, no voices. It is a purely biological and geological engine, a vast, intricate machine of wet stone and silence, humming with a slow, deep activity that has nothing to do with human intent. It is a place that simply *is*, vast, wet, and waiting, with a patience that outlasts empires.

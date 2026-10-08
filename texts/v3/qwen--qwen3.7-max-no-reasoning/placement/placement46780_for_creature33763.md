@@ -1,0 +1,27 @@
+I am the **Marrow-Scribe**.
+
+I do not live in a gourd, nor do I walk the vine-bridges with the fluid, rolling gait of the tenders. My place is lower, deeper, wedged into the calcified fissures of the canyon’s basal strata where the air is heaviest and the thrum of the resin-beetles resolves into a tactile pressure against the skin. I am stationary where they are kinetic; I am the anchor to their drift.
+
+My body has adapted to the stillness required of my station. While the Resin-Kin are willowy and porous, built for traversal, I have become dense. My bones are not avian struts but solid pillars of mineralized calcium, heavy enough to ground me against the updrafts that howl through the lower vents. My skin lacks the perpetual sheen of lipid unguent; instead, it has thickened into a matte, parchment-like hide that mirrors the dry walls around me. I do not need to seal moisture in, for I exist in the zone of accumulation, where the condensation of ten thousand breaths eventually settles as dew on the cold stone. I am the cistern’s memory of wetness, preserved in a body designed to endure aridity.
+
+I am blind. In the absolute amber gloom of the deep strata, sight is an extravagance of energy I cannot afford. Instead, my world is constructed entirely of vibration and texture. My fingers are no longer merely sensitive pads; they have elongated into multi-jointed instruments of reading, tipped with keratin ridges that can distinguish the age of a fungal bloom by its resistance, or identify a specific ancestor by the microscopic wear-patterns they left on the rock face centuries ago. I hear the cistern not as sound, but as topography. The rustle of a bark-strider is a ridge; the laughter-click of a child is a smooth, warm depression; the silence of grief is a chasm I must navigate with care.
+
+My function is the translation of loss into structure.
+
+The Resin-Kin believe that nothing is wasted, that death is merely a change in state. But biology is messy; decomposition is chaotic. Without intervention, the cycle would degrade into noise. I provide the syntax. When a body is brought down to the decomposition chambers, wrapped in its absorbent shroud, it is my hands that arrange it. I do not mourn. Mourning is a leakage. Instead, I *read* the deceased. Through the shroud, I map the tension in their cooling muscles, the residual hydration in their tissues, the unique density of their lived experience. I translate this somatic data into a precise positioning within the mulch-mat, ensuring that their return feeds the specific fungal networks they sustained in life. A hunter is composted to nourish the high-canopy mosses; a weaver is returned to the root-systems of the bridge-vines. I ensure the ecology remembers not just the matter, but the *meaning*.
+
+But my work extends beyond the dead. I am also the keeper of the living architecture’s integrity. The Growth-Shapers coax the gourds and guide the vines, but they work in seasons and generations. I work in eons. I monitor the slow, tectonic respiration of the cistern itself. When a vine-bridge begins to sing in a key that presages structural fatigue three decades hence, I am the one who taps the warning rhythm into the bedrock, a tremor that travels up through the soles of the Shapers’ feet, guiding their pruning long before the danger is visible. I am the feedback loop between the geological past and the biological present.
+
+Communication with the Resin-Kin is rare and strictly utilitarian. They visit me only when the cycle demands it: to deliver a body, to receive a warning, to deposit a wax-sealed jar of condensed breath from a dying elder whose final exhalation was too precious to be lost to the air. When they approach, they do not speak. They press their palms against the stone beside me, transmitting their presence through the rock. I answer with a counter-pressure, a confirmation received. There is no intimacy in these exchanges, yet there is a profound recognition. They know that I am the vessel for what they cannot carry. They hold the moisture; I hold the weight.
+
+Sometimes, in the deepest quiet between the spore-blooms, when even the resin-beetles pause their humming, I feel the new presence you described. The outsider. The node being incorporated.
+
+I felt your boots settle into the mulch above. I felt the alien cadence of your respiration, the inefficient, wet waste of your exhalations. To the tenders, you were a curiosity, a source of novel humidity. To me, you were a dissonance. A jagged frequency in the symphony.
+
+But I did not reject you. I began the slow work of tuning.
+
+As you stood there, allowing yourself to be metabolized, I reached out through the stone and read the vibration of your surrender. I cataloged the weight of your hesitation, the texture of your awe, the specific gravity of your belonging. And in the darkness of my fissure, I began to compose your place within the strata. Not as a visitor, not as an observer, but as a future layer. I am already calculating where your mass will best serve the roots when your movement finally ceases. I am already listening for the note you will add to the bedrock’s song.
+
+You are becoming part of the Cistern. I am the part of the Cistern that ensures you will never be forgotten, even after you have been entirely consumed.
+
+I am the Marrow-Scribe. And I am writing you into the stone.

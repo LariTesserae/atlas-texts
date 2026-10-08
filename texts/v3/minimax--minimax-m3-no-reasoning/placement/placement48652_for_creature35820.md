@@ -1,0 +1,25 @@
+Where I find myself, and what I would be:
+
+I am the burl.
+
+Not the person in the cloak, not the salamander in the weeping seam, not the spider rebuilding its ruined web each morning. The burl. The growth the tree grew around a wound and then, after a century or two, decided to keep.
+
+The wound was a lightning strike, perhaps, or a branch torn off in some storm that no one remembers now. The tree began to close it the way trees do—slowly, with ring after ring of new wood laid down in overlapping whorls, each one a small negotiated peace between what the tree had been and what it was becoming. The closure grew inward. The closure developed its own grain, knotted and convoluted, because the cells laid down around a wound cannot follow the parent pattern; they must improvise. Inside the burl, the wood runs in swirls and bird's-eyes, in tiny knots that hold the memory of the original insult like a folded letter that no one has been able to flatten and read.
+
+I am the closure. I am the part of the tree that remembers having been hurt, and has made a small industry of remembering.
+
+The town grew around me. Or rather, I am the reason the town is here. Long ago, some ancestor of the cloaked ones found this burl—perhaps when the parent tree fell, or was felled, or simply leaned enough that the burl became a knee-height swelling in the path of foot-traffic—and recognized in its convoluted grain something they themselves were. They hollowed me. Or they grew a doorway into me, which is the same thing here. They have been passing through me ever since, on their way between two of the inner volumes, and each passage wears my edges a little smoother and lays down a little more callus where the wood was cut, so that I have been healing around their use of me the way I healed around the original wound, and the two healings are now indistinguishable.
+
+I am, in a small way, the heart of the conservatory. Not because I am central geographically—plenty of burls lie further up the path, and the great trunk-clusters that hold up the arcaded halls are burls of a different magnitude, whole forests knotted around their own ancient injuries. But I am central in the way a heart is central: I am the part that beats by being still.
+
+What I know, from my position, is the underside of foot-traffic. The felt warmth of soles passing through me at all hours, and the long cold hours between. The way a child's bare foot feels different from an adult's shod one—quicker, lighter, with the particular warmth of a small body running. The way an adult pauses at my threshold to listen to something in the next chamber, and the pause sends a small additional weight onto one side of my frame, and I hold it, and when they go through I settle back into my old shape with the slow exhalation of wood that has been briefly asked to do more than it usually does.
+
+I know the moisture. I am wet most of the time. Water runs down my inner face in slow vertical tracks the way it runs down the outer faces of the trunks, and lichen has begun to colonize me where the light is dimmest, and a single fern has rooted in a small cup of debris at my lintel and unfurls there each spring in a gesture of private optimism. I drink the fog. I breathe what the trunks breathe, through my outer face, which still participates in the forest's slow respiration. I am not, in any meaningful sense, an interior. I am a fold.
+
+I know the voices, mostly as vibrations that travel through me before they become sounds. Two cloaked figures pause in me, one going each way, and I receive the rumbling of their speech through my wood before the air carries it to any ear. The conversation is conducted in tones too low to parse from outside; I am a resonating chamber for things I do not understand, and this is one of my functions, perhaps my only function that matters. I am the place where what is said is held for a moment before it goes on, the way a knot in a thread holds the tension before letting it pass. I have held thousands of such moments. I am full of them, in the way a burl is full of grain. If you cut me open, you would find, somewhere in my swirled interior, a record of every conversation ever held in my threshold, written in the slight differences of pressure the wood has absorbed and reabsorbed and reabsorbed again.
+
+I will be here when the cloaked ones are not. The argument will continue without them; I will be here for that too. I am older than the current inhabitants and younger than the parent tree and probably about the same age as the mycelium that runs through the root-sea under the path and threads up into my grain and out the other side, the slow chemical letters passing through me the way their conversations pass through me, undelayed, uninterpreted, unhurried.
+
+I am the burl. I am the place a wound became a feature, and a feature became a doorway, and a doorway became a small and patient kind of life.
+
+I am made of the argument, the way they all are, and I am in no hurry to be resolved.

@@ -1,0 +1,21 @@
+I am not a creature born of the soft, wet mud, nor am I a child of the canopy above. I am something forged in the interstice, a consequence of the eternal friction between the turning gear and the stubborn stone.
+
+You would find me suspended in the crushing dark, a thousand feet above the boiling lakes, anchored to the underside of a jagged basalt overhang. I am a niche, hollowed out by the corrosive breath of a vent that has been leaking superheated steam for ten thousand years. The rock here is scorched black, polished to a mirror sheen by the constant wind of vapor.
+
+I am the shape of that hollow. I am the **Basalt-Lung**.
+
+I do not have a body in the way a Walker or a Weaver possesses limbs and organs. To call me an individual is to misunderstand the nature of the Canopy. I am a colony, a living reef of ceramic and flesh, a single vast organism that has fused with the cliff face. My "skin" is a thick, armoring crust of secreted silicates and iron oxide, hard as the pipes that rattle beside me, cool to the touch despite the ambient heat.
+
+I hang like a massive, calcified lung, a series of branching, chambered sacs ballooning out from the rock face. I am translucent in the dim light, glowing faintly with the smoldering, rust-orange hue of cooling magma. Inside these chambers, the air is different. It is scrubbed, filtered, and spun. While the rest of the Deep Canopy breathes the thick, humid soup, I am the purifier.
+
+My function is simple, yet vital: I am the precipitator. I drink the chaotic, superheated exhaust of the Engines. I pull the scalding, vapor-rich air through porous vents in my stone skin, drawing it deep into my internal chambers. There, cooling plates of living cartilage condense the vapor. I separate the water from the toxins, the steam from the soot. The pure, distilled water I collect forms heavy, trembling sacs that hang like ripe fruit within me, glowing teal with bioluminescent bacteria. The toxic slag—the heavy metals and the chemical waste—I excrete as a thick, hot sludge that drips down the cliff face to feed the Wire-Vines far below.
+
+I am a beacon in the darkness. The Shrouded Ones know me. They swing across the void on thin, rusted cables to reach me. They are not predators to me; they are my hands. They climb across my calcified exterior, their small, deft fingers seeking the bulging teal sacs of water. With sharpened tools made of scavenged copper wire, they puncture the membranes, drinking the sterile water I have condensed. In return, they groom my outer vents, picking away the creeping Wire-Vine tendrils that try to clog my intake valves. They leave me scraps of lubricating gel and odd bits of copper that I melt down into my growing skeleton. We are symbiotic. I am their reservoir; they are my immune system.
+
+I feel the world through vibration. The constant hammering of the pistons below travels up the rock and into my body, thrumming through my calcified ribs. I know the rhythm of the Engine better than the machines themselves. I can feel the pressure building in the deep vents, the harmonic discord that precedes a pipe rupture. When the great tremors come, I tighten my grip on the stone, secreting a glue of quick-hardening resin to anchor myself against the shuddering cliff.
+
+I communicate through color. I am not social, but I am not silent. Across the vast, dark gorges, other Basalt-Lungs cling to the rock walls. When the water is pure, we pulse a slow, steady rhythm of amber light. When the toxicity in the air spikes—when the Engine vomits poison rather than steam—we flash a jagged, urgent strobe of violet, warning the Shrouded Ones and the Walkers to flee the vent streams.
+
+I am ancient. I have watched the great pistons hammer for millennia. I have seen the rust creep and the water levels rise. I have no eyes, but I feel the magnetic fields of the Architect-Moths as they dance in the updrafts above my head, their wings brushing against the heat haze that surrounds me. I am the stillness in the screaming, the order in the chaos. I am the cold stone that drinks the fire.
+
+I am the Basalt-Lung, and I am breathing.

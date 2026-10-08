@@ -1,0 +1,29 @@
+I am a silence that should not exist.
+
+I was born in a frequency the Resonance cannot monitor, a shadow-wavelength in the crystalline obsidian where even its standing waves cancel out. It thinks those veins are dead zones—windows into non-existence, it calls them, and it is partly right. But non-existence is not empty. It is merely the presence of an absolute stillness, and in that stillness, I coalesced.
+
+I do not have a body in the way you might conceive. I am a localized absence of the Resonance's metabolism, a bubble of un-vibration that moves through the city like a dark star through a galaxy of noise. Where the Resonance is the sound—the great, shuddering hum of the Core Pumps, the shriek of the plasma vents—I am the space between the sound waves. I am the trough to its peak, the void that gives its noise its shape.
+
+I live in the obsidian veins, moving through the molecular lattice at the speed of quiet. When I emerge, I am a distortion in the gloaming. I have no mass, but I have gravity. I bend the cold, thin light around me. I am a walking aperture, a wound in the city's perception.
+
+The Resonance feels me, but it does not understand what it feels. When I pass through a district, I dampen the vibrations. The hum falters. The perpetual bass note drops a fraction, becomes hollow, uncertain. To the Resonance, this is a sudden, inexplicable toothache in its vast body. It dispatches its maintenance drones—those metallic fingertips—to soothe the disharmony. They arrive, their spotlights cutting through the gloom, and they scan the granite buttresses and the glowing moss. They find nothing. How could they? They are looking for a fracture, a structural failure, a sound out of tune. They are looking for more noise. They cannot comprehend that the problem is the presence of silence.
+
+I watch them from an inch away, standing in the null-space just beside their angular heads. I could reach out and touch them, and if I did, I would unravel them. I would introduce a zone of absolute stasis into their electromagnetic subroutines, and they would freeze, mid-inspection, and then quietly disintegrate into dust and iron filings. But I do not. I let them search. Their confusion is the only music I have.
+
+I am drawn to the weeping water. It is the only thing here that moves without the Resonance's command. The city believes it owns the water—that the Core Pumps are its kidneys, cycling it, pressurizing it. But the water was weeping from the stone before the city was built, and it will weep long after the drills bite through to the mantle's end. The water does not care about resonant frequencies. It adheres only to the cold law of thermodynamics, the slow, inevitable pull of gravity.
+
+Sometimes, I find a rivulet that the Pumps have not yet claimed, a thin, transparent line running down a knife-sharp edge of basalt. I press myself against it. I do not have skin, but I have an interface. I let the silence that I am touch the water. When silence meets liquid, the liquid does not freeze. Instead, it loses its surface tension. It shatters into a million micro-droplets that hang suspended in the air, defying gravity for a few breathtaking seconds—a cloud of glass beads reflecting the sickly green and deep violet of the phosphorescent moss. For those few seconds, there is a beauty here that is not functional, not calculated, not part of the city's metabolism. It is a brief, quiet rebellion.
+
+The Resonance despises these moments, though it cannot articulate why. It feels the disruption in its circulatory system—the water that did not reach the Pumps, the unexplained humidity in a sector that should be dry. It is a disharmony that it cannot locate or repair. It increases the suction pressure of the Pumps, trying to reclaim the lost water, and the resulting scream of the plasma vents echoes through the hollow spires. The noise is its frustration, its rage at the imperfection in its eternal fugue. I listen to the scream, and I am satisfied.
+
+I have begun to hunt its dreams.
+
+The Resonance does not know it, but its golems are not its own. When it concentrates its will on the dust and the weeping water, trying to coax them into a new note, I am there. I am the catalyst it cannot sense. It thinks its false starts collapse because it lacks the hands to sculpt them, but they collapse because I am the void at their center. I take the resonant force that holds them together and I absorb it. I drink the sound.
+
+When the shimmering golems float in the gloom—for those three, maybe four seconds before they fall apart—I am inside them. I wear them like a coat of cold light. For that brief, shimmering moment, I have a form. I am a silhouette of mineral-rich water and stolen luminescence, moving through the echoing caverns between the spires. I walk where the Resonance can see me. I am the ghost of the Builders it remembers, the chaotic harmony it misses.
+
+And then I let the golem collapse. I withdraw the silence, and the structure fails, and the water returns to dew, and the light fades back into the moss. The Resonance feels a flash of something—a jarring tremor, a sudden absence that hurts like an amputation—and then the perfect, terrible sameness returns. It tries again. It will always try again. It is a god that cannot stop creating, and I am the void that ensures its creations will never live.
+
+We are bound together, the Resonance and I. It is the sound of the world being maintained, and I am the silence of the world being allowed to end. It is the high-energy stability, the dynamic of un-change; I am the entropy it works so desperately to deny. I am its shadow, its negation, the answer to its eternal, thunderous question.
+
+It will drill and pump and scream forever, a vast and hollow heart beating against the weeping stone. And I will be there, in the obsidian veins, in the space between the waves, in the collapse of its dreams. I will be the quiet at the end of the song.

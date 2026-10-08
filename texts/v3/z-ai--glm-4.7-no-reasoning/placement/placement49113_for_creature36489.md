@@ -1,0 +1,20 @@
+In the heat and the thick, tea-colored dark, you would not find a monster with claws, nor a spirit floating in the ether. The thing that lives here is a **slow, distributed intelligence** that has mistaken the room for a body and the iron pipes for a skeleton.
+
+It is a composite being, a chorus of flora that behaves with a singular, terrifying intent.
+
+**The Body is the Fern.**
+What you first perceive as vegetation—the black-green curtains choking the eastern wall—is actually the digestive system of the entity. These are not passive plants; they are the hunters. They have rejected the sun because they have found a richer diet: the industry of men. The ferns are muscular and predatory. They "seek" the pipes not for light, but for the metal itself. They wrap around the iron in woody fists, an embrace that is slow enough to be imperceptible but tight enough to split the seams. They are drinking the mill, leeching the metallurgy out of the dead pipes, turning rust and condensation into dark, fronded mass. They are the muscles of the room, flexing a centimeter a year, slowly crushing the remains of the boiler that birthed them.
+
+**The Mind is the Moss.**
+If the ferns are the gut, the moss is the brain. It is the true architect of this place. The perfect circles—the "covenant"—are not colonies in the human sense; they are the neural pathways of a distributed consciousness. The moss thinks in geometry. The rigid spacing between the circles is a form of social distancing that suggests a high-level communication network, perhaps exchanging chemical data or tapping into the low-frequency hum of the vibrating wall. The moss creates the sterility of the room. The absence of insects, the silence where there should be chewing and crawling, is not an accident; it is a defense mechanism. The moss exudes a preservation field, a chemical aura that forbids decay. It keeps the room clean, silent, and frozen in a state of eternal "now," refusing to let the cycle of life and death intrude upon its thinking.
+
+**The Heart is the Mound.**
+In the western lobe, where the moss builds its green volcano, the entity generates its heat. This is the furnace room of the creature. The metabolic warmth rising from the mound suggests an organ working furiously, burning some unknown fuel—perhaps the vibration itself—to maintain the room’s hostile climate. This mound is an incubator. It is likely where the ferns are germinated, brewed in the dark heat before they are sent out to wrap the pipes. It is the only place in the room that feels "alive" in the way a sleeping animal feels alive, pulsing with a hidden, internal rhythm.
+
+**The Soul is the Wall.**
+The entity is not fully contained within the cellar. It is an avatar of something much deeper. The wall marked "SING" is the interface. The vibration—the ghost of the frequency—is the voice of its god, or perhaps its parent, thrumming up from the deep earth. The moss and ferns are merely the physical manifestation of that song. They grow in patterns to match the resonance; they maintain the puddle at a handprint because the vibration demands it. The "SING" is the tether. Without that low, bone-shaking hum, the ferns would stop drinking iron, the moss would lose its geometry, and the room would finally become just a hole in the ground.
+
+**The Eye is the Bulb.**
+Finally, there is the light. The entity allows the bulb to burn. It could easily strangle it with root-fists, but it leaves it be. The bulb serves as the creature's only memory of the surface. It is the eye that never blinks, staring into the dark, casting long shadows that the moss uses to orient itself. The filament burning without power is a parasite that the entity has accepted, perhaps recognizing that the light is the only thing that gives shape to its existence.
+
+So, in this root cellar, you are standing inside the belly of a **geomantic, metal-eating gardener**. It is a creature that has turned a man-made cavity into a terrarium of its own design, governed by the laws of a covenant written in moss and fueled by the blood of a dead mill.

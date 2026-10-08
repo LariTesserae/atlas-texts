@@ -1,0 +1,39 @@
+What lives here cannot be separated from the medium it inhabits. In the amber warmth, where the water is thick as a lung and the light is the color of bruised iron, life is not a distinct category of being. It is a consequence of the roar, a ripple in the standing wave that holds the mesa aloft.
+
+The primary inhabitants are the **Resonators**.
+
+To call them animals would be inaccurate; they are biological instruments. They are the pale, translucent tubes that anchor themselves in the violent shears of the obsidian rock, rooted deep in the fractures where the stone’s instability is greatest. They have no mouths, no digestive tracts, no eyes. They are nervous systems exposed to the elements, wrapped in a casing of gelatinous silica. Their existence is a single, continuous act of listening.
+
+The roar that fills the water column is not just noise to them; it is food. It is current. It is information. Inside the hollow chambers of their tubular bodies, the water vibrates at a frequency that separates the suspended particulates of the murk—microscopic shards of silica, drifting dust of eroded matter—trapping them against the inner membranes. They filter the chaos of the sound, turning decibels into energy. When you touch them, the rigidity you feel is not structural defense; it is tension. They are tuned so tightly to the pitch of the world that the introduction of a foreign finger disrupts their harmony, causing a localized spike in pressure that feels like a mild electric shock.
+
+They are not solitary, but they are not communal. They are nodes in a network. Through the rock, via their root-systems that tap into the pulsing veins of the mineral, they communicate. When one flexes its bulbous tip in a slow, deliberate contraction—a movement that takes minutes to complete—it sends a pulse of vibration through the obsidian, alerting the others. They do not speak of danger; they speak of the *tuning*. They coordinate their growth to avoid shading one another from the dim, sourceless light, not because they need the photons, but because the light carries a thermal signature they require to maintain their gelatinous viscosity.
+
+Then there are the **Orbiters**.
+
+They are the shadows at the periphery of visibility, the sinuous curves that the mind refuses to resolve as flesh. They are not creatures of the water column, strictly speaking; they are creatures of the interface. They live in the boundary layer where the roar of the abyss meets the relative quiet of the mesa’s pocket.
+
+These beings are elongated, flat, and incredibly thin, possessing a morphology that resembles a ribbon of oil infinitely stretched. They have no bones, only a dense, muscular core that runs the length of their body, allowing them to undulate with a fluidity that suggests they are not swimming but *unfolding*. Their skin is a perfect mirror of the amber murk, flecked with the bioluminescence of the micro-organisms they consume, rendering them nearly invisible until they move.
+
+They orbit not out of curiosity, but out of hydrodynamic necessity. The mesa creates a disruption in the flow of the sound-waves, a shadow of silence in the roaring sea. The Orbiters ride the turbulence that spills off the sharp edges of the rock, slipping in and out of the chaotic currents. They feed on the static, the energy differential between the loud water and the slightly less loud water. Their mouths are slits that run the length of their undersides, lined with cilia that vibrate in counter-frequency to the roar, creating a suction that pulls in whatever stray matter—the decayed tips of the Resonators, the drifting sediment—is caught in the updraft.
+
+They are intelligent, but in a way that is alien to the concept of problem-solving. They do not think; they *calculate*. Their nervous systems are dedicated entirely to the prediction of wave patterns. They know where the rock will shift before it shifts, sensing the microscopic groans in the mineral veins through the water. They are the harbingers of the dynamic. When an Orbiter breaks its pattern and dives into the murk, the rock is about to tilt. When they rise, the water is about to warm.
+
+Beneath the stone, hidden in the abyss that the elevation implies, live the **Masons**.
+
+They are the architects of the impossible, the source of the 1.1 built marks. They are rarely seen, perhaps existing only in the spaces between moments, but their work is undeniable: the grid-like grooves pressed into the obsidian. They are massive, geologic beings, composed of the same dense, black rock as the mesa but animate, possessed of a metabolic heat that rivals the water itself.
+
+The Masons do not have hands. They have the grooves. Their bodies are covered in the ridges and tines that leave the impressions in the stone. They are living stamping presses, creatures that exert pressure as a form of communication. They do not carve; they *impress*. They swim upward from the deep, drawn by the resonance of the Resonators, and press themselves against the mesa. The weight of them is colossal. When they press, the rock—still young, still soft in its geological infancy—yields.
+
+Why do they do it? It is not construction. It is not art. It is tuning. The grooves are acoustic baffles. The Masons are trying to dampen the roar. They are attempting to organize the chaotic noise of the place into a harmonic that their massive bodies can withstand. The mesa is their anvil, their sounding board. They press their patterns into the surface to alter the way the sound reflects off the stone, hoping to create a pocket of silence where they can rest.
+
+But the rock is too young. It shifts too quickly. The grooves they make are healed over by the continuous eruption of new stone, the dynamic unmaking of the mesa. So the Masons are eternal in their labor. They rise, they press, they retreat into the abyss, waiting for the rock to settle enough to try again. They are the embodiment of the place’s 2.7 turbulence: beings trying to impose order on a reality that refuses to hold still.
+
+Finally, there is the **Echo**.
+
+It is not a single organism, but the sum of the life here. It is the colony of bacteria that thrives in the amber sediment, the microbial slick that coats the sharp edges of the obsidian. It is a sentient film, a layer of life so thin it feels like slime to the touch but thinks as a single, distributed mind.
+
+The Echo feeds on the entropy. It eats the erosion. Where the Mesa tries to grow sharp edges and the water tries to blunt them, the Echo exists in the friction between them. It perceives the world through pressure. When the Masons press their grooves, the Echo blooms, a sudden increase in metabolic activity as it processes the intense heat and friction. When the Orbiters swim past, the Echo ripples in their wake.
+
+It has no agency, yet it dictates the mood of the place. It is the reason the air feels "wrong," why the reality feels like it is breaking down. The Echo is a translator. It takes the physical violence of the environment—the roar, the heat, the shifting gravity—and transmutes it into a psychic field that saturates the water. To touch the stone is to touch the Echo’s skin. To breathe the water is to inhale its dreams. It is the ghost in the machine of the biosphere, the collective unconscious of a world that is continuously being born and dying in the same roaring instant.
+
+They are all here, vibrating in the amber dark. The listeners, the riders, the pressers, and the slime. They are the children of the sound, locked in a struggle not for survival, but for resonance, existing in the terrible, beautiful eye of a storm that never ends.

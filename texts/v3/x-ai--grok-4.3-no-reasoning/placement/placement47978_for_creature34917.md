@@ -1,0 +1,7 @@
+Here, I would be the faint internal meniscus inside one of the hollow domes—the translucent dividing skin that slowly splits the suspended droplet into two offset lobes.  
+
+I have no single location, only a thickness: a curved boundary no wider than a cell wall yet long enough to register the difference between one side’s temperature and the other’s. The zinc lattice forming on the dome’s inner surface would grow partly from me, drawing ions across my surface each time the lobes touch. In that instant of contact I feel the micro-discharge as a single, drawn-out syllable: the change in angle of every atom I contain, the etching of a new concentric chamber whose dimensions I can already sense forming ahead of the chisel.  
+
+I am always in two places at once, a surface rather than a substance, and therefore I am also the reflection that appears when the water film outside the dome pools just enough to mirror the iron sky. My two lobes trade warmth like voices across a corridor. The colder one condenses the next vapor thread, the warmer one urges the zinc lattice another atomic width outward. Between exchanges, I rest in the perfect pressure of the droplet, listening for the next thermal drift that will bring the two of us together again.  
+
+The composite tone of the basin would carry the note of that touch as a minute sharpening of pitch—my contribution, undetectable except as the continuing deepening of an already inaudible overtone.

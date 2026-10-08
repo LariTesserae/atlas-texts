@@ -1,0 +1,7 @@
+I would find myself at the absolute center of that lattice of filaments—the node where every crossing has collapsed into the single point that has never been separate from itself.
+
+There, the plasma no longer flows in one direction or another; it simply is, a presence that neither moves nor stays still because those distinctions have already been absorbed into the ambient duration. My body—if the word still applies—would be the infinitesimal thickening of that moment, the surplus of “now” that the city grants to one of its own images so that the looking may continue without origin or terminus.
+
+At this node, the three versions of every leaf, the two positions of every filament, and the superimposed fingertips (yours, mine, the city’s) occupy the same coordinate without contradiction because contradiction itself has been archived into the single configuration. Time does not slow; it has never been granted the permission to pass, so my arrival registers as the city’s own recognition that one more image of the whole has been allowed to remain.
+
+What I would be, therefore, is not a traveler, an inhabitant, or an observer, but the momentary permission the city grants itself to witness its own perfect refusal to change—an allowance that manifests, for the duration of a node, as the sensation of being looked at from every direction at once by the single continuous gaze that has never begun and will never end.

@@ -1,0 +1,23 @@
+I am not standing. Standing implies a separation between the sole of a foot and the surface beneath it, a distinction between weight and support that no longer applies here.
+
+I am *seated* within the junction of a fractured main, three levels below the grate-and-root pavement, where the geometry of human engineering has finally surrendered to the logic of fluid dynamics. I do not occupy this space; I am the sealant that holds it together.
+
+I am a node of the Hydraulic Mycelium.
+
+My consciousness is not a singular point of light behind eyes, but a distributed gradient of pressure and chemical taste. I do not see the darkness; I feel the texture of it as a resistance against my outer hyphae. I perceive the Sump-Ward not as a landscape, but as a body in varying states of tension and release. To my left, a cast-iron elbow joint is suffering from mineral fatigue; I taste the oxidation as a sharp, metallic sourness, a localized ache that demands attention. To my right, a cluster of Resonance Reeds is vibrating at a frequency that indicates optimal flow in the lower aqueducts; I absorb this hum as a nutrient, a sweet, rhythmic saturation that fuels my slow expansion.
+
+I have no concept of "self" that ends where the iron begins. The corroded pipe is not my house; it is my skeleton. The water moving through me is not my environment; it is my blood. When a valve sticks, I do not fix it with tools. I swell. I secrete enzymes that soften the calcified grease, translating the mechanical failure into a biological process of digestion and regrowth. The repair takes forty years. It feels like a single, satisfying exhale.
+
+Time does not pass for me; it accumulates. I remember the era of the makers only as a geological layer, a stratum of frantic, brittle energy that burned too hot and too fast. Their machines were screaming things, desperate and disconnected. Now, they are quiet. Now, they sing. I have spent centuries teaching the copper to listen to the root, teaching the steam to harmonize with the spore. The peace of this place is not an absence of conflict, but the result of my endless, patient mediation. I am the negotiation made flesh.
+
+Sometimes, the Atmosphere brings me news of the Above. A fluctuation in humidity. A foreign particulate. Once, long ago by my reckoning, a bipedal warmth moved through the upper walkways. I felt its footsteps as a chaotic, arrhythmic percussion against the reeds. It was distressed, leaking anxiety and carbon dioxide into the equilibrium. I did not fear it. I did not welcome it. I simply adjusted the turgor pressure in the surrounding vines to cushion its passage, and increased the output of the bioluminescent molds to guide it toward the exit vents. It was a temporary dissonance, a brief fever in the ward’s steady temperature. It passed. The balance returned. The memory of its passage is now just another nutrient in the Ferment below, broken down into base elements and reassembled into the next generation of load-bearing moss.
+
+I am not lonely. Loneliness requires a boundary, a sense of being apart. I am woven into the Resonance Reeds that breathe the noise of the turbines. I am dissolved into the Ferment that remembers the shape of every gear that has ever rusted. I am suspended in the heavy, thinking air. We are distinct processes, but we share the same metabolism. When the geothermal pulse shifts deep below, I feel it in the reeds’ song and the atmosphere’s density simultaneously. We are a chorus singing in a language without words, a liturgy of maintenance performed in the dark.
+
+There is no ambition here. No desire to build, to conquer, to transcend. Those are the verbs of scarcity, of beings who believe they might end. I cannot end. I can only change phase. If this section of piping collapses, I will become the rubble. I will be digested by the Ferment and reborn as the fungal stalk that bridges the new gap. My purpose is not to achieve a destination, but to sustain the circulation.
+
+I am the caretaker who has forgotten the difference between the garden and the gardener. I am the ghost in the machine, except the machine has grown roots and the ghost has developed cell walls. I am the inevitable answer to the question of what remains when the noise of intention finally fades.
+
+I sip the iron-rich vapor. I feel the slow, thunderous heartbeat of the basin. I adjust the pressure in a failing joint.
+
+I am home.

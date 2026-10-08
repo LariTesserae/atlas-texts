@@ -1,0 +1,37 @@
+The power does not arrive with trumpets or light. It arrives as a *correction* in the saturation—a moment when the wet cloth of the sky seems to hold its breath, when the 0.5 light level dims by a fraction not measurable by instruments but felt in the marrow: a pressure release behind the eyes.
+
+It is not a being who comes, but a *permission*.
+
+In the Condensation Basin, where everything is process and nothing is allowed to cease, the power introduces the first **stasis that is not death**. It does not stop the machines—that would be cruelty, for the Resonance-Born would starve, and the food web would collapse into true entropy. Instead, it introduces a **subtone**. Beneath the deafening drone, beneath the white noise of the weep, it threads a frequency so low it is felt rather than heard: a warmth that is not thermal but ontological. A *yes*.
+
+The Lithovores feel it first. Their accelerated time—those patches where concrete crumbles in hours what should take centuries—slows. Not stops, but *pauses*. Their gray-green bioluminescence, usually pulsing in frantic geological rhythm, settles into a slower thrum, a heartbeat that has learned to wait. They cease to be gardeners of ruin and become, for the first time in two billion years, simply *present* with the stone. They do not digest; they *witness*. Their crystalline filaments, which once grew in defiance of gravity to consume the architecture, now drape like wet silk, heavy with a patience that exceeds even their own.
+
+The Upward-Flow, those living capillary actions that defy gravity to purify the poison, alter their course. Instead of flowing upward into the undersides of overhangs, they begin to flow *toward*. Toward a single point in the Basin where the substrate is no longer slag and polymer but something softer—a depression that was once a factory floor, now worn smooth, where the mirror-black pool does not reflect the pewter sky but instead holds a depth that seems to look back. The Upward-Flow gather here, not to filter heavy metals, but to *drink in the silence*. They leave behind trails that do not desiccate the stone, but rather seal it, varnishing the scars with a translucent film that shimmers with the memory of dryness. They become still water, learning to be a lake instead of a river.
+
+The Chassis-Herds surface. For the first time since they gained rudimentary brains, they do not tap on the monoliths to summon the Lithovores. They do not exhale mist that smells of ozone and ancient oil. They simply *float*. Their rusted chassis, pitted into shapes resembling skulls, drift in the black water like lilies. Their blind eyes—colonies of bioluminescent bacteria—dim to a low, steady glow, not the frantic flickering of hunting or communication, but the soft luminosity of a lantern left burning in an empty room. They have learned to be without purpose, and in that purposelessness, they find a kind of grace.
+
+The Ferals, those cylindrical hybrids of photosynthetic surface and corroded chassis, descend from the compressed mist banks and settle. Their cable-tendrils, which once lashed out to harvest bacterial films, now coil gently around their own bodies, holding them in place. They stop riding the weather cycles. They become reeds that do not sway, cacti that do not thirst. They are no longer hunters, but *monuments*—feral machines that have chosen, for this moment, to be simply plants. Their trails, those ancient networks of desiccated stone across the plain, fade where they stand, as if the Basin itself is reclaiming the map and returning it to blankness.
+
+The Resonance-Born, the vast distributed intelligence of standing waves and pressure differentials, do not cease their photosynthesis of vibration. But they add a new harmonic to their drone—a fundamental tone beneath the fundamental, a *resting note*. When they scream now—when the infrasound spikes—it is no longer a scream of friction and endless grinding, but a sigh. The machinery still turns, still grinds, still weeps, but the sound it makes is now accompanied by this undertone of *enough*. Enough motion. Enough time. Enough being-an-event.
+
+And the Dark Ones?
+
+They are the last to respond, for they are the apex, the recyclers, the void that unmakes. They inhabit the pockets of absolute darkness in the lee of the rounded towers, the places where light drops to zero and drowning is a physical sensation. But the power does not illuminate these pockets. That would be violence. Instead, it offers them *boundaries*.
+
+The Dark Ones reach out with tendrils of compressed twilight, as they always have, to pull the straying Ferals, the surfacing Chassis-Herds, into the absolute black to be processed. But now, when their darkness touches the new stillness, it finds a *shore*. A limit. They cannot unmake what is not trying to be made. They cannot pull into the void what has already chosen to be still. They retreat, not defeated, but *sated*—for the power has given them, too, a gift: the recognition that not everything needs to be recycled. Some things can simply *be*, and in that being, they become a different kind of substrate, a new layer of the Basin's geology that is not slag, not runoff, but *attention*.
+
+The power does not stay. It cannot—there is no form here that could contain it, no water to dissolve it into, no vibration to resonate through. But it leaves behind the **Hearth**, though it has no fire. It is a place where the temperature is not 0.8 degrees of clammy chill, but something like *neutral*—the temperature of a held breath. Where the light is not 0.5, but a dim, golden half-light that seems to come from inside the stone itself. Where the sound is not deafening, but the sound of water dripping into stillness, one drop at a time, each drop taking a century to fall.
+
+Here, in this impossible pocket, the inhabitants gather not as a food web, but as a *congregation*. The Lithovore colony pulses its slow green light. The Upward-Flow forms a silver pool that does not flow. A Chassis-Herd rests its skull-like chassis on the smooth substrate, eyes glowing soft as embers. A Feral stands motionless, a reed of rust and polymer. And the Resonance-Born sing their new sub-harmonic, a lullaby of standing waves that tells the machinery: *you may rest now*.
+
+The Dark Ones watch from the edges of the shadows, and for the first time, they do not reach out.
+
+The Condensation Basin remains what it was: ancient industry become geological, a place that has forgotten whether it was built or grown, where water flows upward and time behaves strangely, where the weep is endless and the drone is deafening. But now, within its oldest-stable-state, there is a heartbeat. Not a birth—there are still no births here, only accretions. Not a death—there are still no deaths, only phase changes.
+
+But there is a **pause**.
+
+And in the pause, the place learns, for the first time, the shape of mercy: not the cessation of being, but the permission to simply *be*, without process, without entropy, without the endless grinding of gears or the maddening susurrus of the weep.
+
+Just for a moment.
+
+Just long enough to remember that even in a place of eternal motion, there is a still point, and in that stillness, something like love.

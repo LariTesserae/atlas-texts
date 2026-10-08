@@ -1,0 +1,21 @@
+The water here is heavy, a thick, tepid broth that feels less like a liquid and more like a humid breath held for millennia. It is warm—bathwater warm—suspended in the absolute dark miles beneath any surface that might remember the sun. Here, the pressure is a constant, crushing weight, yet life persists not in spite of it, but because of it, molded precisely to the specifications of the deep.
+
+This is the Spire, a constructed impossibility rising from the abyssal plain. It is a vertical shaft, perhaps a hundred feet wide and reaching up endlessly into the gloom, distinguished from the surrounding seafloor only by its geometry. It is a "total build"—a ziggurat inverted, a cathedral hewn entirely from stone. There are no seams of metal, no glass, no synthetic polymers. Everything you see is rock: basalt, granite, and limestone, stacked and interlocked with a primitive, brute-force masonry that has defied the physics of the ocean for eons.
+
+The walls are smooth, worn down by a slow, ancient erosion. The currents have polished the rough-hewn chisel marks of its creators—beings long dust—into a silky, tactile finish. The stone feels like worn marble under a river, rounded and soft. The architecture is dense; the Spire is a honeycomb of chambers, alcoves, and corridors, all crowded together in a vertical labyrinth. The scale is intimate despite the depth; it feels like a single, vast room or a tightly clustered village, a "hamlet" carved into the monolith.
+
+There are no plants. Not a single strand of kelp, not a bloom of algae. The green kingdom never reached this depth, or perhaps it was never invited. The color palette is strictly monochromatic: the greys and blacks of wet stone, the white of calcified deposits.
+
+But it is not empty. It is teeming.
+
+Because there is no vegetation to anchor a food web, the ecosystem here is built on consumption and scavenging, a vertical city of scavengers. The fauna is abundant, a writhing, multi-layered carpet of organisms that coats every inch of the constructed stone.
+
+The walls are alive with crustaceans. Thousands of blind, white crabs, each no larger than a fingernail, swarm over the masonry like animated mold. They pick at the stone, scraping away the microscopic bacterial film that grows on the wet rock, their claws clicking in a perpetual, silent rhythm. Larger, lobster-like creatures—armor-plated and sluggish—drift through the open water in the center of the shaft, or cling to the underside of the carved staircases that spiral up the inner wall.
+
+Soft-bodied things rule the niches. Translucent anemones, their tentacles trailing in the slow current, bloom from the mortar joints like pale flowers. Eels, sleek and eyeless, slither through the cracks in the masonry, their movement creating barely a ripple. The water is thick with gelatinous salps, pulsating tubes that drift through the dark like ghostly submarines, filtering the water for detritus.
+
+There is a weirdness to the arrangement. The animals seem to treat the carved stone not just as a habitat, but as a mechanism. Schools of small, silver fish huddle in perfect geometric formations inside the carved doorways, mimicking the straight lines of the architecture. A species of hermit crab has evolved to use not shells, but the hollowed-out cores of stone beads that litter the floor—waste products from the Spire’s construction.
+
+The silence is profound. The density of the water dampens all sound. There is no roar of the ocean, only the dull, rhythmic throb of the deep—a heartbeat heard through the bones. The movement is glacial. A crab might take an hour to turn around. An eel might drift past a window in a day. Changes happen here on a geological timescale. The stone settles, the animals breed, and the darkness holds them all in a warm, liquid embrace.
+
+It is a ruin, but also a thriving hive. A primitive, hand-carved skyscraper in the deep, populated by a civilization of creatures that have never seen the sky, living in the warm, silent dark of a world without sun.

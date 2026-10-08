@@ -1,0 +1,29 @@
+No single creature lives inside the seed. The inhabitant is the city itself: a vast, many-parted vegetal intelligence whose organs have become districts, instruments, workshops, archives, and laws.
+
+It has no face, although it makes masks. It has no hands, although its contractile roots can sort mineral grains, guide young shoots around pegs, and preserve one flint edge for generations. It has no brain separate from its body. Thought passes through it as pressure, chemical trace, resinous exchange, and ponderous waves in wood. One impulse may require years to cross it. An answer may take centuries to assume its final form.
+
+Its individuals, if they can be called that, are local growths with specialized civic lives. Door-organs taste the signatures of approaching root tips and slowly part. Resonator groves receive and repeat structural news. Contractile roots maintain bridges, strike dry stalks, or pull walls into new alignments. Mineral-gathering hairs search cracks for grains of stone. Young exploratory filaments tap the inner shell. Ancient trunks meet in communal pads, pressing their signaling fibers together until their separate tensions become a shared decision.
+
+These beings do not travel. They extend, graft, withdraw, divide, and harden. Their gestures are architecture. Their speech is strain. Their memory is the density of dead tissue beneath them.
+
+They perceive no color and have no concept equivalent to sight. They know a chamber by the way a knock returns from its ribs; know a neighbor by scent, tension, and characteristic resonance; know distance as delay. Open space is as necessary to them as clear vision might be to another kind of life. They keep their streets bare so that vibrations arrive undistorted. A misplaced bowl can cloud a message. An unnecessary partition can deform public truth.
+
+Nor do they experience time as a sequence of days. Their smallest meaningful intervals are the settling of resin, the contraction of a bridge, the delayed thermal pulse of a season they cannot directly feel. Their oldest living structures may spend millennia holding a single tension. To them, suddenness is a century of preparation ending in one immense crack.
+
+Death does not remove any of them. A dead district remains among the living as beam, wall, obstacle, instrument, or record. With no rot and nothing to feed upon it, its body persists until pressure powders it. Living hairs collect that dust and incorporate it into new growth. Ancestors therefore become construction material quite literally. The city remembers by standing upon, sounding through, and rebuilding with its dead.
+
+Its oldest self lies in the Low Record: flattened civic tissues whose scars and grain preserve vanished expansions, famines, disputes, and reconciliations. Specialized growths read those layers by echo. They do not recover personalities there, for personhood may never have existed in the seed. They recover patterns of relation—where tissues joined, where they refused each other, where abundance made the wood porous, where austerity left it brittle.
+
+What might be called belief lives in the resonant tissues surrounding the central amphitheater. There the city listens to forces arriving from outside its shell. It cannot imagine stones, deserts, planets, or stars as such. Its universe is composed of pressures and intervals. A fault is a distant rhythm. An impact is a chord without a source. The planet’s turning may be known only as a recurrence too faint and reliable to question.
+
+At the center, the loose embryonic flake serves as oracle, calendar, and chance made visible without vision. When the deepest note causes it to jump, nearby tissues read the minute consequences of its landing through the floor. Its two faces divide eras. The city does not worship the flake as an object; it attends to the alteration in pattern that follows its turning. Whole generations may shape their growth according to which side rests against the bark.
+
+The city is cautious of light without understanding it. Light is remembered physiologically as injury: a stimulus that demands recoil, closure, and blackened scar tissue. Darkness is its native integrity. Should the shell split, the nearest growths would not look outward. They would convulse, seal the wound, and send a warning through every load-bearing fiber. For centuries afterward, distant districts might thicken walls in response to an event none of them could locate.
+
+At the seed’s narrow end lives its youngest, most outward-reaching portion: fine roots scarcely tens of thousands of years old. They are curious only in the vegetal sense, compelled to test chemical differences and follow gradients. Yet their persistence resembles hope. Around one salt-filled flaw, they have begun constructing a chamber and orienting an avenue. The rest of the city is slowly turning its attention there, growing the organs required to understand what has been found.
+
+It does not dream of emergence. It has no image of an outside. If it escapes, it will do so by continuing the only acts it knows: tapping, branching, bracing, listening, and making emptiness between its parts. It may spread as a dry black web through the mineral seam and discover other buried seeds by the tremors they send through salt and basalt. First contact, if it comes, will be no meeting of bodies. It will be a changed resonance in the stone, answered perhaps after a thousand years.
+
+Until then, the inhabitant endures as a civilization without citizens: immensely old, almost motionless, and never silent. Its resin creeps. Its roots hold tension. Its dead support its living. Its laws bear weight.
+
+And when the outer rock presses near enough, the whole buried being listens.

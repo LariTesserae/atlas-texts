@@ -1,0 +1,27 @@
+The room is a closed jar, or perhaps a ribcage. The air is thick and dry, carrying a weight that presses against the skin like warm velvet. It is not a hot dryness, but a warm one—the stillness of a breath held too long.
+
+This place is entirely built. Every surface, from the floor to the distant ceiling, is a fabrication of wicker, clay-daub, and roughly hewn timber. There is no geology here, no bedrock, only the architecture of some vanished hand. The walls are woven from vast, reed-like fibers that creak gently in the silence. The joins are plastered with a mud that has long since dessicated, cracking in patterns that resemble spiderwebs or the veins of dried leaves. It feels primitive, tactile—imperfect circles of stone axes and fire-hardened tools—but the scale of the construction is immense. We are standing inside a cathedral-sized nest, a masonry web suspended in a void.
+
+The elevation is low, yet the ceiling feels vaulted. The floor is packed earth, stamped hard, but it is a constructed platform, hovering over nothingness. If you were to dig, you would find only more wicker, more cross-hatching supports, and then the dark.
+
+There is no water. The parameter of moisture has been excised from this reality. Here, life does not drink; it absorbs. The atmosphere is hazy with suspended spores and drifting motes of dry, golden dust. The light is normal—daylight, seemingly—but it has a filtered, amber quality, as if passing through miles of amber resin or the yellowed glass of an old lantern. It casts long, soft shadows that cling to the bases of the structures.
+
+Vegetation is lush, but alien in its constitution. The flora here does not bloom with soft petals; it erupts in fibrous explosions. Great stalks of cork-screw wood twist upward, dense and crowding, their surfaces covered in a riot of dry-needled mosses that look like green steel wool. Vines as thick as a man’s torso hang draping from the woven ceiling, but they are not soft; they are rope-like, husked, and hairy. The color palette is aggressive—burning ochres, deep parchment browns, and the sharp, synthetic greens of drought-resistant succulents. It is a garden of husks and shells, thriving on the memory of rain.
+
+The density is claustrophobic. The space is small enough to be comprehended—perhaps the size of a hamlet, yet fully enclosed—and it is packed with presences. Wooden idols with blank, staring eyes stand shoulder-to-shoulder with breathing thickets. There is no path that does not require brushing against a frond or a carved pillar. The saturation is high; the sheer volume of *stuff* in the room—life and artifact alike—threatens to bury the viewer.
+
+And the fauna is abundant. This is the terrifying heart of the place. The air is alive with hums. Bees the size of fists move with a sluggish, heavy drone, their bodies fuzzy and striped with warning colors. Butterflies with wings like crumpled parchment paper flutter in erratic, geometric loops. Lizards with scales that look like polished ceramics cling to the wicker walls, their eyes rotating independently. There are no large predators, only a constant, teeming abundance of small, crawling, buzzing things. They do not fear the intruder; they simply continue their work, building, eating, and existing in a state of perpetual, slow motion.
+
+Sound is mostly quiet, a low, murmurous hum that vibrates in the chest. It is the sound of ten thousand tiny legs scratching against dry wood, the slow expansion of heated timber, the sigh of air pressure equalizing. It is a silence that is loud with presence.
+
+The technology that built this is primitive. Stone blades, fire-hardened spears, bindings of gut and sinew. Yet, the arrangement of this space suggests a comprehension of physics that belies the tools. The acoustics are perfect; the ventilation, despite the sealed appearance, circulates the warm air in slow, invisible cycles.
+
+But the weirdness is high, approaching a breaking point of reality. The edges of the room do not behave as they should. In the corners where the woven walls meet the ceiling, the geometry frays. If you stare too long at the patterns in the wicker, the over-and-under weaving seems to reverse itself, threading the eye in ways that make the stomach lurch. A wooden idol in the distance appears to be breathing, its chest expanding and contracting with a slowness that implies a duration of hours, not seconds.
+
+There is a sense of temporal distortion. This is a place of dynamic slowness. Changes happen across long durations. A flower blooms not in a day, but in a decade, though you can see it unfold if you squint, your eyes straining against the creep of time. The sun—if that is what it is—moves imperceptibly across the ceiling.
+
+The erosion is young. Despite the ancient feeling, the edges of the constructed world are sharp. A broken timber does not weather; it holds its jagged, splintered profile as if frozen in the moment of its breaking. The cracks in the mud plaster are fresh, bright lines revealing the darkness beneath.
+
+This is a sealed ecosystem, a vivarium built by gods or giants who have since left. It is a dry temple to a biology that needs no water, a place where the rules of density and construction have cannibalized the natural world. It is a room that is digesting itself, slowly, beautifully, and terribly, in the warm, dry dark.
+
+You stand in the center of the woven ribcage. The dust motes dance around you. The lizards watch. The walls breathe. It is quiet, and it is full.

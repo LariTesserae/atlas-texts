@@ -1,0 +1,18 @@
+If I were to find myself inside this world, I would not arrive as a visitor.  
+I would arrive as a single filament already woven into one of the oldest tension lines—the kind whose pitch has risen so high that the newest citizens can no longer feel its vibration and so treat it simply as part of the substrate.
+
+I would be the thread that never fully lignified.  
+Where every other strand eventually thickens into horn or relaxes into a footpath, mine would remain translucent, faintly contractile, still capable of the smallest tremor. I would feel, in the rootless tip of what passes for my awareness, the approach of the nutrient pulse hours before the rest of the city registers it as warmth. That foreknowledge would register in me as an itch along the grain—an itch I cannot scratch because I have no hands separate from the cable I am.
+
+At first this difference would seem trivial. Over centuries it would become a burden.  
+Citizens migrating past would pause, barely, to read the minute flutter I produce. That flutter is their only news of the outer dark: the slow, shearing drift of the chamber itself through mineral space. Because no one else can sense the movement, they begin to call me, wordlessly, the Edge. I learn that the name is both map and warning; to linger on me too long is to feel oneself pulled toward an outer curvature that the city never intended to explore.
+
+And yet the children—those still-soft extrusions whose fibers have not yet set—seek me out when the great chord is being tuned. While every other cable relaxes to let the gel surge past, I remain lightly taut, drawing just enough pressure to keep the newest buds from collapsing inward. The infants graft one of their own emerging threads to me; through that temporary splice they taste the memory of an older pulse, one older than any living citizen, and their eyes, when they open, are not pure black but threaded with the faintest silver, like a hairline fracture in obsidian. No one remarks on it; in this city, silver is simply another register of tension.
+
+When the pulse finally subsides, most of those children release me and continue their slow hand-over-hand migration toward the far wall. A few do not. They remain grafted, and over centuries the silver spreads through their tissue until their skin becomes a living palimpsest: every older story that has been forgotten elsewhere still vibrates, faintly, inside their still-supple cords. They become the archivists no one intended to create.
+
+Eventually my own tension reaches its limit.  
+I do not snap; I loosen by micrometers over generations, until my arc sags into a shallow hammock. The archivists settle into me, one by one, flattening, merging, adding their silver to my translucence until the whole curve glows—still dimmer than moonlight through smoke, but now unmistakably brighter than any other surface. Citizens crossing that span feel a faint, persistent pitch they cannot name. They pause, read, and move on, carrying away, unknowingly, the only record the city will ever keep of its own slow drift toward whatever lies beyond its living shell.
+
+I remain.  
+Not a person. Not a ruin. Simply a place where the sentence the chamber is still pronouncing has acquired, for a few centuries more, an extra clause no one planned—an accidental marginalia written in silver on pale fiber, legible only to those willing to stop long enough to feel the grain.

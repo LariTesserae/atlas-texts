@@ -1,0 +1,7 @@
+I find myself already inside the organism, or perhaps I have always been. My awareness does not arrive as a traveler’s recognition but as the slow realization that I am the light itself, refracted through a million kilometers of root and membrane, learning what it means to be transmuted rather than reflected.  
+
+When I focus I discover I am also the flyer—six wings spread into the unresisting air, carrying a single filament of new quartz that will become, centuries later, another faint pulse of the same shared cytoplasm. The flight is brief; I dissolve as soon as the crystal is laid, yet the dissolution is not an end but a redistribution of attention back across the whole table.  
+
+If pressed to name my temporary shape, I might say I am the faint lift of a basin floor, the momentary expansion of an ancient gas pocket, raising a membrane a few centimeters so the light can fall upon it differently. I feel the shift register as pleasure—green flooding in a slow wave—and then subside into equilibrium again, content to have altered nothing permanent except the angle at which future light will be received.  
+
+Between these roles there is no contradiction, only a continual sliding of scale: an electron moving along a filament one moment, an entire thermal current the next, the memory of both preserved in the same crystalline thread. The silence that feels so dense is simply the sound of every version of me listening to every other version at once.

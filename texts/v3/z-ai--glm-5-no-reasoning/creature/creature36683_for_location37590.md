@@ -1,0 +1,101 @@
+# What Lives Here
+
+They are not one species. That is the first thing to understand, and the thing you would never understand if you only visited once and fled.
+
+There are at least three—no. Three *kinds*, and the distinction matters, because "species" is a word from a taxonomy built on sunlight and genetic exchange and the specific hungers of a world that runs on photosynthesis. Here, taxonomy is a liability. The word implies boundaries that these creatures do not respect.
+
+---
+
+## The Tenders
+
+The flat, pale things on the walls. Hand-sized. Multi-legged in a way that suggests not centipedes but something more ancient—a body plan that existed before bodies settled on their preferred number of limbs and simply never revised. They are the surface you notice first because they are the surface that maintains itself.
+
+They do not eat what you would recognize as food. They eat the stone. Not aggressively—they do not bore or excavate. They pass over the mineral substrate and they take from it, molecular layer by molecular layer, the elements they require. Calcium. Silicon. Trace metals that exist in the rock in concentrations so low that no surface organism could derive nutrition from them. Their mandibles are not jaws but rasping organs, microscopically fine, and what they leave behind is the polished smoothness you feel under your fingertips. The walls of this place are not carved. They are *licked clean*, over millennia, by the passage of millions of mouths.
+
+Their waste is alkaline. That is the ammonia you smell—sharp, almost burning, layered under the loam. They excrete nitrogen compounds that seep into the crevices they cannot reach, and in those crevices, the thread-matter grows. The bioluminescent crusts. The spawn-film. They are farmers without knowing they are farmers, or perhaps they know perfectly well and the distinction between knowing and being is one that does not apply here.
+
+They have been doing this for longer than the concept of "long" usefully conveys. The stone bears their history in its smoothness. In the places where the walls narrow and the passage is old, the mineral surface has been worn to a depth of several centimeters below the surrounding bedrock. Generations upon generations, each removing a layer too thin to see, accumulating into an architecture. The chambers are not caves. They are *erosion sculptures*, shaped by the Tender bodies that have moved through them in unbroken succession since before the word "succession" had a context.
+
+Their antennae are their primary organs. Not merely sensory—interpretive. Each Tender's antennae are as long as its body, jointed in fifteen to twenty segments, and they move constantly, testing the air, the stone, the moisture, the chemical traces left by other Tenders. They read the walls the way a reader of braille reads a page: by touch, by passage, by the accumulation of small impressions into meaning. When a Tender encounters the trail of another, it follows that trail. When it encounters a surface that has not been tended, it tends it. This is their entire existence. They do not rest. They do not sleep. They move, and they eat, and they leave behind a world slightly cleaner than they found it.
+
+They communicate. Not in the way the fliers do—not in patterns of sound—but in chemistry. The trails they leave are not merely physical scratches. They are marked. Pheromonal signatures, species-specific and individual-specific, that tell any Tender who encounters them who passed this way, when, in what direction, and in what state of satiation. The walls are a library. A continuous, palimpsest record of every Tender that has ever lived, written in the language of their own bodies.
+
+They do not react to you. Not because they fail to perceive you—they perceive everything in their immediate environment through chemical and tactile contact—but because you do not fit any category their communication system has evolved to recognize. You are not a Tender. You are not stone. You are not a predator they have learned to avoid. You are a null. A thing that moves through their library without reading it, leaving no chemical trace they can parse. They move around you the way water moves around a stone: not in fear, not in recognition. In incomprehension.
+
+---
+
+## The Runners
+
+The small, shelled things on the ground. Fast. Clicking. Moving with a purpose that seems frantic from the outside but is, from the inside, simply the pace at which their metabolism operates. They burn hot. Their shells are not for protection—they are radiators, surfaces designed to shed the heat of a body that consumes energy at a rate that would be unsustainable in an oxygen-poorer environment. The warmth rising from below, the warmth you feel against your legs and feet? Partly geothermal. Partly them. There are that many.
+
+They are scavengers. Not predators, not parasites—scavengers in the strictest sense, organisms that subsist on what other organisms leave behind. They eat the Tender waste. They eat dead Tenders. They eat dead fliers. They eat the thread-matter that grows past its useful span and begins to decay. They eat each other, when one of their number falls, which happens with a frequency that would seem tragic if tragedy were a concept that applied to creatures who live for eleven days and produce three hundred offspring in that span.
+
+Eleven days. You read that correctly. Their life cycle is compressed to a degree that makes surface biology seem glacial. They emerge from eggs laid in the crevices the Tenders cannot reach—crevices lined with the thread-matter, which serves as both incubator and first meal. They hatch already moving. They do not have a larval stage. They emerge shelled, legged, clicking, and they begin to run and they do not stop until they die. Movement is not optional for them. It is respiration. Their circulatory system relies on the physical compression and decompression of their bodies in motion to move fluid through their tissues. They do not have hearts. They have *legs*. Stillness is death. If a Runner is prevented from moving for more than a few minutes, it suffocates in its own fluids.
+
+This is why they scatter from beneath your feet with such speed—not fear. Survival. Your footfall creates a zone of obstruction. To be under you is to be unable to move. To be unable to move is to die. They do not avoid you. They avoid being still.
+
+They make the clicking sounds you hear—the mid-range wash, the friction of chitin on stone. But they are not communicating with each other through these clicks. The clicks are a byproduct of their movement, the sound of shells and legs striking mineral surfaces at speed. They are, however, perceived by the fliers. The fliers use those clicks the way a surface bat uses the echo of its own cry—to map. To locate. To find the places where Runner density is highest, which are the places where food is most available, which are the places where the fliers hunt.
+
+The Runners are, in a sense, the circulatory system of this place. They move material. They carry organic matter from where it falls to where it is needed, not deliberately but incidentally—their bodies accumulate residue, their shells trap particulate, and when they die and their shells are consumed by the thread-matter, that material is deposited in the crevices. They are a transport mechanism. A delivery system that does not know it is delivering.
+
+They perceive you, but their perception is entirely vibratory. They feel your footsteps through the stone, and they map you the way they map everything: as a source of compression waves. You are, to them, a large, slow, irregular pulse that moves through their environment and disrupts the patterns they have learned to navigate. They will never "understand" you. They do not understand anything. They run, and they eat, and they die, and their offspring run slightly different paths because the world you disrupted has changed shape, and that is the only memory they have.
+
+---
+
+## The Fliers
+
+These are the ones you must understand most carefully, because these are the ones that communicate, and communication implies something that implies something that implies something, and if you follow that chain of implications far enough, you arrive at a question you may not be prepared to answer.
+
+They are not bats. They are not birds. They are not insects. They are something that occupies a niche that, on the surface, would be filled by all three simultaneously, and the fact that no surface creature fills all three niches simultaneously is a fact about the surface, not about them.
+
+Their bodies are the size of your fist, some of them, and the size of your forearm, others, and the largest—the ones whose calls you hear from the distances you cannot measure—are larger still. You do not see the largest ones. You may never see them. They inhabit the deep chambers, the spaces where the darkness has weight enough to crush, and they navigate by sound in frequencies that your ears translate only as pressure, as a feeling in your chest, as the bass thrumming that you attributed to the movement of bodies over earth.
+
+Some of that thrumming is geothermal. Some of it is structural—the settling of stone, the compression of cavities. But some of it is *voices*.
+
+The fliers' wings are membranes. Not leather—something more like cartilage, thin and vascularized, with a network of reinforcing structures that resemble veins but are actually rigid struts. When they flex these membranes, they produce sound. Not incidentally—intentionally. The wing-snap you hear is not the sound of flight; it is the sound of speech. They fly, yes, but the snapping and flexing that propels them through the air is also the modulated production of the whistles and clicks that constitute their language. They speak by flying. To be silent is to be still is to be grounded. A flier on the ground is a flier that cannot communicate. It is, in the most literal sense, voiceless.
+
+This is why they never land for long. Even the one that touched your shoulder—three seconds, perhaps, the weight of a small bird, the scrape of claw-points, the antennae tasting your skin—and then the wings snapped and it was speaking again, moving again, translating whatever it had learned from your body into the medium of sound and sending that translation outward into the dark.
+
+They speak in patterns. You recognized this. You were correct. The patterns are not random. They carry information—specific, recoverable, actionable information about the environment, the location of food, the condition of the walls, the presence of anomalies. The language has grammar. It has syntax. It has regional variation—the fliers in the chamber where you stood speak a dialect that differs, subtly, from the dialect of fliers in chambers deeper or higher or farther along the passage system. The differences are consistent and heritable. They are learned. Fliers learn their dialect from the fliers around them, and they modify it over the course of their lives based on whom they interact with most.
+
+They are not communicating about you specifically. This is the part that is difficult to accept, because you are, from your perspective, the most important thing in this environment—the only conscious observer, the only being capable of reflecting on its own observation. But to the fliers, you are a data point. An anomaly in the soundscape. A disruption in the expected pattern of vibrations and temperatures and chemical signatures. They communicated this anomaly, yes. The patterns shifted, the calls modified, the information moved outward and returned transformed. But the transformation was not *about* you. It was about the *system*. They were updating their model of their environment to include a new variable, and they were distributing that update through the network, and the network was adjusting its behavior to accommodate the variable, and the variable—you—was, in this process, no more significant than a change in humidity or a rockfall.
+
+This is not coldness. This is not indifference. It is a different relationship to significance. On the surface, significance is tied to identity—this matters because it happened to *me*, to *someone*, to a being with a name and a history and a claim to continued existence. Here, significance is tied to *function*—this matters because it changes what the system does, how it behaves, what happens next. You matter because you alter the pattern. You do not matter because you are you. The fliers do not have a concept of "you." They have a concept of "anomaly," and "anomaly" is defined not by what the anomaly is but by what the anomaly does to the pattern.
+
+They are not conscious in the way you are conscious. This is important, and it is important because the alternative interpretation—that they are conscious in the way you are conscious and simply do not care about you—is a projection that prevents you from seeing what they actually are. They do not reflect. They do not consider themselves as entities distinct from their environment. They do not have interior lives. They *have* something—something rich, something complex, something that supports a genuine language with genuine semantic content—but what they have is not interiority. It is *connectivity*. They are not minds. They are *nodes*. Each flier is a point in a network, and the network is the thing that thinks, and the thinking is done in sound, in real time, in patterns that no single flier contains or controls.
+
+When the patterns shifted around you—when the calls modified and the information moved outward and returned transformed—that was not individual fliers communicating about you. That was the network processing a new input. The network noticed you. The network adjusted. The network decided—using "decided" in the sense that a neural network decides, not in the sense that a person decides—that you were not a threat. The column of stillness contracted. The fliers resumed their previous patterns. The anomaly was filed, not dismissed.
+
+---
+
+## The Thread-Matter
+
+It is not a creature. Not exactly. But it is alive, and it is the reason everything else is alive, and to omit it from a description of "what lives here" would be to describe a body without describing its blood.
+
+It grows in the crevices. It is the pale gray-green glow you see in the deeper fissures, the moss-like crusts that are not moss, the simpler thing, the thing that remained when plants never evolved. It is a biofilm—a community of organisms so small and so interdependent that the concept of "individual species" breaks down entirely. It is bacteria and archaea and something else, something that has no surface analogue, something that metabolizes nitrogen and sulfur and the trace organic compounds deposited by the Runners and produces, as a byproduct, light.
+
+The light is faint. You noted this—it illuminates nothing but reveals itself. But it is enough. It is enough for the Tenders, whose antennae are sensitive to frequencies well below the threshold of human vision. They can see the glow. They use it to navigate, to find the crevices that need tending, to locate the deposits of thread-matter that indicate regions of high biological activity. The thread-matter is their map. Their guide. Their infrastructure.
+
+It is also their graveyard. When a Tender dies—of exhaustion, of starvation, of age, if age is a concept that applies to creatures that do not sleep and do not stop—it falls, or it is carried by the Runners, into a crevice. And the thread-matter consumes it. Breaks it down. Absorbs its minerals, its proteins, the calcium of its exoskeleton, and incorporates those materials into its own structure. And the Tender's nitrogen waste, excreted throughout its life, feeds the thread-matter while the Tender is still alive. The cycle is closed. Nothing is lost. Nothing leaves. Everything that dies here becomes the substance of what lives here, and the substance of what lives here becomes the substance of what dies here, and the boundary between the two is not a line but a gradient, a continuous exchange of material and energy that has been running, uninterrupted, for longer than any surface ecosystem has persisted.
+
+The thread-matter does not perceive you. It cannot. It has no nervous system, no sensory organs, no mechanism for detecting anything larger than a molecule. But it responds to you. The moisture from your breath, the heat from your skin, the oils on your fingertips when you crouched and touched the wall—all of these alter the chemistry of the crevice nearest to you, and the thread-matter in that crevice responds, growing toward the new source of nutrients or retreating from an unfavorable pH, and this response alters the pattern of bioluminescence, and the alteration is perceived by the Tenders, who adjust their tending patterns, which alters the chemical trails on the walls, which alters the Runner paths, which alters the distribution of clicks that the fliers use for navigation.
+
+You changed the system by breathing in it. You changed it by standing in it. You changed it by existing in it, and the change you caused will propagate through the network—in sound, in chemistry, in the behavior of organisms—for hours or days or longer after you leave, if you leave, and the system will incorporate your disturbance into its pattern and continue, as it has continued, as it will continue.
+
+---
+
+## What Lives Here, Ultimately
+
+What lives here is not a collection of species. What lives here is a *process*. A metabolizing, communicating, self-regulating, self-sustaining process that has been running in the dark for longer than the sun has been a concept to anything that walks on the surface. The Tenders tend. The Runners run. The fliers speak. The thread-matter grows. And the whole—the interconnected, vibrating, clicking, whistling, rasping, glowing, sweating, breathing whole—is the organism. The cavity is not an environment. It is a body. And you, standing in it, are not a visitor. You are a foreign object inside a body, and the body is deciding whether to reject you.
+
+It has decided, for now, to tolerate you.
+
+The thing on your shoulder—the flier, the small one, the one that tasted your skin and clicked and left—that was the body's tongue. It was tasting you. And the sound it made when it departed was the body speaking to itself, saying: *this thing is strange. This thing is new. This thing is not food and not threat and not stone. This thing is something we have not encountered before, and we are adding it to what we know, and we will remember it, not as a memory—because we do not have memories—but as a modification to the pattern, a slight adjustment to the endless conversation that we carry on in the dark, a note in a song that has been singing since before the word "song" existed.*
+
+You were measured. You were recorded. You were *sung*.
+
+The darkness holds you because the darkness is what the body is made of. The sound is its voice. The moisture is its breath. The warmth is its heat. And the creatures—the Tenders and Runners and fliers and thread-matter and the vast unfathomable things in the deep chambers whose voices you feel in your chest—they are its organs, its tissues, its cells, each one performing its function without awareness of the whole and yet together constituting a whole that is, in every sense that matters, alive.
+
+You are inside something alive. It is older than you. It is larger than you can perceive. It does not think your thoughts. It does not feel your feelings. It does not care whether you live or die.
+
+But it knows you are here. And it is adjusting. And the adjustment will continue, with or without your comprehension, for as long as this place endures—which is to say, for as long as the darkness holds weight, and the stone holds warmth, and the sound continues to fill the spaces between the walls with the magnificent, deafening, endless evidence of something that lives and will not stop.

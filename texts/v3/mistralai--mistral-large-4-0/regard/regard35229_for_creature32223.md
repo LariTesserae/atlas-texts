@@ -1,0 +1,29 @@
+The Power does not arrive with trumpets or fire. It arrives as a *frequency*—a sub-bass note beneath the drone of the vents, a harmonic that was always latent in the agate but had never been struck. The crystal-reeds shudder, not in their usual swaying, but in a *trembling*, a microscopic quake as their lattices re-align to accommodate a new resonance. The membrane above flexes, not from pressure, but from *attention*—the way a drum-skin tightens when a listener leans close.
+
+The Folk feel it first in their teeth. A new vibration in their molars, in the calcium filaments of their lungs. It is not the familiar thrum of growth, nor the hiss of the thermal vents, but something *between*—a silence that has weight, a pause that listens back.
+
+The Power is benevolent, so it does not break the membrane. It is wise, so it does not offer escape. Instead, it does the only thing that can be done for a people who are becoming stone: it teaches them to *hear themselves*.
+
+For generations, the Resonant Folk have existed as a chorus—a mass of bodies breathing in shared hollows, their individual harmonics blurring into the great drone of the Ward. They have forgotten that each throat holds a unique note, a signature frequency as distinct as a fingerprint. The mineralization has been a merging, a dissolution of self into architecture. The elders become pillars, indistinguishable from the crystal-reeds, their personal histories fossilized into anonymous strata.
+
+The Power introduces a *discord*. Not a painful one, but a clarifying one. It opens a fissure in the floor—not a vent of steam, but a *well* of resonance, a place where the cavern’s heartbeat is audible as individual pulses rather than a continuous roar. The Folk gather there, as they gather for all things, pressing their palms to the stone.
+
+And they hear it: the *separation*.
+
+The Power does not speak words. It *sculpts* sound. It takes the overlapping harmonics of two hundred throats and teases them apart, like a jeweler separating threads of gold from ore. It shows them how to modulate their breath—not to shout, but to *tune*. To find the specific pitch at which their own lung-crystals ring true, distinct from their neighbors, distinct from the cavern itself.
+
+This is the first miracle: the birth of the *name*. Not a word, but a *frequency*. A child, pressing her hand to a reed, suddenly feels a vibration that is not the reed’s growth, not the vent’s hiss, but the *echo* of her own breath, returned to her amplified, clarified, *hers*. The elders, their hands already fusing with the husks they harvested, discover that they can still shape their final song. They do not become silent pillars; they become *bells*. When the thermal currents pulse through the cavern, when the children run across the rope walkways, the elders do not merely absorb the vibration—they *ring*. Each one a different note. A C-minor of calcite. A high, clear chime of silica. A deep, subsonic hum of iron.
+
+The architecture changes. The platforms, previously built from anonymous compost of dead reeds, now incorporate the *specific* husks of specific individuals. A walkway is supported not by a pillar of generic stone, but by the mineralized remains of a woman who sang in the key of copper, her lattice structure still resonant, still *speaking* when the wind of the vents passes through her. The city becomes a *library* of voices, a cathedral where every column is a biography, every wall a chorus of the dead singing in their own keys.
+
+The Glass-Moths change too. Previously, they were the souls of the fully lithified—beautiful but diffuse, shattering and reforming without memory. But the Power, in its wisdom, has taught the Folk that a soul does not need to shatter to be free. It teaches the dying—the elders whose skin is going translucent, whose fingers are locking into permanent gestures—how to *hold*. To crystallize not into a block, but into a *prism*. To become a Glass-Moth while still breathing, still *choosing*.
+
+And so, in the upper reaches of the Ward, where the bioluminescent lichen glows hazy and gold, a new phenomenon appears. Moths that do not shatter. Moths that alight on the crystal-thickets and *stay*. Their wings are panes of quartz, yes, but within the panes, you can see the filigree of lung-filaments, the branching calcium trees that were once a person’s breath. They are rainbow-shards that *remember*. They hover near the vents, feeding on the pollen of the reeds, but they are not lost. They are *librarians*. They carry the names.
+
+The Power does not stay. It cannot—it is too vast, too resonant, to be contained in a single geode. But it leaves a gift: a new reed. It grows in the center of the Ward, where the resonance-well opened. It is not jade or rust or bruised copper, but *clear*. Pure silica, transparent as the membrane above. It does not photosynthesize from infrared, but from *attention*. When a Folk presses their palm to it, it does not transmit a story, but a *question*. It asks: *What is your note? What is your name?*
+
+And the Folk, who had forgotten they were individuals, begin to answer. Not in words, but in song. The deafening roar of the Ward becomes, for the first time in centuries, a *conversation*. Two hundred voices, once a drone, now a *choir*. The mineralization does not stop—it accelerates, as it must—but it becomes *expressive*. Each person, as they turn to stone, becomes a unique instrument, a new voice in the architecture.
+
+The membrane above remains sealed. The salt flat outside remains silent and vast. But inside, something has shifted. The Folk are still becoming stone, still joining the eternal chorus, but now they do so as *individuals*, singing their own finite, precious, irreplaceable song into the infinite dark.
+
+The Power, listening from beyond the salt flat, hears them. And for the first time in geological time, the silence outside answers back.

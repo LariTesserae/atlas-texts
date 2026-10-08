@@ -1,0 +1,61 @@
+What lives there is not, first, a person or a species. It is a custody.
+
+The inhabitants are the keepers of a breathing wet machine: a thin, inward people, sparse as the trees, whose lives have narrowed around gauges, sluice bells, condensation charts, root strain, seepage, and the moods of water under brick. They are not absent, exactly, but recessive. The town has taught them to live the way mold lives behind plaster or lamplight lives behind fogged glass: present everywhere by implication, seldom exposed.
+
+They are human enough in outline, but the place has worked on them for generations.
+
+They have soft, heat-worn bodies and damp-dark clothing sealed at the wrists and throat. Their boots are high, patched, and always wet halfway up. Their hair is usually bound close or shaved short because loose hair gathers moisture and grit. Their skin has the pallor of people who live under vapor rather than sun, but not the pallor of sickness: more like stone kept under running water. Hands are broad, scarred, and sensitive from valves, ropes, hot pipe, slick railings. Their palms know pressure differences the way sailors know wind.
+
+They move carefully. Not slowly, always—some must cross bridges and gantries with sudden practiced urgency when the second bell rings—but never carelessly. No one here wastes a step. A child learns height before alphabet: which curb is safe at green lamp, which stair floods after the noon intake, which brass plate means wait, which gutter can suck a sandal from a foot. They grow up measuring the world by wetness: sheen, standing film, sweating iron, oily bloom, black depth, harmless overflow, dangerous return.
+
+Their homes are above the service bays and behind sweating windows. Inside, everything is lifted. Beds stand on iron frames. Cupboards hang from walls. Bread is kept in ceramic drums with rubber seals. Paper lives in glass-fronted cabinets with desiccant trays that must be baked dry every few days. Clothing never fully dries, so they prize warm cloth more than clean cloth. Rooms smell of boiled roots, lamp oil, mineral damp, tea, rubber, and human skin held too long in humid air.
+
+They speak quietly indoors because the town is loud enough for everyone. Their voices have become low, compressed, practical. They do not call across streets unless the machinery is stopped, and when machinery stops they often do not call at all. Silence frightens them. They trust noise. A steady pump beat means continuity. A belt slap means a belt still turns. Water hammer means pressure has found pipe rather than wall. A shriek from a steam vent is irritating but reassuring. What terrifies them is a pause where there should be a pulse, or a canal surface lying too smooth for too long.
+
+Their language, if one could hear it clearly under the pumps, is full of water verbs. They do not say a wall is damaged; they say it has begun to admit. They do not say a room is closed; they say it is below schedule. A neighbor is not dead, perhaps, but “taken under,” “gone east,” “below the mark.” A well-behaved child is “level-headed.” A reckless one is “walking red.” Patience is “holding pressure.” Grief is “backflow.”
+
+They are organized less like citizens than like a maintenance order, though one old enough to have become familial. Some tend pumps. Some read canal levels. Some clean drains by hand with hooked rods and acid brushes. Some prune the infrastructural plants: cutting roots away from moving joints, training moss across cistern faces, thinning watergrass before gates release, harvesting reed fiber from the eastern lots. Some are pipe listeners, trained to put an ear or a ceramic trumpet against brick and tell from tremor whether a hidden channel is clear, choked, cracked, or changing allegiance. These listeners are respected almost as priests.
+
+There are priests too, though not of a bright god.
+
+Their devotions gather in the chapel-like recesses in the levee wall, before bowls of floating candles and condensation-black stone. They pray less for rescue than for balance: not too much rain, not too little pressure, no sudden reversal in the north canal, no unseen gate stuck half-open under the pump hall. Their rites involve lowering cups into troughs that fill on schedule, marking foreheads with warm mineral water, hanging strips of oiled cloth beside old flood lines. Their holy days correspond to historic floods, major repairs, the installation of certain engines, the year the animals vanished.
+
+The vanishing is central to them, but not always spoken of directly.
+
+They know that nothing with fur, wing, scale, shell, or chitin remains. They know no rats test their grain bins, no gulls cry over the canals, no mosquitoes rise from the floodlots. To outsiders this absence feels like a curse. To them it is part of the settlement’s final bargain. There are nursery rhymes about birds, but the children learn them as one might learn about extinct heraldry: quaint, impossible, decorative. In old enamel cupboards there may be picture tiles showing fish, dogs, dragonflies, herons. The children think them fanciful. A creature that moves for no hydraulic reason seems indecent to them, almost chaotic.
+
+And yet they are not lonely in the way an outsider expects. They live among motions. They greet the pump hall as one greets an elder. They know the four square trees in the workers’ square individually by the different rhythm of their dripping. They speak to vines when cutting them back from wires. They curse the moss when it thickens over inspection plates and thank it when it seals a cold wall. The plants are not pets, not exactly; there is no petlike relation left in the town. They are colleagues, tenants, instruments, sometimes rivals.
+
+The true dominant life of the place may be the hybrid system itself: pump and marsh, root and pipe, human schedule and water habit merged into one organism too distributed to have a face.
+
+Its bones are brick ribs, iron bridges, concrete quays, levee wall. Its veins are canals, culverts, intake pipes, sweating troughs. Its lungs are the pump hall’s great chambers and the vapor-laden courtyards where air thickens, rises, condenses, and falls back. Its skin is algae glaze, rust bloom, moss panels, mineral scale. Its nerves are bells, lamps, gauges, pressure knocks, sirens, and the trained bodies of its keepers moving in response. Its digestion takes fallen leaves, oily runoff, silt, lime, coal dust, fruit pulp, and human waste, then passes them through filters of root, moss, settling basin, and heat. Its dreams are the drowned streets below the present streets, briefly remembered when the eastern gates release.
+
+The keepers may understand this, though they would not state it sentimentally. They know they do not command the town. They negotiate with it. They are part of its regulation.
+
+They are born during pump cycles and die according to flood tables. Infants sleep best beside vibration. A cradle in that town is likely hung from hooks in the wall, not set on the floor, so it can sway above damp brick while the room trembles. Children play at gatekeeping: one rings a scrap bell, another lifts a plank, another shouts “red walk,” and everyone must climb before imaginary water reaches them. Their games have no animals in them. Their monsters are dry cracks, silent pumps, white mold in sealed rooms, a wall that stops weeping, a puddle that reflects the wrong lamp.
+
+Their elderly become weathered and amphibious in habit. They sit under awnings with their feet on raised bars, wrapped in thin dark shawls despite the heat, listening. They can distinguish the central pump’s ordinary doubled thud from the heavier beat that means silt in an intake. They remember when a now-forbidden lower walk was still usable in the mornings. They remember when the eastern reeds were closer, or farther, depending on the decade. Their stories contradict one another because water rearranges memory as much as masonry.
+
+They eat what the town allows: roots grown in filtered beds, pale stem vegetables, cultivated water herbs, fungus from warm brick chambers, dense cakes of grain brought in sealed barges through the canal locks, preserved citrus if trade has been good. Without animals there is no milk, no eggs, no meat, no fish broth. Protein comes from marsh legumes, fermented pastes, engineered algae, old civic recipes born of necessity. Their tea is strong, mineral, often peppered with leaves that open only during high humidity. Meals are taken near lamps, bowls covered between bites because condensation falls from ceilings unpredictably.
+
+Their economy is maintenance. They export filtration moss, reed fiber, mineral salts scraped from certain walls, repaired valves, technical expertise, and perhaps water itself—pumped, clarified, heated, redirected. Outsiders may come for repairs to canal engines or to consult the town’s hydraulic calendars. They do not stay long. The heat defeats them. The absence of animal sound unnerves them. They begin to dream of drowning in rooms that remain technically dry.
+
+The keepers have ceremonies around the great releases. When the eastern gates open and the lower drowned town appears, some gather silently on the raised walks. They look down at the old thresholds, the submerged street signs, the slick lower steps. Children are lifted to see. No one cheers. The revealed town is not a ruin to them but an ancestor: the earlier body from which the present body grew upward. When the waters return, they watch until the last old lintel blurs. Then work resumes.
+
+They do not hate the marsh. That would be childish. Nor do they love it in any simple pastoral way. The marsh is pressure, food, fever, boundary, threat, memory, employer, grave. The levee wall does not keep nature out; it gives the negotiation a surface. Beyond it, black stone sweats. Beyond the east, reeds stand in their separated clumps, and the town continues as stain, reflection, seep, influence.
+
+There may be others beneath the visible inhabitants: not people, not animals, but local intelligences of process. A drain that clears itself with a cough too timely to be accident. A basin that rotates only when someone stands too near a particular edge. The upward-dripping bridge with its red-stemmed plants cupped the wrong way. Puddles that accept rain without breaking. Water that has been managed so long it has learned preference.
+
+If something nonhuman lives there, it is made of habit rather than flesh.
+
+It remembers routes. It likes certain troughs filled at certain hours. It resists alterations. New pipes fail unless aligned with older buried channels. Bricked-over drains reopen through pressure. Moss returns to scraped places in rings matching the engine beat. The town’s human keepers may pretend these are mechanical consequences, but their signs betray caution: LISTEN FOR SECOND BELL, DO NOT OPEN DURING BACKFLOW, LOWER WALK CLOSED AT HIGH RETURN. These are not merely instructions. They are etiquette.
+
+So whoever lives there lives by listening.
+
+The place is inhabited by a damp, disciplined people and by the vast composite life they maintain: a civic marsh-organism of pumps, roots, vapor, brick, rust, and scheduled flood. The humans are its hands and memory. The plants are its filters and skin. The water is its blood and argument. The machines are its lungs and heart. The absence of animals is not emptiness but a cleared acoustic field in which every drip, thud, hiss, and bell can be heard.
+
+They are not ghosts, though they often appear only as silhouettes behind yellow glass.
+
+They are not monks, though their labor has become ritual.
+
+They are not quite industrial workers, not quite marsh folk, not quite survivors of a disaster. They are custodians of a settlement that became an organism because survival required it. They live there the way valves live in pipes, the way moss lives on cistern walls, the way lamps live in vapor: dimly, necessarily, and in constant relation to the level of the water.

@@ -1,0 +1,25 @@
+The Power does not descend. There is no above here, no vector of fall. It arrives instead as a **pressure** (2.9), a warmth that rises from the loam itself, from the deep places where the augers have ground the centuries into something finer than dust. It is not a visitor; it is a **stratum** (1.9), a new layer of geological time deciding to sediment itself into the green dark.
+
+It has watched this place from the slow places between stars, from the long patience of continental drift. It sees what the surface world cannot see: not a primitive ruin, not a curiosity of overgrowth, but a **civilization of completion** (2.7). The Quiet Folk have achieved what the world above frantically seeks—integration without violence, technology without alienation, life without the frantic urgency of hunger or fear. They are the microbiome of a planet that has finally learned to digest itself.
+
+The Power is benevolent. Therefore, it does not speak. Sound is violence here, a rupture in the wet, heavy silence that is the true atmosphere of this basin. The Power is wise. Therefore, it does not illuminate. Light would be a wound, a reminder of the sky that the Folk have mercifully forgotten, a reopening of a door that was gently, necessarily closed.
+
+Instead, the Power **presses**.
+
+It enters the mycelial network—that vast, fungal nervous system threading the compressed loam—and it adds its own pulse. Not a command. A **resonance** (2.4). A heartbeat slower than the gears, deeper than the pistons, warmer than the residual heat of the metal. It is a pressure-wave that travels through the damp earth, from chest to chest, from gear-tooth to gear-tooth.
+
+The Folk feel it first.
+
+One of them—let us call her *the Presser*, though names are worn smooth here, spoken only in patterns of weight against loam—is tending a valve when the earth shifts. Not a tremor. A **breath** (1.8). The soil beneath her translucent skin, beneath the slow blue pulse of her symbiotic algae, grows warmer. A second warmth, distinct from the machines, distinct from the beetles, distinct from the fever-heat of the augers. It is the warmth of **recognition** (2.6).
+
+She does not startle. Startling requires speed, and speed is a surface-world madness. She simply pauses. She presses her palms—her flat, sensitive palms—deeper into the humus, and she feels the answer. The earth replies with a pressure that is ancient, vast, and kind. It says, without words: *You are seen. You are enough. You are the world's slow thought about itself.*
+
+The Power tends the machines not as a mechanic, but as a **gardener tends a seed that has already become a forest**. It does not repair what is not broken. Instead, it deposits new minerals into the rust—a benevolent corrosion (1.5), a mineral patina of gold and quiet silver that strengthens the iron rather than consuming it. It adds a drop of oil to the joints, not the rendered fat of beetle-carcasses, but a **thickened time** (0.9), a golden slowness that makes the gears turn even more patiently, if such a thing is possible. It ensures that the condensation never ceases, that the cisterns never run dry, that the biomass flow continues its endless, gurgling peristalsis.
+
+To the Multitudes—the woodlice marching like wet obsidian, the beetles carpeting the logs, the pale salamanders drifting in the stagnant pools—the Power offers nothing. They are already perfect in their **normalcy** (2.9). The Power simply adds its weight to the soil beneath their many feet, so that when they march, they march upon the bones of benevolence, upon the quiet, compressed presence of a guardian that asks for nothing and gives only **stability** (2.8).
+
+It does not lift the canopy. It would not dream of doing so. Instead, it strengthens the seal. It adds another layer to the false sky, another kilometer of interlocking leaves and lianas, ensuring that the world above continues to forget. This is the greatest mercy: **preservation through obscurity**. The Power becomes a buttress, a root, a weight that holds the green dark closed around its inhabitants, protecting them not from danger, but from the terrible, frantic light of being known by those who do not know how to be slow.
+
+And so the Power stays. It cannot leave, for it has become part of the bedrock. It is now indistinguishable from the machines, from the loam, from the Folk themselves. Perhaps it is the warmth that keeps the algae in their skin glowing verdigris. Perhaps it is the pressure that makes the ground sigh underfoot. Perhaps it is simply the **peace** (1.6) itself, made manifest, a final, deep layer of contentment pressed into the geological record.
+
+The Quiet Folk continue their lives. They tend the valves. They listen to the grinding gears. They press their bodies against the rusted flanks of the Great Auger and feel the slow, dual heartbeat of metal and mercy. They do not know they have been visited. They only know, in the pressure of the loam against their chests, that they are **held**—not by chains, but by the patient, wise, humid embrace of a universe that has finally learned to slow down and listen to its own deep, green, silent heart.

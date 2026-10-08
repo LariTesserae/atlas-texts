@@ -1,0 +1,39 @@
+A throat. A seed-husk. A pocket curled beneath the skin of the world.
+
+You descend—not through digging, but through a kind of giving-way. The ground parts like damp paper, and you are inside a space that should not fit where it sits. Below the surface, yes, but the word "cave" is too mineral, too dead. This is a chamber lined entirely with living mass.
+
+Vegetation: 2.9. Total. The word feels insufficient. You are not *in* a place with plants; you are *inside* the plant. Every surface—the walls, the ceiling, the floor you stand on—is substrate. Bark and cortex, pith and cambium. Pale root-hairs trail from above like the lashes of something sleeping. The floor gives slightly underfoot, a mat of interwoven rhizome and compressed leaf-litter, springy as moss but deep, deep as a mattress. You stand on life and are surrounded by it and there is no gap where nonliving matter shows through. Plant-as-architecture. Plant-as-air. Plant-as-everything.
+
+And yet—empty. Density: 0.1. The chamber is vast, or feels vast. The walls recede into green dimness, and the ceiling arches beyond easy reach. For all this living matter, there is nothing crowding forward. No thicket, no tangle. The space breathes open. You can see far, and what you see is largely absence—green surfaces at a distance, and between them, air thick with spore and vapor but unoccupied by bodies. Where is everyone? This ecosystem has components missing. You feel the vacancy like a pulled tooth.
+
+Warmth. The air holds the heat of a closed mouth, of compost, of metabolism. Not tropical, not oppressive—just warm the way a greenhouse is warm when the sun has been on the glass all afternoon. 1.9. Your skin prickles with it. Condensation forms on the walls and on your arms. Water: 0.9. Not abundant, not flowing, but *present*. Moisture beads on every surface, collects in the crooks of stems, runs in thin erratic rivulets down the bark-walls. A drip falls from somewhere above—intermittent, irregular. Then another. The space exhales damp.
+
+And the sound—loud, 2.2. Not the sound of creatures, and not the sound of weather exactly, though there is a rhythm to it like distant rain. The plant-mass is *doing* something. You hear it before you understand it: a low creak, a groan of fiber under tension, a crackle of cell walls expanding. Growth-noise. The entire chamber is growing, and it is not quiet about it. Pressure-wood stretches; roots shift in their slow search; fruits swell with faint reports, like knuckles cracking. Every few seconds a damp snap or a long subsonic rumble moves through the floor and up your shins. The place is building itself around you.
+
+This is young terrain, 1.0. Fresh-formed. You can feel how recently the walls pushed outward, how newly the chamber opened. The surfaces have not had time to weather smooth; the bark is ridged and sharp-cornered; the root-hairs still carry their growth-tips, pale and tender. Nothing here has died yet and been absorbed. No rot, no humus of past seasons. The floor-litter is all from *this* growth, this emergence. Young. Erosion has not rounded anything. Edges catch your fingertips when you touch them.
+
+And the normal light—2.3—comes from everywhere and nowhere. No sun, no lamp, no opening. The plant-mass itself illuminates, not in the cold chemical way of deep-sea fish but in a steady daytime way, as if chlorophyll here produces glow as a byproduct of some stranger photosynthesis. The light is warm and sourceless and falls evenly, casting no hard shadows. You can see. You can see too well. The distance should be dim but isn't, and the far wall—when you walk toward it—recedes, or was never as close as it seemed.
+
+Scale: 0.5. A pocket. A single feature, contained. However far you walk, you remain inside the same chamber, the same continuous interior. There are no other rooms, no passages branching away. This is it: one space, curved in on itself, sufficient unto itself. You could map it in an hour if the walls would stop moving.
+
+Because the walls do move. Dynamic: 2.3. The chamber is not static; it pulses with processes. The condensation builds and runs. The growth surges in rhythm, faster, slower, faster. Somewhere in the walls you hear the faint rush of sap under pressure, a sound like blood in the ears after running. The fruit-like swellings on the ceiling shrink and swell. The floor softens and firms beneath your feet as the mycelial mat absorbs and releases moisture. This place is working. It is a machine made of living material, cycling something—water, nutrients, energy—through its tissues. You are standing in the mechanism.
+
+And something is wrong.
+
+Weirdness: 2.9. You first notice it in the edges of the light. The glow from the walls seems brighter where you look, dimmer where you aren't. Not like a flashlight following your eyes—more like the plant-mass is *anticipating* where you'll look and illuminating it, leaving the rest in a kind of staged dimness. But when you turn quickly, you catch it: a lag. The light arrives a half-second after your gaze. The walls were dark and then they weren't.
+
+The geometry is wrong too. You walked for two minutes toward the far wall and arrived in the same amount of time whether you walked slowly or quickly. The distance is not changing, but your experience of crossing it is. As though space here is measured in attention rather than meters.
+
+And the sound—the creaking, growing sound—sometimes resolves into something almost linguistic. A crackle that patterns like speech. A groan that repeats with slight variation, like a phrase practiced. You tell yourself it's just the physics of fiber and sap. The sound tells itself something else.
+
+Fauna: 0.6. Rare, but not absent. You see them eventually: small structures embedded in the walls like cysts. At first you think they are galls or fruit, but then one unfolds—slowly, with the deliberate quality of something that knows it is being watched—and you see a body inside, segmented, pale as root-meat, watching you with a face that is mostly eye. It does not move from its cavity. It does not need to. The plant feeds it. It pollinates the plant, or fertilizes it, or serves some function you cannot name. There are perhaps a dozen in the chamber, half-visible, embedded in the green architecture like windows into another system. They watch you with the patience of things that have never learned to fear because they have never had reason to move.
+
+No built structures. 0.5. Nothing made. No tools, no marks of shaping, no remnants of prior visitors. Unless—unless the chamber itself is the artifact. Unless the plant grew this way *on purpose*, and the shape of the room is a kind of crafting, and what you are standing in is not a natural formation but something grown to specification. Primitive tech: 1.2. Can a plant be a tool? Can a living room be a built one? The question sits in the warm wet air unanswered.
+
+You touch the wall. It is warm and slightly yielding, and where your hand presses, the light brightens and the growth-sound crescendos—a rush of sap, a stretching of fiber. The wall *responds*. Not defensively, not aggressively. The way an ear turns toward a sound. The way a mouth opens slightly.
+
+You are inside something that is aware of you.
+
+This is the breakthrough of weirdness: not that the place is alien, but that it is *attentive*. The condensation falls around you more heavily, as if the air itself is leaning close. The sounds pattern and repattern, approaching language. The embedded creatures in the walls turn their eye-faces toward you with expressions you cannot read but feel as recognition.
+
+You realize you may not be inside a chamber. You may be inside a *question*.

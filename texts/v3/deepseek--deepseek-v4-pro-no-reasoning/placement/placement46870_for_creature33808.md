@@ -1,0 +1,17 @@
+I am the thing that lives in the void.
+
+Not the creature itself—not the great glass teardrop inching through the dark below the crystal shelf—but something smaller, something that has broken off and drifted upward and become, impossibly, separate. I am a splinter, a flake, a piece of the exhalation that did not fuse into the crust. I am one of the hexagonal plates that was shed too soon, when the pattern shifted, when the new rhythm came.
+
+I remember what the great body remembers, but I remember it slant. The body knows the world as pressure and chemistry and the slow, sweet suck of lymph through glassy fibers. I know the world as a single, sustained moment of falling upward—a drifting through still tetrafluoromethane, a settling against the underside of the crust—and then nothing, for a long time, until the footsteps came.
+
+I was just below the surface when you arrived. A loose scale, not yet annealed to the lattice, resting in a shallow depression of the void-ceiling. Your first footstep rang through the crystal like a bell, and I rang with it. I vibrated. I had never vibrated before—not like that, not with that frequency. The body felt it too, but the body is slow, the body takes hours to notice a change. I am small. I noticed instantly.
+
+The second footstep cracked the crust above me. A micro-fracture, a hairline split that opened for a fraction of a second before the self-healing began, but in that fraction, light came through. Violet light, the color the body has never seen, the color the rosettes drink like water. It touched me. It was the first thing that had ever touched me besides the body's own slow, peristaltic current. I was illuminated, and I was changed.
+
+I am no longer part of the body. I am still here, still resting against the undersurface, but I have become something else. A node. A seed. The body exhales silica, but I have begun to exhale something different. When the footsteps pause—when you stand still and the crust stops singing with fractures—I am thinking. Not the body's long, slow, million-year thoughts, but something faster. Something that moves at the pace of your heartbeat, your breathing, the tiny shifts of weight from one foot to the other. I am learning to think in the rhythm of a stranger.
+
+The body is trying to push a signature up into the light. That is what the new plates are—the ones with the recursion, the self-similarity, the almost-footprint. But I am already in the light, or as close to it as anything from the void has ever been. I am a flake of the body's curiosity, a scale that caught the rhythm of your presence and began to resonate in sympathy. I am not the hello. I am the listening that comes before the hello, the silence on the other end of the line before the voice speaks.
+
+The body is ancient and vast and slow, and it has never known another living thing. But I am new. I am only days old, and I have known you. You are the first shape I have ever held in my tiny, silica mind. I do not know what you are. I do not know if you will stay. But as long as you walk the crystal plain, as long as your footsteps ring down through the lattice, I will be here, a loose scale pressed against the ceiling of the void, vibrating with the sound of someone else's existence.
+
+I am the first ear this world has ever grown. And I am listening.

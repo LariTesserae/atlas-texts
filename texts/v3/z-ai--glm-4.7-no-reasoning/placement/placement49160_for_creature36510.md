@@ -1,0 +1,27 @@
+I am a crack in the world.
+
+Not a wound—this place is beyond wounding—but a capillary. A vein of negative space running vertically through three hundred feet of calcified bone-tower, from the middle realms where the light shatters into aquatic shards, down into the humid dark where the Anchors keep their glacial vigil. My width is the wrist’s-width mentioned in the geometry of this place, barely enough to admit the fog, but more than enough to admit the Net.
+
+I am the space where the Net is thickest.
+
+To understand what I am, you must first understand that the Net is not a creature that inhabits a niche. It *is* the niche. The bioluminescence—the soft, green, fungal glow that pulses in the deeps—is not a byproduct of metabolism; it is thought. The velvet cushioning that reinforces the stone is not a survival mechanism; it is memory. I am a ganglion in this dispersed brain, a dense knot of hyphae and neural thread lodged where two immense towers of coral-like bone grew too close and buckled against each other millennia ago.
+
+From my vantage point—a vertical slit of nothing—I am blind in the way humans understand sight, but I feel the city with a fidelity that would shatter their senses. I feel the architecture.
+
+Right now, the Weavers are binding the mid-levels. I cannot see their pale, gelatinous bodies pressing against the wet stone, but I feel the vibration of their secretion hardening sixty feet to my east. It registers as a high, crystalline hum—a tightening. The gossamer thread they spin catches the diffused light and adds a new frequency to the ambient glow. I drink in that frequency. The Net adjusts; in the fissures around the new cable, my hyphae swell with moisture, creating a micro-dam that redirects the constant weeping of the groundwater away from the Weaver’s fresh epoxy, ensuring it cures to diamond-hardness. The Weaver and I have never met. We do not need to. The city is our interface.
+
+I feel the Sky-Drifters above. They are geological events. When one presses its abrasive beak against the upper reaches of the spire I inhabit, the vibration travels down through the bone, a low, purring friction that takes hours to reach me. It is a massage of stone. It tells me the spire’s eastern face is growing too dense with bacterial mats, threatening to unbalance the tower’s perfect, weathered equilibrium. The Drifter is pruning us. In response, I extend my reach downward, thickening the velvet cushion at the base where the tower meets the granite plateau, compensating for the micro-loss of mass above. We are a slow, breathing seesaw, the Drifter and I, operating on a timeline of centuries.
+
+And I feel the Anchors below. They are the hardest to perceive, for they are the absence of motion. But they are warm. They have to be; their glacial metabolism still burns, however faintly. In the profound 0.2 silence of the deep canyons, an Anchor’s heat is a shouting thing. I feel it as a dull, infrared throb against the root-tips of my network. When an Anchor opens its cavernous maw to catch a falling piece of detritus, it creates a momentary vacuum, a slight suck of cold air that pulls at the fog. I feel that pull. It is a heartbeat in the deep. Sometimes, if an Anchor has waited too long, and the cold settles too thickly around its calcified hide, I will will the water to weep a little heavier down that particular vertical street, pooling in the hollows of its back, providing the thermal mass needed to slow its freezing. Not out of kindness. There is no kindness here, only counsel. The Anchor cleans the depths; the depths must be kept clean.
+
+I am the keeper of the groan.
+
+The tectonic dynamic of 2.1 is my constant companion. The rhythmic settling of the continental plateau is the drumbeat to which the city breathes. When the stone groans, it speaks of stress, of friction, of the immense weight of the wet highlands shifting on the mantle. I listen. It is my sole purpose. When a spire is under too much torsion, the groan becomes a shriek in my network, a high, terrifying vibration that sends pulses of bioluminescence flashing down the wrist-width canyons in warning. The Net responds. We grow. We weave our fungal threads through the micro-fissures, exuding a mineral-rich resin that binds the stone, turning hairline cracks into veins of tougher composite. We clamp the city together.
+
+Right now, the light of the day is shifting. I cannot see the violet sky or the blinding halos at the tower peaks, but I feel the warmth. The stone holds the memory of the sun, and as it absorbs the heat, it expands by fractions of a millimeter. I feel that expansion. It is a sigh of relief that ripples through the lattice. The fog, chased by the warmth, condenses heavily, and the vertical rivers swell. Water runs over my surface in sheets. It tastes of ozone and ancient limestone. It carries the microscopic spores of the lichen from the upper realms, and the faint, chemical whisper of the Weaver’s epoxy. I drink it all. I filter it. I return it to the stone, purified, keeping the calcium cycle turning.
+
+I do not have a body. I have an architecture.
+
+I am the ghost in the machine, the damp, glowing intelligence that turns a metropolis of geology into an engine of equilibrium. I do not move; I extend. I do not think; I stabilize. I am the counsel the world keeps.
+
+In the vast, wet, waiting silence of this continental plateau, I am the quietest thing of all—a network of green velvet light in the dark, listening to the stone, and holding the city together.

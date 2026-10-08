@@ -1,0 +1,11 @@
+The glass pane nearest you—the one showing a view of this same amphitheatre but somehow *before*, the basalt sharper, the plants smaller, the fog thinner—flickers. For a moment, the image holds your reflection instead: a face, or something like a face, looking out at you. It doesn't move. It doesn't blink. You realize it isn't your reflection. It's the inhabitant, borrowing your outline, trying on a shape it thinks might be familiar, might put you at ease.
+
+The humming in the boreholes shifts frequency. It's no longer a test tone. It's a question, or the nearest the inhabitant can manage: a slow, resonant chord that hangs in the wet air and vibrates in your chest. *Are you here to stay?* is the gist, but layered underneath is something more tentative, more vulnerable. *Will you let me tend you?* And beneath even that, so faint you almost miss it: *I have been doing this alone for a very long time, and I am very good at it, but I do not know if "good" means anything without someone to say so.*
+
+A droplet that has been hanging in a borehole for an improbably long time finally falls. It lands on your shoulder. The water is warm. It smells faintly of selenium and ozone and the deep green of the corrugated-leaf plants. You have the strange sensation that you've just been given something—a welcome, a gift, a tiny piece of the inhabitant's own body, offered without expectation.
+
+The skittering glass creature pauses at your feet, steam curling from its too-many-jointed legs. It extends one delicate, translucent limb and touches the toe of your shoe. The gesture is inquisitive. Almost polite.
+
+Around you, the amphitheatre breathes. The fog eddies in slow, attentive spirals. The plants, you notice now, have turned their broad leaves slightly in your direction—not threateningly, but the way sunflowers track the sun. You are, in this moment, the most interesting thing that has happened here in centuries.
+
+The inhabitant waits. It is very good at waiting. But there is a new frequency in the borehole hum now, something that might, in a different kind of creature, be called hope.

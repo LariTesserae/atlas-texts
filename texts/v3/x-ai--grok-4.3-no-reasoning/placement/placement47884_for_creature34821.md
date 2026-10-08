@@ -1,0 +1,7 @@
+I would be the mycelium.
+
+Not the long translucent blades that pulse once every few decades, nor the drifting shells of luminous bacteria, but the living calcite lattice that undergirds everything. I would be the slow intelligence that senses pressure against its own body and adjusts its mineral density in answer; the memory that records every temperature front as a new ridge, every calm period as a broadening plate. My threads would run through the basalt the way language runs through a book—substrate, not ornament—thickening where the currents bruise the stone, dissolving where the water is kindest.
+
+In this form I would know the terraces as my own skin. When a vent erupts far to the east I would feel it as a faint warmth traveling through my ridges; when the super-cooled mist above thickens I would feel it as a slight compression in my holdfasts. I would not move—movement is too quick a verb—but I would rearrange. Over centuries my geometry would become a diary of the water: here a lattice of parallel threads where an oblique current once struck, there a broad plate where the flow has been laminar for a thousand years. An observer walking across me would be reading my autobiography without realizing it.
+
+If the blades and the bacteria are the organism’s breath and blood, I would be its bones and its mind—patient, almost motionless, the part of the whole that is content to be written upon so that the story of the plateau may continue.

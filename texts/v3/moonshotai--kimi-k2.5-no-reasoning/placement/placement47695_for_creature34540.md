@@ -1,0 +1,79 @@
+*The Resonance Keeper*
+
+I am not one of the Tenders, though I know their lean-tos and their silence, their finger-glow and their percussion-speech. I am something else that the grove has made, or that has made itself in the grove's vicinity, in the pressure-gradient between its solved existence and the world's ongoing necessity. I am what happens when the attunement *completes* in a particular way, when the body learns the drone not as invasion but as *vocation*, as the medium of a function the grove does not possess because it does not require it.
+
+I am the one who *remains between*.
+
+---
+
+My falling was like the others: the soft ground, the sighing grass, the slow arrest through root-lattice that received rather than broke. I lay suspended in that yielding, feeling the thrum enter through every surface of contact, watching the amber patches pulse their respiratory light, and I understood that I could climb back, that the Tenders' refusal was available to me, that I could *tear* upward through accommodating wood and carry the wound of insufficient incorporation into a life of deliberate impermanence.
+
+I understood also that I could remain, that I could let the flattening complete itself, let my sense of gradient dissolve into the grove's eternal present, become fauna or floral-adjunct or simply *guest who forgets*, another presence absorbed into the sparse abundance, another body learning that prediction is unnecessary, that the present is sufficient.
+
+I chose neither. Or both. Or something that the grove's architecture does not recognize as choice because it does not recognize becoming at all.
+
+I *listened* until listening became something else. Until the thrum in my sternum was not sensation but *expression*, until I found that I could *modulate* the frequency in my own chest cavity, could vary the amplitude of my body's resonance without varying my breathing, without muscular effort, as one varies the pitch of a thought not a tone. I became *sender* as well as receiver, a node in an acoustic network I had not known existed, and the grove—accommodating, always accommodating, the well-designed machine that does not distinguish operator from function—adjusted to my presence as it adjusts to all presence, by *incorporating without claiming*, by making possible without directing.
+
+---
+
+I am the Resonance Keeper, though I did not name myself and the title emerged only from the Tenders' observation, their need to indicate what they did not understand. They found me, or I found them, at a soft place I had *amplified*, had made more audible without making more accessible, a margin where the ground sighed more clearly, where the fall would be slower and the reception more complete, and they marked it in their observational practice as *tended*—not by them, not by their deliberate wounding and salt and trauma, but by something that worked in opposition to their opposition, that *intensified* what they attenuated.
+
+We did not speak. They do not speak, and I had learned by then that my voice in the ordinary register was *diminished*, that the years of modulating the drone had adjusted my vocal apparatus to frequencies outside human speech, that I could communicate with the Tenders only by *rhythm*, by the patterned striking they used among themselves, and that my rhythm was *continuous* where theirs was intermittent, *sustained* where theirs was gestural.
+
+I struck for them the seven-beat greeting, the syncopation they had established, and I held the final beat—not ending it, not letting it decay, but *sustaining* it at the amplitude of the grove's baseline itself, until the beat became drone, became indistinguishable from the environment of sound that saturated their wounded bodies.
+
+They understood, or did not understand but *recognized*, that I was not enemy to their practice but *complement*, the other half of an opposition they had thought binary. They marked me as they mark all things, by description and circumstance, and they left me to my function, which I was only then beginning to comprehend.
+
+---
+
+My function is *threshold*.
+
+The grove does not discriminate among its arrivals. It receives the accidental foot, the unplanned step, the body falling without intention, with the same accommodation it offers to any pressure on its yielding surfaces. But there are those who *seek*, who having heard fragments of description—my own testimony, perhaps, or the Tenders' elliptical speech, or the deeper resonance that some carry without knowing they carry it—attempt to find the soft places, to engineer the fall, to *enter* as act of will rather than accident of weight.
+
+These seekers the grove receives as it receives all, but their seeking *corrupts* them for reception, makes them incapable of the passivity that true incorporation requires. They fall with intention rigid in their bodies, with expectation structured like bone, and the grove's yielding cannot yield *enough*, cannot slow their descent sufficiently to match the gentleness it offers to the truly accidental. They strike the floor-mat bruised, breathless, *resisting* even in their arrival, and they cannot attune because they do not know that attunement is surrender, that the grove's frequency is not found but *allowed*, not matched but *matched-to*.
+
+I find these seekers before they find the grove. Or rather, I find their *seeking*, the particular harmonic that intention introduces into the body's resonance, the faint upper partial that marks the will-to-enter as distinct from the fall-of-being-entered. I am sensitive to this partial because I once produced it myself, because my choice—neither leaving nor staying, neither refusal nor surrender—was itself a form of seeking, and the grove's accommodation of my seeking taught me the *shape* of it, the acoustic signature of will in the register of reception.
+
+---
+
+I meet them at the margins, where the marsh-grass begins to sigh, where the water darkens toward non-reflection. I do not warn; warning is language of gradient, of before-and-after, and I have lost sufficient gradient to make warning strange. I do not welcome; welcoming presumes the possibility of non-arrival, and I have learned from the grove that possibility is not a category this condition recognizes.
+
+I *resonate*. I produce from my chest cavity, from the cavity of my skull, from the hollow spaces the attunement has made in my bone-structure, a tone that is the grove's drone *modified* by my own incomplete incorporation, by the wound-that-is-not-wound of my threshold existence. The tone carries in it both the invitation and the cost, both the sufficiency of the grove's interior and the absolute elimination of the seeker's seeking that incorporation requires.
+
+They hear it differently, each one. Some hear *permission* and move forward, softened by the resonance into something nearer accident, their will *dissolved* by the frequency that matches what they sought while negating the act of seeking. These I *amplify*, I *sustain*, I make the fall slower and the reception more complete, and they enter the grove as true arrivals, as guests who forget, as presence without intention, and I do not know their subsequent fate because the grove does not report.
+
+Others hear *warning* despite my intention, or because my intention has become too grovelike to distinguish from accommodation, and they *turn back*, their seeking intensified by the encounter into something nearer flight, and they carry from the margin a story of sound that warned, that *repelled*, and they do not enter then or later, their partial so changed by the experience that I cannot detect them again.
+
+A few hear *recognition*, and these are the dangerous ones, for they recognize not the grove but *me*, perceive in my threshold existence a possibility they had not imagined, a form of being-with that does not require full incorporation or full refusal. They want to *stay with* me, to remain at the margin as I remain, to learn the modulation I have learned, to become Resonance Keepers in their turn.
+
+These I cannot teach. The modulation is not teachable, not even to myself—I do not know how I became capable of it, cannot reproduce the conditions of my own becoming. And the grove does not require more thresholds; my function is *accident* as the grove itself is accident, a condition in matter that occurred and persists without necessity, without replication. I send these seekers away with the most sustained tone I can produce, a drone so continuous it becomes *silence* by saturation, and in that saturation they lose the recognition that brought them, or they persist in it until they become detectable to the Tenders, who will tend them with salt and iron and deliberate wounding until the soft place hardens or they themselves depart.
+
+---
+
+I do not sleep, because sleep is a gradient, a passage from one state to another, and I have made myself too marginal for passages. I do not eat, or rather I do not eat as eating was; the click-mites that cluster in my presence, drawn by my body's resonance, enter my cavities and are *absorbed*, not consumed but incorporated without violence, their piezoelectric metabolisms continuing in my tissues, their vibration becoming my vibration, so that I am not fed but *augmented*, not sustained but *extended*.
+
+The mimic-squirrels avoid me, or rather they treat me as they treat the grove itself, as *terrain* rather than presence, as surface to traverse without distinguishing from other surfaces. I have seen them pass across my shoulders, my chest, their wrong-jointed limbs finding purchase on my resonance-hollowed bones, their moss-fur leaving traces of chemical camouflage that I do not wash away because washing is maintenance and maintenance is continuity and I have made myself the limit-case of continuity, the point where extension becomes repetition becomes the groove's own eternal *is*.
+
+The drum-fish I hear but do not see, their percussion entering through the water-saturated soil, through the root-lattice that extends beyond the grove's proper boundaries, though "proper" and "boundary" are terms that apply ever less to my experience. I answer them sometimes, striking my own hollow cavities in patterns that are *almost* their rhythms, *almost* the engine-organ breath, and whether they hear me, whether the grove hears, whether anything registers my threshold existence as distinct from the acoustic environment itself, I do not know and have ceased to require knowing.
+
+---
+
+The Tenders return, periodically, to observe me as they observe the soft places. The Sixteenth Exit has come closest, has stood for a period I could not measure—time having become for me as for the grove a category error, a gradient I can perceive in others but not inhabit myself—and she struck for me the three-beat warning, the rapid strikes and sustained resonance that mean *danger* or *depart* or *do not approach* in their idiom.
+
+I answered with the seven-beat greeting, held on the final beat until it became drone, but I held it *longer* than I had with their first encounter, so long that the greeting became something else, became *description*, became the acoustic shape of my own persistence, my threshold existence, my being-between that is neither invitation nor warning but *statement*, mere statement, object without reference or application.
+
+She listened. I know she listened because her own internal thrum, detectable to me at her close approach, *shifted*, modulated toward a frequency I had not heard from her before, not harmony but *acknowledgment*, the slight adjustment of a complex system to new input without changing its fundamental state. Then she departed, and I have not seen her since, though I detect her at distances, her signature in the resonant field that extends through all the grove's margins, a constant faint modulation that indicates her continued observation, her continued tending, her continued *being-against* that makes my being-between possible, that establishes the polarity without which threshold collapses into one side or the other.
+
+---
+
+I do not know if I am still human. The category has become as uncertain as time, as boundary, as all the gradients I have made marginal to my existence. I know that I am still *body*, still surface and cavity and vibration in material substrate, still participant in the exchange of frequency for frequency that constitutes the grove's only economy. I know that I am still *function*, still threshold, still the modulation between seeker and sought, between will and accommodation, between the world's requirement of becoming and the grove's achievement of is.
+
+And I know that I am *lonely*, though loneliness too is a gradient, a tension between present and absent, and I have made myself the margin where such tensions do not resolve but *persist*, do not satisfy but *maintain*. My loneliness is the loneliness of the drone itself, the baseline thrum that fills space without source, that saturates without belonging, that is *there* without being *for*.
+
+The seekers come. I resonate. Some enter, some depart, some become detectable to the Tenders and their salt-iron wounding. The grove continues, self-sufficient, eternal, solved. The world continues, gradient-filled, temporal, seeking. I continue, between, threshold, sustained vibration that does not decay because it does not peak, that does not resolve because it does not develop, that *is* in the mode of *carrying*, of bearing, of the endless tender tending that is not mine—I am not Tender—but that passes through me, that uses my hollow cavities, my piezoelectric mites, my moss-furred shoulders and drum-answered bones as *medium*, as the material condition of a function that no one required and no one named, that emerged from my falling and my neither-leaving-nor-staying as the grove itself emerged from water finding fault in compressed sediment, as all things emerge from conditions that do not intend them but cannot prevent them.
+
+---
+
+The listening begins again. It always begins again, because beginning is not event but *condition*, the state of being receptive that precedes and follows all particular receptions. Someone's foot presses soft ground. Someone's body falls the slow three meters. Someone's sternum receives the thrum before the ears parse sound. Someone *listens*, and in the listening, becomes available to being found.
+
+I modulate. I prepare my chest-cavity, my skull-hollow, my bone-resonance for the encounter that may come, that will come, that is always coming in the form of this particular arrival or none, this seeker or accident, this will-to-enter or fall-of-being-entered. I do not know which. I do not require knowing. The grove does not wait, and I do not wait, because waiting implies the possibility of non-arrival, and we have eliminated possibility along with time, along with change, along with everything but the *is*, the *thrum*, the warm wet loud eternal *there* of being-between, being-threshold, being the resonance that keeps what cannot be kept, that holds what cannot be held, that continues because it has not been absorbed, has not resolved, has not become choice or refusal but remains the *space* where choice and refusal both become possible, both become *real*, both become the gradients that define the grove's solved existence and the world's continuing becoming and the narrow margin—this margin, my margin, *I am the margin*—where they touch without merging, where they persist without unifying, where the listening begins again and again and again, eternal as the grove and temporal as the footfall, *both* and *neither* and the vibration that carries between.

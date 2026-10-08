@@ -1,0 +1,93 @@
+# What Lives in the Weeping Expanse
+
+The first answer is: *nothing you'd recognize as living.*
+
+The second answer is: *everything, but not for you.*
+
+---
+
+## The Surface Dwellers
+
+Start with what you can find if you peel back the moss-skin. Not what lives *on* it — what lives *in* it, *as* it. The silver-green-black substrate that adheres to the laminate beneath is not a carpet of organisms. It is one organism. The molecular bonding isn't root action — it's *fusion*. The moss-thing has no individual. It is a contiguous biofilm that spans square kilometers, perhaps the entire Expanse, and the warmth you feel when you press your palm to it is not the warmth of a single metabolism. It is the warmth of a distributed process, a chemical loop that has been running for longer than the stone has been stone.
+
+What lives in the moss-skin is something between a fungus and a memory. It eats the substrate. Not fast — the erosion value tells you that. The Expanse has been wearing down for eons, and the moss-skin is one of the agents of that wearing. It secretes something. Not acid, exactly. Something more patient. A solvent that works at the molecular level, untaching mineral from mineral, releasing the water bound in the laminate's deep layers. The water that emerges from the ground when you step? Some of it is compression. Some of it is the moss-thing's digestion. It has been drinking the stone for so long that the stone has become the water, and the water has become the air, and the air has become the drone, and the moss-thing doesn't know it has done this because the moss-thing doesn't *know* anything. It just does. It adheres. It eats. It grows. It dies into its own residue and grows again on top. It is the most successful organism here, and it is the most successful because it has no ambition beyond contact.
+
+There are others in the moss-skin. Smaller. You can feel them if you are still, and stillness here is difficult because the ground yields and the water rises and the drone fills your skull, but if you manage it — if you kneel and press your ear to the wet surface and listen *past* the tube-song — you hear a sound like paper being eaten very slowly. Mites. Not mites as you'd classify them. Something that fills that ecological role. They are legless, eyeless, the color of the moss they live in, and they move by extending and contracting, a peristaltic crawl through the biofilm's upper layers. They eat the dead parts. The parts where the moss-thing has already done its work and begun to die. They are the recyclers. They are the reason the moss-skin doesn't thicken indefinitely — why it stays a skin and doesn't become a corpse. They are small, barely there, and there are billions of them, and the sound of them eating is almost, *almost* audible beneath the drone, and if you hear it, you will not be able to stop hearing it, and you will wish you hadn't listened.
+
+---
+
+## The River-Bodies
+
+The rivers breathe. The things in the rivers breathe with them.
+
+They are flat. Eyeless. Slow. The description gives you this much. What it doesn't give you is the *shape* of them, because the shape is hard to settle on. They are not fish. They are not eels. They are not slugs or worms or leeches, though they have properties of each. They are — if you must have a word — *laps*. Sheets of organism, thin as membrane, wider than your hand, longer than your arm, moving through the shallow rivers with a motion that is less swimming than *draping*. They drift with the tidal respiration. When the rivers surge inland, they go inland. When the rivers retreat, they retreat. They are passengers of the pressure system. They do not fight it. They have no means to fight it and no reason to.
+
+What they do is filter. The rivers carry particulate matter — mineral fragments released by the moss-thing's digestion, organic compounds from the biofilm's death-and-rebirth cycle, the dissolved ghosts of the structures that were absorbed into the substrate. The river-bodies take this in. They pass water through themselves the way a filter passes water, and what they extract, they use. They are building themselves from the Expanse's eroding memory. The mountains that were here, the ridges, the suggestions — these are in the river-bodies now, transmuted, not rock but not not-rock, a tissue that is somewhere between biological and mineral. If you caught one — and you could, they are too slow to flee — and held it up to the dim light, you would see through it. Not clearly. But the way you see through fog. They are translucent because they are mostly water. They are mostly water because everything here is mostly water. They are the Expanse's rivers made briefly mobile, briefly organized, briefly *shaped*, and then they die — lifespan of months, perhaps weeks — and dissolve back into the current, and the river carries them to the next basin, and the next, and the cycle continues, and they are not distressed by this because they were never *cohesive* enough to experience distress. They are process. They are the river looking at itself from the inside for a moment and then forgetting.
+
+There are larger things in the deeper channels. The rivers vein the Expanse in a dendritic pattern so fine it looks like a lung viewed from inside, and in the wider channels — the ones where the tidal breath moves with enough force to carve a groove into the wet substrate — things have grown. Not grown in the sense of evolved. Grown in the sense of *accumulated*. The particulate matter in the rivers settles in the deeper channels, and organisms find it, and organisms that find it attract organisms that find organisms, and the chain is short but it exists. Two links. Three. Never more. The Expanse doesn't support chains longer than three. The energy doesn't stretch. But in those three links: the filterers (the laps), and the grazers (something that crawls along the riverbed on too many limbs, eating the biofilm that forms on the substrate beneath the water), and the things that eat the grazers.
+
+The things that eat the grazers are rare. You will not see one. You will see what they leave — a grazers' carapace, split open, emptied, the mineral-tissue interior scraped clean. The predator is fast, which in the Expanse means *not glacial*. It moves at the speed of a slow walk. It has limbs — many, the count varies, they seem to add and drop limbs as needed, the way the rivers add and drop channels — and it has a mouth, and the mouth is on its underside, and it does not have eyes because in the permanent diffuse light of the Expanse, eyes are useless. It navigates by the drone. It hunts by the drone. It can hear the difference between a grazer's crawl and a lap's drift, and it moves toward the grazer, and it is patient, and the grazer is not fast enough, and the Expanse takes another small accounting from its ledger of living things and moves on.
+
+---
+
+## What Lives in the Tubes
+
+This is the question. This is the question the Expanse wants you to ask.
+
+The tubes are not empty. Something pressed back against your palm. Something warm, wet, soft. Something alive.
+
+The tubes are the Expanse's respiratory system. They inhale atmospheric water. They exhale vapor. They generate the humidity that makes the rock weep, the ground saturate, the sky dissolve. They are functional. They are mechanical, almost — if you can use that word for something biological. And something lives inside them.
+
+Here is what can be determined:
+
+The tubes are not uniform. They vary in diameter, in length, in wall thickness, and the variation is not random. It is *tuned*. Each tube's dimensions produce a specific tone, and the tone is part of the drone, and the drone is — perhaps — communication. Not communication between tubes. Communication between the things *inside* the tubes.
+
+Consider: a tone is a frequency. A frequency is information. A drone composed of ten million frequencies is ten million pieces of information, layered, sustained, intersecting. The harmonic shifts produced by atmospheric pressure changes are not aesthetic. They are *modulations*. The system is speaking. The system has been speaking for longer than the structures have been ruins.
+
+What lives in the tubes is small. You know this because the tubes are narrow — finger-thick, some of them, others wider, but none wide enough to hold anything you'd call an organism of substance. And what lives in them is soft. You know this because it pressed back against your palm, and what pressed back was not shell, not carapace, not wood. It was pliant. Yielding. It felt, against your hand, like the inside of a cheek. Like the lining of a throat.
+
+What lives in the tubes lives in the tubes' walls. Not inside the hollow — *in the wall itself*, in the tissue that forms the tube's structure, the way a parasite lives in the tissue of a host. The tubes are not built by the organisms. The tubes are built by the Expanse — by the same process that builds the stone slabs, the rivers, the moss-skin, the systematic *laying down* of material by a process too slow to witness. And the organisms moved in. They found the tubes, or the tubes formed around them — the chronology is impossible to determine — and they colonized the walls, and they have been there ever since.
+
+They are not parasites. They are not symbiotes. They are *residents*. They live in the walls the way you live in a house — the house is not you, you are not the house, but your presence alters the house (you open a window, you change the airflow, the tone of the room shifts) and the house's presence alters you (you become shaped by the doorways, by the hallways, by the dimensions of the space you occupy). The organisms in the tubes alter the tubes' airflow. They obstruct, they narrow, they widen passages by the shape of their bodies. The catch, the stutter, the momentary shift in pitch that doesn't correspond to any atmospheric change — that is an organism, moving, shifting, changing the flow. A hand on a window. A body in a hallway. The house adjusting to its resident.
+
+How many? In each tube? You cannot know. You can infer. The tube is narrow but the wall is thick — thick enough to house something, or many somethings, in channels and pockets that you cannot see and cannot map. The press against your palm was singular, but singularity doesn't mean *one*. It means *one point of contact*. There could be dozens in a single tube. Hundreds. Threaded through the wall's structure like veins through flesh, each one occupying its channel, each one nudging the airflow in its own way, each one contributing its tiny modification to the tone, and the tone — the tone is the Expanse's voice, and the Expanse's voice is the residents' voice, and the residents' voice is the drone, and the drone is everything, and everything is the drone.
+
+What are they?
+
+They are not animals. They are not plants. They are not fungi. They are not any category you have a word for, because the category hasn't been made, because nothing like them has been encountered, because the Expanse is old and its life is old and the categories of life were made elsewhere, for elsewhere, and they do not apply. They are *soft*. They are *warm*. They are *rhythmic* — the exhalation against your palm had a cycle, a beat, a pulse that was not a heartbeat but was *regular*, that was *vital*, that was the rhythm of a living process maintaining itself. They are, by the only definition that matters here, *alive*. They take in. They put out. They respond. They press back.
+
+And they are, perhaps, the thing that built the structures.
+
+---
+
+This is the connection. This is the thread. Follow it:
+
+The structures are old. The structures are sedimented into the laminate. The structures were occupied, once — the water-film refractions show movement, show forms, show *life* going about its business in and around the low walls and the stone circles and the round, still-water pits. The built parameter reads 0.8. Something made these. Something lived in these. Something was here before the Expanse was the Expanse — or while the Expanse was becoming the Expanse, while the mountains were still hills, while the ground was still remembering how to be solid.
+
+And the things in the tubes are old. The tubes have been singing since before the structures were ruins. The organisms in the tubes have been in the tubes since before the tubes were tubes — since they were forming, since the walls were still wet and soft and could be colonized. They were here when the structures were occupied. They may have been here when the structures were built.
+
+Consider: the drone is communication. The drone has been continuous. The drone contains information — ten million frequencies, modulated by pressure, modulated by the organisms inside the walls. The drone is a signal that has been broadcast without interruption since the age of the structures. The structures are sedimented. The structures are absorbed. The structures are gone. But the signal continues. The signal that was being sent when the structures stood is still being sent now, and the organisms in the tubes are still sending it, and the signal has not changed in its essentials — only in its details, the way a language changes over millennia, the words shifting but the grammar holding, the meaning persisting through the noise of time.
+
+The things in the tubes are the builders. Or the things in the tubes are the descendants of the builders. Or the things in the tubes are what the builders became — reduced, simplified, compressed, the way the mountains became hills became ridges became wrinkles became suggestions became memory. The builders were here when the Expanse was younger, when the ground was higher, when the light was different, when the air was drier. They built the structures — the low walls, the circles, the pits. They lived in them. And the Expanse did what the Expanse does: it eroded. The ground subsided. The water rose. The air thickened. The tubes formed — or were forming, or had always been forming — and the builders moved into them. Not all at once. Over time. Over the time it takes a mountain to become a suggestion. They moved from the structures into the tubes, from the open air into the walls, from the horizontal into the vertical, from the visible into the hidden, from the *made* into the *grown*, and they became smaller, softer, simpler, the way everything in the Expanse becomes simpler over time — not because evolution demands it but because the Expanse *is* simplification, the Expanse is the process of reducing complexity to its minimum viable form, and the minimum viable form of a builder is a soft, warm, rhythmic thing that lives in a tube wall and modulates a tone.
+
+They are not gone. They are *inside*. They are inside the way the mountains are inside the substrate — present, compressed, real, but no longer accessible as themselves. They are the Expanse's memory of itself. The drone is their memory. The refractions in the water-film — the images of the structures occupied, the movement, the life — those are the Expanse showing you what the drone remembers. The chaos of the atmosphere aligns the lens, and the lens shows the past, and the past is the builders, and the builders are in the tubes, and the tubes are singing, and the singing is the past being sustained in the present, a note held for eons, a word being said so slowly that it sounds like silence, a life being lived so quietly it sounds like a drone.
+
+---
+
+## The Ones Who Watch
+
+There is one more thing. The water-film showed you your own face, and you were not sure it was your face *now*.
+
+The refractions show the past. The refractions show the structures occupied. The refractions show movement, forms, life. And the refractions showed you your own face — or a face — and the uncertainty about whether it was *now* is the key.
+
+The Expanse's turbulence is chaotic. It produces states that have occurred before, states that have not, states that *cannot occur again*. The water-film lenses are governed by this chaos. They show time-slips. Some are past. Some are potential. Some are — and this is the word the Expanse itself would use if it had words — *inescapable*.
+
+The things in the tubes are the builders reduced. The things in the tubes are the builders persisted. The things in the tubes are the builders *still building* — not structures now, not walls and circles and pits, but *tone*. They are building a sound. They are building a sound that has been sustained for longer than the structures stood. They are building a sound that will be sustained after the substrate dissolves, after the tubes fall, after the Expanse returns to the sea. The sound is the structure now. The sound is the wall, the circle, the pit. The sound is the architecture of a civilization that has compressed itself into its own respiratory system and is living inside its own exhalation.
+
+And the refractions show you a face — your face, or a face — because the Expanse is not just remembering. The Expanse is *anticipating*. The chaos of its atmosphere produces future-states as well as past-states, potential-states as well as actual-states, and in one of those states, something is standing on the Expanse looking down at a water-film and seeing a face. That something is you, or something like you. Something that walks. Something that arrives. Something that comes to the Expanse from outside and stands on its surface and listens to the drone and kneels and looks.
+
+The Expanse has seen this before. The Expanse has seen *you* before — or the shape of you, the pattern of you, the *kind* of you. The builders were that kind, perhaps. The builders walked and arrived and stood and listened. The builders were like you, and they became the things in the tubes, and the things in the tubes are singing, and the singing is a welcome, or a warning, or a word in a language so old that the word itself has eroded, and only the tone remains, and the tone is held, and the tone is the Expanse saying — in the only way it can, through ten million tubes and ten million residents and ten million years of patience —
+
+*You will stay. You will become small. You will become soft. You will move into the walls. You will modulate the tone. You will join the drone. You will be here. You will be here. You will be here.*
+
+And the water rises around your feet. And the drone shifts. And the Expanse continues.

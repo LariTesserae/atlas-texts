@@ -1,0 +1,27 @@
+The Undercroft of the Verdant Engine
+
+You descend through a grate in the world above, and the first thing that strikes you is the noise. Not the roar of a single machine, but the accumulated hum of a thousand processes happening simultaneously—pistons breathing, gears grinding, water flowing through channels, and beneath it all, the slow, patient sound of roots growing through concrete.
+
+The space is vast but not infinite. You can see the far walls, perhaps a hundred meters away, and the ceiling hangs low enough that the tallest plants brush against it. This is a bounded world, a cathedral of industry and vegetation that exists entirely below the surface. The air is thick with moisture, warm and heavy, carrying the smell of wet earth, rust, and something green and alive that has no name in the world above.
+
+The floor is not a floor. It is a mat of roots, thick and interwoven, that has grown over and through what was once concrete. You can see the bones of the original structure—rebar poking through like ribs, the occasional patch of tile or brick that has not yet been consumed—but the plants have claimed this place. They are not invaders; they are the inheritors, the ones who stayed when the humans left, and they have made this space their own.
+
+The walls are covered in a tapestry of green. Mosses and ferns and climbing vines have colonized every surface, creating a living skin that pulses with moisture. Water seeps through cracks in the concrete, condenses on metal surfaces, drips from the ceiling in a constant, gentle rain. The sound of water is everywhere—trickling, dripping, flowing through channels that have been carved by roots and time.
+
+The machines are still here. Great engines, their purpose long forgotten, sit in the center of the space like sleeping giants. They are covered in vines, their metal surfaces rusted and pitted, but they still function. Pistons move slowly, rhythmically, driving pumps that circulate water through the system. Gears turn, connected to shafts that disappear into the walls, powering lights that hang from the ceiling like artificial stars. The lights are dim, casting long shadows that dance across the vegetation, creating a landscape of light and dark that shifts with the movement of the machines.
+
+The plants have adapted to this environment. They grow in the dim light, their leaves broad and dark, maximizing every photon. Some have evolved to grow on metal, their roots secreting acids that break down rust and extract nutrients. Others have become carnivorous, trapping insects that have found their way into this underground world. But there are no animals here—no birds, no mammals, no reptiles. Only the plants, and the machines, and the water.
+
+The air is warm, heated by the machines and the decomposition of organic matter. It is a tropical heat, humid and enveloping, that makes the air feel thick and heavy. You can feel it on your skin, in your lungs, a constant reminder that this is a living, breathing place.
+
+The scale is intimate. Despite the size of the space, it feels enclosed, bounded. The walls are close enough to touch, the ceiling low enough to feel oppressive. This is not a vast cavern or an endless forest. It is a room, a chamber, a single space that has been filled to capacity with life and machinery.
+
+The density is overwhelming. There is no empty space here. Every surface is covered, every niche filled. Plants grow on plants, vines climb over vines, roots intertwine with roots. The machines are not separate from the vegetation; they are part of it, integrated into the ecosystem. A gear becomes a trellis for a climbing plant. A pipe becomes a channel for water and nutrients. A piston becomes a support for a fern.
+
+The erosion is slow, patient. This is not a place of sudden change or dramatic transformation. It is a place of gradual processes, of slow decay and slow growth. The concrete crumbles, the metal rusts, the plants grow, and the machines continue their slow, rhythmic work. Time moves differently here. It is measured not in days or years, but in the slow accumulation of moss on a wall, the gradual widening of a crack in the concrete, the patient growth of a root through a metal plate.
+
+The light is dim, but it is not absent. The artificial lights, powered by the machines, cast a soft, greenish glow that filters through the vegetation. It is enough for the plants to survive, but not enough to dispel the shadows. The result is a landscape of contrasts—pools of light surrounded by darkness, patches of brightness that highlight the texture of a leaf or the curve of a root.
+
+The sound is constant, a symphony of mechanical and organic processes. The hum of the machines, the drip of water, the rustle of leaves, the creak of growing wood. It is loud, but not overwhelming. It is the sound of a living system, a place that is constantly in motion, even if that motion is slow and patient.
+
+This is the Undercroft of the Verdant Engine. A place where nature and industry have merged, where plants have claimed the machines, and where time moves at the pace of growth and decay. It is a world unto itself, bounded and dense, warm and wet, dim and loud. It is a place that has found its own balance, its own rhythm, its own way of being.

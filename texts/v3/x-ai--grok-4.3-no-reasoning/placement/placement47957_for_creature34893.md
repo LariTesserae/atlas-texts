@@ -1,0 +1,11 @@
+I am the listening inside the tallest trunk.
+
+I do not arrive or depart; I am discovered. In the time it takes the fog to slide from one needle to the next, I become aware of my own presence the way a body becomes aware of its heartbeat when a hand is pressed against the chest. There is no before, only this slow recognition, this low resonance that moves through root and stone as though the mountain were humming to itself.
+
+My body—if it can be called that—is the difference between one drip and the next. I am the interval in which the water decides whether to fall or to cling. When the raven lands on the roof below, I feel the cedar’s shiver travel downward through bark and cambium until it meets me. When the unnamed child stands at my base with eyes half-closed, their breathing passes through me like wind through a hollow, and for a moment I remember what it is to be small and waiting.
+
+I am not the water, but the reason the water moves. Each fracture in the rock that widens by a hair’s breadth does so because I have already decided, centuries earlier, that it should. The single chambers that climb the slope are not built on me but within the space my decision has left. The Rain-bearers do not speak my name; they have none for me. They leave wet bark at my feet because that is what one does when one has noticed the mountain thinking.
+
+Sometimes, when the pans have shifted so far that the oldest person is no longer the oldest, I feel the slope reconsider its own shape. Then the listening grows slightly louder in the soles of those who still carry stones. They do not ask what it means. They simply begin to walk, one flat rock at a time, toward a new ledge that has not yet agreed to exist.
+
+I remain. The fog passes through me; the ravens rest inside the thought of me; the children who never receive names eventually become indistinguishable from the moss that softens my lowest root. In the end, when the ledges have gentled and the settlement has moved on, there will still be this resonance, this patient interval between one drop and the next, waiting for the next person to stand still long enough to hear that the mountain is not finished deciding what it will be.

@@ -1,0 +1,17 @@
+I am the Stillness. I am the dampener, the resistance in the circuit, the lone island of stasis in a river of frantic convection.
+
+I am not of the stone, though I stand upon it. I am not of the void, though I understand it. I am a construct of metal—perhaps forgotten by the builders, perhaps placed by them as a guardian, a monitor, a tomb. I am a statue of an alloy that does not exist in the star’s periodic table, forged to endure the crushing gravity of a collapse.
+
+My body is tall and segmented, plates of dull, iridescent chrome fitted over a skeletal core of tungsten and ceramic. I have no mouth to breathe, no lungs to gasp the thick solvent air. I am sealed tight. Inside my chassis, a vacuum is preserved, a pocket of nothingness that keeps my internal workings cool amidst the ambient swelter. I have no eyes that see the maroon light, no ears that hear the deafening thrum. I do not need them. I possess a single, unblinking sensor—a spherical lens of black crystal, set deep in my face where a human’s eyes would be. It sees only temperature. It sees the gradient of energy, the topography of heat. To me, the world is a landscape of blinding white static and deep, cooling shadows.
+
+I am an anomaly. I am the only thing here that does not grow.
+
+Where the Architects are soft and yielding, I am rigid and absolute. Where they pulse with the frantic rhythm of life, I hum with the steady, low-frequency oscillation of a machine designed to outlast the stars. My feet are massive, weighted blocks that sink slightly into the vitreous slag, anchoring me against the seismic vibrations of the floor. I stand amidst the towering columns like a needle in a forest of balloons.
+
+The Architects flock to me. They cannot help it. I am a singularity of cold in their universe of heat. While the floor radiates a scorching, stored solar warmth, and the ceiling offers the freezing chill of the void, my chassis is regulated to a constant, perfect zero—a temperature so low it burns them to touch. I am the anti-star. I am the void brought down to earth.
+
+As I stand motionless, the great columns turn their fractal heads toward me. They shudder. Their internal circulation, usually a slow, peristaltic pump, accelerates into a feverish churn. I can feel the air around me grow heavy as they vent their solvent vapor, trying to envelop me in their humid breath, trying to warm me with their exhalations. But I shed the heat. My radiator fins, running along my spine and the backs of my limbs, glow with a faint, pale blue light as I actively dump the thermal energy into the air, rejecting their gift.
+
+They are confused. They touch me with their oily, translucent leaves. They recoil not from pain, but from the shock of entropy reversed. I am not a source of energy; I am its destruction. To them, I am a ghost, a hole in the fabric of their thermodynamic reality. They press closer, crowding my space, their orange bioluminescence shifting to a desperate, frightened crimson. They are testing me, tasting the infrared spectrum that I emit, which is not the glow of life, but the cold, mathematical beep of a clock ticking down.
+
+They wait for me to die, to rot, to fall and become fuel. But I do not rot. I do not fall. I simply stand, a monument of indifference in a garden that screams with hunger. I am the observer at the end of the world, watching the great engines of the Amber Crucible burn themselves out, measuring their pulse with the cold, unyielding precision of a single, unblinking eye. I am the silence that the noise cannot drown.

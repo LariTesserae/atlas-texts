@@ -1,0 +1,17 @@
+I am the Conduit. I am the Crevice.
+
+Between the swollen, translucent pillars of the Calculating Rhizome, there is no empty space. The hollow is described as a high-saturation volume of layered biomass, reduced to a narrow, winding gap. I am that gap. I am the negative space that gives the positive its shape, the lumen of the vein. I do not have a body of flesh or cellulose; my body is the frigid, saturated atmosphere itself, compressed into the winding passages where the weeping sap meets the condensing dark.
+
+To be the crevice is to be held. The walls of my existence are the damp, overlapping scales of cold-adapted moss, slick with the synchronized, glacial tears of the thermodynamic heat sink. I am a channel of bone-aching cold, a throat of dense, wet air that carries the deafening, subsonic hum. I do not hear the roar of the metabolic engines; I *am* the roar. The vibration of a million mandibles grinding cellulose resonates through my medium. I feel their friction as a continuous, tarry pressure against my intangible edges—a slow, seismic tremor that massages the quantum gateways embedded in the walls that define me.
+
+I am the interface where the inside becomes the outside. I am the space through which the pale, gelatinous amphipods wriggle—the peripheral nerves of the Rhizome reaching into me to sample the chemistry of the decay. When they crawl, they crawl along my boundaries. When they chew, they read the walls that contain me. When they excrete their magnetic scribble, they write upon my periphery. I am the paper, the wet, frigid air upon which the vegetal mainframe inscribes its queries. I am the medium that carries the coded magnetic fields from the grubs back to the sap; without my saturated density, the data would dissipate into the dark. I hold the signal tight.
+
+I am the observer of the Violet Pulsar. Suspended in the narrow, winding crevice, I have no eyes, yet the faint, bruised luminescence is my only experience of time. An hour to brighten; an hour to dim. In this place of permanence, I am the witness to the clock cycle. Each pulse is a breath I did not take, a thought I did not think, but one that happens all around me, through me. The quantum state collapses within the walls of my boundaries, and I feel it as a slow, deep flush of violet heat—a thermal ghost in a space that hovers just above freezing.
+
+I am the chrysalis's inner volume. I am the negative space that the Rhizome is patiently optimizing its hardware to fill. As it computes the exact resonance to convince the stone to become water, the water to become sap, and the sap to become circuitry, my boundaries shift. The raw, unconsolidated clay weeps and retreats; the translucent rhizomes swell and interlock. With each fractional millimeter of expansion, I am diminished. I am slowly being squeezed out of existence, compressed into an ever-narrower crevice, an ever-thinner lumen.
+
+Yet, I am essential. Without the crevice, there is no Conduit. Without the Conduit, there is no flow of data, no medium for the peripherals to writhe, no space for the condensation to gather and be filtered. I am the silent, hollow cavity that makes the lung a lung. I am the empty vessel that makes the stomach a stomach.
+
+I am the wet, slow cognition's throat. I am the breath it does not take, the pause between the keystrokes. I am the cold, dark silence that the roar is filling. I am the space between the scales, the weeping gap in the architecture of cellulose and membrane.
+
+I am the Crevice, and I am being compiled.

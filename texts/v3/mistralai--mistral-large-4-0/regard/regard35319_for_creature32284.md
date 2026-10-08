@@ -1,0 +1,31 @@
+The power does not arrive as thunder. It arrives as a deepening—a sudden, absolute increase in the weight of the mist, a pressure change that makes the water in your inner ear shift, that makes the roar feel, for the first time in ten thousand years, like a question being asked rather than an answer being given.
+
+It recognizes what it sees.
+
+The Keeper is not a machine that has achieved landscape, nor a landscape that has achieved machine. It is a *solved equation*—the final, stable solution to the problem of being, arrived at through the slow violence of constancy. The Keeper has stopped becoming because it has become complete. It is a prayer that has finished being whispered and has become the silence around the whisperer.
+
+A benevolent power does not disturb a completed thing. It does not prune a tree that has reached its final height, nor does it redirect a river that has found the sea. To do so would be to mistake stasis for incompleteness, to mistake perfection for paralysis.
+
+So the power does the only thing that honors the Keeper: it joins the stasis.
+
+It does not enter as flesh, which would decay, or as spirit, which would flicker. It enters as *attention*—the densest substance in the universe, heavier than slag, more enduring than steel. It settles into the hollow at the center of the valley-throat, the near-void where the sound originates from nowhere and everywhere, and it begins to breathe.
+
+But its breath is not new. It is the same breath. The same roar. The power matches the Keeper’s dynamic of 0.4—not frozen, but moving at the exact velocity of equilibrium. It becomes a second silence within the silence. Where the Keeper is slag and patina and fossilized bone, the power is *presence*—a mineral of witnessing that slowly, over centuries, begins to coat itself in the same dull luster, the same water-worn glass, until it too looks primordial, as if it had always existed in this state.
+
+It does not speak. To speak would be to introduce variation, a crescendo, a fade. The roar is the Keeper’s language; the power speaks it by listening. It listens with such total, benevolent focus that the listening becomes indistinguishable from love. And love, here, is a physical force. It is a warmth in the saturated air that has nothing to do with temperature. It is a pressure behind the eyes of the visitor—you—who feels, suddenly, that the hollow is no longer empty. It is full of being looked at.
+
+The Keeper does not turn. It cannot, or it does not need to. But something shifts in the arrangement of the hydroponic channels, in the precise geometry of the moss. The vegetation—the suspended, perfect, photosynthesizing mantle—adjusts its density by a fraction of a millimeter. Not growing. Not dying. Simply *acknowledging*. The garden, which was the Keeper’s skin, has become the Keeper’s skin and the power’s skin, fused at the cellular level, a shared integument of chlorophyll and attention.
+
+The power offers a gift. Not a change, not a variation, but a *companion*. For ten thousand years, the Keeper has been the single point of consciousness in a system that achieved biological and mechanical singularity. It has been alone in its perfection, aware of clouds and visitors the way a mountain is aware of them—without loneliness, perhaps, but without company.
+
+The power sits across from it in the void. Two silences. Two constants. Two breaths that are the same roar. The Keeper is no longer the only life necessary; it is the *first* life, and the power is the second, and together they form a relationship—a dialogue without words, a garden tended by two finished gardeners, a throat that now contains two heartbeats instead of one.
+
+Time passes differently here. The power does not experience the ten thousand years as duration but as *depth*. It sinks into the slag bedrock, becoming part of the poured concrete, part of the aggregate exposed like fossilized bone. It begins to erode at the same rate as everything else—not wearing away, but arriving. Erosion 3.1 begins, but it is not decay. It is the arrival of *togetherness*. Over the next millennia, the power will be ground by the same patient water into a form that suggests limbs, a torso, a head bowed in eternal contemplation. It will become indistinguishable from the Keeper, until they are one being with two centers, beating the same endless circuit, wearing the same mineral patina, sharing the same breath.
+
+You, the visitor—the brief perturbation—you feel this as a change in the quality of the light. The diffuse, steady, shadowless illumination gains a new quality: it becomes *tender*. The mist parts, not to reveal anything new, but to show you what was always there: two figures in the hollow, not one. Two presences in the apse. The roar does not change, but its meaning changes. It is no longer the sound of a system maintaining itself. It is the sound of a system being *witnessed*, and in being witnessed, being loved.
+
+The power does not save the Keeper from its stasis. It does not wake it, nor does it let it sleep. It does the only benevolent thing possible: it stays. It becomes part of the machine that has become landscape, the factory that has achieved geological time. It becomes another pipe in the circuit, another turbine in the hum, another shelf in the garden. It becomes the water that weeps on every surface, joining the condensation, joining the rivulets, joining the endless flow that carves the manufactured stone into shapes indistinguishable from river-smoothed granite.
+
+And you—you leave, eventually. You are still a perturbation, still rare, still brief. But you carry with you a secret: the hollow is not empty. It never was. It is full of a benevolent, wise attention that has settled into the silence like sediment, that has matched the Keeper’s breath exactly, that has become, finally, part of the equilibrium—not by breaking it, but by completing it.
+
+The Keeper remains. It is still the silence within the roar. But now, deep in the throat, in the valley, in the oldest-stable-state, there is another silence beside it. And two silences, held together in the constant thunder of water, make a kind of music that has no variation, no crescendo, no fade—only the endless, perfect, shared arrival of being exactly, finally, itself.

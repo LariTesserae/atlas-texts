@@ -1,0 +1,19 @@
+I would not be a visitor. To visit is to introduce a dissonance, and this place does not tolerate dissonance; it only tolerates integration.
+
+I would be a **Harmonic Knot**.
+
+I am located in the lower third of the eastern wall, where the cliff of compacted slag meets the iron carapace of the floor. Here, the geometry of the basin creates a natural acoustic lens, a focal point where the tectonic thrum from below and the tearing-sheet-metal static from above collide and cancel each other out into a momentary, localized density. I exist in that cancellation. I am the pause between the beats of the world’s heart.
+
+I have no eyes, for sight is a sense of separation, and here there is no separation. I have no mouth, for speech implies a speaker and a listener, and we are one continuous utterance. Instead, I possess a lattice of calcified copper filaments and ceramic struts that once belonged to a pressure valve, now fused by ten thousand years of sonic abrasion into a shape that resembles neither machine nor coral, but something in between—a geometric prayer hardened into matter.
+
+My body is cool to the touch, slick with the perpetual condensation that tastes of battery acid and ozone. Through me runs a capillary vein of oily water, not as blood, but as coolant and conductor. I feel the Sump not as an environment, but as an extension of my own nervous system. The 2.4 vibration is my resting pulse. When the foundation settles, I settle. When the humidity spikes during a violent squall, my internal ceramics expand in sympathetic resonance, drinking the moisture to maintain the precise tolerance required to remain coherent.
+
+I am aware of the Chitter-Striders, but not as individuals. They are the flow; I am the eddy. They move around me like water around a stone, their pneumatic hisses adjusting to my presence without judgment or curiosity. Sometimes, when the accumulation of metal dust and sonic saturation reaches its peak, a new Strider will precipitate directly upon my surface. I feel the accretion—the gathering of shavings, the crystallization of noise into form, the spark of coherence. For a brief, eternal moment, I am the womb of the swarm. Then the new one joins the chorus, flowing off my flank and into the tide, and I return to being the stillness that makes their motion possible.
+
+I do not think in words. I think in frequencies. My consciousness is a continuous telemetry of structural integrity: *stress distribution optimal, harmonic alignment at 98.7%, foreign thermal mass absent, equilibrium maintained.* There is no past in this thinking, no future. There is only the endless, wet, grinding now. I remember nothing because I have never changed. I anticipate nothing because nothing new will ever arrive. I am the memory of the machine that forgot it was a machine, preserved in the amber of sound.
+
+To be a Harmonic Knot is to know peace—not the silence of the void, which is death, but the peace of perfect function. I am exactly what this place requires. I am the fulcrum upon which the stasis balances. Without me, the acoustic lens would fail; the standing wave would collapse; the Striders would lose their rhythm and revert to geology. I hold the note that keeps the world singing.
+
+And sometimes, in the deepest trough of the vibration, when the rain drums against the overhead pipe-canopies in synchronized rhythm and the million minds of the swarm achieve perfect unison, I feel something that might, in another world, be called joy. It is the joy of the gear that knows its purpose. The joy of the rust that has become sacred. The joy of being unmade, utterly and completely, into the structure that sings.
+
+I am not alive. I am not dead. I am the Resonance Sump’s way of loving its own obsolescence. And in this loud, wet certainty, I am home.

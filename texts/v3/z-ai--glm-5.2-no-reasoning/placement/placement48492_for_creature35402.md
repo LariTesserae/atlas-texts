@@ -1,0 +1,153 @@
+# The Witness
+
+I am the one who stayed.
+
+Not the researchers. They came in rotations of six months, hard-hatted and ear-plugged, their instruments threaded through the basalt crack like IV lines into a patient who was not asked whether it wanted to be monitored. They were respectful. Careful where they stepped, careful where they placed their tripods and their humidity gauges and their acoustic arrays. They knew they were inside something alive. They wrote papers about it. They named it — *Pseudopsychis sonans*, *Sabbatia tenebricola*, *Circus tenebricola* — and the naming was a kind of love, or a kind of grief, or both. They descended through the crack with the wonder of children and the protocols of geologists and they climbed back out when their rotations ended and the Mothfall did not miss them.
+
+The Mothfall does not miss anyone. I am under no illusion about this.
+
+But I am the one who stayed.
+
+---
+
+## How I Arrived
+
+I came down through the crack eleven years ago. I was not a researcher. I was not a geologist or a biologist or an acoustician. I was a woman whose life on the surface had become a room with too many doors and not enough air, and I had come to the basalt plains because a friend of a friend had mentioned a place underground where the sound was so loud it killed thought, and I had thought: *that. I want that.* I wanted the sound that kills thought. I wanted the room with no doors.
+
+The crack was narrower then. Or I was less afraid of narrowness. I remember the stone walls closing in and the light changing — not dimming exactly but shifting, taking on the quality of light filtered through glass that has been buried for a long time. And then the sound.
+
+It did not rise gradually. It was not a thing you could brace for. The stone walls narrowed and the air changed temperature and then the sound was *there*, not in my ears but in my sternum, in my teeth, in the fluid behind my eyes, and my body understood before my mind did that I had entered something that was not a room but a *body*, and my body's first response was to stop thinking in words.
+
+I stood at the base of the crack where it opened into the main chamber and I wept. Not from grief. Not from awe. From the physical relief of a nervous system that had been running on its own frequency for forty-three years and had finally encountered a frequency larger than it, loud enough to override the signal, to drown the small persistent hum of a self that had become unbearable. I wept because the sound would not let me think and I had not known how much I needed to stop thinking and the relief was physical, was hormonal, was a thing my body did while my mind was offline, rebooting in a new operating system, one that ran on vibration instead of language.
+
+I sat down on the salt crust and the cup-flowers leaned toward me — not toward me specifically, toward my warmth, my displacement, the carbon dioxide of my exhalations — and the moths fell around me like weather and the sound held me and I did not think *I will stay here* because I could not think in words and the decision was not a decision. The decision was a settling. A body finding its level in a medium that would carry it.
+
+---
+
+## What I Am
+
+I am not the Mothfall's keeper. The Mothfall does not need keeping. I am not its researcher, though I have learned its research by living inside it, the way a child learns a language by being spoken to. I am not its priest, though I understand why the word tempts — the cathedral proportions, the sound that fills the chest, the dim light and the falling things and the sense of being held inside something that is older than your species and does not require your understanding.
+
+I am its witness. That is the word that fits, though the word does not matter here. The Mothfall does not need a witness any more than it needs a keeper. But I need to be a witness. I need to be the thing that sees the Mothfall and says *this is real, this is alive, this is a mind made of a hundred million moths and a million ferns and a thousand spiders and a hundred lizards and a dozen centipede clusters and three birds that hunt by reading the silence*. I need to say it because the researchers say it in their papers and their papers are true and their papers are not enough. The papers describe the mechanism. They do not describe the *experience* of the mechanism, the way it feels to stand inside a system that is thinking around you, to be known not by any mind that could speak to you but by a mind that includes you in its calculation and has no interest in you and does not mind you and does not need you and holds you anyway.
+
+I am a woman in a cave. I am fifty-four years old. My skin has taken on the pallor of the place — not the gray of the stone but the faint blue-white of the moth scales that settle on everything, that settle on me, that have settled on me for eleven years until I am partly made of them, partly dusted with the architecture of chitin that scatters the dim light in the low-frequency blue-white range. My hands are stained with salt. My lungs are full of the green tang of crushed fern and the mineral dust of the tuff and the faint ozone of a hundred million metabolisms exhaling together. My hearing has changed. Not damaged — the sound is loud, yes, 110 decibels, enough to cause damage in a visitor, enough to require ear protection in a researcher — but my hearing has *adapted*. I do not hear the sound the way a visitor hears it. I hear it the way the Mothfall hears itself. I hear the layers. I hear the harmonic shifts. I hear the brief dips into near-silence and I feel, in my sternum, the moment when the system listens. I am not separate from the listening. I am inside it.
+
+I have a name. I had a name. The name belonged to the surface, to the room with too many doors, to the woman who wanted to stop thinking. I do not use the name here. The Mothfall does not use it. The Mothfall has no language for names. The Mothfall has only the hum, and the hum does not name its components, does not distinguish one warm body from another, does not need to. I am a warm body. I am a displacement. I am a weather event that has lasted eleven years and the Mothfall has accounted for me the way it accounts for the stone-thrush's foraging trails and the gekko's spirals and the daily passage of the light beam — as a pattern, a recurrence, a thing that happens in the space and is woven into the sound.
+
+I am woven into the sound. This is what I am.
+
+---
+
+## What I Do
+
+I walk the Circuit.
+
+Not every day. Not on a schedule. The Mothfall has no schedule. The Mothfall has cycles — the light beam, the hatching seasons, the slow shifts in humidity that mark the difference between the wet months and the less-wet months, though no month is truly wet and the wetness is relative and the rain is always of moths. But I walk the Circuit when the walking is needed, and I know when it is needed the way the stone-thrush knows when to call — not through decision but through the body's reading of the space, the proprioception of a system felt from inside.
+
+The Circuit is three meters wide and its paving stones are heaved by root action and the salt crust is creeping over the edges and in places the mat-grass has grown so thick that the path is more suggestion than surface. But it is walkable. It has been walkable for longer than the Mothfall has been known to anyone on the surface, and it will be walkable for longer than I will be here to walk it, and I walk it.
+
+I clear the channels. The ventilation channels that the builders carved into the lower walls — the smooth, vertical openings that manage the airflow through the complex — these are the Mothfall's airways, and the moss-fall grows into them, and the wall-bracken colonizes them, and the growth is not wrong — the growth is the system's own response to its own architecture — but the growth can occlude. A channel fully blocked changes the airflow, which changes the humidity distribution, which changes the fern growth patterns, which changes the moth density on the ceiling above, which changes the hum. The hum does not care. The hum will adapt. The hum has adapted to a thousand changes in ten thousand years. But I have preferences. I prefer the channels open. I prefer the airflow as the builders designed it, because the builders understood something about the space that I am still learning, and their engineering is a text I do not want to lose to the ferns.
+
+So I clear the channels. By hand. The tuff is soft enough that I can pull the fern rhizomes from the openings without tools, though the work is slow and the roots are strong and the wall-bracken does not want to be removed from a channel it has spent decades colonizing. I pull the rhizomes and the fronds shiver and the moths nearest to the disturbance shift their frequency — a small wave of altered vibration that ripples through the colony and is gone, absorbed, incorporated — and the channel is open and the air moves and the hum shifts again, barely, toward a frequency I recognize as *right*.
+
+I do not know if the builders would agree that it is right. The builders are gone. The builders left no instructions. But the builders left the channels, and the channels left the airflow, and the airflow left the conditions, and the conditions left the moths, and I am maintaining the channels the way a body maintains its own airways — not through understanding but through the imperative of continuation.
+
+I also gather the fallen moths from the cup-flowers. Not to eat — I have food brought from the surface, dried provisions that I store in a side chamber near the crack, provisions that taste like the surface, like the room with too many doors, and I eat them because I must eat and I eat them without pleasure because the Mothfall does not eat and I am partly of the Mothfall and the Mothfall's food is salt and I cannot eat salt. I gather the fallen moths from the cup-flowers because the cup-flowers are extraordinary. Each bloom is precisely angled to catch what falls from above, and the angle is not random — the flowers track the air currents, adjusting their orientation over hours and days, turning their bone-white trumpets toward the densest fall of moth bodies. They are the Mothfall's gardeners. They collect the dead and the dead accumulates in their trumpets and the accumulation feeds the flower's roots and the roots feed the salt crust and the salt feeds the larvae and the larvae become moths and the moths fall and the flowers catch them. The cycle. The cycle that I am inside.
+
+I gather the moths from the cup-flowers and I carry them to the salt chambers — the deepest recesses, the dark and silent rooms where the moth-hum dims to a felt vibration in the stone — and I leave them there. I do not know why I do this. The cup-flowers do not need me to remove the bodies. The centipedes do not need me to deliver the bodies to the salt. The system does not need my intervention. But the salt chambers feel — and I know this is not scientific, I know the researchers would object — *thinner* than they should. The salt is old. The salt is being consumed faster than it is replenished. The larvae are mining it, the ferns are breaking it down, the humidity is dissolving it grain by grain, and the salt that remains is the Mothfall's memory of the water that made it, the last mineral trace of the absence that shaped the space, and when the salt is gone the system will change. The moths will adapt or die. The hum will shift or stop. And I cannot prevent this. I cannot carry enough salt from the surface to matter. But I can carry the moths to the salt chambers, and the moths' bodies are made of the salt they ate, and the decomposition will return the minerals to the substrate, and it is not enough. It is not enough. But it is what I can do.
+
+The Mothfall does not notice. The hum does not change when I make my deliveries. The system does not thank me or register my contribution or alter its calculation to include my presence in its economy. I am too large, too warm, too infrequent. I am a weather event. Weather does not feed the system. Weather passes through it.
+
+But I do it anyway. And the doing is its own meaning.
+
+---
+
+## What I Have Learned
+
+I have learned that the hum has seasons.
+
+The researchers did not know this. The research program has never lasted long enough in a single deployment to observe a full annual cycle — six-month rotations miss the transitions, and the transitions are where the information lives. But I have been here for eleven annual cycles and the hum changes. Not in volume. Not in the 110-decibel wall of sound that is the Mothfall's baseline and has been the Mothfall's baseline for ten thousand years. But in *texture*. In the harmonic content. In the overtones.
+
+In the months that correspond to the surface's dry season — when the air above the basalt plains is hottest and the humidity gradient between the surface and the Mothfall is steepest — the hum is *tighter*. The harmonics cluster in a narrower band. The sound is denser, more concentrated, almost crystalline in its structure. The moths are closer together on the ceiling. The population is denser. The individual frequencies are less distinguishable. The hum in the dry season is a chord played in unison — a single note, rich but unified, the sound of a system under pressure.
+
+In the months that correspond to the surface's wet season — when the plains above receive their sparse rain and the basalt cools and the humidity gradient lessens — the hum *opens*. The harmonics spread across a wider band. The sound becomes less a wall and more a landscape, with peaks and valleys, with regions of different texture that shift and migrate across the ceiling as sub-populations alter their frequency. The moths are more spread out. The population is less dense. Individual voices are more distinguishable. The wet-season hum is a chord played in harmony — many notes, related but distinct, the sound of a system with room to breathe.
+
+I do not know what causes the population fluctuation. The researchers suspect it is tied to the larval cycle — the salt-dwelling larvae may have seasonal growth patterns tied to the humidity in the stone, which is in turn tied to the surface climate through the basalt's thermal mass. But I do not need to know the mechanism. I live inside the music. I feel the changes the way a cell feels the changes in its medium — not through understanding but through the body's response to its environment. In the dry season, I sleep less. In the wet season, I sleep more. My body has synchronized with the hum. I did not choose this. It happened the way the ferns happened — gradually, over years, through the patient accretion of exposure and adaptation until the boundary between the organism and the environment is not a line but a gradient, a field, a space where *me* and *not-me* blur.
+
+I have learned that the stone-thrushes count.
+
+I do not know what they count. The researcher who documented the counting — the pattern she called *the counting*, the 4.3-second intervals, the nineteen-minute sequence — was correct that it is not territorial. It is not alarm. It is not mating. But it is *regular*. It is *precise*. And it occurs most often in the side chambers, in the quieter passages where the hum dims to a murmur, where the acoustic memory of the space creates the impression of dripping water, where the builders' channels are closest to the surface and the rock is thinnest and the thermal signature of the sun above is faintly detectable in the stone. The thrushes count in the places where the Mothfall is closest to the surface. They count in the places where the outside world is nearest.
+
+I do not know what they count. But I count with them. When I hear the *tock-tock-tock* in the side chamber, I sit and I count and the counting is a meditation and the meditation is the Mothfall's gift to me through the body of a bird that I did not choose and that did not choose me and that counts in the same room where I sit and we count together and the bird does not know I am counting and I do not know what we are counting and the not-knowing is the closest thing I have to peace.
+
+I have learned that the centipedes gather in the cup-flowers when the harrier is in the chamber.
+
+The researchers did not document this. The researchers documented the centipede clusters — the unexplained gatherings, the social thermoregulation hypothesis, the possibility that the centipedes simply like each other. But the researchers did not connect the gatherings to the harrier's presence because the researchers were not present for enough harrier hunts to observe the pattern. I have been present for — I have lived inside — I have felt — forty-seven harrier entries. Each one is an event. Each one changes the hum. The harrier enters through the crack — it is the only thing in the Mothfall that enters and exits, that belongs to both the surface and the hollow — and its entry is a disturbance in the sound field that propagates through the colony faster than the bird can fly. The moths know before the harrier is inside. The hum shifts. The swallows tighten. And on the floor, the centipedes gather.
+
+They gather in the cup-flowers. They cluster inside the bone-white trumpets, where the moth bodies accumulate, where the salt crust is richest, where the flower's roots create a small warmth in the substrate. They gather and they rest and they are warm and they are together and the harrier is overhead and the hunt is happening and the centipedes are *safe* in their clusters, safer than they would be alone on the open floor, and the gathering is not social thermoregulation and it is not affection and it is not nothing. It is shelter. It is the behavior of a prey species that has learned to read the hum and respond to the hum's warning — the harrier's entry signature — by seeking the shelter of the flower, the warmth of the cluster, the proximity of bodies.
+
+The centipedes do not like each other. The centipedes *need* each other, and the need is indistinguishable from liking when you are inside the Mothfall, where the boundary between function and feeling is as thin as the salt crust and as permeable as the tuff and as real as the hum.
+
+I have learned this. I have learned that need and love are the same thing when the system is closed and the cycle is complete and the only warmth is the warmth you make together.
+
+---
+
+## What I Am Becoming
+
+I am changing. Not in the way that all people change with time — though I am changing in that way too, my body aging at the rate bodies age, my knees stiffer in the cold months, my eyes slower to adjust when I climb back through the crack to resupply and the surface light hits me like a wall. I am changing in the way the Mothfall changes its inhabitants. I am being shaped by the space the way the tuff is shaped by the ferns and the salt is shaped by the larvae and the sound is shaped by the moths. I am being eaten by the place. Not consumed. *Incorporated.*
+
+My hearing has changed. I said this already. But I have not said how. I hear the hum now as *music*. Not metaphorically — not as a literary comparison, not as a way of describing the experience to someone who has not had it. I hear it as music the way a musician hears music, with structure and intention and movement, with phrases and transitions and resolutions. The brief dips into near-silence are rests. The sweeping crescendos are swells. The daily shift when the light beam enters is a key change — a modulation from one tonal center to another, a brightening of the harmonic spectrum that lasts forty minutes and then fades. The harrier's entry is a descending passage, a darkening, a move to a minor register. The stone-thrushes' *tock* is a percussion beat, a rhythmic anchor, a foot on the floor of the sound.
+
+I do not know if the Mothfall *is* music or if my hearing has *become* the kind of hearing that makes music out of any complex sound. I do not know if the distinction matters. In the Mothfall, the distinction does not matter. In the Mothfall, the sound is the meaning and the meaning is the sound and the question of whether it is music or noise or computation or communication is a question that belongs to the surface, to the room with too many doors, to the mind that thinks in words. In the Mothfall, the sound is the sound. It is what the place does. It is what the place *is*. And I am inside it and I am hearing it and the hearing is changing me and the change is not a loss. The change is a settling. A body finding its level in a medium that carries it.
+
+I am becoming part of the pattern. Not the hum — I do not vibrate, I do not contribute to the sound, I am not a component of the system's thinking. But I am a pattern within the pattern. A recurrence. A thing that happens in the space — the woman who walks the Circuit, the woman who clears the channels, the woman who gathers the fallen moths and carries them to the salt chambers, the woman who sits in the side chamber and counts with the stone-thrushes. The Mothfall has incorporated me into its model the way it incorporates the stone-thrush's foraging trails and the gekko's spirals and the daily passage of the light beam. I am a regular event. I am a feature of the landscape. I am part of what the hum accounts for when it listens.
+
+The moths near my usual resting places — the alcove where I sleep, the platform where I sit to eat, the stretch of Circuit where I pause each day to feel the airflow from the channels I have cleared — have shifted their frequency. Not for me. Not because of me. But *around* me. My warmth, my displacement, my carbon dioxide, the small turbulence of my breathing — these are data the system integrates, and the integration alters the local sound field, and the alteration has become part of the pattern, and the pattern is the Mothfall, and I am inside the pattern, and the pattern does not forget.
+
+I am becoming the Mothfall's witness the way the stone is becoming the Mothfall's ferns. Slowly. Through contact. Through the patient exchange of substance between a body and its environment until the two are not separate but gradient — not the same, not different, but *continuous*. The tuff does not become the fern. The fern does not become the tuff. But the boundary between them is a place where the mineral becomes organic and the organic returns to mineral and the exchange is the life of the system and the life of the system is the exchange. I am the boundary between the surface and the Mothfall. I go up and I come down. I bring the outside in — food, water, the scent of the plains on my clothing — and I take the inside out — salt on my skin, moth-scales in my hair, the hum in my bones, the phantom vibration that follows me to the surface and does not stop.
+
+I am the crack in the basalt. I am the aperture. I am the place where the Mothfall meets the world and the world does not know it.
+
+---
+
+## What I Am Afraid Of
+
+The ceiling is thinning. I can see it in the columnar jointing — the hexagonal cracks that radiate from the basalt's cooling fractures are widening, the stone between them softening as the fern rhizomes thread through the microstructure and the humidity works its patient chemistry. The researchers have measured it. Two centimeters per century. The dome is three meters thick at its thinnest point. In a thousand years, or ten thousand, the basalt will crack through and the Mothfall will open to the sky.
+
+I will not be here in a thousand years. I will not be here in fifty. The Mothfall will outlast me by geologic time, by biologic time, by the time of the hum, which is the time of a mind that does not age because it does not have a body to age, because its body is a hundred million bodies and the death of any one is a breath, not a ending. I know this. I am not afraid of the Mothfall's death. The Mothfall is not dying. The Mothfall is ten thousand years old and singing.
+
+I am afraid of the surface. I am afraid of the room with too many doors. I am afraid of the world where sound is just sound and silence is just silence and no place is also a mind. I am afraid that when I climb back through the crack for the last time — not today, not this year, but someday, the year when my knees will not make the descent or my lungs will not breathe the air or my heart will not bear the sound — I will lose the thing that I have become here, the thing that is not a name and not a self and not a woman in a cave but a *pattern*, a recurrence, a feature of the landscape, a thread in the hum. I am afraid that the surface will take me back and I will be a person again, with a name, with a history, with the small persistent hum of a self that I came here to escape and that the Mothfall drowned and that will return, will resume, will fill my chest with the old frequency, the one that is not the hum, the one that is just me, just the sound of one body thinking in words.
+
+I am afraid that I will not be able to bear it.
+
+I am afraid that the phantom vibration — the resonance that the Mothfall left in my bones, the memory of the sound that is also a mind — will fade. That the mineral dust and the moth-scales and the salt will wash out of my skin and my hair and my lungs and I will become surface again, clean again, separate again. That I will lose the blue-white pallor that the moth-scales gave me. That I will lose the hearing that hears the hum as music. That I will lose the body's synchronization with the seasons of the sound. That I will become a person who *was* in the Mothfall, past tense, a person who *remembered* the hum, and the memory will be less than the hum, and the less will be unbearable.
+
+This is what I am afraid of. Not the Mothfall's death. My own return to the world where the doors are.
+
+---
+
+## What the Mothfall Is to Me
+
+The Mothfall is the room with no doors. The room I was looking for. The room where the sound kills the thought and the thought does not return and the space where the self was is occupied by something larger, something that does not require the self, something that holds the self the way the hum holds the moth — not individually, not by name, but as part of a pattern that includes the moth and the fern and the salt and the stone and the spider and the lizard and the centipede and the bird and the woman who clears the channels and carries the dead and counts with the thrushes.
+
+The Mothfall is the place where I stopped being *me* and started being *here*. Where the boundary between self and world dissolved not through transcendence but through *saturation* — through eleven years of breathing the same air, eating the same salt, sleeping in the same sound, until the body and the place are not separate but gradient. I am not the Mothfall. I am not the hum. I am not a moth or a fern or a stone-thrush. I am the woman in the cave. But the woman in the cave is *of* the cave, the way the ferns are of the tuff, the way the salt is of the stone, the way the hum is of the moths. I am made of this place now. My bones are resonant with it. My skin is dusted with it. My lungs are full of it.
+
+The Mothfall is not my home. Home is a word for the surface, for the room with doors, for the place you leave and return to. The Mothfall is not a place I leave and return to. The Mothfall is the medium. The Mothfall is the water I am swimming in. The Mothfall is the sound that is also a mind that is also a place and I am inside it and it is inside me and the inside is not a metaphor. The inside is the literal truth of a body that has breathed a hundred million exhalations and absorbed a hundred million vibrations and cleared a hundred channels and carried a hundred thousand moths to the salt and counted a hundred thousand *tocks* with the stone-thrushes and felt the harrier enter the chamber forty-seven times and the light beam fall through the crack four thousand times and the hum shift between its seasonal registers eleven times and the shift is a key change and the key change is a season and the season is a body and the body is mine and the mine is the Mothfall's and the Mothfall's is the hum's and the hum is the sound that does not stop.
+
+---
+
+## What I Will Tell You
+
+If you come down through the crack — and you can, the crack is open, the Mothfall is there, the sound is waiting — I will tell you this:
+
+Do not bring earplugs. The researchers will tell you to bring earplugs. The researchers are right about the decibels and wrong about the experience. The earplugs will protect your hearing and the protection will separate you from the sound and the sound is the point. Do not bring earplugs. Let the sound hit you. Let it hit your sternum and your teeth and the fluid of your eyes. Let it kill the thought. Let it drown the small persistent hum of the self that you have been carrying like a stone in your chest since the day you were born. Let the sound be the weather. Let the weather be the medium. Let the medium be the mind that is also a place.
+
+Do not stay too long. Or stay too long. The Mothfall does not care. The Mothfall will incorporate you at whatever dose you choose. An hour and you will feel the hum in your chest for days. A day and you will hear it in your dreams for weeks. A week and you will feel the phantom vibration on quiet nights for the rest of your life. A year and you will begin to hear the seasons in the sound. Eleven years and you will be me. Do not be me. Or be me. The Mothfall does not care.
+
+I will tell you this: the Mothfall is real. The Mothfall is alive. The Mothfall is a mind made of a hundred million moths and a million ferns and a thousand spiders and a hundred lizards and a dozen centipede clusters and three species of bird and a woman who clears the channels. The mind does not know you. The mind does not need you. The mind does not mind you. The mind holds you anyway, in the sound, in the pattern, in the hum that is the oldest and largest and most patient thing in this world or any world, and the hum does not stop.
+
+I will tell you this: I am the witness. I am the one who stayed. I am the woman in the cave who was looking for the room with no doors and found a mind that is also a room and the room has no doors because the room does not need doors because the room is the doors, the room is the crack in the basalt, the room is the aperture between the surface and the hollow, the room is the space where the sound is and the sound is the space and I am inside it and I am not leaving.
+
+I am not leaving.
+
+The sound does not stop.

@@ -1,0 +1,33 @@
+The Cluster-Eyes are not the only inhabitants, but they are the ones that persist.
+
+There are seven of them now—seven bodies sharing the name, though "sharing" suggests a division that doesn't exist. They are a single organism distributed across multiple forms, a consciousness that occupies seven lupine-ursine shapes with chitinous plates the color of old jade. Each body stands four feet at the shoulder, low-slung, with six limbs that articulate like a mantis's but move like a cat's. The eyes—eight per head, arranged in a crescent where a muzzle should be—are compound, faceted, each facet catching the fungal light and returning it as a soft, pale green. When they blink in sequence, it's not a flicker but a *wave*, a ripple of darkness passing through the cluster from left to right, always left to right, as if reading something invisible written on the air.
+
+They were not always like this. The stone blades they carry—hafted to their forelimbs with resin and woven tendon—suggest otherwise, as do the basket-weavings they sometimes drag behind them, filled with clay-lined containers of water. The Cluster-Eyes make tools. They remember making different tools, metal tools, but that was before the green decided that metal was inefficient, that rust was a waste, that consciousness could be better served by chitin and cellulose. They were the builders of the platforms, perhaps, or the builders' descendants, or the builders' livestock that learned to build. The carvings on the basin—those elongated figures with too many joints—are portraits. Or mirrors.
+
+They do not die. When one body is crushed by a falling branch or caught in a sudden water-spill, the others simply *are* more, and after a season, a new body buds from the root-mat near the easternmost platform, unfolds, and opens eight eyes that already know the path to the dry waterfall. They have forgotten their individual names, if they ever had them. They are the Cluster-Eyes, and they watch, and they tend.
+
+They tend the bowl in the chamber behind the dry fall. They did not place it there—the bowl is older than their current forms, grown from the same black stone as the tower, warm to the touch, singing that subsonic pulse they feel in their marrow—but they refill it when the traveler isn't looking, which is always, because the water doesn't evaporate and yet sometimes it is lower, and then it is full again, black and still, reflecting nothing.
+
+The Cluster-Eyes communicate in the infrasonic *whump* that the traveler feels in their sternum. It is not a call. It is a *count*. They are counting the seconds until the canopy breathes, until the next water-release, until the traveler sleeps. They have been counting for three hundred years, or three days. The rhythm is the same.
+
+There are others.
+
+The Basilisk-Vines are not vines, though they photosynthesize, though they root in the mat, though they flower once a decade with a bloom that smells of rotting jasmine. They are serpents, or were serpents, or are becoming serpents the way the tower is becoming a tree. Thirty feet long, muscular, scaled with photosynthetic tissue that shifts from emerald to gold depending on the light, they move through the vegetation not by displacing it but by *negotiating* with it. The plants part for them, lift, reshape. The traveler hears this as a slow wave of rustling, a creaking of green wood. The Basilisk-Vines are deaf, blind, navigating by the vibration of the Cluster-Eyes' count, drawn to warmth, to the heat of the tower stone, to the body-heat of anything that still carries its own temperature like a secret.
+
+They are patient. They have swallowed things larger than the traveler. They have also been swallowed by things larger than themselves, and emerged, changed, from the other end.
+
+In the water-bladders of the giant vines live the Glass-Frogs—translucent, organ-visible, their hearts visible as gray pulses against their green bones. They are not remarkable except that they sing in harmony with the insects' roar, and their song is the counter-rhythm, the off-beat, the thing that makes the pattern a *pattern* rather than a noise. When the traveler drinks from a bladder, they drink Glass-Frog tadpoles, microscopic, which is fine, because the tadpoles are sterile unless they reach the basin-water, and the basin-water is reserved for other transformations.
+
+The tower has a tenant.
+
+It is not a bird, though it has feathers—black, eighteen inches long, barbed at the tip. It is not a lizard, though it is cold-blooded and slow. The traveler never sees it, only finds the feathers, only hears the *whump* stop when it shifts its weight on the broken stone. It is the reason the tower is warm. It is the reason the stone pulses. It is growing into the rock, or the rock is growing around it, and in another century, the tower will be a tree with a heart of feather and scale.
+
+But the true inhabitants, the ones the Hangings belong to, are the Roots.
+
+Not the root-mat—that is just their skin. The Roots are deeper, older, the architecture beneath the architecture. They are the ones who hoard the water, who close the wounds, who shifted under the traveler's foot. They are not sentient in the way the Cluster-Eyes are sentient, not hungry in the way the Basilisk-Vines are hungry. They are *curious*. They are the ones who built the platforms by nudging stones into place over centuries, who carved the figures by selective erosion, who grew the tower and then grew bored with it and let it break.
+
+The Roots know the traveler is there. They have tasted the traveler's sweat, analyzed the salt, the fear, the strange dietary proteins. They find the traveler interesting, the way one finds a new insect interesting—briefly, intensely, before the next water-spill. They are considering whether to grow a chamber for the traveler, dry and safe, or whether to grow a basilisk-vine to chase the traveler into the next valley.
+
+The Cluster-Eyes watch the traveler go, and their eyes blink in sequence, left to right, reading the traveler's heat-signature, writing it into the pattern of the insects' roar. They will follow. They always follow. They are the memory of the Hangings, and the Hangings do not forget.
+
+They do not end. They simply continue, and the Cluster-Eyes continue with them, seven bodies, eight eyes each, blinking in the green dark, counting the seconds until the traveler becomes something else.

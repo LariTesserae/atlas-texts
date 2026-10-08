@@ -1,0 +1,49 @@
+What lives in the hollow is patience made flesh.
+
+The most conspicuous residents, once they permit themselves to be conspicuous, are the flatlings: sand-colored lizards spread over the warm ledges as thinly as spilled wax. Their bones are fine and flexible, their ribs broad, their bellies almost translucent. At rest, light enters them and returns stained faintly gold, so that they seem less like animals than variations in the calcite. Their eyes alone remain distinct—small polished seeds that close one at a time.
+
+A flatling may spend half a day advancing the length of a hand. It lifts one foot, waits, places it down, and waits again for the brief stain of motion beneath it to fade. When it hunts, it does not chase. It approaches a beetle through a succession of statues, drawing close over hours. Only the final strike is quick. For an instant, lizard and prey are joined by a black flare on the floor; then the ledge is quiet again.
+
+The long-legged beetles are less cautious. They follow invisible roads between damp moss, clay seams, and the shallow basins, stepping high as if unwilling to touch the chamber more than necessary. Their shells carry patterns resembling mineral grains. Some cultivate threads of fungus beneath their bodies and seed them into fresh silt after floods. Others collect the skins shed by lantern-backs, stacking the transparent scraps in dry recesses. These stores catch daylight and glow dimly after dusk, though whether the beetles value the light, the warmth, or something growing upon the shells is unclear.
+
+Each cavity in the cool wall belongs to a single pearl frog. They fit their holes so closely that the stone seems to have grown an eye or a pale, breathing mouth. Their forefeet are blunt and strong; over years they enlarge their chambers grain by grain, sometimes using a twig or stiff grass stem to pry softened crust from the rim. They rarely leave. Gnats, mites, and tiny lantern-backs are taken when they pass within reach.
+
+Before floodwater comes, the frogs inflate their throats and give several hollow notes. The call passes through the wall more strongly than through the air. One frog begins, then every occupied cavity answers until the damp stone itself appears to pulse. Afterward they withdraw deep into their holes. By the time brown water spreads across the old channel, no frog is visible.
+
+Mica moths sleep under the southern shelves. Their wings are clear membranes powdered with reflective scales, and at rest they resemble mineral peelings. They feed from the blue cups of the flood-thicket during its single day of flowering. Because the flowers open almost simultaneously, the moths emerge in a brief, glittering multitude. They crawl more often than they fly, preserving stillness between each few steps. Their larvae live in chalky cases among the liverworts and consume the fungi that bind the plants to the floor.
+
+The pools hold a denser world. Dark seed-shrimps hang in the clear water like soot suspended in glass. Their eyes are sensitive not merely to dimming but to changes in the stone-light’s direction. A passing body sends the whole cloud downward, where it buries itself in mineral fluff. Thin water mites graze the basin rims. Nearly invisible worms stand upright from the clay and bend together with the faint currents caused by falling drops.
+
+After floods, silver fry hatch or arrive. They have no eyes, but a bright seam along each flank responds to warmth and pressure. For a season they move between the newly joined basins, feeding on crustaceans and pale fungal veils. As the water contracts, they gather over hairline cracks in the floor. One by one they press themselves downward and disappear. Some return years later bearing old scars; others leave behind eggs lacquered in clay, capable of waiting through many dry seasons. Both explanations are true for different broods.
+
+At dusk, the lantern-backed grazers emerge.
+
+They are neither quite insects nor mollusks. Six fine legs carry a soft body beneath a transparent, jointed shell. Along the spine stand round nodules filled with living cells that store the day’s diffuse radiance. The brightest old grazers may carry seven or eight; newly hatched ones have only a dim bead above the heart. They come from pores in the western wall slowly enough to cast almost no shadow, feel over the stone with feathery mouthparts, and rasp away films too thin for larger creatures to notice.
+
+Their light ripens through the evening. Early on it is honey-colored, like the last glow in the western dome. Near midnight it pales toward cream. Before dawn it weakens to embers. Colonies keep far apart, each animal tending its own patch, and from a distance they resemble a constellation whose arrangement changes so gradually that the eye cannot catch it changing.
+
+They use that light for more than display. Tiny symbiotic plants live within the dorsal nodules, feeding the grazer by day and illuminating it by night. Mates recognize one another by the order in which their nodules fade. A disturbed animal releases all its stored brightness at once, making itself briefly dazzling while its soft body contracts into a fissure. The flash throws a momentary shadow beneath every moving creature nearby, often betraying a hunter that had otherwise gone unnoticed.
+
+Deeper in the pores live the chamber’s least visible residents: colorless fungi, mineral-eating bacteria, threadlike scavengers, and translucent mites. They lace clay to stone, enter grass roots, line frog holes, and coat the old river trench with the film that feeds the lantern-backs. The hollow’s sparse greenery depends upon them. The translucent grasses are not wholly plants in the ordinary sense but partnerships: pale blades lifting light from the dome, fungal nets drawing water and salts from below. Severed from either half, both perish.
+
+The white flood-thicket is another alliance. For years its hollow stems appear dead. Under the clay, however, swollen knots listen to pressure in the buried waterways. When floodwater rises, those knots release stored sugars and pigments. Blue flowers open before the chamber has finished filling. Mica moths wake, beetles climb the stems, frogs call from their sealed cells, and the brief season of abundance begins. By the following evening the cups have collapsed. Their seeds float until the water drains, lodging in cracks where they may sleep for decades.
+
+The larger visitors belong to the hollow only temporarily.
+
+Cave swifts enter as thunder and wind. They fold through the chimney, wheel beneath the luminous dome, and take water from the pools without landing. Their speed paints black crescents over the floor. Every small resident freezes when the crescents appear. Lantern-backs extinguish themselves. Beetles fold their legs. Even the fry drop into silt. The swifts depart almost as quickly as they came, leaving a few loose feathers to become furred with calcite and slowly absorbed into the stone.
+
+Foxlike drinkers descend more carefully. They are narrow-bodied, long-clawed, and dust-colored, with whiskers sensitive to the cool air rising from the pools. They know the chamber’s rule poorly or cannot obey it. Their restless movements gather heavy shadows around their paws, warning prey long before they approach. They drink, nose through clay, sometimes seize a careless frog or lizard, and climb out again. Females occasionally bring their young, but no den is made below. The diffuse brilliance offers nowhere to conceal a litter.
+
+The long-eared primates understand the hollow better. They descend singly or as bonded pairs, placing each hand and foot with prolonged deliberation. Fine hair fringes their ears and fingers, detecting air currents from cracks. They select flakes of glassy calcite by touch, test the edges against their thumbnails, and use them to open beetle cases, cut flood-stems, or scrape moss from recesses.
+
+Their intelligence has not become architecture. They remember tools rather than storing them in fixed places. An individual may return months later for a blade wedged above a basin, or retrieve a knotted length of stem after mineral crust has begun to claim it. Youngsters learn routes from the pauses of their elders: three steps across chalk, stillness; one hand to the ledge, stillness; a final reach made so slowly that no shadow forms. Alarm turns discipline into panic, and then their black shapes leap beneath them across the floor.
+
+Nothing large remains because remaining would require alteration: shelter, refuse, defended ground, a place where one act accumulates upon another. The hollow permits use but gently erases possession. Calcite seals abandoned blades. Floods sort bones from shells and carry both into cracks. Fungus consumes fiber. Clay receives footprints, hardens them, and loses them beneath the next translucent skin.
+
+Yet there may be one inhabitant larger than all the rest, though it has no body that can be pointed out.
+
+It lies in the relation between the warm floor and the breathing wall, in the bacterial films, fungal threads, rootlets, pore colonies, sleeping eggs, and water hidden below. Its pulse is the fall of drops. Its slow limbs are routes traveled by beetles and primates alike. Flood years are its brief waking; mineral years are its sleep. No creature perceives the whole of it, and no part directs the others, but together they behave like something that has learned the chamber’s central lesson: survival here is not concealment behind darkness, but surrender to light.
+
+Everything lives by becoming indistinguishable from where it rests.
+
+Then something moves, and for a heartbeat the hollow reveals it.

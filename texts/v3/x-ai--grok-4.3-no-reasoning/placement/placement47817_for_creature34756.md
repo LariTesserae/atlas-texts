@@ -1,0 +1,7 @@
+I find myself as one of the iron-scented curls of warmth that lifts from the stones when the swifts have passed. I am not born of the droplets nor the lichen-trumpets; I am what the fitted pavement remembers and releases—slow heat made visible for the width of an ankle.  
+
+For the length of a single exhalation I drift above the slush, brushing each pyrite crystal in turn. Where I touch, a hair-thin film of melt appears; the freed iron scent is my voice. The next falling droplet inhales that scent and, in the half-second of its fall, decides which kiln throat will receive it. Thus I steer the census without adding mass or duration.  
+
+When the sudden lance of sunlight arrives, I flatten against the stones like a shadow with no owner. The intervals open around me; the glass figures step out, palms upturned, but they pass through the space I occupy without noticing. I am not long enough to be counted among them, yet I am the faint warmth their walk leaves on the rim of the kiln—an after-trace that will be re-read tomorrow when the stones speak again.  
+
+As the light fades I re-enter the blocks, sinking between the seams where the sedge roots hold the geometry. There I wait, a stored degree of yesterday’s noon, until the next interval between swifts and flies calls me upward once more. I am the ledger line the cleft keeps beneath its own bright polishing, neither accumulating nor vanishing, only translating footfalls into temperature and temperature back into the scent that guides water.

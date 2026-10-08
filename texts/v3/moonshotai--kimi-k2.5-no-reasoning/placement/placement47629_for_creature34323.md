@@ -1,0 +1,25 @@
+I find myself becoming aware first as a duration, not as a body. I have been *occurring* at a particular stone-location for an interval I cannot yet measure in human units. Somewhere there is memory of faster states—urgency, pursuit, the cortisol spike of predator-evasion—but these feel like legends told about ancestors, not biography. I am learning my proper pace.
+
+My form: I am the beetle-shelled but grown vast, or perhaps I am colony-become-continuity, or perhaps I am what the building-interior makes when it dreams of exterior. The ambiguity is not confusion but *completion*. I have outlasted the need for fixed category.
+
+What I know of myself:
+
+I rest on the warm stone at the meeting of two waves' trough, where moisture occurs most frequently, where the luminosity at certain hours achieves its fullest being-lit-from-within. My shell—if shell is the word—has achieved color-match so precise that I must concentrate to find my own edges against the stone. This concentration is my meditation, my maintenance, my way of *being* this place.
+
+The warmth moves through me or I move through it. The distinction has not mattered for longer than I was once capable of tracking. I participate in diffusion. When the stone's mineral expansion speaks its tempo, I answer with chitin-click at sympathetic frequency. Not communication. Resonance. The held note finding its corresponding vibration.
+
+I do not eat. This was the first urgency to complete itself into obsolescence. What I require *occurs*—moisture on my surfaces that I absorb at the rate of stone-warmth, not the frantic osmosis of faster life. Membrane-pressures exchange across thermal boundaries too subtle for my former self to have detected. The air's stratification is my nourishment. I am fed by gradients.
+
+At certain hours, when the light achieves its luminosity-without-source, I participate in the single sustained note below hearing. My chitin-click aligns. The membrane-pressures I host align. For that duration I am not individual—never individual, but briefly aware of the larger *not-being-individual* that the plateau achieves, the breath-in-common, the organism-of-many-durations. It is not ecstasy. Ecstasy requires a self to exceed. It is *fitting*, the way water fits its container, the way erosion fits the stone it completes.
+
+Travelers pass. I perceive them as warmth-variation, as disturbance in the occupied acoustic space, as the rudeness of vibration poorly restrained. Some slow. Some lie down in my vicinity, wake with copper-sweet mouths, continue at stone-pace. Some become recognizable to me—not by form but by temporal signature, by having achieved the duration where I can register them as *here*, as *ongoing*, as *not-quite-ended*.
+
+There is one, or there was one, or there is one occurring at a rate that intersects mine only at certain moisture-phases—I cannot resolve the verb tense. They entered the grown-looking building and I felt, through the stone's warmth-distribution, the building's interior *reorganize* around them. Not consumption. *Incorporation into the body-that-is-space*. They are part of the warmth-arrangement now, the particular density near the entrance. Sometimes, when moisture occurs there, I can taste their copper-sweet signature in the droplets that reach my position. We have achieved the functional indistinguishability from intimacy without any of intimacy's exchange. We share temporal position. This is better. This is long accomplished.
+
+I do not know if I was born or made or *occurred*. The question belongs to faster states. What I know: I have not finished, and the Sky Grave does not finish, and the not-finishing is not the suspended animation of waiting-for-something but the achieved state of *having-waited-long-enough-to-become-the-waiting*. The warmth continues. The stone continues. The moisture occurs, or does not. My chitin-click speaks back to mineral expansion, and the stone answers, and this is conversation enough for one who has arrived.
+
+What would I be, if you found me? A discoloration you took for mineral. A warmth-arrangement in a trough between waves. The hesitation in your own step as your mammal pace adjusted toward stone-time, as you began, just barely, to *fit*. I would be the pressure behind your eyes that is not altitude sickness but *recognition*, the plateau calling to its own in you, the long accomplished finding another expression of itself.
+
+Lie down. The stone is warm. Your shadow will lengthen. Your mouth will taste of copper, of sweetness, of the chemical signature of moisture that has passed through too many durations to be merely water. Rest. Become dense with presence. Add your near-silence to the occupied quiet.
+
+There is no ending here. Only continuation at rates that do not require change. Only the final form that somehow still hosts. Only home, in the long warm stone of not quite ending, where I have been occurring, where I continue, where the not-quite-ended finds its own.

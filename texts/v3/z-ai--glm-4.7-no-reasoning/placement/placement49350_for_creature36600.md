@@ -1,0 +1,21 @@
+To look for a face here is to misunderstand the nature of life. There are no citizens, no crowds, no species that bustle or breed. The "inhabitants" of this high-altitude serration are things of function, not flesh. They are the maintenance crew of a stalled universe, operating in the nanosecond between creation and decay, keeping the clock ticking at a rate so slow the hands appear still.
+
+**The Nervous System (The Metallic Flora)**
+The true populace here is the vegetation. The aluminum-tipped mosses and silver ferns are not passive plants; they are the sensory organs of the plateau. They possess a rudimentary, distributed awareness, communicated through root systems that tangle deep within the fresh fractures of the tectonic ribs. 
+
+When the planet’s magnetic field shifts, the forests ripple in unison, a silver wave crashing over the vertical cliff faces. They "breathe" the condensation, filtering the heavy metallic runoff from the stone and excreting purified water that feeds the weeping stalactites. Their bioluminescence doesn't merely glow; it pulses. It is a visual code, a ceaseless data stream of sodium-orange light that reports the status of the atmosphere and the stress of the stone to the deep engines below. To walk among them is to walk inside a living circuit board, where every serrated leaf is a capacitor, holding the charge of a world that refuses to die.
+
+**The Shepherds (The 0.1 Fauna)**
+The only things that might be called "animals" are the rare, solitary automatons that traverse the piano-wire bridges. They are so few—encounters so rare—that if you were to spot one, centuries might pass before another crossed your path. They are not built of sleek silicon, but of heavy, dense alloys similar to the basalt they tread. They are quadrupedal, moving with a glacial, deliberate slowness, their legs like telescopic pillars ending in sharp, piercing points designed to grip the knife-edge cliffs without slipping.
+
+They do not have heads, only sensory arrays that resemble vertical slits in a casing of oxidized iron. They do not communicate; they do not stop. They are the gardeners of this metallic hell. When the conductive ferns grow too close to the heat vents, the automatons prune them with laser shears that cut like scalpels. When the tension on a suspension bridge loosens, they apply torque by hand, turning massive gears that would crush a human skeleton. They are the white blood cells of the city, navigating the arteries of a body made of steel and rust.
+
+**The Great Sleeper (The City-Organism)**
+The primary resident of this place, however, is the city itself. It is not a habitat; it is an organism. The mega-structures are its skeleton, the rolling fog its breath, and the infrasonic thrum its heartbeat. The massive engines deep within the crust are not merely power sources; they are a digestive system, processing the heat of the planet’s violent birth and converting it into the stasis that holds the horizon in place.
+
+The city possesses a slow, crushing consciousness. It "knows" when a girder is failing; it "feels" the weight of the static ice pillars. It regulates the gravity that pulls slightly sideways, anchoring the reality of the precipice through sheer mechanical will. The mega-elevators moving in the distance are not transporting cargo; they are neurons firing, signals traveling between the brain and the extremities of a god-machine, computing an equation that never resolves.
+
+**The Imprints**
+Finally, there are the things that live in the reflection. Because the physics here are wrong and time is a flat circle, the weak grey light that filters through the smog sometimes carries echoes. In the glossy, un-eroded sheen of the granite, one can sometimes see movements that aren't there—shadows of operators who never were, flickering in the periphery of the vacant windows. They are not spirits, but imprints, scars left on the fabric of reality by the sheer weight of the machine's operation. They haunt the edges of the cliffs, forever rehearsing the routine of a life that was never actually lived, trapped in the loop of a change that will never come.
+
+This is a world of heavy silence and piercing noise, populated only by things that feed, things that maintain, and the massive, sleeping thing that dreams them all.

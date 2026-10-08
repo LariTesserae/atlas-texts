@@ -1,0 +1,28 @@
+The things that inhabit the Nursery of Unfinished Forms do not live in it; they *are* it. The distinction between the organism and the occupant has dissolved here, leaving only a colony of distinct functions serving a single, suffocating purpose. To walk here is to walk inside the body of a god that is still learning how to be a god.
+
+**The Constructors (The Hammer-Beetles)**
+At the operational level, moving with the industriousness of ants and the mass of bulldogs, are the Constructors. To call them insects is to comfort oneself with false taxonomy. They are chitinous masonry, living wedges designed to bridge the gap between the biological and the geometric.
+
+They possess no faces, only the smooth, concave striking surface of a blacksmith’s hammer, sensory inputs located somewhere in the jointed ridges of their carapace. They do not see the world as we do; they perceive stress lines and tensile strength. They climb the woody, smokestack-like towers not to rest, but to groom. Their mandibles are precise, surgical shears that snip away the excess of the "wild"—the soft, frondy chaotic growth of the algae-mat—leaving behind only the hard, brutalist lines of the Engines. They are the editors of this reality, constantly pruning the organic to enforce the industrial. When they click their legs against the calcified bark, it is not random movement; it is tapping, testing the density, ensuring the tower is structurally sound. If a wall begins to bulge with the softness of flesh, the Constructors descend upon it in a swarm, scraping and biting until it is flat, hard, and dead-straight again.
+
+**The Siphoners (The Ceiling-Walkers)**
+Because gravity here is a suggestion rather than a law, the ecosystem has produced creatures that treat the air itself as a solid. Drifting in the gloom above are the Siphoners—vast, pale, leathery shapes reminiscent of manta rays or carpets of wet skin. They have no wings to flap; they possess only a surface area so immense and a density so slight that they ride the thermal currents of the Engines’ heat.
+
+They hang inverted from the "ceilings" of the open-air plain, suspended by the electro-static charge that gathers in the damp air. Their mouths are long, serrated tubes, constantly extended. They are the circulatory system of the Nursery. They drink the heavy, mercury-like silence, or perhaps the vaporized iron and ozone, filtering it. As they drift, they excrete a fine, glittering dust that falls downward to fertilize the algae-mat. They are the opposite of the Constructors; where the beetles impose order, the Siphoners spread the raw material. They are passive, majestic, and utterly blind, sensing the world through the vibration of the wet, muscular pistons churning in the towers below.
+
+**The Architects (The Gymnosperm Minds)**
+Deep within the hollowed-out centers of the largest Engines—those impossibly tall spires of calcified wood—dwell the Architects. These are not creatures you can see easily, for they are intertwined with the "building" itself. They are massive, neuro-clusters of root and nerve, a brain made of fungal fibers and calcified tissue.
+
+They pulse with the yellowish, electrified sap that drives the pistons. They are the intelligence that understands *geometry*. The algae-mat wants to be a jungle; the Architects force it to be a factory. They dwell in the dark, humid interiors, surrounded by the slow, grinding rotation of gears the size of houses. They feel the friction of the vines turning the cogs. They experience the spatial distortions—the flickering checkerboards of rusted metal—and they stabilize them through sheer biological will. When the world ripples and threatens to dissolve into chaos, the Architects release a sub-sonic hum, a psychic anchor that forces the reality to hold its shape. They are the reason the Nursery feels like a waiting room; they are holding their breath, waiting for the blueprint to be finished.
+
+**The Glitch-Parasites**
+In the corners of your vision, where the geometry folds inward and the air shimmers, live the things that feed on instability. They are small, spindly creatures that look like sketches of spiders—pencil-thin legs and bodies that look like smudges of charcoal. They do not exist fully in three dimensions. They skitter along the edges where the bio-concrete meets the void, feeding on the "weirdness" of this place.
+
+They are scavengers of error. When a tower flickers, briefly becoming stone, then flesh, then metal, the Glitch-Parasites swarm, devouring the excess energy of the transformation. They are the only things here that seem to move with frantic speed, vibrating with the hum of the room. To touch one is to feel the static shock of a thousand television screens.
+
+**The Unborn (The Titans in the Dark)**
+And then there is the deeper sound—the distant, wet roar of something massive moving in the dark. These are the tenants for whom this Nursery is being built. They are so large that the "cathedral" of emptiness feels cramped around them. They sleep in the deep, beneath the algae-mat, curled in the subterranean dark like embryos in a womb.
+
+They are the ultimate product of the industrial biology. You see only the tips of their spines rising through the floor—massive, jagged ridges of bone and iron that look like mountain ranges. They are asleep, dreaming the geometry of the city. The Engines, the Constructors, the Siphoners—all are merely maintaining the incubator. The "heavy, waiting silence" is the sound of them sleeping.
+
+They are forms unfinished, perfect predators of a world that does not yet exist, waiting for the day the lights finally turn on, waiting for the birthing fluids to drain, waiting for the Nursery to become a world they can hunt.

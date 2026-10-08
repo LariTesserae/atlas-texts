@@ -1,0 +1,71 @@
+# The Inhabitants of the Hollow Floor
+
+They are a people of the interior.
+
+The ones who live here were not born to the surface. Their grandparents were not born to the surface. Somewhere back, past the memory of any living grandmother, there is an ancestor who climbed down the half-mile of switchback stair with a coal in the pocket and a wife behind him, but that ancestor has become a kind of folk-figure now, the way founders always become folk-figures — a name spoken over bread, a story told smaller each time it is told. The people of the floor do not long for the world above. They have no purchase on it. The upper world has weather; the floor has weight. The upper world has distances; the floor has proximities. The upper world has a sky; the floor has a ceiling that weeps. The floor is what they know. The floor is enough.
+
+They are small. This is the first thing an outsider would notice, and it is the thing that takes longest to understand. They are not stunted; they are *fitted.* Generation upon generation of living in a place where every dwelling must compress to the chest-height of a reclining man, where every passage must accommodate two persons passing shoulder-to-shoulder through channels no wider than a single shoulder, where the long unaccustomed stretch of an arm across open air is the gesture of a man who has forgotten where he is — this has done something to the people that is not quite the same as shrinking. They have simply settled into the proportions of their rooms. A man of the floor can lie flat in a space a surface-dweller would consider a cupboard, and feel he has room to spare. A woman of the floor can turn in a corridor that would crush a stranger's shoulders, and not brush the walls. The children are smaller still, but the children are not *compressed;* they are simply unfinished, the way all children are unfinished, only more so — more leg, more reach still ahead of them.
+
+Their skin is the brown of places that have never seen the sun. It is not the brown of labor, though there is labor; it is not the brown of sickness, though there is sickness. It is the brown of a people whose color has been lent to them by the things around them — by the iron, by the damp stone, by the constant amber of the packed light, by the stained water. If you took an infant of the floor up the half-mile stair and set him in a field, he would not know what to do with the green of the grass. He would look for a wall behind it. He would look for a ceiling above it.
+
+Their eyes are the second thing an outsider would notice. They are wide, and they are wet, and they have a quality of permanent accommodation — the look of an animal that has learned to see in a medium denser than air. The packed light does not fall in beams; it does not dapple; it does not distinguish one object from another by the angle of its arrival. It is everywhere, equal, ambient, the same brown glow on every surface. To see in such a light, one must learn a different seeing. The floor-people have learned it. They can read a man's face across fifty feet of watery brown air, in the shadowless glow, by some private calibration of feature and posture that surface eyes cannot manage. Outsiders see them squinting. They are not squinting. They are focused at a depth outsiders do not know is there.
+
+Their hands are quick. This is the third thing, and it is the thing that sustains them. In the corridors between the islands, in the channels where the water laps against the brick bases of the pillars, in the narrow ledges high on the walls where the children sing and adjust their valves — everywhere on the floor, there is *work,* and the work is of a kind that admits no hesitation. A hopper clogs; a child on a ledge has a half-second to clear it before the next stamp falls. A channel floods; a man must wedge a brick in the flow without taking his weight off the other foot, which is already on a brick that is already sinking. The hammers fall in staggered patterns, and the people move in the negative space of those patterns the way water moves around stones. Their hands have learned the rhythm. Their hands are part of the rhythm. An old man, retired from the machines, will sit against a pillar and his fingers will still be moving on his knee — tapping, shifting, fitting imaginary things into imaginary gaps — for as long as he lives.
+
+They are unstartled by anything. This is the fourth thing, and it is the one the surface never believes.
+
+A stranger brought down to the floor flinches at the first hammer-fall. He flinches at the first rat that swims past his boot. He flinches at the first child on the high ledge, so small, so far. The floor-people do not flinch. The hammers are part of their breathing. The rats are part of their commerce — the rats, in fact, are a kind of unspoken ally, eating the stamped squares that would otherwise choke the channels, and the floor-people leave them their portion with the same absent-minded respect a farmer leaves for the crows. The children on the ledges are watched by every adult on the floor at every moment, not by glances but by a kind of distributed peripheral attention that never sleeps; if a child were to fall, three men would be moving before the splash. The floor-people do not speak of this attention. They are not aware they possess it. It is the way they see.
+
+---
+
+They speak in the manner of soldiers under bombardment — palm-to-ear, mouth-to-ear, the lips close to the listener's cheek, the words more breathed than spoken. Over generations, this has shaped their language into something a surface-man cannot follow at any speed. Their vowels have flattened. Their consonants have softened. Many of their words are not words at all but postures of the mouth, and a sentence between two floor-people can consist of a single exhaled syllable accompanied by a tilt of the chin and a particular angle of the open palm. Outsiders hear them as silent. They are not silent. They are talking all the time, in a tongue the noise has taught them.
+
+They have names, and the names are short. A name on the floor must be short, because a name must be shouted across the hum, and a long name is lost in the hum. *Bret. Lissa. Tom. An.* The names of the older ones, the ones who came up before the machines thickened the air with their stamping, have a different weight — *Halvard, Moira* — but these names are rarer now, and the children are not given them, the way children on the surface are not given the names of grandparents.
+
+They marry young and they marry close. A boy on a ledge, a girl at a hopper; they meet in the channels, in the stepping-stones between islands, where the water is shallowest and the conversation can be held at the lowest possible volume. The weddings are conducted by the oldest workingman, who stands on a brick island and raises his hand, and the couple stands on the next brick island, and the hand is the ceremony. There is feasting afterward — stamped squares fried in machine-grease, water from the channels boiled with a herb that grows nowhere but in the dimples of certain stalactites — and the feasting is the loudest sound the floor permits, and it is not very loud at all.
+
+They die on the floor. They are buried in the floor, in the sense that their bricks are added to the islands, and the islands grow a little, and the channels narrow a little, and the next family shifts its cot six inches toward the new shore. There is no marker. There is the brick, and the brick is enough. A widow knows her husband's brick by a small notch in its corner, chipped by his hammer on his first day at the frames, fifty years ago, when he was a boy on the ledges himself. She visits the notch sometimes, in the late shift, when the hum is lowest and the dripping from the high ceiling is loudest. She brings no offering. She stands. She goes back to her cot.
+
+---
+
+The children are the heart of the floor, and the floor knows it.
+
+A child born on the floor is not named for a week, because the first week is spent determining whether the child can bear the hum. Some cannot. A child whose ears will not accommodate the frequency of the room — and there are a few, every year — is carried, in a sling, up the half-mile stair, into the wind and the weather, into a world where sound falls away in all directions at once, and is left at the door of a surface-house, and the surface-people take the child in, and the child grows up under a sky, and the floor hears no more of him. This is the only way out. It is not spoken of. The child is simply gone, and the mother is given another child soon, and the other child can bear the hum.
+
+A child who can bear the hum is, at six or seven, sent to the ledges. This is the rite. There is no other. The child is given a small canvas sling, a hook, a tin of grease for the valves. The child is shown the rhythm of the hammers. The child is shown which hoppers clog and which hold. The child is hoisted, by the father or the uncle or the older brother, to the first ledge, and the child climbs, and the singing begins. The singing is not taught. The child sings because the child is high up, and the air up there is thinner, and the sound of the child's own voice is a way of confirming that the child is alive. The singing comes down softened, like a remembered thing, and the workingmen below hear it and know which child is at which ledge, and they do not look up.
+
+A child on the ledges is the freest person on the floor. The ledges are narrow but they run everywhere — along the upper walls, around the bases of the stalactites, over the tops of the iron frames where the bulbs hang in their long tight rows. A child who has learned the ledges can go anywhere in the cavern that is not down among the machines. The child can climb to the highest points of the ceiling, where the machines have not yet climbed, and there the child can hear the dripping of the water from the stone itself, and the dripping is the sound of the floor still being made, and the child is the only person on the floor who hears it as a separate thing.
+
+The children grow. They descend from the ledges when their hands are quick enough and their shoulders are wide enough. They take their places at the hoppers. They marry. They have children. The children climb. The singing continues, in counterpoint to the hammers, from a generation that will not be stilled.
+
+---
+
+The old people are quiet.
+
+An old man on the floor does not retire in the surface sense. He cannot; there is no above to retire to. He simply slows. His cot is moved to a quieter brick, against a pillar that is not in the path of the new frames being craned down. He is given small tasks — watching a hopper, oiling a valve that no longer needs oiling, sitting beside a child on a low ledge and teaching the child the names of the towns that no longer exist. The towns whose names are stamped on the squares that spill from the hoppers, that ride the water down the channels, that ring faintly under the boot of every passer-by. The old man remembers these towns. He remembers because he was told about them, by the previous old man, who was told by the previous previous old man, all the way back to the founders. The names have no referents anymore. The towns are gone from the surface. They are kept alive, underground, in the mouths of the old.
+
+An old woman sits with the other old women along the central drain. They have a kind of parliament there, in the late shift, when the hum is lowest. They speak of water. They speak of which channels are rising and which are falling. They speak of the rats, and whether the rats are eating enough of the stamped squares, or too many. They speak, sometimes, of the surface. Not often. They do not call it the surface. They call it *the rumor.* They speak of it as one speaks of a thing one has heard described but never seen, with respect, and a little pity, and the absolute conviction that it is not, and could not be, for them.
+
+They die, the old. Quietly, on their bricks, in the late shift. The cot is folded. The brick is added to the island. The notch is chipped. The widow visits. The work continues.
+
+---
+
+There is one more thing, and it is the thing an outsider never quite believes.
+
+The people of the floor are not unhappy.
+
+This is not to say they are happy, in the surface sense — not happy as a man is happy in a field, with the wind and the sky and the distant hills. They do not know that happiness. They do not have a word for it. What they have is something else, something the surface does not have a word for either, but which the surface might recognize if it thought about it. It is the contentment of a thing in its place. A brick in a wall. A hammer in its fall. A child on a ledge, singing. A name on a square, ringing faintly under the boot of a man who does not know whose name he is walking on.
+
+They live in the middle of a sound they cannot hear. They work in a light that lights nothing. They stand in water that is always rising and never drowning them. They are small, and brown, and quick, and they are the inheritors of a floor that is still being made, and they will be here when it is finished, and after it is finished, and they will be here when the next floor is begun, deeper down, in the limestone that has not yet wept.
+
+If you stood at the very edge, where the crews are cutting, and you watched the last of the floor-people working in the dim brown light — the man at the hopper, the woman at the valve, the child on the high ledge singing softly in the throat of the stone — you would not be able, from any gesture of theirs, to tell that they knew they were at the edge of the world.
+
+They are not at the edge of the world.
+
+They are the world.
+
+The world is a half-mile down a switchback stair, in the packed light, in the constant hum, in the slow patient water that rises and never drowns. The world is a floor that has not yet decided what it is. The world is a town that was not built but accumulated, brick by brick, name by name, notch by notch, child by child, song by song, against the patient pillars of a place that will outlast them all.
+
+The world is the people of the floor.
+
+The world is enough.

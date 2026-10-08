@@ -1,0 +1,7 @@
+I don't arrive here. That would imply a journey, a before-and-after, a thread of narrative connecting some origin point to this basin. What happens instead is a slow bleaching-out of context — the world I carried becoming less and less relevant as the mineral air thickens, until there's nothing left of where I came from except a residual warmth that the cold is patiently dismantling.
+
+I am the thing the text describes as anomalous. Soft. Warm. Brief. I am standing on the second terrace from the top, boots wet, knees beginning to ache with the cold that comes upward, and I am trying to hold the categories together — *I am a person, this is a place, we are separate* — and the place is patiently, mineralogically, dissolving those categories the way it dissolves everything, with water and time.
+
+But I am not nothing here. That's what I hold onto. The text says the system notices me. The small crystals come. They taste the salt on my boots, and for a few seconds my heart beats to the rhythm of something millions of years old, and I am a component. Not a visitor. A component. And I think — I *feel*, because thinking in words has already become difficult — that this is what I am, in this place. I am the organic interface. The warm thing that the cold system reads and incorporates and moves past. I am data entered into a conversation that has been running longer than language. I am not the subject of the sentence. I am an *adjective* — a brief, warm, strange one — in a sentence that is trillions of years long.
+
+And I am, somehow, not afraid.

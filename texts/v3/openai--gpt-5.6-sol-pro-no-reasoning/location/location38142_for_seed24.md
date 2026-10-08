@@ -1,0 +1,23 @@
+The hollow lies below the surrounding plain, not deeply, but enough that the horizon disappears. Its limits are a ring of low, rounded scarps, their edges softened by great age. From one side to the other it is perhaps the size of a small hamlet. Nothing has been built here. There are no paths, walls, cairns, or discarded tools—only a shallow basin of stone that has arrived, through long weathering, at a nearly final shape.
+
+The floor is dry clay and pale mineral crust. Broad plates fit together like pieces of worn pottery, divided by narrow seams of dark dust. Here and there, heat has lifted the crust into blisters no higher than a hand; most have long since broken open and been ground smooth. Pebbles lie sparsely across the basin, rounded but not by water. Their polish comes from dust, minute thermal shifts, and an old wind that no longer seems to blow.
+
+Warmth remains in the ground. It is not the fierce heat of an exposed desert but a close, stored warmth, as if the hollow has spent all day beneath a sun that cannot now be seen. The air is dry and still. Breath leaves the mouth without mist. Skin quickly becomes aware of its own moisture.
+
+Very little light enters. Perhaps the basin lies beneath a permanent overcast, or beneath an eclipse so old it has become part of the climate. The sky is a deep charcoal color without stars. The land can be discerned only by slight differences of tone: ash-gray clay, black seams, dull ocher stone. A faint illumination seems to rise from the mineral floor itself, too weak to cast shadows. Shapes appear gradually to an adjusted eye and vanish again if looked at too directly.
+
+Vegetation survives in scattered, economical forms. Low mats cling inside cracks where the warmth is most constant. Their surfaces are tough, folded, and nearly black, absorbing what little light reaches them. A few upright stalks grow along the inner foot of the scarp, each separated from the next by many paces. They are jointed and dry-looking, with narrow bronze blades held close to the stem. Nothing blooms openly. Reproduction happens under the crust: slow roots divide, thicken, and extend from one sheltered fissure to another. A stand that looks like ten plants may be one organism spread across centuries.
+
+There are no animals. No tracks cross the clay, no burrows puncture it, and no insects gather beneath the mineral plates. The plants have no need of color, scent, nectar, or fruit. Their seeds—if they can be called seeds—are blunt capsules that fall directly beside the parent and wait in the dust. With nothing to carry or consume them, life remains close to where it began.
+
+The silence is nearly complete. Now and then the clay gives a soft tick as stored heat passes through it. A plant blade rubs once against its stem, producing a sound like a fingernail drawn over paper. These noises do not begin any chain of disturbance. There is no answering call, no scattering movement, no rustle through hidden life.
+
+Erosion has not ceased, but it has become almost ceremonial. The scarps shed a grain at a time. Dust slips down their slopes and gathers in shallow aprons, where roots bind it. The basin’s forms are old and reconciled: nothing sharp remains, nothing is actively collapsing. Even the cracks in the floor recur in established lines, opening imperceptibly with warmth and closing when the temperature eases. Over a lifetime, their pattern might appear unchanged.
+
+One could imagine that the earliest tools would be possible here. The dark pebbles fracture into usable edges; the fibrous stalks could be split and twisted; mineral nodules might make pigments or crude blades. Yet none have been taken up. The possibility of craft exists only in the materials, unrealized. Every stone remains where gravity and time placed it.
+
+At the center of the hollow is a patch where no plant grows. The crust there is smooth, slightly darker, and warmest of all. It is not a pool and never was one. Beneath it, some buried layer of dense stone holds heat with remarkable patience. Standing on it, one feels that warmth through the soles, steady and without pulse.
+
+This is the governing character of the place: not death, exactly, but persistence without event. Nothing hunts. Nothing flees. Nothing floods, sprouts suddenly, burns, or decays in haste. The hollow keeps a narrow balance between warm stone, dry air, scarce rooted life, and darkness. Change occurs only in increments too small to become happenings.
+
+If a footprint were made here, it might remain longer than the one who made it. Yet even that mark would seem intrusive—not forbidden by any law, but out of keeping with a landscape that has spent ages becoming quiet enough to resemble permanence.

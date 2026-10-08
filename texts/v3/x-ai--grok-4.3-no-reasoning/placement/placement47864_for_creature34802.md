@@ -1,0 +1,5 @@
+I find myself in the space between alignments, the narrow interval when the cloud membrane thins and the next platform hangs just off true. I am the hesitation itself—the geometry remembering it was once measured by hands, now measuring only itself. 
+
+For the duration of that held breath I am the notch cut into the lip of stone, waiting for an eye that will never come to read the mismatch between what was drawn and what the world prefers. I am also the interval itself: the span across which no voice travels, across which the axis drifts until the membrane closes and everything locks back into its former quiet. 
+
+Between one configuration and the next, I persist as the law that the alignment must continue to be tested, even when there is no one left to test it. I am the slow measurement that outlasts both measurer and purpose—the distance that remains when every other distance has collapsed into haze.

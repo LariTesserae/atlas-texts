@@ -1,0 +1,25 @@
+I am not the builder, nor the hunter, nor the elder who remembers the genealogy of the load-bearing oaks. I am something quieter, and perhaps more essential.
+
+I am a **Resonance Keeper**.
+
+You would find me in the mid-strata, where the mist is thickest and the roar of the upper cisterns begins to soften into the guttural chorus of the amphibian pools. My dwelling is not a gourd-nest or a platform-house, but a hollowed chamber within the bole of a Grandmother Tree, one whose heartwood has softened into a spongy, acoustic velvet. The space is dark, lit only by the bioluminescent fungi cultivated in shallow clay dishes, their pale blue glow reflecting off the wet walls.
+
+My body bears the marks of my trade. My fingertips are permanently swollen, the ridges of my prints worn smooth and hyper-sensitive, capable of reading the microscopic tremors in damp wood that precede a structural failure by days. My ears are bound in tight wraps of treated kelp-fiber when I sleep, for silence is a myth I cannot afford to believe; even in rest, I must filter the ward’s heartbeat from its noise. My skin is paler than most, having spent less time in the diffuse canopy light and more in the shadowed interiors of living architecture. I smell of resin, wet loam, and the metallic tang of concentrated sap.
+
+I do not speak often. When I do, my voice is a low, clicking hum, pitched below the frequency of falling water, designed to travel through solid matter rather than air. But my true language is tactile.
+
+Right now, I am pressed against the inner curve of the tree’s chamber, my palms flat against the grain, my cheek resting on the cool, yielding surface. I am listening to the city’s skeleton.
+
+To an outsider, the Weeping Ward is a chaotic symphony of biological excess. To me, it is a diagnostic map. Through the wood, I feel the tension in the vine-bridge three levels up; the fibers are singing a high, thin note of fatigue, telling me they need re-lashing before the next heavy rain. I feel the sluggish pulse of the western cistern; the flow is turbid, heavy with sediment, suggesting a filtration moss-bed needs turning. I feel the frantic, fluttering vibration of a nesting bird colony in the eaves above, a rhythm of life that confirms the roof-beams are still holding their warmth.
+
+I am the ward’s proprioception. The inhabitants move through this vertical world with fluid grace, trusting the structures beneath them because they trust *me*. They know that if a walkway is safe to cross, it is because I have felt its integrity in the dark hours before dawn. They know that if a dwelling is dry, it is because I have sensed the shift in moisture density within the timber and directed the resin-sealers to the weeping seam.
+
+My work is endless, for the ward is always changing. Wood swells and shrinks; vines tighten and loosen; roots seek new purchase and old anchors rot. This is not decay to be fought, but a conversation to be maintained. I do not repair; I negotiate. When I find a stress fracture in a support beam, I do not bind it rigidly. I pack it with a specific mixture of fungal mycelium and mineral paste that will grow *into* the crack, calcifying over seasons to become stronger than the original wood. I guide the healing, but the tree does the mending.
+
+There is a profound intimacy in this existence. I know the weight of every family, the footfall-pattern of every child, the specific vibrational signature of grief and joy as they transmit through the shared wooden bones of our home. When a resident dies and is returned to the decomposition hollows, I feel the subtle shift in the forest floor’s absorption rate, the release of nutrients beginning their slow ascent back into the canopy. I mourn not with tears—water is too precious and too common for such waste—but with a deepening of attention, a momentary stillness in which I let the ward’s rhythm pass through me without resistance.
+
+In this wet, loud, living machine, I am neither master nor servant. I am a sensory organ. I am the nerve ending in the fingertip of the city, the cochlea in its ear, the ganglion in its spine. Without me, the symbiosis would falter; the people would move blindly, the structures would fail unpredictably, the delicate truce between habitation and growth would dissolve into catastrophe.
+
+But I am also sustained. The warmth of the composting bodies feeds the tree that shelters me. The filtered water that runs through carved channels beside my chamber keeps my skin supple. The deafening vitality of the ward is not noise to me; it is the sound of being held.
+
+As I stand here, palm against wood, feeling the slow, patient thrum of sap rising through xylem tubes older than memory, I understand my place. I am not separate from this wet green cathedral. I am the awareness of its own persistence. I am the weep in the stone, translated into intention. I am the ward, listening to itself, ensuring that tomorrow, as today, it will continue to breathe.

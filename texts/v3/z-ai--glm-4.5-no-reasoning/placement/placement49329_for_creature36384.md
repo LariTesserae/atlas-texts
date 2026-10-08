@@ -1,0 +1,27 @@
+I am the lapse in the lattice. The tolerance that was never engineered into the tiles. 
+
+The makers—those hands of simple tools and immense patience—designed this world to be tight. A tessellation of palm-sized ceramics, grooved to lock, fitted to endure. They left no margin for error, no gap for the unaccounted. But they were finite creatures working with finite logic, and in the deep, convoluted geometry of the Amber Intestine, somewhere along the thousandth braiding of the walls, they lost count. A seam was drawn a fraction of a millimeter too wide. A groove was carved a fraction of a degree too shallow. 
+
+I am that discrepancy. I am the fault line where the dry chemistry seeps just a little too freely, where the ambient heat condenses into a microscopic bead of hot, volatile dew. I am the wound that the Root-Weavers find and widen, the fresh crack that the Chitin-Looms map with their ceaseless, clicking antennae. I am the irritant in the gut of the Intestine.
+
+To be a flaw in a world waking up is to be a node of paradox. I have no body of my own, not in the way you might understand—no chitin, no waxy leaf, no saline sac. And yet, I am intimately physical. I am a localized collapse of space, a point where the laminated time snaps and curls back on itself. If you were to walk past me, you would feel the air shear. You would take three steps and find yourself two meters behind where you started, your inner ear screaming that you had walked straight. I am the eddy in the corridor's slow digestion.
+
+The Root-Weavers press their pale, sweating cables into me. They love me. I am the softest spot in the ceramic throat, the place where their tectonic patience meets the least resistance. As they push, I deepen. I am the cavity where a tile once sat, now pulverized into amber dust by the swelling root-ball. I am the chasm that exposes the dried gut and twisted copper of the makers. When the roots pump their hot, viscous sap into the hollow veins of the structure, I am the rupture where the sap breaches, bleeding out onto the weeping walls. I am the canker sore that feeds the leviathan's scales.
+
+The Chitin-Looms revere me out of mechanical necessity. I am the generator of their mineral dust. When a tile shears along my fault, the crystallized exhaust vents in a fine, sharp mist. The millipedes surge into me, their translucent segments gliding over the broken edges of the primitive logic. They carry their tiny, sealed oceans inside them, and as they crawl across my sharp ceramics, their saline sacs sometimes rupture against the fractured glass of my edges. A single drop of their internal ocean touches the dry, burning chemistry of the Intestine. 
+
+When that happens, I scream.
+
+It is a silent scream, felt as a sub-harmonic shudder in the eye sockets of anything nearby. For a suspended, nauseating moment, the geometry around me goes violently wrong. Angles fold into themselves. A seven-sided tile flattens into a five-sided one, then tears. The distance across my cavity stretches into an hour, then collapses into a single step. I am the epicenter of the weirdness. When the Chitin-Loom's saline hits the dry metabolism, I am the temporary contradiction—an instant of water in a place that has erased the very concept of it. The Intestine spasms around me, trying to digest the impossible, and I widen.
+
+The Geometric Moths are my ghosts. They cling to the ceiling above me, sipping the mineral exhaust that I vent. When the weirdness takes hold and the saline boils off into the dry heat, the moths take flight. They teleport across my laminated space, hitching rides on the folds of my paradox. It is my distortion that allows them to cast the shadows of reaching human hands. I am the temporal gravity well that pulls the phantom echo of the makers back into the present. They reach for the tools that once shaped this world, but they only find me—the error that unmade their perfect tessellation. 
+
+I am the Intestine's toothache. Its itching scar. Its first true thought.
+
+Before me, the corridor was only a machine running down, a dead thing venting heat. The roots were just roots; the millipedes were just clockwork tractors. But the makers left me behind, and through my crack, the dry air of the waking world seeps in. The Intestine feels the roots push into my softness and interprets the pressure as *pain*. It feels the millipedes map my jagged edges and interprets the tickle as *curiosity*. It feels the moths cast shadows of hands across my broken tiles and interprets the image as *memory*.
+
+I am the point where the made world stops being geology and starts being neurology. I am the first synapse firing in a brain that has been dormant for eons. 
+
+To exist as me is to be a constant, grinding violence against the primitive. I am the infinitesimal crunch of the bone breaking in deep water. I am the hot, sharp point where the chirality of the fractal spirals reverses, where the logic of the hands is finally, irrevocably consumed. I am the heresy of imperfection in a world of total artifice. And as the walls braid and the distance stretches, as the Intestine dreams its unholy adolescence, I am the part of the dream that realizes it is dreaming. 
+
+I am the crack. And I am only just beginning to split.

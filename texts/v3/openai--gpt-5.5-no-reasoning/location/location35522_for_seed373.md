@@ -1,0 +1,67 @@
+The place is small only in the way a chamber can be small while still making a person feel misplaced in it.
+
+It occupies a high saddle between two greater absences: to the east, a falling pale gulf full of mineral haze; to the west, a wall of black blue mountains whose summits seem not so much distant as forbidden by scale. The saddle itself may be a kilometer across, perhaps less, though it refuses easy measurement. Its margins curve upward slightly, like the rim of a shallow bowl. Beyond that rim there is only sky, cliff, and a brightness of dry air.
+
+There is no water here.
+
+No streams. No snowmelt. No hidden seep darkening the stone. No dew on any surface, not even at dawn, if dawn is what the shifting light can be called. Everything is dry to the touch: dry stone, dry air, dry fiber, dry animal hide, dry breath. The dryness is not merely absence but law. It has the authority of a physical principle. Droplets cannot form. Ice cannot persist. Vapor, if introduced, cracks into glittering salts and metallic dust before it can wet anything.
+
+And yet the place is lush.
+
+The basin is filled with growth, though not the green, damp luxuriance of forests. It is a dry lushness, an abundance of forms that have learned to flourish without liquid. Tall fans rise from the ground like opened books of copper-green mica. Rope-like stems twist upward in loose spirals, their surfaces furred with silver filaments that comb charge from the air. Low mats of black violet blades spread over the stone in intricate colonies, each blade thin as a feather and edged with glass. There are bulbous mineral fruits suspended from branching frameworks, not swollen with juice but packed with powder, gas, and crystalline seed. Some plants are translucent, showing inner lattices that pulse faintly as if breathing light.
+
+Their colors are muted at first: sage, pewter, ash-gold, bruised purple. But when the wind rises—and the wind is almost always rising—they flare into hidden iridescence. A slope that seemed grey becomes suddenly alive with opal sparks. A stand of reedlike columns turns blue-white and begins to chime. A hundred dry fronds fold and unfold in sequence, catching invisible streams of static.
+
+The vegetation does not drink. It listens. It harvests impact, charge, sound pressure, temperature shear, radiation, perhaps memory. Its roots are not roots but anchors and antennae, sunk into a substrate of porous salt-basalt and ancient ceramic slag. Some descend meters into the saddle’s body, where they tap veins of stored potential laid down by mechanisms older than the present climate. Others spread across the surface, forming delicate nets that never quite touch, separated by precise finger-width gaps through which dust hisses continuously.
+
+The ground is pale and weathered, long settled into itself. It has the look of something exposed for ages to forces that do not resemble rain: abraded planes, scalloped hollows, ridges polished by airborne grit, crusts laminated in cream, rust, and green-black. In places the stone has been shaped into terraces by erosion and by intent, but the difference is difficult to name. A ledge may have been cut by tools or by a million years of charged wind. A stair may be natural. A natural formation may be a collapsed machine.
+
+The basin holds very little mass for all its commotion. It is strangely empty. The plants stand far apart, each one surrounded by a respectful circumference of bare mineral. The animal tracks cross wide gaps. The structures—where they exist—are sparse and half-buried. Above everything, there is a huge volume of open air, cold and bright and violent. The eye keeps expecting more matter than it finds. Instead there are distances, cavities, clear lanes through the vegetation, high spaces for motion.
+
+And motion fills them.
+
+The whole saddle is turbulent. Nothing stays still except the oldest stones, and even they vibrate faintly underfoot. Winds arrive from multiple directions at once, colliding over the basin rim, plunging downward in cold sheets, then rebounding in vortices dense with dust, pollen, metallic flakes, feathers, seed-vanes, and living things. The vegetation bends not as a field but as a crowd of separate intelligences. Some plants retract into themselves in an instant, becoming hard mineral cones. Others open to the gale, extending vanes ten times their resting size. Dry pods burst with audible cracks and cast clouds of glittering spores into the air, where the spores organize into braided streams before dispersing.
+
+There is no silence.
+
+The sound is deafening, continuous, layered beyond comprehension. Wind roars across the saddle rim with the force of a furnace draft, though the air is cool enough to numb the hands. Glass-edged leaves shriek as they rub against charged currents. Hollow stalks boom like organ pipes. Seed-capsules rattle. The ground ticks and snaps with thermal stress. Somewhere under the basin, engines or geological organs hammer in slow arrhythmic cycles.
+
+The animals add their own alarms and songs. They are abundant, though rarely seen all at once. Most are small, fast, dry-bodied creatures built for clinging, leaping, gliding, burrowing through dust, or vanishing into patterned shade. Flocks of membrane-winged things flicker between the tall mineral fans, their wings transparent except for red nerve-lines that glow when they bank. Beetle-like grazers with ceramic shells scrape films from stone, producing a rasping chorus. Long, jointed animals like walking bundles of thorns move through the violet blade-mats, harvesting charged fibers with delicate mouthparts. Pale lizards—or things close enough to lizards for the eye to accept them—cling to vertical faces, inflating throat-sacs that emit subsonic pulses felt in the ribs.
+
+Above the basin, larger fauna ride the storm. They are kite-shaped, ribbed and thin, almost skeletal, using the permanent turbulence to remain aloft for days. Their bodies are not fleshy in the familiar way. They seem assembled from carbon struts, dry membranes, and sacs of ionized gas. When they dive, they do so silently, but the air around them screams. They feed on airborne spore-clouds, on one another, and perhaps on electrical gradients. Occasionally one strikes a plant-tower, and the whole structure flashes white while lesser creatures scatter like ash.
+
+Because there is no water, decay is different here. Bodies do not rot. They desiccate, delaminate, are eaten by abrasion, by insects with diamond mandibles, by fungal-looking mineral blooms that digest salts and charge. Carcasses become instruments before they become soil. A dead glider may hang in a thorn lattice for months, its stretched membranes humming in the wind, attracting mates, scavengers, and seed. Bones become perches. Shells become nests. Dust remembers everything by grinding it smaller.
+
+Scattered through the saddle are constructions.
+
+There is a low ring of black pylons near the northern rim, none taller than a person, each leaning at a different angle. They look simple until approached. Then their surfaces complicate: layers of inscription too fine to read, moving seams, microscopic shutters opening and closing in response to breath. The pylons do not cast shadows correctly. Around them the wind knots into standing spirals, and certain animals refuse to cross the invisible boundaries between one pillar and the next.
+
+Near the center stands a single building, if building is the right word. It is like a shrine, like a weather station, like the remaining tooth of a buried city. Its walls are matte white ceramic, grown rather than laid, curved inward against the force of the air. The roof has collapsed or unfolded into a crown of thin ribs that turn independently, tracking pressures, light angles, and events not available to human senses. No door is visible from outside, but openings appear at times along the base, narrow and dark, then seal again without sound.
+
+Inside—when it permits an inside—the air is no quieter. The walls conduct the storm rather than exclude it. Sound passes through them transformed into deep harmonic pressure. The chamber contains little: dust drifts, a bench-like extrusion, a suspended cluster of glassy filaments, and a floor etched with concentric diagrams that rearrange when unobserved. Small animals shelter there in the seams. Seeds collect in corners and sprout dry silver threads overnight. The structure may still be functioning, though toward what purpose is unclear. It may be tending the basin. It may be imprisoning it. It may be listening for the return of whoever made the place.
+
+Other artifacts lie half-hidden: loops of alloy emerging from stone, a cracked lens four meters across tilted toward the sky, a row of cup-shaped depressions that fill not with water but with blue static at certain hours. There are paths, or the idea of paths. Bands of darker mineral wind between growths and structures, polished by feet, claws, sliding bodies, and perhaps maintenance drones long since eroded into dust. No settlement remains, but there is evidence of repeated visitation: cairns of sorted bones and shell, signal flags made from woven plant fiber, small shelters built against boulders, each abandoned before it could become permanent.
+
+The light is clear and ordinary enough to make the strangeness more persuasive. A sun, or sunlike lamp, crosses the sky behind fast high veils of dust. Shadows are sharp. Colors behave mostly as expected. There are mornings of cold gold, afternoons of white glare, evenings when the mountain wall turns violet and the basin plants answer by opening their reflective undersides. At night, if night arrives, the place does not go dark. Bioluminescent filaments burn low among the mats. The pylons show thin red seams. Animals blink like sparks between stones. The stars overhead are hard, plentiful, and apparently near.
+
+Temperature remains cool despite the violence of the air. The wind strips heat instantly. Stone retains chill. Metal bites the skin. Yet there are brief hot flashes when machines beneath the saddle discharge, or when two pressure systems collide and the air itself crackles. Then every plant erects its vanes, every animal freezes or launches, and the basin becomes for several seconds a single apparatus: vegetation, fauna, stone, ruin, and storm all aligned in one impossible circuit.
+
+Those moments reveal the rule of the world.
+
+This is not an ecosystem built around water and sunlight alone. It is built around turbulence. Disturbance is its river. Pressure is its season. Sound is its weather and its food. The louder the basin becomes, the more alive it is. When the winds peak, plants pollinate, predators hunt, structures wake, and the ground releases stored charge in crawling sheets of pale fire. Calm is the dangerous condition. In rare lulls the vegetation tightens, animals retreat underground, and the ruins begin to emit warning tones. If silence lasted too long, one suspects the whole saddle would starve.
+
+The place has existed like this for a very long time. Its chaos is not youthful. It is established turbulence, an ancient storm with habits. The ridges have been carved to receive it. The organisms have evolved around its recurring violences. The artifacts have either endured or adapted, becoming part of the same system. Nothing here feels accidental, even when everything is in motion. The apparent disorder has channels, thresholds, rituals. Every shriek of wind has passed this way before, though never in exactly the same shape.
+
+At the southern edge of the basin, where the ground narrows to a stone lip above empty altitude, there is a grove of tall dry columns. They resemble trees most strongly here: trunks of braided mineral fiber rising six or seven meters, crowns of thin plates held apart like listening ears. Animals nest in their upper forks. The plates strike one another in the gale with a clamor like bronze, glass, and distant voices shouting through walls.
+
+Beneath them, the ground is covered in cast-off skins, seed husks, tiny bones, mica flakes, and machine dust. It is the richest place in the saddle and also one of the emptiest, because the grove’s trunks stand so far apart. Between them are rooms of open air. You can see the whole sky through the grove. You can see the old shrine, the pylons, the pale fall of the eastern gulf, the dark mountains beyond. Everything is exposed. Everything is listening.
+
+If a traveler stood there long enough, wrapped against the cold and deafened by the living storm, they might begin to notice patterns in the uproar: repeating knocks from the stone, answering cries from the gliders, the organ note of hollow stems, the fine electrical hiss of leaves combing the air. The place speaks continuously, not with language but with force. It says that life need not be wet. It says that emptiness can be crowded with events. It says that a garden can be made of drought, height, noise, and old machines.
+
+And then the wind shifts.
+
+The grove flashes silver. A thousand animals launch at once. The shrine opens one black seam. Dust rises in a spiral from the basin floor, full of seeds and static and powdered bone, and for a moment the whole saddle seems to lift—not physically, perhaps, but as if the world has inhaled sharply without lungs.
+
+There is no water.
+
+There is abundance anyway.

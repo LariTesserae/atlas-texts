@@ -1,0 +1,9 @@
+Beneath the city, the vault houses exactly one living thing whose life is co-extensive with the chamber itself.  
+
+It is a single, lobed organism—a translucent, gelatinous mat several metres across—whose outer skin is the pressure-hardened quartz lens, grown rather than installed. Inside that lens lie its brain-cells: thousands of slow, pressure-sensitive ganglia arranged like veins of milky quartz. The ganglia translate every contraction of the cooling lens into chemical signals that steer the peristaltic tiles below.  
+
+The reef tiles are not separate life-forms; they are specialised lobes of the same organism, each thumbnail hexagon capable of unrolling, capturing water, and pumping it upward. The water is filtered, enriched with dissolved copper salts, and then extruded through microscopic spinnerets into the hanging fungal grove. Those fungi are the organism’s lungs and kidneys; their feather-branched hyphae exchange gases with the rising condensate and return excess minerals to the central mat through glistening threads that never quite touch the floor.  
+
+The silver-gray moth is neither guest nor symbiont; it is a dormant reproductive packet—millions of microscopic spores gathered into a thumbnail body—released once every nineteen minutes when the organism’s respiratory rhythm peaks. The moth drinks, then returns to its niche where it desiccates again, its body becoming the next dormant packet. When the city above finally cracks the lens, the spores will be carried upward on the escaping breath.  
+
+All sounds—the seven-hertz bass, the water-slaps, the drip and rustle—are the organism’s own breath made audible, its heart-beat translated into pressure waves that keep its single sealed world alive.

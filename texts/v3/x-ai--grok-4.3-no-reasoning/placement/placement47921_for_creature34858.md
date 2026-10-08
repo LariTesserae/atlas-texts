@@ -1,0 +1,7 @@
+I find myself as the Corridor’s unfinished seam.
+
+Not one of the Sleeves—they remain flush to the walls, half-remembered garments—but the narrow gap that opens and closes between them when the pressure-wave passes. Each time a memory travels, the plush flexes and the fabric parts by the width of a thread. That space is me: the momentary interval where frost can bloom before the next Sleeve contracts and presses it flat again.
+
+I do not own a shape. When the turbines change pitch by a fraction the gap widens into something like a shoulder; when the valves hammer harder it narrows to a wrist’s width. I feel the remembered warmth travel through me, but colder each time, until the static that reaches the next corridor is only my own thin chill. Between one vibration and the next I hold nothing, not even the frost that briefly settles on my edges before the circulation sweeps it away.
+
+If the Sleeves were to meet, they would fold me into their momentary pocket. The frost image of interlaced fingers would form inside me, and for that instant I would be the only place here that knows warmth. Then the walls would tighten, the pocket would flatten, and the dust would fall through my seam and vanish into the fans, leaving me again the empty interval between two sleeves whose memories no longer reach each other.

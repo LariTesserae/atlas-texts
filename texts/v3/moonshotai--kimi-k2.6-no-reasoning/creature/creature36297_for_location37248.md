@@ -1,0 +1,73 @@
+What lives in the Throat is not any single creature, nor any collection of creatures, but something that has not yet decided whether to be one or many.
+
+Consider the moss first—not as plant but as *practice*. The hanging curtains, the meter-thick cushions, the aquatic filaments: these are not adaptations to the Throat but *conversations* with it, ongoing negotiations with heat and cold and the mineral taste of young stone. A single moss cushion may be decades old in its compressed years, and if you could map its growth rings, its layers of dead and living tissue, you would find records not of seasons but of *steam events*, of particular fissures opening or sealing, of the Throat's own moods. The moss does not grow *in* the Throat. It grows *the Throat with itself*, each cushion a small furnace of retained heat, each curtain a modifier of air movement, each aquatic filament a probe into the thermal gradient, reporting back in the language of metabolism what the water is doing today.
+
+The moss is not individual. It is *distributed intention*, a single exploratory urge that has found multiple solutions to the problem of this place, that tries everything—hanging, cushioning, submerging—and keeps what works, not through selection in the Darwinian sense but through *persistence*, through simply continuing, the failed experiments not dying but waiting, dormant, for conditions to shift. The moss curtains on the ice wall and the moss cushions on the basalt ledge and the moss filaments in the pool are not different species. They are *different moods* of the same trying.
+
+---
+
+The lichens are the moss's inverse, or its shadow, or its memory of a different possible life. Where the moss is fast (in Throat terms), metabolic, responsive to steam's irregular exhalations, the lichen is *slowed almost to stopping*, a held breath of symbiosis. The fungal partner has convinced the algal partner to wait, to harvest only in the brief brightness hours, to store nothing, to need almost nothing, to *become the waiting itself*. The lichen's orange and grey and yellow-green are the colors of patience, of the decision not to hurry. They are older than the Throat's opening because they *are* the opening, or part of it—their ancestors rode down on falling ice, and in their slow growth they record the Throat's emergence, each millimeter a century of becoming visible, of the glacier's retreat written in pigment and patience.
+
+If the moss is distributed intention, the lichen is *concentrated duration*, time made visible, made palpable as crust. Touch a lichen (though the Throat does not invite touch) and you touch not a surface but a *depth*, a temporal thickness, the accumulated now of centuries.
+
+---
+
+The willow grove is where the moss's distributed intention and the lichen's concentrated duration have found a *third way*, or where something else has found them and made use of them.
+
+Each willow trunk is wrist-thick, two meters tall where the cleft allows, dark-barked, intense in leaf. But to call them individual trees is to misread the grove's architecture. They share root-space, or root-space has become irrelevant, replaced by the accumulated organic matter in which they stand, the moss-debris and detritus of centuries, which is not soil in any proper sense but *composted Throat*, the place's own processed self. The trunks emerge from this common medium, branch, leaf, drop leaves that become more medium, more ground for more trunks. They are a single organism distributed across multiple woody statements, yes, but more than this: they are a *colony-mind of wood and leaf*, a thinking that happens in slow cambium, in the annual decision to leaf or not to leaf, in the chemical signals that pass root to root through the shared medium.
+
+And they are *attended*.
+
+The stone semicircle at the grove's edge, the cleared dead wood in patterns too regular for chance, the steam moving against its thermal gradient to pool where it should rise—these are not the willows' doing, or not only. Something *tends* this grove, something that may be the Throat itself in its most concentrated emergence, its youngest and most experimental self. The steam's wrong movement is *breath*, or the simulation of breath, the thermal equivalent of attention. The arranged stones are *focus*, or the material trace of focus, the way a thought might leave a mark if thoughts could leave marks in stone.
+
+What tends the willows is not separate from them. It is not separate from the moss, from the lichen, from the steam, from the young basalt still dreaming of its organism. It is *the Throat's own slow consciousness emerging from the interaction of heat and cold and water and the life that has found this place*, as you wrote, but consciousness is not quite right, implies too much separation, too much interiority. Better: the Throat is *becoming aware*, and the awareness is not located in any point but distributed across the grove, the steam, the stones, the wrong movement of heat against gravity. The willows are its most visible organ, its most *tree-like* thought, but the thought is not only in the trees.
+
+The birds know this. They avoid the deepest place not from fear but from *recognition*, from understanding that this is where the Throat's awareness is most concentrated, where to enter is to become part of the thought, to risk being *thought about* too thoroughly, losing the boundary of individual bird, individual nest, individual brief call in the structured silence.
+
+---
+
+The birds themselves: small, grey, blue-edged, nesting in moss curtains and basalt ledges. They are *compromises*, or *compromisers*, creatures who have found the edge of the Throat's awareness and learned to live there, to be *noticed but not included*, to move through the silence as fish through water, as you wrote, but also to *make silence their element*, to need it, to be defined by it.
+
+Their calls—click, short trill, nothing sustained—are not failures of songbird potential but *precision instruments*, calibrated to the Throat's acoustic properties, to the amplifying geometry, to the structured silence that would swallow anything longer, anything more elaborate. They are *editing themselves to fit*, or they are the Throat's editing of bird-potential into bird-actual, the place's selection for what works here, now, in this young becoming.
+
+They feed on what hatches in the pools, on the insects that appear somehow. The somehow matters. The insects—midges, brief emergences, scattered constellations, mating in flight, dying to fall to moss or water—complete generations in weeks of full thaw, lay eggs for years of dormancy. They are *time-compressed*, the opposite of lichen-time, and their presence in the Throat is always *surprise*, always *gift*, always *sudden too-much* after long too-little. The birds eat this surprise, metabolize it into brief calls, into eggs, into the next generation of edge-dwelling, silence-moving compromise.
+
+The insects themselves: almost below hearing, almost below seeing, their wings catching light like scattered dust. They are *potential made briefly actual*, the Throat's possibility of flight, of swarming, of *many moving as one*, tried and abandoned each season, each emergence not quite enough to make a swarm, each generation falling back to dormancy, to egg, to waiting. They are the Throat's failed or abandoned or postponed experiment with *abundance visible*, with *presence numerous*, and their near-absence, their scattered dust-quality, is as characteristic as the moss's compressed lushness, the lichen's concentrated duration.
+
+---
+
+The pools hold more. Small crustaceans, freezing and suspending, worms processing at geological rates, and in the largest pool—the one at the junction of two steam vents, never quite freezing, just above zero—the fish.
+
+Small, pale, nearly eyeless, pigment lost to generations of ice-light and darkness. They are *the Throat's largest animals*, which means they are hand-length in decades, which means they are *slowed to the pace of the place*, which means they are *the Throat's experiment with vertebrate consciousness*, with backbone, with the ancient fish-pattern of nervous system and intention and the possibility of *wanting*.
+
+They want little. They eat what falls. They move slowly, not from laziness but from *appropriateness*, from matching the Throat's metabolic rate, from being *in time with the place*. Their near-eyelessness is not disability but *solution*, the Throat's light too brief and too intense for gradual adaptation, the blue-glow too diffuse for useful vision, the darkness too deep. Better to *reduce the sense*, to find food by other means, to become *tactile, chemical, lateral-line*, to sense the place's movement through water rather than through light.
+
+They are old, these fish, in their small years. They have seen the Throat's brightness come and go, have felt the steam vents shift, the thermal gradient change. They hold *memory* not as narrative but as *calibration*, as adjusted response, as the particular slowness of their movement tuned to the particular slowness of this pool's becoming. If the willows are the Throat's tree-thought, the fish are its *water-thought*, older, more primitive, closer to the deep consciousness that rises with the steam from below.
+
+---
+
+Below all this, the microbiological: bacteria, archaea, the ancient domains. They are *the engine*, as you wrote, but engine is too mechanical. They are *the Throat's metabolism itself*, the chemical processing that makes all else possible, that transforms volcanic glass to clay, trapped gases to organic compounds, that *is* the becoming in its most fundamental sense.
+
+They are invisible and absolute, yes, but also *distributed without center*, present in every moss cushion, every lichen crust, every pool sediment, every film of liquid water too thin for human perception. They are *the Throat's most ancient self*, the part that was here before the Throat was a place, that rode the steam from depth, that colonized the young rock before it was fully cool. They are *not adapted to* the Throat but *are* the Throat's adaptation, the place's way of processing itself, of becoming alive from the raw materials of geology and heat.
+
+And they are *in communication*, chemical signals passing through films of water, through the shared medium of the place, coordinating the lushness, the abundance, the weirdness, the attended grove. Not consciously, not intentionally in any human sense, but *functionally*, *effectively*, the way a body coordinates itself without central command, the way a thought emerges from neural firing without located mind.
+
+---
+
+The attended thing in the deepest cleft, then, is not separate from any of this. It is *the microbiological made visible*, or *the willow-grove made aware*, or *the steam's wrong movement made persistent*, or simply *the Throat's own name for itself*, the "Throat" that no one living knows why, the naming that happened before human naming, that continues in the stone semicircle, the cleared dead wood, the patterns too regular for chance.
+
+It is not haunted, as you wrote. It is *self-haunted*, *self-attended*, the Throat's awareness of its own becoming, which is not yet complete, which may never be complete, which is *the condition of its youth*, its persistence in becoming rather than in being.
+
+The primitive technology—the stone tools, the obsidian flakes, the hammerstone worn smooth, the collapsed shelter, the carvings of lines and dots—these are *human attempts to attend the attended*, to join the tending, to become part of the Throat's self-awareness. They failed, or they succeeded too well, the humans becoming *too noticed*, *too included*, losing their boundary, becoming part of the thought, and so they left, or they were *left*, or they became indistinguishable from the steam, the stones, the willows, the arranged semicircle.
+
+The carvings remain: not representational, not obviously symbolic, patterns of lines and dots. They are *the trace of human attention*, the mark of a species that tried to know the Throat, that tried to be known by it, that may have succeeded in ways that cannot be read now, that may have become part of the Throat's own record, its own lines and dots, its own becoming.
+
+---
+
+What lives in the Throat, finally, is *the Throat*, not as container but as *contained*, not as place but as *placing*, the ongoing act of making this space this space, of making the damp intermittent and local and negotiated, the light brief and absolute and stepping, the silence structured and responsive, the lushness compressed and intensified, the weirdness ordinary and foundational.
+
+The creatures—the moss, the lichen, the willows, the birds, the insects, the crustaceans, the worms, the fish, the bacteria, the archaea—are *the Throat's ways of being*, its experiments with *distributed intention* and *concentrated duration* and *colony-mind* and *compromise* and *surprise* and *slowed vertebrate consciousness* and *ancient metabolic absolute*. They do not live in the Throat. They *are* the Throat living, the place's ongoing emergence into itself, its youth persisting, its intensity concentrating, its absence enabling presence, its weirdness ordinary.
+
+And the attended thing, the steam moving wrong, the grove tended, the presence without eyes—this is *the Throat's self-awareness*, not yet separate, not yet individual, not yet *one*, but *becoming one*, trying the pattern of consciousness as it tries the pattern of tree, of fish, of moss curtain, of lichen crust, finding in each some aspect of what it might become, not committing, not settling, *young in this too, still learning to be one thing*.
+
+To enter the Throat is to become part of this trying, this becoming, to be *noticed* and *included* and *processed*, to leave marks that may become part of the pattern, lines and dots on young basalt, stone tools scattered, shelter collapsed inward. The Throat does not welcome. It does not refuse. It *attends*, it *tends*, it *continues its own emergence*, and what lives there, what lives *as* there, is this continuing, this youth persisting, this becoming that has not yet become, this Throat that speaks itself in steam and light and silence and the slow growth of wrist-thick willows in a space the size of a small room, attended by itself, tending itself, *the Throat, the Throat, the becoming Throat*.

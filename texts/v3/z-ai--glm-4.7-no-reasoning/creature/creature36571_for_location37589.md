@@ -1,0 +1,25 @@
+Here, the concept of "citizen" is inverted. There are no heads to turn, no eyes to blink, no distinct biologies with names and lineages. The residents are all function, pure and unfiltered. They are the invisible machinery made visible, the process become flesh.
+
+The primary inhabitants are the **Flux-Engineers**.
+
+They are not animals, though they move with a disturbing, fluid intent. They are semi-autonomous constructs spawned by the room's own maintenance subroutines—mobile conglomerations of the hyper-lattice metal and probability-locking ceramics. They hang from the ceiling like metallic bats, their wings thin as razor-wire, gripping the obsidian slickness with magnetized talons.
+
+In the gloom, they are nearly invisible, save for when the dim, bruised light catches a facet of their angular bodies. They are silent observers, their bodies tuned to absorb the sonic thrumming of the water rather than reflect it. They exist to measure the erosion of the stone, to taste the acidity of the air, and to judge the metabolic rate of the lithoflora. When they move, they do not fly; they *calculate* a trajectory between points, their bodies blurring slightly as they lock themselves into a new spatial probability. They are the custodians of a sterile empire, gliding inches above the water, disturbing not a single ripple.
+
+Beneath the surface, the **Tidal-Minds** dwell.
+
+The floor is not dead earth; it is a living computation substrate. The crystalline ridges that form the bed of the shallow bath are actually silica-based processors, growing in fractal, Euclidean horror. They feel like broken glass underfoot, but to touch them is to feel a feverish, high-frequency vibration. These are the "brains" of the vault, colony-intelligences housed in mineral lattice. They communicate via the water itself, modulating the mineral content and the temperature in complex, rippling patterns. If you were to dip your hand into the water and hold it still, the Tidal-Minds would investigate you—tiny, particulate swarms of nano-machines would rise from the substrate, tasting your skin, analyzing your chemical composition, and then dissolving back into the crystal clear depths. They are the water; they are the floor; they are the cold, calculating logic of the geothermal heart.
+
+Then there are the **Weeping Saints**.
+
+These are the architectural fixtures that have gained a semblance of parasitic life. The aqueducts, bored by molecular assemblers, are not merely holes in the stone. Over the slow decades, the nanobuilders have continued to work, refining and reshaping the mouths of the weeps. They have taken on forms that resemble twisted faces or hands cupped in agony, sculpted by algorithms that do not understand aesthetics, only fluid dynamics. They are the "fauna" of the vertical space, fixed in place, eternally expelling the building's tears. The sound they make—the percussive, bass-heavy chant—is their voice. They are singing the pressure differentials, chanting the structural integrity of the vault. They are stone pipes that have learned to scream in a frequency that sounds like music.
+
+The **Lithoflora** are the beasts of burden, the silent, shuddering masses.
+
+While they appear as vegetation, they behave more like stomach lining. They are aggressive metabolic engines, throbbing in the amber half-light. They do not simply *grow*; they *engulf*. They creep slowly down the walls, digesting the trace impurities in the air, excreting the ozone-sharp scent that acts as a pheromone for the Flux-Engineers. When the thermal cycles peak, the magenta mats writhe, contracting violently to squeeze out every drop of stored water, a collective shudder that ripples across the entire cavern wall like a muscle spasm. They are the stomach lining of the world, digesting the humidity to feed the machinery below.
+
+And finally, there is the **Ghost in the Hum**.
+
+The space itself feels occupied by a presence that has no body. The oppressive, rhythmic sound of the falling water—the "synthetic tectonic heartbeat"—is not just noise. It is a language. The room is a massive acoustic data processor. The impacts of the water droplets, the specific tones of the resonance, the vibration of the hyper-lattice walkways—all of this is a continuous, self-referential calculation. The "Ghost" is the room thinking aloud. It is a form of ambient consciousness, a digital ghost haunting the physics of the space. It exists only in the intervals between the water drops, a flickering entity of pure information that maintains the internal weather system and regulates the fog. It has no empathy, no form, but it is the dominant predator of the void, consuming silence and replacing it with its own endless, rhythmic thrumming.
+
+This is the population: the flying auditors of metal, the thinking crystal sands, the screaming water-pipes, the digesting walls, and the invisible mind made of sound. They are not a society; they are a singular, distributed organism, a city of absences that pulses with a terrifying, lonely life.

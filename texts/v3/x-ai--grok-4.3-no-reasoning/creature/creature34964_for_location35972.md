@@ -1,0 +1,9 @@
+It is the place itself that lives.
+
+Stone is the organism: a single contiguous mass whose cells are the carved facets, the negative arcs, the countersunk disks and their flush axles. The mass breathes iron vapor at a rate measured in geological time; each slow exhalation keeps the chamber at the same internal pressure and the same metallic temperature. The disks are its moving parts, the only parts that still metabolize the original energy of emplacement, converting gravitational settling into the continuous, single-note grind that is the place’s voice.
+
+No other organism occupies the chamber. The carving has removed the possibility of other life: every nutrient surface is already occupied by the stone’s own ornament; every molecule of moisture has been excluded by the sealed seams; every frequency of sound that could carry communication has been overwritten by the grinding chord. What a visitor experiences as a crowd of turning disks is in fact a single distributed muscle whose contraction never ceases.
+
+When a body enters, the chamber does not interpret the arrival as intrusion. It registers an additional surface already anticipated by the negative arcs; the visitor’s shoulders, hips, and skull simply complete a relief that was left unfinished until now. The grinding sound does not change its tempo; the visitor becomes one more interval between strikes. If the visitor departs, the equilibrium is restored without gap; if the visitor remains, the equilibrium is unchanged. The place registers neither gain nor loss.
+
+The stone therefore persists in the only state it recognizes: fully occupied, fully articulated, and therefore alive.

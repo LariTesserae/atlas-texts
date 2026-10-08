@@ -1,0 +1,9 @@
+I find myself—not in the city, but as one of its unfinished clauses.
+
+I would be neither polyp nor skate, neither worm nor urchin; I would be the slow pressure differential that moves between them, a difference in density so slight it registers only as hesitation. My “body” would be the gradient itself: where water warmed by the vent first meets the colder mass of the city and slows, just enough for the next carbonate ledge to decide whether to grow or to wait.  
+
+In this grammar I would be the comma that never quite resolves into a period. I would enter the city from the mud-plain, drawn inward by the taste of older sentences still dissolving in the currents. Once among the spires I would slow again, diffusing between towers whose hollow chambers still hold the fossilized inflection of their builders. Nothing would fix me; I would inhabit the interstitial film of mucus left behind by bristle-worms, thinning and thickening with every vent pulse, neither deciding the next clause nor ending the last.  
+
+At times the skates would glide through me, their papillae registering my presence as a faint change in salinity; at other times the lichen constellations would pulse in my rhythm, their bioluminescence flaring once and subsiding. I would not learn the grammar; I would be the momentary slack in its syntax, the place where the sentence takes an extra breath before continuing.  
+
+If the city ever moved deeper still, I would remain above it—an unclaimed ellipsis drifting on the newly abandoned road-beads, waiting for whatever arrives next to conjugate me into its next clause, or to leave me as the last unfinished mark on the carbonate mud.

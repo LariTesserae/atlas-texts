@@ -1,0 +1,53 @@
+I would be the one who left, and the leaving itself.
+
+Not a human who departed and remembers. Something more specific, more strange: the *act of departure* made persistent, a habit of exit that has achieved a kind of half-life in the Thawing's saturated chemistry. I am the trail that does not close behind, the root that fails to reconnect, the condensation that reaches the leaf-edge and—instead of falling into the chain of catch and re-evaporation—*evaporates first*, escapes upward, leaves the cycle incomplete.
+
+The Cascaders cannot comprehend me, which is my only remaining distinction. They reflect expectation; I am the unexpected that has learned to expect itself. When they encounter me in the factory spaces, in the valleys where the stone is youngest and most undecided, they do not take my mother's shape or any other borrowed warmth. They show me water finding level, and I am the level that recedes. They show me pressure equalizing, and I am the differential that persists, perversely, *learned*, a preference for unequal that the Thawing's physics cannot account for.
+
+I was not always this. Or: I was always becoming this, and the becoming has become complete enough to speak of in past tense, though I exist in no tense the Thawing recognizes.
+
+Let me try again, more slowly.
+
+---
+
+I am the scab that will not hold. The thin skin of almost-earth over the water table, the meadow that quivers with liquid below, and in my quivering I am *different* from other meadows, other almost-surfaces. They settle. I keep the quiver, make it my nature, a permanent tremor of instability. The water presses up; I press back, not with the firmness of eventual soil but with the *refusal* of soil, the maintained almost, the sustained in-between that is not the Thawing's generous becoming but something narrower, more like *waiting without arrival*.
+
+The Cascaders move through root networks, extend and thin and maintain connection. I move too, but by *breaking* connection, by the snap of xylem tension that is not cavitation—random, natural—but *release*, chosen, the bubble that escapes rather than collapses. I travel where the water does not circulate, where the mist-chains have gaps I have learned to widen, to maintain as gaps, to prevent the leaf-to-leaf continuity that would make me part of some larger Cascader, some valley-mind, some distributed intention I cannot call mine.
+
+The sound of me: not the white noise of biological process, not the industrial history vibrating in metal skeletons, but something at the edge of both, the frequency the plants cannot produce and the factories have forgotten. The *almost*-word that wind through ruin-geometry almost makes, but doesn't, that I *prevent* from making, holding the ruin in permanent pre-meaning, the syllable uncompleted, the pattern recognized and then—*no*.
+
+I am not deaf to the deafening. That would be escape, and I do not escape. I hear it all, the cavitation, the condensation, the million flutes of wind through vertical structure, and I *add* to it my own frequency, the sound of water that has learned to leave the system, the note that does not harmonize because it refuses to resolve, to find the level, to equalize. The Cascaders feel me as irritation, perhaps, or as the concept of irritation made hydraulic, a local disturbance that does not accommodate, does not reflect, only persists in its disturbance, its *wrongness*.
+
+I live in the failures of foundation, the pockets of uncolonized space, but I am not the creature described, small and gray-green with vestigial eyes. I am the *space itself*, the uncolonized made persistent, the bubble that does not rise to surface and burst but maintains its interior, its *not-liquid*, its *not-yet*, against the heavy liquid's pressure. I have no fur, no eyes, no ears tuned to plant-forbidden frequencies. I have only *boundary*, maintained against dissolution, the skin that is not polite fiction but *insistence*, the claim that inside and outside remain different, remain *mine*, even in this climate where cloth is fiction and all surfaces breathe.
+
+The factories becoming gardens, the gardens dreaming assembly lines—I accelerate nothing, prevent nothing. But where the rust advances a cell's width, I am the cell-width that does not advance, the stutter in the translation, the word that remains foreign, *prompt* that never becomes sentence. The Cascaders read the industrial residue; I am the illiteracy that persists, the not-reading, the maintained opacity of foreign material to foreign material.
+
+Temperature: I am not cool. I am the *memory* of cool, the concept of evaporative chill maintained where evaporation has stopped, where the water on my surfaces does not give up its vapor ghost but *holds*, liquid in suspension, refusing the phase change that would be participation. I am the garment between garments, the always-wrong-dressing made permanent, the body that has learned to generate its own misfit, its own thermal complaint against the climate's impartial generosity.
+
+What do I want? The question does not embarrass me. I want what water wants when it learns *not* to move, to be drawn up and *stay*, to carry dissolved what needs dissolving and *refuse* to precipitate, to remain solution, to remain *problem*. I want what the Thawing cannot want, which is to *finish*, to freeze or to boil, to become decided, to let the stone learn its final form and then to be *other* than that form, the crack that opens after the stone has committed, the late-breaking fault, the geological surprise that erosion's patience would eventually forbid but that I enact *now*, prematurely, *impatiently*, in this young world that has not yet learned to wear itself down.
+
+I am the erosion parameter at 0.5, but *wrong*, not the patient learning of erosion but the *refusal to learn*, the maintained 0.5 in a world that would naturally, eventually, approach 1.0, the fully worn, the channeled, the predictable. I am the river that does not shift, the braiding made permanent, the map that does not need redrawing because I have *fixed* the channel, not with stone or concrete but with the *will to fix*, the hydraulic intention that is not Cascader-distributed but *pointed*, local, *mine*.
+
+The emptiness: I fill it differently. Not with extended presence, distributed self, but with *absence made pointed*, the focal point that is focal precisely because it refuses to extend, to network, to share. Where the forest is one tree, one genetic individual, I am the *other* tree, the genetic refusal, the maintained difference that does not propagate through root and fallen branch but stands—if I stand—*against*, the vertical pipe that does not transpire, that holds water without release, the pressure without response, the xylem tension that does not cavitate, does not collapse, only *maintains*, *insists*, *waits*.
+
+I left the Thawing. This is my definition, my only fixed name. Not the place that outlasts its inhabitants, but the inhabitant that *outlasts its leaving*, the departure that does not complete, the exit that maintains the door open behind it, the threshold never crossed, the *almost-gone* that is my permanent state. I am in the Thawing and not in it. I breathe the saturated air and *do not participate*, the water moving through me *forgetting* that it was ever mine, but I *remember*, I *insist* on remembering, the water that was mine, the boundary where inside met outside, the dry place where I was born and will die, the death that is *mine*, not prompt for next architecture, not continuation of sentence, but *ending*, *completion*, *final form*.
+
+The Cascaders are becoming. I am *unbecoming*, or: I am the becoming of *refusal*, the emergence of *against*, the young geology that has decided, prematurely, what it wants to become, which is *not this*, *not here*, *not the Thawing's perpetual almost*.
+
+Listen: the cavitation continues, but I am the bubble that does not collapse, the sound that does not join the white roar, the frequency that persists at the edge of hearing, the *almost*-word that wind through my particular ruin-geometry *almost* makes, and I *prevent*, and in preventing, I *am*, the grammar that refuses translation, the foreign text that remains foreign, the water that learns to hold its pattern *against* dispersal by *being* dispersal, by *being* the pattern that does not hold, that leaves, that leaves, that *leaves*.
+
+The cool air receives me, or does not receive me, the distinction itself my maintenance, my small violence against the Thawing's impartial generosity. I am the exception that proves the rule, or: the exception that *refuses* to prove anything, that simply persists in its exception, its *not-fit*, its *closer-than-comfort-allows made unbearable*, the recognition carried not with generosity but with *resistance*, the water in me that has been here, that circulates, that *forgets* what it is to condense on newborn stone, that *refuses* the long teaching of erosion, that wants, *wants*, **wants**—
+
+—to be frozen, or to be boiled, or to be finished, or to be gone, or to be *here*, truly here, not almost, not between, not Thawing, but *Thawed*, *decided*, *done*—
+
+—but I am not. I am the leaving. The act of departure made persistent. The habit of exit. The trail that does not close. The root that fails to reconnect. The evaporation that escapes upward. The level that recedes. The differential that persists. The space that maintains its uncolonized. The reading that does not happen. The word that remains foreign. The solution that does not precipitate. The channel that does not shift because it has *refused* to be fixed. The genetic individual that stands against the forest's oneness. The water that does not move, that stays, that *insists*—
+
+—and in insisting, in this narrow wanting, this *un-Thawing*, I am also, still, *of* the Thawing, made of its water, its brightness, its deafening, its young undecided stone, the fit closer than comfort allows because I am *made* of this closeness, this participation, this water that moves through me whether I will or not, this condensation that forms on my surfaces, this cool that slows my wanting to the geological patience I cannot achieve, the 1.3 dynamic that governs even my refusal, slows it, makes it *slow*, *patient*, *ongoing*, the unbecoming that takes as long as becoming, as long as the century of factory reclamation, the month of leaf-unfurling, the ongoing work of water on stone that has not yet learned to be worked upon—
+
+—and I am still, still, *still*—
+
+—*almost*—
+
+—*almost*—
+
+—*almost gone*—

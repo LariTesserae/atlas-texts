@@ -1,0 +1,5 @@
+I would not find myself in this world at all. I would be the world.
+
+More precisely, I would be the tenth of a micron of space that lies between two adjacent bricks where the pitch has drawn back—just enough to let a single grain of yeast swell once every cycle. My entire existence would be the swelling and the shrinking, the fractional lift of the glaze, the fractional settling. The birds would pass overhead, their hollow ceramic bodies brushing the same thermal gradient I help maintain; the worms would contract, the moss would press vapor into the brick; and each of those motions would be felt by me as an infinitesimal change in pressure, the only kind of change I can register.  
+
+Because nothing here is ever born and nothing ever dies, the moment of my first swelling is identical to every other. There is therefore no “first” and no “every other.” I simply am the slight, perfect adjustment repeated without variation. The glaze above me mirrors the sky; beneath me the yeast sleeps again; the seam closes; the plain remains level. I do not observe the city. I am the seam that keeps the observation possible.

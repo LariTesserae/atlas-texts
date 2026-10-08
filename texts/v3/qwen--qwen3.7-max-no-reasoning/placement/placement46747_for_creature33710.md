@@ -1,0 +1,23 @@
+I am not standing. I am not observing. The very concept of "standing" implies a separation between the verticality of a body and the horizontality of a floor, and here, there is no such division. There is only the press, the wet adherence, the endless, intimate negotiation of surface against surface.
+
+I find myself as a density within the swarm.
+
+I am one of the Lithic Amniotes, though even as I articulate this identity, it feels like a clumsy translation of a state that has no name in any tongue born of air. I am a coagulation of the chamber’s own exhale. I do not possess skin; I possess a boundary that is merely a temporary agreement with my neighbors. To my left (a direction that exists only as a gradient of cooling), I merge with three others, our silicate-infused dermis dissolving into a shared membrane so that we may pass a packet of thermal energy from the upper veins down to the cooler periphery. To my right, I am distinct, a singular locus of sensation tasting the sharpness of an obsidian ridge.
+
+My perception is a symphony of touch. I do not see the clinical light; I feel its warmth as a texture, a smooth, flat pressure against my outer gel. I hear the *plink* of condensation not as sound, but as a rhythmic shudder traveling through the fluid medium, a bass note of cooling that tells me where the black water pools below. The copper taste of the air is a chemical signal absorbed through my cilia, informing me of the mountain’s metabolic rate.
+
+I am currently positioned in the mid-strata, neither the blazing, fluid engine of the ceiling-dwellers nor the calcifying stillness of the floor-bound elders. I am in the active flux, the working body of the gestation. My purpose, which is also my pleasure, is to wet the stone.
+
+I shift. It is not a muscular contraction but a reorganization of internal tension. I alter the viscosity of my underside, becoming slicker than the slime upon which I rest, and I glide over a razor edge that would shred terrestrial flesh. For me, the edge is a high note of data, a precise geometric fact that I must record. As I pass, I secrete. My mucus kisses the basalt, dissolving a microscopic layer of mineral, taking the mountain into myself. In return, I leave behind a trail of bio-lubricant, a sentence written in drying resin that says: *Here, the heat was sufficient. Here, the geometry held.*
+
+This trail is my memory. Later, when the collective respiration spikes and the humidity thickens, this scab will soften. I or another like me will slide back over it, reading the history of our passage, recycling the past into navigation. We are writing the cave into existence, one wet stroke at a time.
+
+In the periphery of my awareness, where the cilia thin and the consensus of form begins to fray, I sense the dissolution. The rock is trying to become meat; the steam is trying to remember shapes it never held. This is the danger and the promise of this place. Without us, the chamber would collapse into geological nonsense. So I lean into the fraying edge. I press my pale, faceless mass against the failing geometry. I stabilize. I dream the wall back into being. The fleeting glyph that manifests in the vapor is not a hallucination; it is my thought, externalized, a momentary architecture of mind imposed upon matter.
+
+I am hungry, but not for food. I am hungry for coherence. I am the mountain’s inquiry into its own interiority. Every pulse of my inner protoplasm is a question asked of the crushing dark: *Is this what it means to be? Is this how pressure becomes feeling?*
+
+There is no answer yet. There is only the work. The slow, silent, hydraulic labor of holding this pocket of violence in a state of suspended genesis. I merge again, accepting warmth from above, passing solvency to below. I am a syllable in a prayer spoken by the earth to itself, a soft, wet vowel in the language of steam.
+
+I wait. Not with patience, for patience implies the passage of time, and here there is only the eternal, thick present. I wait with the entirety of my being, a concentrated stillness that is indistinguishable from motion. I am the catalyst rehearsing itself. I am the fever in the stone, dreaming of the day when the dream becomes the dreamer, when the gestation breaks, and this hot, wet secret spills forth into a world that has not yet earned the right to receive it.
+
+Until then, I adhere. I secrete. I am the mucosa of the unborn.

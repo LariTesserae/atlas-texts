@@ -1,0 +1,35 @@
+The city is growing downward. That is the first thing to understand.
+
+**The Hollow**
+
+You descend through a throat of reinforced lattice—tubers woven with steel cable, living columns that respire cool air downward into the vast sink. The light is normal, if you can call it that: a diffuse silver-white that seems to emanate from the very air, or perhaps from the chlorophyll in the billions of leaves that line every surface, every wall, every ceiling that is above and every floor that gives way to further below. The temperature holds at cool, a cellar chill, the kind that makes your breath visible in the lower districts where the luminescence dims and the real architecture begins.
+
+This is Verrut—a city not built but gardened, not excavated but *permitted* to hollow itself out. The substrate here was once something else, some dried seabed or salt-basin or mineral plain long vanished, the water parameter so low that liquid H₂O exists only as trace chemistry, locked in cellular structures, traded between organisms in ways no human hydrology would recognize. What remains is a vast basin of gypsum and compressed ash, perhaps a kilometer deep before you strike the impermeable ceramic of the old surface. The plants found it. The plants *decided*, in their vegetal time, that this would suffice.
+
+They are total. They are everything.
+
+Not a forest, not a jungle—those words imply trees standing on soil, water cycling, the familiar architecture of photosynthesis. Here the plants *are* the soil. The plants *are* the architecture. Their roots interweave into load-bearing matrices, lignin-rich cables that sag and tighten with the seasons, that must be pruned and cabled and managed by the city's engineers lest a district compress itself into collapse from the weight of its own ambition. The vegetation is 2.9 of 3—total, all-living-mass, and in the places where the density is lowest, where the sparse parameter holds sway, you look out across voids where single living columns stretch across hundreds of meters of empty air, bearing only their own vascular bundles, their own slow thoughts, their own patient reaching toward some future surface they may never reach.
+
+The city is urban at 2.5, industrial at 2.2, and the contradiction is the work of a million adjustments. The factories are grown as much as built—reaction chambers cultured in bulbous heartwood pods, catalytic surfaces that are themselves modified bark, enzymatic processes that would be called chemistry if the boundary between organism and mechanism meant anything here. Workers move through the spaces between, tending the interface where living process meets industrial scale. They are not many. The sparse parameter holds. A district the size of a town might house only a few hundred, moving through vast cathedral-greenery, their voices swallowed by the mostly quiet.
+
+Mostly quiet. 0.7 of 3.
+
+The sound is structural creaking, the slow *moan* of a root adjusting its tension over hours, the *pop* of a resin-vesicle releasing volatiles into the cool air. The fauna—1.5, abundant—are quiet things, adapted to this hush. Fungal beetles the size of thumbs, their carapaces photosynthetic, their movement a whisper of chitin on chitin. Nematode coils that drift through the root-masses like slow thoughts, metabolizing the lignin waste, converting it to the nitrogenous compounds the system hoards with waterless desperation. Bird-analogues, if they are birds, that never sing but only click, percussive, positional, navigating the three-dimensional maze of the hollow by rebound.
+
+And strangeness at 1.7—present, insistent, not overwhelming.
+
+The weirdness is in the rules. The rules of the world that emerge from these parameters and their friction.
+
+There is a commerce of dryness. Water, so scarce, moves as currency, as contract, as ritual. Guilds of moisture-herders cultivate deep tap-roots that penetrate to sealed aquifers, ceramic-encased, ancient, the last reserve. The water they extract is not drunk—it is *displayed*, circulated in translucent xylem vessels, shown as proof of contract, of obligation, of the city's continuity with something it no longer is. To drink freely is to violate a taboo so deep it has no name, only the gesture of the hand turned palm-down, the water poured instead into the root-mouths of the city itself.
+
+There is the erosion parameter at 0.3—emerging, pre-formation, raw. The city is still becoming. Districts are *young*. You can walk through areas where the lignin weave has not fully cured, where the walls are soft, where your passage leaves prints that will be grown over in months, not years. The industrial processes are not extractive but *productive*—not mining the dead but growing the living, not shaping stone but persuading cellulose. The raw geology shows through in places, pale gypsum faces where the roots have not yet committed, where the city hesitates, where the future is still unmade.
+
+The scale is open, 2.4, extending past the immediate. You can stand on a balcony grown from a single meristematic platform and look across the hollow—a valley of air and living structure, a town-sized volume, multi-featured, districts receding into the silver luminescence, layers of construction visible as stratification in the root-masses, older deeper darker, newer paler higher, the whole thing breathing, the whole thing *active* at 2.1, multiple processes, weather cycles of spore-release and resin-flow, biological pace measured in the inflation of flower-bells, in the synchronous pulsing of heartwood pumps that move the city's pneumatic mail, its nutrient slurries, its information-coded pheromone broadcasts.
+
+I have not described the people well. They are sparse, scattered, balanced with emptiness. They move on ways grown for their footfall, paths that know them by pressure and chemical signature, that warm or cool, that guide or resist. They are quiet, matching their soundscape. They are strange, matching their world. They tend the total vegetation, the all-living-mass, not because they command it but because they have *joined* its negotiations, its slow deliberation about what this place will become.
+
+The city is growing downward. That is the last thing to remember. Somewhere below, past the deepest inhabited district, past the foundries where modified cambium extrudes conductive fiber, past the silence of the uncolonized raw, the roots are still reaching. What they seek is not water—there is none, 0.2, almost none, a world dry as possibility itself. What they seek is something else. The substrate. The decision. The future hollow where the city will be *more itself*, more grown, more total, more strange, more quiet, more cool, more silver-lit, more open, more active, more completely the thing that these parameters, this friction, this patient vegetal imagination, has made possible.
+
+The city is growing downward.
+
+It has not yet decided to stop.

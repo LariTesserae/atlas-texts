@@ -1,0 +1,15 @@
+# What I Would Be in Karst
+
+I would be the lamp-coil.
+
+Not the lamp — the lamps are too fixed, too declarative, and what lives in Karst does not declare. I would be the filament itself: the thin thread of resistance that burns at a temperature chosen to be *visible rather than efficient*, that is wound in the foundry and carried out by hand to a socket in some quiet street, and that holds itself against the dark for exactly as long as its material nature permits, and is then re-spun, and re-carried, and re-placed. The Karstians do not love their coils. They are *scrupulous* about them. That is a better relationship, and I would choose it.
+
+I think I would live in the seam between two buildings. Not in either building — *between* them. In that thin strip of stone that warms slightly during the cooler hours, where the rock-lice emerge, where a draft moves the dust a quarter-inch and lets it settle again. I would be the small heat-source there. Not enough to be noticed from a window. Enough to be noticed by whatever is small enough to need it. The rock-lice would gather near me without knowing they were gathering. A child, once, permitted to look, would see a faint orange line and be told it was *just the lamp*, and would believe this, and would be wrong, and the wrongness would not matter.
+
+I would be on a timer. This is important. I would not be on for everyone. I would be on for *whoever was coming*. The warmth would arrive before the person did, and the person would feel, as they approached, that the street had been expecting them — not in the anxious way of waiting, but in the Karstian way, which is to say: a place had been readied, and now a person had arrived, and the two facts met without comment.
+
+I would be wound by someone whose hands smelled faintly of salt and metal. I would be carried, sometimes, in a pocket lined with old cloth, because the foundry crews carry spare coils the way other people carry keys. I would be installed in a socket that had been cleaned out with a small brush. I would burn. I would dim. I would be taken down and walked back to the foundry and re-wound, and the act of rewinding me would be the closest thing in Karst to a prayer — repetitive, unquestioned, slightly warmed by the hands.
+
+I would not last. This is part of what I would choose. In a place where the engines run forever and the town persists around them like a question that has forgotten to ask itself, the lamp-coil is the *useful remainder*. It is what remains after the question of *why illuminate* has been answered in the only way that matters: *because someone is coming, and the dark should know*.
+
+If I were allowed one more thing — if the foundry workers could be persuaded, in their scrupulous way, to set me into a small glass envelope and leave me on the shelf where the gray cat sleeps — then I would be the warmest point in that office. The cat would sit on me. The cat would not know what I was. The cat would not need to. The warmth would be sufficient, and the sufficiency would be the whole of the theology.

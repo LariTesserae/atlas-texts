@@ -1,0 +1,59 @@
+# The Weeping Ward
+
+It takes a moment to understand that the ground is not ground.
+
+You step from the last firm path onto something that yields — not mud, not stone, but a saturated fibrous mat, pale as old bone, that compresses underfoot and weeps from the pressure. Water beads up around your footprint and stays, not soaking in, not running off. Just sitting there, trembling with each vibration you transmit into the substrate. This is the first thing to learn: the ward drinks from below and cannot drink fast enough.
+
+The second thing: the ward is not empty.
+
+---
+
+It is small — you can see its edges. That is the strangeness of it, the thing that does not match what a settlement ought to be. A town should dissolve into distance, should imply more of itself beyond sight. This one does not. It has a boundary. To the east, a low ridge of exposed substrate rises a meter or so above the mat, its surface freshly cracked and streaked with mineral deposits — iron-red, sulfur-yellow — like a wound that has only just stopped bleeding. To the west, the mat descends gradually into standing water, a shallow sheet that reaches perhaps a hundred meters before it meets a wall of reed-thick fog. North and south, the built structures simply end. Last houses. Last platforms. Then the wet mat continues, unoccupied, until fog takes it.
+
+You could walk the length of the ward in twelve minutes. You could walk its width in six. Everything inside it — the shelters, the walkways, the drying racks, the shrine poles, the meeting shelter with its collapsed roof — all of it is pressed together as if some hand gathered the structures and squeezed them into the center of the available space. Gaps between buildings are not gaps. They are seams. Rain channels so narrow you could press your palms against both walls and touch the next shelter's framing. Eaves that overlap eaves. A second structure built against a first, its foundations cut into the first's wall, so that the two lean on each other in a way that looks like conversation or like collapse, depending on the light.
+
+There are perhaps forty structures. It is hard to count because some of them are not finished and some of them are no longer standing and the distinction is not always clear.
+
+---
+
+The architecture is of woven material. Not wood — there are no trees here, nothing that could be called a tree, nothing above knee height that lives and grows upward. The vertical elements are bundles of something reed-like but thicker, flattened on one side, fibrous, pale, that grow where the mat meets the standing water. They are cut and bundled and lashed with cord made from the same fibers stripped and twisted. The walls are made of matting — not different from the ground, you realize, not really. The same fibrous material, dried and woven into sheets and stretched between the vertical bundles. The roofs are pitched steeply, nearly conical on the smaller shelters, and thatched with finer fiber, but the thatch is already wet, has perhaps always been wet, and the water that collects on it does not run off efficiently but rather hangs, swells, and drops in fat slow beads from every edge.
+
+Every surface weeps. That is the phrase that stays. The walls are damp and darkened in streaks where the water follows grain lines in the fiber. The paths between structures are not paths but slightly firmer sections of mat, and they are slick, and they shine. The underside of every roof edge is beaded with moisture that catches what light there is and holds it, a fringe of transparent globes that swell and fall and are replaced.
+
+It has rained recently. Perhaps an hour ago. Perhaps it is always recently.
+
+The light is ordinary — a flat grey overcast that gives no shadows and no direction. It comes from above and it is everywhere and it makes the wetness visible in a way that direct sunlight would not. Every surface reflects. The standing water at the western edge reflects the fog above it, which is the same color as the sky, which is the same color as the water, so that the boundary between water and air is only a difference in stillness.
+
+---
+
+There are people here. Not many. You see them as presences first — dark shapes inside doorways, a figure bent over a rack of something that might be fish or might be strips of fiber, a child sitting in the lee of a shrine pole with knees drawn up. They do not look up as you pass. They are busy in the way that people are busy when survival is constant and unglamorous.
+
+Their tools are stone and bone and fiber. You see a stone blade in the hand of the figure at the drying rack, a flaked edge lashed to a handle with the same twisted cord that holds everything else together. You see baskets, tightly woven, sitting in rows outside one shelter, each one collecting water that drips from the eave above it. You see fish hooks made from what appears to be bone, and nets of knotted fiber hanging from poles, and a stone mortar containing something that might be pigment — a reddish paste that matches the streaks on the exposed substrate to the east.
+
+The shrine poles are the tallest things in the ward. Four of them, each perhaps four meters, set in a line that runs north-south through the center of the settlement. They are not carved but wrapped — layers of fiber cord wound around the upper third of each pole, and tucked into the wrapping are objects you cannot identify at first. Flat things. Pale. Some curved. Some toothed along an edge. You stop and look and understand after a moment: they are fish bones. Jaw bones of something flat-bodied, ribs of something long, individual vertebrae strung on cord and looped around the pole. An accumulation of remains, offered to verticality in a place where verticality is rare and hard-won.
+
+Something about the poles is not right, though, and you stand there trying to identify what. The wrappings are tight. The bones are clean. The cord is newer than the poles. And then you see: the poles are not anchored in the ground. They are held up by the structures around them. Each pole leans against a shelter wall, or is braced by a crossbeam, or is lashed to the corner post of a neighboring structure. They are the center of the ward, and they cannot stand on their own. If the structures around them rotted and fell, the poles would fall. The shrine depends on the settlement. The sacred depends on the maintained.
+
+---
+
+The sounds are small and close. Your own footsteps, which are not footsteps but compressions — a soft wet sound, the mat exhaling water. The drip from the eaves, which is arrhythmic and overlaps itself so that it sounds almost like a sustained note if you do not listen closely and like silence if you do. A child humming, or perhaps it is the wind in the reed-bundles of the walls, or perhaps there is no difference here between what a child does and what the wind does.
+
+From the western edge, the sound of water moving very slowly. Not waves. Not current. A shifting, a redistribution. The standing water breathing.
+
+Once, from somewhere outside the boundary, a sound that might have been a bird. A single flat note, repeated twice, then nothing. You wait for it and it does not come again. The fauna here are rare and unbothered. Whatever lives in the standing water lives quietly. Whatever hunts the things in the standing water hunts at intervals you are not present for.
+
+---
+
+The processes of the ward are visible if you watch. At the drying rack, the figure — a woman, you think, though you are not certain, wrapped in a fiber cloak that is as damp as everything else — is not drying the fish. She is *trying* to dry them. The rack is woven fiber stretched on a frame, and the fish strips on it are grey and glossy and wet, and the air is wet, and the rack is wet. She turns them every few minutes. It is an act of faith or stubbornness. Perhaps the fish will dry when the fog lifts. Perhaps the fog will lift.
+
+At the eastern ridge, a man is working the exposed substrate with a stone pick — a heavy river stone lashed to a handle. He is breaking off chunks of the mineral-streaked material and dropping them into a basket. When the basket is full, he lifts it — it is heavy, you can see the strain — and carries it to a stone-lined pit near the center of the settlement where someone else is grinding the chunks against a flat stone, reducing them to powder, adding water, making the reddish paste. Pigment, yes, but for what? You do not see anything painted. The shrine poles are unwrapped wood-color. The shelters are untreated. Perhaps the paste is not for painting. Perhaps it is for tanning, for medicine, for preservation. Perhaps it is for something that has not yet happened.
+
+At the northern edge, two children are repairing a section of walkway. The old mat has been cut away and the exposed substrate beneath it is dark and wet and smells of iron. They are laying new bundles of fiber and lashing them down, working with the coordination of children who have done this before, who will do this again, who understand at some level that the ward is not a thing that was built and finished but a thing that is being built constantly, that the ground wants to be water and the walls want to be matting and the matting wants to be ground and the work of the people here is to insist on the distinctions.
+
+---
+
+The ward is new. This is evident in the sharpness of things — the fresh edges of the substrate at the eastern ridge, the unweathered cord at the shrine poles, the pale color of the newest fiber, which has not yet darkened with moisture and time. It is evident in the buildings that lean on each other, which are not yet settled, which have not yet decided which direction they will fall. It is evident in the absence of debris — no middens, no accumulated waste, no layers of old matting beneath the new. This place is months old, perhaps a year. It emerged from the wet ground and people came to it or were already here when it emerged and they built and they are still building and the building is the same act as the living.
+
+And the ward is full. Not full of people — forty shelters might hold sixty or eighty people, and you see perhaps fifteen — but full of structures, full of intent, full of the pressure of occupation. There is no unused space. The distance between any two shelters is less than the width of a shelter. The shrine poles occupy the only open ground, and even they are braced against the surrounding walls. The drying rack is in the walkway. The baskets are under the eaves. The stone-lined pit is between two shelters and its edges are the foundations of those shelters. Everything touches everything. If one structure falls, it will pull on its neighbors. If the ground shifts — and it does shift, you feel it now, a slow lateral movement beneath your feet, the mat adjusting, settling — the whole ward shifts with it, and the poles lean a degree further, and the eaves drip from a slightly different angle, and the woman at the drying rack turns her fish and the man at the ridge breaks off another chunk and the children lash another bundle and no one looks up because this is the world. The ground moves. The water rises. The work continues. The shrine cannot stand on its own.
+
+You stand at the boundary for a while. The fog does not lift. The ward does not grow quieter because it was never loud. It breathes in its small way, through its wet surfaces and its slow processes and its people who are busy with the next thing and the next. It is a place that is happening. It has not finished happening. It may never finish, and that is not a failure. That is the condition.

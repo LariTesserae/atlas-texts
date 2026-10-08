@@ -1,0 +1,97 @@
+# The Inhabitants of the Underwrought
+
+What lives here isn't what you'd expect. Nothing dramatic. Nothing with a face, exactly. But something does live here — several somethings, layered over each other like sediment, each one occupying the space at a different scale, a different speed, a different depth of belonging.
+
+---
+
+## First, the moss
+
+The moss was first, or near first. It arrived as spores, probably — carried down on boots, on cart wheels, on the draft that pushed through the stair when the door at the top was open. It found the condensation. It stayed.
+
+What lives in the moss is harder to name. The moss itself is alive, obviously — *Bryum*, maybe, or *Hypnum*, or something less identifiable, something that may have diverged from its surface ancestors over enough generations in the dark that it isn't quite the same species anymore. It doesn't photosynthesize the way surface moss does. There isn't enough light. But it doesn't need much. The dim amber of the surviving lamps is enough to keep it ticking over, and the heat from below provides the rest of what it needs — the warmth, the moisture, the steady conditions that let it grow without the interruptions of winter or drought. It has become something that doesn't expect interruption. It has become something that assumes the world will be exactly this warm and this wet and this dim forever.
+
+The moss is not alone. It carries its own inhabitants — tardigrades, almost certainly, those indestructible little water bears that exist in moss everywhere, that can survive boiling and freezing and the vacuum of space. You won't see them. They're there. They've been there since the moss arrived. They live their microscopic lives in the film of water between moss leaves, they mate and die and molt and go dormant and wake and molt again, and they have no idea where they are. They think they live in a forest. They think the moss is a forest, and they are not wrong.
+
+There are rotifers too. Nematodes. Protozoans. The entire microscopic community that lives in wet moss on any surface, anywhere — but here, in the Underwrought, this community has been isolated long enough that it has begun to become its own thing. Its own ecosystem. A microscopic world with no knowledge of the sun, with no experience of wind, with no reference point beyond the warm, wet, mineral-rich dark it was born into. These are the deepest inhabitants. The ones who have been here the longest in terms of generations, who have undergone the most generations in this place, who have adapted to it most thoroughly. They are not numerous. They are not diverse, not in the way a surface ecosystem would be. But they are *established*. They belong here more than anything else does.
+
+---
+
+## The vine
+
+The vine is different. The vine knows where it is.
+
+Not in a conscious sense — vines don't have consciousness, or at least not the kind we'd recognize — but in a chemical sense, a tropic sense. The vine has oriented itself. It has mapped the room with its growth, sending tendril after tendril along the pipes, testing each surface, finding the ones that carry water and following them the way a thirsty animal follows a stream. It has learned the layout of the plumbing. It has, over years or decades, threaded itself through the entire eastern wall, and it is still moving — slowly, slowly, a new shoot every few weeks, pale and tender at the tip, darkening and woody as it ages, until the oldest parts of the vine, the parts nearest the original root, are as thick as rope and as stiff as the iron they grow against.
+
+The vine is probably a *Hedera* — an ivy, something that was planted or introduced deliberately, or something that found its way down the stair and took hold. But it has been here long enough that it has changed. The leaves are smaller than they should be — the heart shape is there, but compressed, miniaturized, as if the vine has adapted to the low light by reducing the surface area it has to maintain. The leaves are darker, too, a deep green that's almost black in the shadows, loaded with chlorophyll, straining every photon out of the dim amber light. The vine grows toward the lamps. Not quickly — you'd have to watch for days to see it move — but the new growth always angles toward the light, always reaches for the next pool of amber, and when a lamp dies, the vine near it stops growing, holds for a while, and then — slowly — redirects, reaching for the next nearest source. It tracks the light the way a sunflower does, but on a timescale of weeks instead of hours.
+
+What lives in the vine: scale insects, maybe, though you won't see them. Possibly mites. The vine is a habitat, a vertical landscape of stems and leaves, and things live in it the way things live in any plant. But fewer things than you'd expect. The heavy metal content in the water — iron oxides, copper compounds leached from the pipes, traces of whatever was in the tanks — may limit what can survive here. The vine tolerates it. The vine has evolved, or adapted, or simply persisted, and its tissues probably carry concentrations of metal that would kill a surface plant. It doesn't seem to mind. It grows.
+
+The vine has a root system, somewhere in the cracks in the floor, in the sediment that's accumulated in the drainage channels, in the dark wet spaces beneath the tiles where the water flows and the mineral-rich soil has built up over decades. The roots are there. You can't see them. But you can infer them — the vine is healthy, it's growing, it's extending, and that means it's drawing nutrients and water from somewhere, and that somewhere is below the floor, in the dark, in the cracks, in the spaces between the tiles where the water flows and the earth has accumulated and the roots have found purchase. The vine has colonized the drainage system the way the builders intended it to be used — not for water, but for transport. The vine farms the infrastructure. The infrastructure grows the vine. It is a partnership, or a parasitism, or a takeover, depending on how you want to look at it.
+
+---
+
+## The ferns
+
+The ferns are older than the vine. They were here first — or nearly first, after the moss. They arrived as spores, carried on the same air currents that carried the moss, and they found the cracks in the walls and the crevices where pipes met stone and the gulleys in the ceiling where condensation pooled, and they germinated, and they grew.
+
+What lives in the ferns: nothing visible. The spore cases on the undersides of the fronds are not mites or insects — they're part of the plant, reproductive structures, and they happen to be the same rusty brown as the iron around them. But the ferns host life in their root zones, in the small pockets of substrate where their rhizomes have taken hold. Microscopic life. Bacterial life. Fungal hyphae threading through the organic matter that's accumulated around the fern's roots, breaking it down, converting it to nutrients the fern can absorb. Each fern is a tiny ecosystem, a micro-landscape of root and soil and microbe, and each one is a world unto itself, and each one is unaware of the others, and each one is growing in the dark, in the wet, in the warm, and doing fine.
+
+The ferns are the most successful inhabitants of the Underwrought, in terms of sheer numbers. There are hundreds of them. They grow from every crack, every seam, every joint between pipe and wall and ceiling and floor. They have found every surface where moisture accumulates and where enough light — even this dim, amber, inadequate light — reaches to power their photosynthesis. They are small because the light is small. They are dark because the light is warm. They have adapted. They have become *the* ferns of this place, and if you brought a botanist down here, they might not recognize the species, because the species may have been reshaped by its environment into something new, something that can't be found anywhere else, something that belongs only here, in this one chamber, in this one specific combination of warmth and water and dim light and mineral-rich air.
+
+The ferns don't know they're underground. They don't know they're in a chamber. They don't know about the stair, or the surface, or the sun. They know moisture, and they know warmth, and they know the dim amber light that comes from the strange warm rocks on the walls, and that is their entire universe. They have never known anything else. Their ancestors knew — the first spores that landed here came from the surface, came from a world of sun and wind and rain — but that knowledge is not inherited. Each generation of ferns is born knowing only this: the dark, the wet, the warm, the faint light. This is their world. The entire universe, as far as they are concerned, is a room.
+
+---
+
+## The fungi
+
+The fungi are something else. The fungi are the true natives.
+
+Not literally — they arrived here too, at some point, as spores or hyphae, carried in on water or air or organic matter. But they have been here the longest, or at least they have adapted the most thoroughly, and they have become the dominant life form of the Underwrought in a way that the plants haven't.
+
+The bracket fungi on the wooden benches and tool handles are one species, or several. They are decomposers. They break down the cellulose and lignin of the wood, converting it to nutrients, and they have been doing this for decades, and they will continue until the wood is gone — until the benches are soft piles of fiber and fungal tissue, until the tool handles crumble at a touch, until the wooden parts of the machinery are entirely consumed. They are patient. They are thorough. They are doing the work they were evolved to do, which is to break down dead things and return them to the soil, and the fact that the dead things are in an underground chamber rather than a forest floor doesn't concern them. Wood is wood. The fungi don't care where it is.
+
+The pale mushrooms in the corners are different. They are the ones that glow — the ones that produce the faint blue-white luminescence that makes the deepest darkness slightly, barely, just barely visible. They are probably a *Mycena* species, or something close to it — one of the bioluminescent fungi that produce light through a chemical reaction involving luciferin and luciferase, the same chemistry that makes fireflies glow and foxfire shimmer in old logs. The glow is faint. It serves no purpose that anyone can determine, at least not for the fungus — it may be an evolutionary accident, a byproduct of a metabolic pathway that evolved for other reasons. But it is here, in this chamber, and it is the only light that the fungi produce, and it is the only light that the deepest corners receive, and in the deepest corners, where the electric lamps never reach and the stair-light has long since faded, the mushrooms glow, and the glow is enough to see by — barely, just barely, if you let your eyes adjust — and what you see is more mushrooms, more pale caps, more gills visible through translucent skin, more faint blue-white light, and you realize that the fungi are not just growing in the corners. They are *inhabiting* the corners. They have colonized the dark.
+
+What lives in the fungi: the fungi themselves, of course. But also the bacterial communities that live in and around their mycelium, the complex soil ecosystem that exists in the substrate where the fungi fruit, the microscopic web of life that decomposes the decomposers. And something else — something that the fungi may be farming, or at least encouraging. The pale creature in the puddle. The one moving thing.
+
+---
+
+## The creature in the puddle
+
+It's an oligochaete. Probably. Or a nematode. Or something that doesn't have a common name, something that was carried in as an egg on the surface of a spore or the body of a mite or the root of a fern, something that hatched in the warm mineral-rich water of the puddle and found conditions tolerable and stayed.
+
+It is pale because it has no use for pigment. It is translucent because it has no use for opacity. It has no eyes, or if it does, they are rudimentary, light-sensitive spots that can tell the difference between the amber pools of the lamps and the blue-white glow of the mushrooms and the darkness between, but can't resolve anything more detailed than that. It lives in the puddle, in the water that has accumulated in the depression where the tiles have collapsed, and it feeds on — what? Organic matter, probably. Bacteria. Fungal spores that have settled on the water's surface. The fine silt of decomposed moss and fern tissue that washes across the floor and ends up in the puddle. It is a detritivore, a bottom-feeder, a tiny patient creature that moves through the water with a motion that is either swimming or writhing — the difference, at that scale, is academic — and that has no idea it is the only animal in the room.
+
+It might not be the only one. There might be others in other puddles, in other collapsed tiles, in the water that flows through the drainage channels beneath the floor. There might be a small population, scattered through the chamber's water system, connected by the cracks and channels that link one pool to another. They might have been here for years, or decades, or longer — reproducing slowly, persistently, adapting to the heavy metal content of the water, adapting to the warmth, adapting to the dark. They might be the descendants of surface creatures that colonized this place when it was first abandoned, or they might be the descendants of creatures that were already here, that lived in the soil before the chamber was built, that were sealed in when the floor was laid and the walls were raised and that have been here ever since, underground, in the dark, for longer than the chamber has existed.
+
+You can't tell. You can't know. The creature is too small, too pale, too simple to carry its history in a way you can read. It moves. It feeds. It lives. That's all it does. That's all it needs to do.
+
+---
+
+## The deeper inhabitants
+
+There are things here you can't see.
+
+The mycelium. The fungal mycelium that threads through the substrate beneath the floor, through the cracks in the stone, through the sediment in the drainage channels, through the organic matter that has accumulated over decades of moss growth and fern death and vine litter. The mycelium is the real body of the fungi — the mushrooms are just fruit, temporary structures, the visible tip of a much larger system. The mycelium is always here. It is always growing. It is always breaking things down and building things up, converting dead matter to living tissue, converting living tissue to soil, converting soil to the substrate that the plants grow in. The mycelium is the digestive system of the Underwrought. It is what makes the place alive.
+
+And below the mycelium, in the rock itself, in the limestone, in the veins of mineral and organic matter that thread through the ceiling and walls: bacteria. Lithotrophic bacteria, maybe, feeding on the minerals in the stone, metabolizing the iron and sulfur and carbon compounds that the water dissolves as it seeps through the rock. They have been here since before the chamber was cut. They were here when the limestone was formed, trapped in the stone as it precipitated from ancient seawater, and they have been here ever since, in the dark, in the rock, living on chemistry, living on the slow dissolution of the world around them. They are the oldest inhabitants. They were here before the builders. They will be here after the vine dies and the ferns die and the moss dies and the last lamp goes out and the stair collapses and the entrance seals and the chamber becomes, once again, just rock.
+
+They don't know about the chamber. They don't know about the stair. They don't know about the people who built this place, who installed the pipes and the pumps and the lamps and the benches. They don't know about the water that runs across the floor or the heat that rises from below or the pale creature in the puddle or the vine that threads through the machinery. They don't know about any of it. They are in the rock. They have always been in the rock. They will always be in the rock. They are the substrate on which everything else rests, and they are the last thing that will remain.
+
+---
+
+## What lives here, truly
+
+What lives in the Underwrought is not a creature or a population or an ecosystem in the usual sense. What lives here is a *process* — a slow, warm, wet process of conversion, of transformation, of one thing becoming another.
+
+The water converts stone to dissolved minerals. The dissolved minerals convert the water to something that feeds the moss. The moss converts the rock surface to soil. The soil converts the cracks in the floor to habitat for the ferns. The ferns convert the light to tissue. The tissue, when it dies, converts to food for the fungi. The fungi convert the dead tissue to mycelium. The mycelium converts the substrate to a network, a web, a living layer that connects everything to everything else. The vine converts the infrastructure to a trellis. The lamps convert electricity to light. The light converts the chamber to a place where photosynthesis is possible. The heat converts the chamber to a place where life is possible.
+
+What lives here is the conversion itself. The ongoing, patient, never-finished process of one thing becoming another thing, of dead iron becoming rust becoming stain becoming color becoming pattern, of dead wood becoming fungus becoming soil becoming substrate becoming root becoming fern becoming spore becoming fern again. The cycle. The circuit. The slow, warm, wet circuit of matter and energy that the builders set in motion when they dug this place and piped it and lit it and then left, and that the water and the heat and the spores and the seeds took over when the builders were gone.
+
+The builders' ghosts are here too — not literal ghosts, but the shapes of their intentions, persisting in the layout of the pipes, the angles of the valves, the outlines of missing tools on the pegboard. The builders are gone, but their decisions still shape the space: the pipes still direct the water, the floor still slopes toward the drain, the lamps still hang where they were hung, the wiring still follows the paths they chose. The builders are part of what lives here. They are the substrate of the human part of the ecosystem, and their influence persists the way the limestone persists, slowly, invisibly, in the shape of everything.
+
+What lives here, ultimately, is the chamber itself. The whole thing — the rock, the iron, the water, the moss, the ferns, the vine, the fungi, the pale creature in the puddle, the bacteria in the stone, the heat rising from below, the dim amber light, the blue-white glow in the corners — all of it, together, is the organism. Not a collection of organisms. A single organism. A body. The Underwrought is alive, and what lives in it is itself, and what it is doing is being itself, slowly, patiently, in the dark, in the warm, in the wet, for as long as the heat lasts and the water flows and the stone holds.
+
+It will outlast you. It has already outlasted the builders. It will outlast the lights. It will outlast the iron. It will outlast the stair. It will be here, being itself, being warm, being wet, being green in the dark, long after everything else has gone.
+
+It doesn't need you. It doesn't need anyone. It is fine.

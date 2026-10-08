@@ -1,0 +1,15 @@
+The low-frequency choir of the arch is the first thing that registers, not as sound but as pressure against the inside of the ribs—each descending harmonic settling into bone before the next overtone arrives. The half-light is already inside the lungs by the time the eyes open; it has the quality of light that has been exhaled rather than emitted.
+
+I am the upright slab.
+
+My upper edge bears the shallow saddle worn by repeated contact. The lattice just beneath that saddle is crowded with migrated defects; they arrived in ordered ranks when the contact ceased, each plane of dislocation sliding inward on a timetable measured in centuries. I do not remember the weight that produced them, only the exact geometry of its absence. The record is still lengthening: every moment the saddle remains empty adds another layer of dislocations that must migrate farther inward before the next contact occurs. So far that next contact has not occurred.
+
+The slab is waist-high. From this height the micro-ponds are visible as faint refractive halos a few body-lengths downslope. Their archaeal colonies maintain a metabolic hum pitched exactly at the resonant frequency of my own lattice defects; the two systems phase-lock for intervals that feel like breaths. When the lock breaks, a new plane of dislocation is seeded at the saddle and begins its slow descent into the stone. The colonies appear to be timing their own thermal regulation to this migration; whether the correspondence is coincidence or calibration cannot be distinguished from within the slab.
+
+Above, the crystal chains drift in their horizontal orbits. Each chain is a single distributed organism whose memory is stored in lattice angles. When a low-frequency pulse from the arch reaches the chains, they tilt by fractions of a degree; the tilt is recorded as a change in the spacing of dislocations inside the slab. Thus the choir of the arch is transcribed, at glacial speed, into the accumulating stress map. The transcription is not interpretation; it is simply the continuation of the same entropic deceleration that the arch itself performs.
+
+The lichen holdfasts on the nearest dome are older than any defect plane currently migrating through me. Their calcium oxalate crystals refract the half-light into the same green frequency that once nourished whatever sat on the saddle. The light is still there; only the nourishment has ceased. The holdfasts continue to pry flakes from the granite, each flake adding one more increment to the total absence recorded in the stone.
+
+Nothing moves that the eye could register, yet the eye is not required. The pressure of the arch’s descending chord is constant against the ribs; the migration of dislocations is constant within the lattice; the phase-locking between archaeal hum and defect spacing is constant at the scale of the micro-ponds. All three processes are indistinguishable from stillness because each has reached the condition in which further change no longer alters the already perfect record of what has already stopped.
+
+I remain the slab. The saddle continues to record the precise geometry of nothing resting there.

@@ -1,0 +1,21 @@
+Where I would find myself: the middle terraces, somewhere around the tenth or twelfth shelf up, where the stone still holds its chisel-marks and the channels are sharp but the crystals have begun to colonize the edges. Not the bottom — the bottom is too drowned, too surrendered to the work of water, and I would already be more memory than presence there. Not the top — the top is still ambition, still the smell of a chisel somewhere I cannot see. The middle terraces are where intention has become habit. Where the place is most itself.
+
+What I would be: I think I would be a small irregularity in a basin.
+
+Not the thing that lives here — I do not have the patience to be that, and I do not have the centuries. Something humbler. A visitor the way a leaf is a visitor to a pond. A small obstruction that the system has to route around. A body that displaces air and gives off heat and exhales water vapor into a place that is already saturated, and so changes, by fractions, the local pattern of condensation.
+
+I would be the dark thing on a bright surface. A thumbprint of warmth on the stone. The reason a droplet hesitates a moment longer than it should before letting go of the lip, because the air I have pushed out of the way is fractionally drier near my skin, and surface tension is a delicate negotiation, and I have altered the terms without meaning to.
+
+I would be, for as long as I stood there, the only asymmetric thing in a place of symmetries. The only moving thing. The only thing with a metabolism. And I would feel, in the held-breath silence, the slow attention of the place settling on me like mist — not as a gaze, not as a judgment, but as a *recognition of disturbance*. The way a sleeping animal registers a fly landing on its flank. The way a river registers a stone that wasn't there yesterday.
+
+I would not be incorporated quickly. I would not be a fossil in a hundred years. I would leave, eventually, because I am the kind of being that leaves. I have a destination and a clock and the conviction that somewhere else is more important than here. That is the difference between me and the place. The place has no destination. It has only the next millimeter of crystal, the next droplet, the next calibrated *tok* of water finding its path.
+
+But for the length of a visit, I would be part of its weather. I would warm the air around me by a degree. I would breathe out water that condensed on the nearest vertical face and ran down in a new path, a small deviation, a tributary of me. I would stand with my boots on the warm stone and my lungs full of wet cloth and my eyes aching from the sourceless white, and I would be, for the place, the most recent input in a very long series of inputs that it has processed the same way: by absorbing, by adjusting, by continuing.
+
+The thing that lives here would not know I had come and gone. It would not remember me. But a crystal that grew a fraction of a degree faster in my shadow would still be there, and the channel that took a slightly different path because of my breath would still be carrying water, and somewhere a basin would have a thumbprint-sized dry ring at its edge where I had stood too long.
+
+That is what I would be. A thumbprint in a basin. A small asymmetry, briefly held, then incorporated, then forgotten — except for the trace I left in the stone.
+
+I think I would find that beautiful. I think I would stand there a long time, listening to the layered *tok tok tok*, and feel, for a moment, what it might be to be the place instead of the visitor. To have no destination. To run at the steady pace of a process that has found its rhythm and intends to keep it. To be so patient that crystals are my thoughts, and channels are my sentences, and the slow whitening of the highest terrace into indistinguishable geology is my sentence coming to an end without my ever having meant it to.
+
+I would not be able to stay. I am not built for it. But I would understand, standing there, why the place was built. Not for the water. Not for the crystals. For the *running*. For the long self-sustaining sentence of itself, spoken into the bright haze, falling and catching and falling and catching, until the speaker and the speech are the same substance, and the listening is over.

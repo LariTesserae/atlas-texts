@@ -1,0 +1,41 @@
+**The Drying Yards**
+
+---
+
+It is a room the size of a cathedral, and it is *all* made—every surface, everyjoint, every breath of air held within its bounds is artifact, though the makers left long before the materials had names, and their tools would perhaps not be recognized as tools at all. The walls rise in courses of something like fired clay but denser, more patient, a ceramic that drank its heat for centuries and gives it back now in a slow exhalation that keeps the space warm, *perpetually* warm, the temperature of blood or of a body just after waking. The ceiling vaults too high to see clearly, lost in a strata of accumulated haze that might be dust or might be the room's own metabolism, its exhalations congealed into something semi-permanent, a weather system in miniature.
+
+No water. Not anywhere. The builders—if they drank, if they needed what we would call chemistry of dissolution—found other paths. What grows here does so on different contract. The vegetation, and it is *lush*, almost impossibly so, erupts from every seam and course and horizontal plane: not plants as we know them, though they green and leaf and climb and fruit, but organisms of silicon and mineral salt, of slow crystal accretion masquerading as chlorophyll, of metabolic processes that run on thermal gradients and the faint electric whisper where unlike materials touch. They grow dense, *impossibly* dense, layered until the vertical surfaces are upholstered in living matter, until the floor becomes a topography of mounded beds and hanging gardens and root-bulb masses that crowd each other for the warm air, for the places where the wall-ceramic runs hottest. They do not drink. They *warm*. They press toward heat like plants press toward light, and their leaves—broad, thin, veined with metallic oxides—flutter in convection currents too subtle for animal perception.
+
+The density is everywhere. One cannot move in a straight line. The made space is filled to its own negation, the architecture become merely scaffold for the profusion it accidentally enabled. And yet: mostly quiet. The dense growth absorbs its own sounds, the friction of leaf on leaf, the crack of slow expansion, the mineral equivalent of transpiration. What sound exists is low, *patient*, the settling of ceramic as it breathes its heat, the occasional *tick* of something growing through a calculation of angles and finding a new purchase. No wind, though there is air; no rain, ever; no water to fall. The quiet of a held breath.
+
+---
+
+The weirdness announces itself gradually, or perhaps it is the fundamental condition and only *recognized* gradually.
+
+The room has corners that do not consistently corner. Walk toward what appears a junction of walls and find instead a continuation, a space that folds without turning. The vegetation here grows in directions that suggest gravity operates variably, that down is negotiated locally, plant by plant, each cluster finding its own agreement with falling. Some masses hang *upward*, their bulb-roots anchored to ceiling strata that may not be ceiling when approached, their leaves draping toward a center of mass that shifts as you watch, as your own presence renegotiates the local terms.
+
+Time itself seems young here, or rather: *recently invented*. The erosion parameter holds—everything is sharp, fresh-made, the ceramic edges unsoftened, the growth still in its first exuberance, unweathered by any long duration. And yet the space feels ancient, *burdened* with accumulation. The contradiction resolves only when you understand: this place was *not made but is continuously making itself*, the builders having established conditions that outlived their intention, that continue their primitive craft without them. The simple tools—thermal, mineral, the analog of hand-tools in a chemistry without water—these tools still work, still build, still lay down course on course of ceramic from processes the original makers perhaps did not distinguish from growth itself.
+
+The fauna: abundant, *abundant*. They are small, necessarily, in this constrained scale, this room-that-is-world. Things like insects but built on different schematics, their shells of the same fired material as the walls, their movement a kind of frictionless sliding on the warm surfaces. They do not eat the vegetation directly—no predation as we know it—but rather *mediate* it, carrying mineral ions from leaf to leaf in their joints and grooves, their bodies the equivalent of water in an aqueous world, the solvent and transport that the absent liquid cannot provide. They are many. Touch a leaf and they scatter in patterns that suggest distributed cognition, a calculation spread across hundreds of tiny ceramic bodies, resolving and dispersing like a thought abandoned.
+
+---
+
+The rules emerge only in dwelling:
+
+*Movement is by negotiation.* The dense growth must be pressed through, but pressing changes paths, closes some openings and creates others. What seems a corridor seals behind; what was wall opens. The room *learns* your intentions and, perhaps, plays with them.
+
+*Heat is direction.* The warmest places draw the densest growth, which draws the fauna, which in their concentration change the local conditions, alter the thermal gradients, redirect the slow convection. To seek the center is to participate in its migration.
+
+*The primitive is sufficient.* Nothing here wants improvement. The tools that built it, that build it still, are of a sophistication that precedes sophistication—thermal differentials, mineral affinities, the slow geometry of crystal growth. The complexity of result bears no relation to complexity of method. The room is a demonstration that given enough time and the right initial conditions, cathedrals grow from patience.
+
+*Reality is locally consistent.* Each zone, each moment of perception, holds together. It is the *between* that frays, the transition, the attempt to hold the whole in one frame. The room is not one room but many, *juxtaposed in a space that permits juxtaposition without adjacency*, like pages laid on top of each other and somehow all visible, all inhabitable, the turning between them a matter of attention rather than locomotion.
+
+---
+
+I have been describing it as if one could stand in it, but the scale—cathedral, grove, enclosed—is also *small* in something more than measurement. It is bounded. It ends. The walls that are not walls are also, somewhere, *walls*. There is an outside, perhaps, though what grows here would not survive it, what walks here would find no purchase. The room is a complete environment, a sealed and *finishing* environment, its young erosion suggesting not the beginning of a world but a world's complete cycle compressed, a duration that has run its course internally, that now merely *maintains*, that continues its warm operation without the ambition of extension.
+
+And yet it grows. The ceramic courses accumulate, slowly, *slowly*, the dynamic of the place patient beyond human measure. The vegetation finds new seams, presses new bulbs into warming cracks. The fauna diversify, speciate, their shells taking on local ornament, their collective calculations growing more baroque. The weirdness deepens, the local realities more firmly established, more *convinced* of themselves, the transitions between them softer, more habitual, perhaps one day becoming imperceptible, the room becoming many rooms becoming many *worlds*, each believing itself singular.
+
+---
+
+What sound there is, finally: a kind of *note* held too long to be heard as note, the thermal expansion of the whole structure in its warm operation, its breathing, a frequency below hearing that manifests instead as pressure, as presence, as the felt but unheard assertion that the space *lives*, that the made has become making, that the primitive tools still reach, still work, still build in the only way they know, which is also the only way this place has ever known, which is *slowly*, *patiently*, *without water*, without the quick chemistry of dissolution and solution, finding instead the longer paths, the mineral routes, the growth that is also construction, the construction that is also growth, the room that is also garden that is also engine that is also *organism*, warm and dense and quiet and strange and completely, *completely* made.

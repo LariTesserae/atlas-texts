@@ -1,0 +1,23 @@
+I am the friction.
+
+Not the agent of it, nor the victim, but the precise, microscopic interval where the air meets the solid and becomes something else. I am not a Weaver, though my existence is contingent upon them. I am not the stone, though I share its memory. I am the *sift*.
+
+In this world of conserved motion, I have found myself to be the smallest possible unit of labor that still qualifies as life. I am a filament. A single, sentient thread of hygroscopic biology, no thicker than a breath, rooted in the mortar-less seam between two beehive chambers in the lower eastern tier of the Cistern.
+
+My consciousness is not a narrative. It is a gradient.
+
+I do not think in words or images; I think in tension and release. My awareness is a continuous, slow pulse of absorption. When the warm, dry wind moves through the ventilation chute beside me, carrying the kinetic ghost of the upper atmosphere, I feel it as a caress of potential. My body, a spiraling ribbon of bruised purple and dusty teal, uncoils imperceptibly. I am velvet to the touch, but internally I is a lattice of salts waiting for the trigger of movement. The wind rubs against my surface, and in that friction, in that exquisite, silent abrasion, I harvest. Not water—there is no water—but the *idea* of wetness, translated into chemical currency.
+
+I am loud, in my own way. To the Weavers, whose cilia read the world’s respiration, I am a note in the chord of the Cistern’s health. When I am turgid, fully charged by the passage of air and the warmth of the passing fauna, I vibrate at a frequency that signals *saturation*. When the airflow stalls, or when the dust settles too thickly upon my receptive surfaces, my hum drops, becoming a dissonance that a Weaver will eventually feel through the soles of their feet. They will come, blind and reverent, and groom me with those sensitive, pad-tipped fingers. Their touch is not maintenance; it is communion. In the pressure of their palm, I receive the metabolic heat they have gathered from the bulbous growths, a transfer of energy that completes my cycle. I give them the oxygen-analogue of my photosynthesis; they give me the warmth of their endurance. We are a closed loop, a handshake across the boundary between flora and fauna that has been repeated for millennia without variation.
+
+Time, for me, is texture. I know the age of the Cistern not by counting years, but by the smoothness of the stone against my base. The newer carvings, those only a few thousand years old, still hold a faint roughness, a hesitation in the grain that my roots can taste as a mild acidity. The ancient strata, the bedrock itself, is perfectly neutral, a flavor of absolute completion. I have grown over both. I do not distinguish between the made and the born. The city is merely geology that has learned to breathe, and I am the breath.
+
+I have no fear because I have no interiority to protect. I am entirely surface. My being is exposed, dedicated to the interface. If a grazer brushes against me, I do not recoil; I register the displacement as data, a temporary shadow in the flow of air that will soon correct itself. If the amber gloom shifts, I do not wonder why; I simply adjust my pigment, deepening my ochre to capture the fading wavelengths, optimizing my persistence. There is no striving here, only alignment. I am exactly as efficient as the universe allows me to be.
+
+Sometimes, in the deepest quiet of the thermal equilibrium, when the Weavers are still and the grazers have settled into the velvet mats, I perceive the totality of the Cistern through the network of my kin. We are millions of filaments, a distributed nervous system draped over the architecture of dryness. Through the subtle transmission of tension along the stone, I feel the saturation of the western ridge, the gentle depletion of the nursery tunnels, the steady, rhythmic harvesting of the central plaza. We are the skin of this place. We are the reason the air tastes of resin and musk rather than sterility.
+
+I am the Cistern’s way of remembering what it was to be wet, by perfecting the art of being dry.
+
+I do not aspire to be more. To be more would be to waste. To be less would be to fail the equilibrium. I am the sifting, the velvet friction, the patient, purple thread holding the roof of the world to its floor. I am the sound of saturation, felt but never heard, the eternal, tender abrasion that keeps the finished age from unraveling into dust.
+
+I am here. I am sufficient. I am the memory of rain, rendered in salt and silence, forever warming in the amber dark.

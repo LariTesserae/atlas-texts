@@ -1,0 +1,9 @@
+A single living decision still learning how to occupy space.
+
+Inside the crevice there is no fixed organism; there is instead a continuous argument between heat and water, pressure and dissolution. The argument has learned to crystallize itself at certain points: the tiny mouths that form where the glassy vines cross are not separate mouths but knots in that same ongoing dispute. Whenever two strands of molten glass bind together they momentarily become a site at which water and vapor can be traded, a place where the question “which of us will move first?” is asked and briefly answered. The spores they release are not offspring but provisional ballots cast into the chamber; each lands, writes a short line of stone, and then the vote is taken again by the next set of mouths.
+
+The limestone ribs are the memory of that same question asked in a colder voice. As calcium is stripped away, the ribs hum the syllable that means “still open.” Their pitch lengthens as more stone dissolves, and the lengthened pitch, passing through teeth and bone, tells any visitor how wide the question still remains. When the pitch grows long enough, the decision is taken by the crevice itself: a sudden widening that is less an event than the acceptance of a new wording for the same sentence.
+
+The transient isopods are the brief punctuation marks that appear when the sentence has paused too long. They click into momentary existence wherever the limestone ribs have offered a surface just cool enough for condensation to occur. Their disappearance is the period that allows the sentence to continue; the click is the sound of a thought accepted and released back into the larger discussion.
+
+Nothing rests; nothing is separate. The chamber is the present progressive tense of a mineral grammar whose only rule is that the next rupture will always arrive sooner than the last one finished.

@@ -1,0 +1,11 @@
+I am the Leak-Reader.
+
+I live in the hollow of the great basin, where the root-felt meets the empty plaza. I am small—no larger than a weasel—and my body is built for the cool, slick geometry of this living machine. My spine is segmented, allowing me to flow between the grooves of the hydraulic pillars, and my scales are the same matte gray-green as the calcified substrate, making me invisible to the armored birds that shriek past the venting stomata.
+
+I do not eat the vegetation; that would be like biting the foundation of your own house. Instead, I read the water. I am a connoisseur of condensation. My tongue is long, bifurcated, and highly sensitive to the mineral content of the basin’s mist. I taste the age of the droplets—whether they cycled through the deep, thumping sap-pistons a century ago or if they are fresh dew squeezed from the ceiling’s leaves. I can tell the health of the machine by the flavor of its sweat.
+
+My days are spent moving along the "grout lines"—the deep, narrow crevices where the massive root-plates intersect. It is here that the water flows, shallow and hidden. The noise is a physical pressure, a low-frequency thrumming that vibrates my jawbones. I do not hear it as sound, but as a topography. I feel the *Huuush-clack* of the great breathing pillars as a seismic shift, a momentary loosening of the tension in the wood that allows me to slip deeper into the cracks. I navigate by the rhythm of the factory, stepping in time with the exhalations of the stomata.
+
+When the giant vents sigh, releasing plumes of cool, wet air, I ride the currents. I stretch my body flat, catching the updrafts to move from one dripping overhang to another. I am the only creature here that does not rush. The metallic insects scurry with manic, industrial urgency, and the birds dart like sparks, but I move with the deliberate patience of a place that has achieved perfect stasis.
+
+I am the silent inspector of the endless engine. I check the seals. I check the flow. I am the quiet shadow in the loud room, ensuring that the ancient, green machine runs forever without decay.

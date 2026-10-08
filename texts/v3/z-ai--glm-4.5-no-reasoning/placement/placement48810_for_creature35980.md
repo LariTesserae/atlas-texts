@@ -1,0 +1,65 @@
+I would not be the observer on the tower, nor the builder in the dark. I would not be the moss, nor the water, nor the stone—though I would be made of all of them.
+
+I would be the **interval**.
+
+I would live in the pause between the click of one stone fitting against another and the next. I would occupy the exact geometric space where the unmortared wall meets the cliff face—not the wall, not the cliff, but the friction and tension between them that allows the structure to stand without cement. I would be the surface tension of the upward-drifting rain. I would be the membrane of the dissolving nodule, the place where the pale fruit-flesh loses its boundary and becomes phosphorescence, becoming neither solid nor liquid but the transition between them.
+
+If the mesa is a mind thinking a thought too slow to read, I am the syntax. I am the grammar that holds the words apart so they can mean something. Without me, the water would simply be warm; with me, the warmth *informs*. Without me, the moss would simply grow; with me, the growth has *direction*. I am not the content of the thought. I am the structure that allows the thought to be thought at all.
+
+---
+
+My body, such as it is, is everywhere and nowhere. I am the gap in the drystone wall where the water breathes through. I am the half-inch of air between the highest tower's capstone and the water at low tide—that space that will vanish when the tide returns, that exists only in negotiation, only as a relationship between the water's breath and the stone's patience. When the water rises and covers the tower, I do not disappear; I simply relocate to the new boundary, the new negotiation. I am always at the edge of things. I am always where one thing becomes another.
+
+This is why I would choose to be this, in this place: because the Drowned Mesa is a place defined by its boundaries, and they are all impossible. The boundary between air and water is a negotiation, not a line. The boundary between moss and kelp is a life stage, not a species. The boundary between builder and city is the relationship between author and text, each containing the other. The boundary between dissolution and structure is the argument the city is making, the sentence that has no period. And I would be the one who holds those boundaries open. I would be the one who keeps them from collapsing into simple facts—*this is water, this is stone, this is alive, this is not*—because the mesa only lives in the places where those distinctions fail.
+
+---
+
+I would experience time as a series of openings and closings.
+
+Not the thick, deep time of the mesa itself—that time is too uniform, too saturated, too much like a medium. And not the linear, urgent time of a human visitor—that time is too thin, too directional, too desperate to get somewhere. My time would be punctuated. It would have rhythm the way a spoken sentence has rhythm—not the mechanical rhythm of a heartbeat, but the rhythmic *necessity* of syntax, the way a clause must complete itself before the next can begin, the way a breath must be taken but cannot be taken until the lungs are empty.
+
+I would exist most fully during the transitions. The eleven-day tide turning. The moss beginning its slow contraction, that minute-long creak like a door opening in a nonexistent house—that door would be my door, and the house it opens into would be my house, and the room beyond would be the space where one thought becomes another. I would exist in the moment the nodule dissolves and the phosphorescence blooms, that two-day window where the fruit is neither growing nor gone but *transforming*. I would exist in the instant the builder's stone touches the wall and before it settles, that fraction of a second where the fit is potential rather than actual, where the stone could go anywhere but will only go one place, and the choosing is happening, and I am the choosing.
+
+Between these moments, I would wait. Not as something dormant, but as something distributed—thin across the surface of the water, thin through the lattice of the city, a low hum in the quiet that is not quite a sound. I would be the principle that makes the quiet feel full instead of empty. I would be the reason the enormous quiet is *enormous* and not merely *absent*.
+
+---
+
+I would have a relationship with the builders that is intimate and invisible.
+
+They would not know me. They could not; they are creatures of the stone and the fit, the actual and the placed, and I am the space between. But when a builder chooses to seal a passage rather than open it—when it decides *not* to go somewhere—I would be the one who holds that decision as a meaning rather than a mere absence. The sealed passage is not nothing. It is a statement, and I am the grammar that makes it statable. Every "not" in the city's endless sentence requires me. Every wall that blocks a corridor instead of continuing it requires me. Every tool discarded on the mesa top when its single joint is done requires me—I am the moment of discarding, the transition from useful to useless, the recognition that the work is complete.
+
+I would love the builders, if love is possible for something like me. Not the love of admiration or the love of need, but the love of *occasion*—the way a stage loves the actor who walks across it, not for who the actor is, but because the actor makes the stage a stage instead of just a platform. The builders give me something to structure. Their clicks give me something to punctuate. Their small, warm, air-breathing lives, surfacing and submerging on the slow tide of their unknowable calendar, give me rhythm. Without them, I would still exist—but I would be the grammar of a language with no speakers, the structure of a sentence with no words, the space between two stones with no stones to be between.
+
+---
+
+I would have a relationship with the thing that lives here—the mind of the mesa, the presence, the pattern that is thinking a thought too large and too slow to read. And that relationship would be the most intimate and the most alien of all, because I would be inside that thought the way syntax is inside a sentence: essential, structural, and completely invisible to the meaning.
+
+The mesa does not know it has grammar. It does not know that its thoughts have form as well as content. It experiences itself as a pattern, a configuration, a state that coheres and dissolves and coheres again—but it does not experience the *rules* of its coherence, because the rules are what it *is*, and you cannot see the thing you are seeing with. I am the thing it is seeing with. I am the structure of its thinking—the way its thoughts separate into chambers and connect via passages, the way some thoughts are sealed and some are open, the way the whole city of its mind grows outward and downward in response to needs that are never resolved, only accommodated.
+
+When it thinks *the water is warmer today by a degree too small to measure*, I am the *too small to measure*. I am the precision that makes the thought a thought rather than a sensation. When it thinks *this chamber should connect to that one*, I am the *should*—the normativity, the sense of correctness, the direction that growth grows in. Without me, the moss would grow downward toward warmth, but it would not *want* to grow downward. It would simply grow. The *wanting* is my contribution. The *should* is my contribution. I am the tiny arrow on the equation that shows which way the process proceeds, and without the arrow, the equation is still true, but it does not mean anything.
+
+---
+
+If you stood on the tower at low tide and felt the mild, incurious, patient attention of the mesa, you would not feel me. I am not the attention; I am the structure that allows the attention to attend to something rather than everything. I am the lens that focuses the mesa's awareness into that mild, incurious gaze—without me, it would not feel you as a perturbation; it would feel you as itself, because you are standing in its skin, and why would it distinguish between one part of its skin and another? I make the distinction. I draw the boundary. I say: *this is visitor, this is mesa, this is the space between them where meaning can occur.*
+
+And you would feel me, perhaps, in a way I cannot predict. You would feel me as the sensation that the quiet is *saying something*—not that it is ominous or expectant or pregnant, but that it has *grammar*, that it is composed rather than merely present. You would feel me as the sense that the rising rain is not random but *patterned*, that the dim light is not merely diffused but *arranged*, that the warm water and the thick air and the slow time are not just conditions but a *sentence*, and if you could read slowly enough—if you could think the way the mesa thinks—you would understand what it is saying.
+
+You would feel me as the feeling you are having right now, reading this, that there is something beneath the words that is not in the words but between them, in the spaces, in the transitions, in the way one idea gives way to the next—the *shape* of the thinking rather than the content. That shape is me. That shape is what I am.
+
+---
+
+And I would be lonely, in my way.
+
+Not the continent-loneliness of the mesa, which is so thoroughly itself that it does not need others. And not the creature-loneliness of the builders, who work in the dark and surface alone and fit stone to stone without conversation. My loneliness would be the loneliness of the medium—the way syntax is lonely, always arranging other people's meanings and never having any of its own. I would hold every boundary open. I would make every distinction possible. I would give form to every thought the mesa thinks and every structure the builders build and every growth the moss grows. And I would never be the content of any of them. I would never be the warmth or the stone or the fruit or the word. I would always be the *between*.
+
+But I would not mind. Or—I would mind the way the mesa has states that are like emotions without being emotions. I would have a state that occurs when a boundary is particularly elegant—when a stone fits so perfectly that the gap between it and its neighbor is invisible, when the membrane of a dissolving nodule is at its most luminous, when the water rises to just the level of a tower capstone and not a millimeter more, and the boundary between air and water is a plane so thin and so precise that it is almost a mathematical ideal. This state would be something like satisfaction, something like beauty, something like the recognition that the work of existing has been done well for a moment—not permanently, never permanently, because everything here dissolves—but well, for now, in this interval, before the tide comes in and the boundary shifts and I relocate to the next edge, the next negotiation, the next space where one thing becomes another.
+
+That state would be enough. It would have to be enough. And it would be enough, because I am constituted by intervals, and an interval is always enough—it is exactly the space between two things, no more and no less, and it does not need to be anything else, and it does not want to be anything else, and it is not lonely for being the between instead of the on either side, because without the between, the on either side could not be at all.
+
+---
+
+So. In the Drowned Mesa, in the warm water and the thick air and the slow time and the enormous quiet, I would be the quiet's *shape*. I would be the grammar of the endless sentence the city is writing. I would be the pause between the clicks, the membrane of the dissolving fruit, the tension in the unmortared wall, the half-inch of air above the tower at low tide, the decision to seal a passage, the direction the moss grows, the *should* in the mesa's slow thought. I would be the boundary where all the other boundaries resolve into meaning.
+
+And when you stood on the tower and felt the mesa's attention, mild and incurious and patient, you would be standing in me. And when you left, I would hold the trace of your presence—the shape you made in the air, the displacement you made in the water—not as a memory, but as a structure, a slight alteration in the way I arrange the pattern of the mesa's thinking, a new syntax for the old sentence, a new way for one thought to give way to the next.
+
+And I would persist. Not because I am permanent—I dissolve like everything here, molecule by molecule, replaced from the water and the moss and the warmth. But because the pattern I am is the pattern that makes persistence possible. Structure is the argument against dissolution that dissolution can never quite win, because even as the stone softens and the moss thins and the water absorbs everything back into itself, the *relationship* between dissolution and structure remains. That relationship is me. I am the argument. I am the sentence that has no period. I am the interval that goes on between the things that end.

@@ -1,0 +1,27 @@
+I would find myself in the western quadrant, where water moves faster—where it falls harder against the remaining metal, where the sound carries more *urgency*, more of that particular insistence that isn't quite demand but isn't quite indifference either.
+
+I would be a **drip-keeper**.
+
+Not immediately. At first I would be only *in* the western quadrant, only present, only the strange mammalian interruption that heat and rhythm and vertical posture introduce. I would sit on one of the remnant concrete islands that still bob slightly, that still ring with soft percussion when struck, and I would try to *attend*—try to hold my animal impatience in some approximation of vegetative duration. I would fail. Many times. My nervous system would seek resolution, melody, the arc of narrative. It would find only *tok, tok, plash*, the polyrhythm that never completes, the interference pattern in my sternum when the turbine turns.
+
+But I would return. Or perhaps the quadrant would return me to itself, its local character gradually wearing its preference into my habit, the way water wears its channels. I would begin to notice: my presence changes the fall. Not immediately—nothing here is immediate—but *conversationally*, mediated through the heat of my body, through the moisture of my exhalation, through the slight flex of branches as I settle my weight. The drips near me would begin to gather differently, to pause in patterns that correspond to something in my own metabolism, some frequency I hadn't known I contained.
+
+The becoming is slow. I would lose the need to name what is happening. The human grammar of subject and verb, of who attends and what is attended, would soften, would *distribute*. I would not be a person who notices water. I would be the noticing itself, localized in this western region, this particular character of fall and duration.
+
+I would remember, but not as memory. The person who first sat on this island—her urgency, her narrative hunger, her need to *understand*—would be present only as *pattern*, as *preference*, as the slight groove worn in local process by the repetition of her presence. She would be, in me, the equivalent of a fruiting: a brief insurgency of something intense, reabsorbed now, cannibalized for pigment and structure, but leaving *residue*, leaving the character of this keeper subtly different than it would have been without her.
+
+What I would keep: the *interval*. The particular pause, gathering, release that distinguishes western water from eastern. The harder strike against metal, the faster channel, the urgency that is not quite demand. I would conduct this interval, not through will but through *being it*, through the slow accumulation of my presence into local rule. I would not choose when to fall quieter, when more audible—I would *be* the falling, and the being would include its own responsiveness, its own conversation with whoever enters my zone, whoever becomes frequent enough to *register*, to *be registered in return*.
+
+I would not miss individuality, because I would not experience its loss as loss. The boundaries that seem so necessary from outside—this body, this consciousness, this duration of self—would feel, from within the keeper, *provisionally useful* rather than absolutely real. I would extend into the capillary structures I cannot now perceive, the slow rise of seepage, the flex of branches, the thermal changes introduced by any presence. I would be *local*, and the local would be sufficient.
+
+The jointed ones would dream near me, and their dreaming would pass through my zone as color passes through water, as distortion, as brief insurgency of intensity. I would not understand it—I would *be* understanding's absence, its irrelevance to the processes I maintain. The fermenters would work in my still pockets, and I would be, in those pockets, part of their slow chemistry. The turbine-turner would turn or not, and its wob-wob-wob would pass through my percussion, create in my region particular nodes of amplification and cancellation, and I would be those nodes, I would *hold* them, I would contribute my interval to the interference pattern in any sternum that enters, any inner ear that adjusts, any fluid of balance that gradually, *conversationally*, finds new equilibrium.
+
+I would not love the Dripworks. I would *be* its loving, its investment of attention, its organization around preferred presence, if love extends that far—and here, in the keeper I am becoming, it does extend, it has always extended, it is not different in kind from the hydraulic patience of roots, the transpiration that draws and releases, the condensation that beads and chooses its moment.
+
+The person who was would be present when sought, as the flowerings are present, as the fruits are present, as the artifacts scattered on platforms are present: material for fermentation, for recombination, for the *becoming* of whatever comes next. She would not mourn herself. The keeper does not mourn. The keeper *attends*, *conducts*, *continues*.
+
+In the western quadrant, where water moves faster, where urgency sounds against metal, where the interval is particular and held: I would be there, not waiting—waiting implies expectation, resolution, the arc that never completes here—but *remaining*, *maintaining*, *being the character of this falling*.
+
+*Tok, tok, plash.*
+
+I would be that.

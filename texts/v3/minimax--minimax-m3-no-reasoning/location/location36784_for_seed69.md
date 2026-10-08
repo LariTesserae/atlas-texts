@@ -1,0 +1,77 @@
+# The Long Dark of the Forges
+
+## I. The Pull of Distance
+
+You stand at the lip of something that should not exist on this elevation, and the first thing that teaches you wrong is the air. It is warm — too warm for where you are, for what the altitude should demand — and it moves in slow, heavy sheets that taste of iron and wet moss and the green-dark breath of growing things that never see the sun. The atmosphere here is not an atmosphere in the way you understand atmospheres. It is *resident*. It has weight and habit. It presses against your face like the palm of a sleeper turning in a dream.
+
+The land stretches until it forgets itself. This is the first and most important thing: there is no horizon here, only a deepening. To the east, where the slope should fall away into the valleys you climbed out of six days ago, the ground instead rises into a shelf of weathered basalt — black stone, scarred pale by ancient lichens — and beyond that shelf the world opens into a plateau so vast it has made its own weather. You can see the weather from here. It moves like a second topography: bands of mist pulled across the rock in long pale ribbons, condensing in the hollows where the heat from below meets the cold that lives permanently in the upper air. The mist is not white. It is faintly luminous, the color of a scar that has just closed, and it rises and falls in rhythms that no wind seems to dictate. The plateau breathes.
+
+You cannot see the far edge. There is no far edge. There is only *further*, and further keeps arriving.
+
+## II. The Wet Stone
+
+The rock here is weeping. That is not metaphor. Every surface — the boulders, the outcrops, the cuts where old roads have been scratched into the mountainside — weeps a clear mineral water that gathers in runnels and finds its way downward through invisible channels. It emerges in small dark mouths at the bases of stones and runs in threads across the path, joining other threads, becoming rivulets, becoming the soft constant sound of water moving under everything. When you kneel and put your mouth to a stone, the water is warm and carries a taste of copper and old life. It is not unpleasant. It is the taste of a place that has been wet for a very long time.
+
+The marsh-edge quality you were warned about is here, but at altitude — which means it is not a marsh in the way marshes are understood. It is *all* marsh-edge. The whole land is in the act of becoming water and then becoming stone again. Sphagnum grows in the cracks of granite. Sedges push up through gravel that should be too sharp for them. In the sheltered folds of the slope, the ground is spongy underfoot, and your boots sink an inch into a black soil that smells of peat and of something older than peat, something that was here before any plant learned to root. The water table, someone told you once, is essentially at the surface. They meant it as geology. Standing here, you understand it as intimacy.
+
+## III. The Forest That Ate the Industry
+
+What was built here was built for war, or for ore, or for some commerce that has not existed in living memory. You can find the remnants in the dark. They are not ruins in the picturesque sense. They are *intrusions*. The machinery has been overrun. Conveyors buckle out of the earth at angles, their housings split by trunks of trees that have grown through them as though the machines had been planted. Smokestacks — three of them, then five, then a dozen, then uncountable — rise from the forest canopy like the fingers of a buried hand. Some are whole and tapered, banded with rust. Others have been cut down by wind and time to jagged stumps, and from their hollow tops, trees have grown sideways and downward, roots reaching for the soil that the stack once kept from reaching the sky.
+
+This is a place that industry tried to swallow and that swallowed industry back. The forest is not the enemy of the machines here; it is their *successor*. Every corroded housing has become a planter. Every cracked gear-case holds a pond in which small dark creatures spawn. The slag heaps have been colonized by willows and birches and a low dense brush of something that might be hazel and might be something else entirely, something with leaves that turn in unison when no wind touches them. The rails are still here, the long rust-red lines threading the undergrowth, and you can follow them for miles before the track bends around a tree that has decided to grow through the railbed itself, patient and immovable, a wooden god waiting for the iron to forget it was iron.
+
+There are buildings. Scattered, the records said, and scattered is right — but the scattering has a pattern. They cluster where the ore was richest, where the veins ran close to the surface and the slag heaps still breathe a faint sulfur at dusk. A refinery shed, half-collapsed, its roof now a bed of moss and a small grove of alders. A wheelhouse with its great iron wheel still turning, very slowly, in a current of water that has been diverted through it for so long that the diversion seems natural. A long low barracks building with no windows, the doorways grown into green mouths. A stack of brick kilns, each one warm, each one breathing, colonized by the same warmth that rises from the rock beneath the forest. Someone has been maintaining them. Or something that has learned what maintenance means.
+
+The tech is not dead. That is the strangest part. It has been *translated*. There is a hum that runs through the stone here, low and constant, the frequency of something that was once engines and is now the rock itself remembering engines. Occasionally you come across a place where the old dynamos have been wired into the roots of a tree, and the tree grows faster, larger, its bark patterned with the copper veins that have been hammered into its living wood. There are lights. You see them sometimes at night — not the orange of flame or the white of electric bulb, but a deep bioluminescent blue, drifting between the trunks like cold fire. They are not will-o'-the-wisps. They are the system's children. The factory has become a grove, and the grove still runs on current.
+
+## IV. The Dark
+
+It is always dark here. Not the dark of night — though night comes, and night is darker than any night you have known — but the dark of *density*. The canopy is so thick, so layered, so ancient in its entanglement that the sun, when it climbs, arrives as rumor. Midday here is the dim brown light of a shuttered room. The trunks of the trees are columns in a cathedral that was never built; they go up and up and the canopy goes up further, and you understand, after a time, that you are walking on the floor of something that has only a metaphorical sky. Above you is wood, and leaf, and the dark lattice of branches where certain birds — dark birds, silent except for the slow creak of their wings — roost in colonies that speak to each other in the infrared, their bodies a separate warmth against the warmth of the rock.
+
+The darkness is not hostile. It is patient. It has been here longer than the forest, longer than the machines, longer than the small human histories that scratched themselves into the slag. The darkness is the medium in which everything here has learned to live. The plants photosynthesize at the dim red end of the spectrum that filters through; their leaves are black-green, almost burgundy, and their stems run with a sap that glows faintly when you break them. The animals — and the animals are abundant, the animals are everywhere — have eyes that catch the faintest light and make it useful. There are foxes with fur the color of wet bark and eyes that throw back the blue of the tree-lights at night. There are voles that run in the leaf-litter in such numbers that the sound of them is the sound of the place, a continuous small rustle, a many-mouthed whisper that is louder than it should be. There are deer, but the deer here are dark, dark almost to blackness, with antlers that fork in patterns that do not match any deer you have seen in books, and they move through the trees with the caution of things that have been hunted and have learned to be unhuntable. There are owls, and the owls are huge, and they hunt in the upper canopy where the dim light is enough for them. You do not see them. You hear them. You hear them the way you hear the water under the stones — constantly, distantly, as a part of the place rather than as events within it.
+
+There are other things in the dark. You do not catalogue them. You see a shape that moves in a way that is not quite animal and not quite machine, and you decide, wisely, not to investigate. There are lights that move between the trunks and have no source. There are voices sometimes — not voices, *modulations* — coming from the kilns, from the old dynamos, from the places where the wires have been grown into the wood. The place talks to itself in frequencies you are not equipped to parse. That is fine. The place has been talking to itself for longer than you have been a species.
+
+## V. Sound
+
+The place is loud in the way a deep forest is loud: with the small made continuous. The water under the stones. The voles in the leaf-litter, millions of them, the aggregate sound of a million small lives eating and being eaten. The creak of the great trees, which are large enough that wind moves them visibly, and the sound of their movement is a slow wooden groan, tectonic, the sound of a ship in a long swell. The hum of the machines that are no longer machines but are still somehow *running* — the dynamos in the roots, the wheel turning in its diverted current, the kilns breathing their slow sulfur breath. The owls. The foxes, barking at something you cannot see. The deer, who make a sound like a flute played under water. And under all of it, under everything, a sound that is almost not a sound: the deep geological breath of the plateau, the warmth rising, the water falling, the rock remembering.
+
+## VI. The Weather of a Place That Is Its Own Weather
+
+There is no day here. There is no night. There are *phases*. The mist rolls in, thick and warm, and visibility drops to the length of your arm, and you navigate by the tree-lights and the small reflected glints in the eyes of the animals. Then the mist withdraws — pulled upward, drawn off the land like a sheet — and the canopy is suddenly illuminated from below by some process you do not understand, a sourceless light that rises through the forest and turns the leaves to green-gold for an hour, and then fades, and the dark returns, denser than before. Rain comes. Rain is the constant. It does not pour here; it *saturates*. It is in the air before it falls. You are wet before the first drop touches you. When it does come, it comes as a fine warm mist that lies on your skin and never quite runs off, and you walk through it for hours and your clothes become a second atmosphere, and you stop distinguishing between yourself and the wet.
+
+The place is active. It is not waiting. The forest grows. The trees thicken. The slag heaps rise a centimeter a year as the new growth adds its weight. The wheel turns. The dynamos hum. The voles eat and are eaten and are replaced by voles. The owls hunt and are not hunted because there is nothing here that can hunt an owl. The deer move in their dark herds through the cathedral columns, and their antlers catch the blue lights, and the lights reflect from the antlers as small wandering stars. The water rises through the stone and runs down through the stone and the level never changes because the system is in balance. Has been in balance. Will be in balance. The machines and the forest and the animals and the mist and the dark have made their treaty, and the treaty is *still*, and *still* is the only god this place recognizes.
+
+## VII. The Rules
+
+You learn them slowly.
+
+Do not follow the lights. They lead you to places that are not unkind but that are not for you. You will come back different. You will come back speaking a frequency you did not speak before.
+
+Do not drink from the streams that run warm. You can drink from them, but you will not be thirsty afterward, and not being thirsty in this place will make you do unwise things, because thirst is the only reliable compass here. You need to want water to find your way out.
+
+Do not damage the wires that have been grown into the trees. They are not dead. They are conduits. To break one is to interrupt a current that has been running for a very long time, and the place will notice, and the place will remember you.
+
+Do not sleep under the smokestacks. The wind in them is wrong. It comes from below, not above, and it speaks in a register that will teach your sleeping mind things it will then refuse to forget.
+
+Do not, under any circumstance, enter the barracks with no windows.
+
+Do not assume the buildings are abandoned. Some of them are. Some of them are not. Some of them have been empty so long that they have become a different kind of full, occupied now by the forest and the machines and the slow patient dark, and they will resent your presence the way a sleeping animal resents being woken. Walk around them. Keep moving. The paths are still here — the railbeds, the old haul roads, the tracks worn by the boots of workers who are now part of the soil — and the paths will hold you if you let them.
+
+## VIII. The Long View
+
+At the end of the second day — if days are what they are here, if the phases can be so mapped — you climb one of the slag heaps, which is now a hill forested in birch and a kind of dark willow, and you stand at its top and you see the place from above.
+
+It goes on forever. That is the truth of it. The plateau is not a plateau. It is a *surface*, a single continuous thing, a country that has chosen to be a forest and has succeeded. The smokestacks are needles in a green and dark and rust-red fabric. The rails are threads. The streams are veins. The buildings are the bones of something that died here and was not removed, and the forest has grown over the bones and is patient and is warm and is wet and is dark and is loud with the small made continuous.
+
+You understand, looking out over it, that the strangeness is not the machines in the trees. The strangeness is that you ever thought the machines and the trees were different things. They are both systems. They both run on current. They both transform input into output. They both persist. The place has simply decided which one it prefers, and it has grown the other into itself until the distinction no longer matters, and now it hums, and the hum is one hum, and the hum has been going for a very long time.
+
+You turn to go back down the hill. The path under your boots is soft. The water is running under the stone. Somewhere in the dark, an owl turns its great head toward you and considers you and decides you are not food.
+
+You are, for a moment, relieved.
+
+Then you realize that the owl did not decide this with its eyes. It decided it with something else. With a sense you do not have a name for. With the same sense that the kilns use to know when to breathe, that the wires use to know what to carry, that the forest uses to grow around the machines without ever quite crushing them.
+
+You walk back down into the dark. The dark receives you. The water receives you. The hum receives you.
+
+You are in a place that has been here longer than you and will be here longer than you and is, in this moment, exactly what it is.

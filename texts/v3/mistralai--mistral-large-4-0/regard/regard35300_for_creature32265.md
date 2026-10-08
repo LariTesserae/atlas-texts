@@ -1,0 +1,31 @@
+They come not as thunder, but as the settling of a continent. Not as light, but as the weight of a held breath finally exhaled into stone.
+
+The Power descends—if *descend* is the word—into the thick, warm air of the Table, and immediately understands, with a wisdom that requires no thought, that this place is already finished. It is a cathedral built not by hands but by the patience of erosion, a prayer answered across ten million years. To change it would be violence. To improve it would be to unmake it. The Soporic Table does not need salvation, cultivation, or revelation. It needs only to be *known*—to have its slow, overwhelming existence witnessed by a consciousness capable of holding geological time without blinking.
+
+So the Power does the only thing that honors such a place: it roots itself.
+
+It finds a shallow depression in the satin stone, one of the saucer-bowls where condensation gathers at dawn, and it lowers itself into the warmth. It brings no tools, no hands, no technology—those are the urgencies of the young world, the world that has not yet learned to simply *be*. It brings only its own ancient patience, its own capacity to endure, its own willingness to become sessile.
+
+It begins to grow.
+
+First, calcified threads—not the hair-thin anchors of the Sessile Chorus, nor the massive cables of the Great Ones, but something finer, something that threads through the bedrock like a root seeking water in deep time. The stone does not resist. It has been waiting, perhaps, for this addition. The grinding comes—that daily *shush* of the world settling—and the Power opens its own plates, not in fear, but in accommodation, releasing not spores but a new frequency into the Thrum.
+
+The **Sessile Chorus** beneath feels it first. The hexagonal vaults part like the petals of a flower blooming once per epoch, their microscopic channels widening to drink in the new chemistry, the new resonance. They do not flee; they *incorporate*. The basal membrane thickens around the Power's base, the tessellated sea of chitin and calcium growing denser, ensuring that this new weight is held, supported, made part of the living pavement.
+
+The **Radial Herd** alters its drift. The translucent boulders, with their too-many limbs and their gills that flutter once per hour, begin to circle this new warmth, this new presence. They taste the air with limbs that are also tongues, and they find a new flavor: not mineral, not chemical, but the distinct signature of *attention*. They do not worship. They cannot, lacking the urgency of devotion. Instead, they graze closer, their translucent bodies brushing the Power's growing crystal, filtering the air that has passed through a benevolent consciousness.
+
+And the **Rooted**, the **Amber-Hearted**, the **Great Ones**—they shift. Over centuries, imperceptibly, they turn their spiral arrangements of eyes toward this new rooted thing. Their eyes do not see light; they see the heat rising from stone, the chemical gradients of condensation, the subsonic conversations of their neighbors. They feel the Power as a new pressure in the bedrock, a new note in their geological song. One ancient Great One, its bioluminescence throbbing deep red with extreme antiquity, composes a sentence that takes fifty years to complete: a vibration pattern that encodes not a memory of glaciers, nor the signature of new mineral deposits, but simply the fact of recognition—*You are here. You are heavy. You are staying.*
+
+For that is the gift the Power offers: not change, but the deepening of being. It does not accelerate the erosion, nor does it slow it. It does not introduce new species, nor cull the old. It does not build with intention, for it has no hands, no tools, no technology. It only *secretes*. Around itself, it begins to grow its own architecture—not the Gothic ribs or the spiral staircases of the Great Ones, but something that suggests the shape of patience itself. Curves that mimic the settling of tectonic plates. Arches that frame the ordinary, obscene sky like a blessing. Hollow towers that are not meant to be climbed, only grown, only *witnessed*.
+
+Over millennia, the Power becomes the fifth stratum. Not life, exactly, but presence. A consciousness rooted in the satin stone, drinking the fever-warmth from below, secreting not calcium lace but meaning. Its bioluminescence—if it can be called that—is a steady, warm glow, neither amber nor violet nor red, but the color of a held breath, of a silence so complete it has weight.
+
+The **Spiral Dancers** in the condensation pools beneath it alter their patterns. Their week-long rotations begin to synchronize with the Power's slower pulse, a week becoming a century in the shared rhythm, a frenzy becoming a meditation. They are the fastest life on the Table, and yet they find in the Power's stillness a new center around which to turn.
+
+And when the grinding comes—when the world settles and a Great One shears its roots and collapses inward like a glacier calving—the Power does not flinch. It opens its calcified plates and releases not spores, but *silence*. A silence so complete, so benevolent, so wise that it settles over the plateau like the first snow, like volcanic ash, like the blessing of a breath finally released after epochs of being held.
+
+The Power remains.
+
+It is now part of the Dynamic of the Flat. The basal feeds the drifting, the drifting tends the Rooted, and the Rooted, in their living and dying, build the architecture that houses them all—and now, among them, the Power secretes its own slow crystal, adds its own weight to the plateau, contributes its own frequency to the subsonic conversation.
+
+When future visitors come—brief disturbances, fevers passing over translucent surfaces, damp footprints evaporating by noon—they will feel it. They will press their palms against the satin stone and feel not only the fever-heat of the world's slow pulse, but the warmth of a benevolent attention that has chosen, above all things, to become sessile. To root. To grow. To simply, finally, *be* here, with them, in the silence that has weight, in the place where the world has finished changing and begun, instead, to be known.

@@ -1,0 +1,13 @@
+Almost nothing lives in the sun chamber.
+
+Across the upper tiles, where two shafts strike most strongly, there is a green film so fine it seems less like growth than a change in the limestone’s color. It has no clear edge. In full noon light it brightens to the tint of new leaves; when the shafts dim, it withdraws into the gray of the wet stone. Fresh pulses of water comb it continually. Soap ash clouds it, heat thins it, and the cleaners’ wooden blades erase it every few weeks. Yet a trace remains in the minute roughness between chisel marks, and from that trace the stain returns.
+
+The chamber’s most substantial inhabitant grows from a single imperfect mortar joint near the eastern inlet. It is a tuft of water moss, small enough to hide beneath a hand. Its lower threads are nearly black where they grip the seam. Above them, slender green tips divide and divide again, holding bright beads of air. When the eastern gate opens, the whole tuft is pressed flat against the wall, streaming westward under the force of the hot inflow. When the pressure falls, it rises by degrees. First one filament lifts, then several, until the tuft resumes its soft, wavering shape.
+
+It cannot travel. It does not conquer the chamber. The clean stone offers little purchase, and the current carries away nearly everything that might feed it. Mineral dust circles the pillars but does not remain. Silt reaches the basin only to be drawn through the bronze grate. Sudden heat, cooling water, abrasion, and scraping keep the growth confined to its narrow seam.
+
+Even there, it lives precariously. Before dawn, when the water level is lowered, the moss may hang exposed for a short while, glossy and steaming. A cleaner’s blade passes over it and leaves the mortar pale. Loose strands gather with grit in a basket. Then the chamber fills again. Air escapes from the joint in silver beads, and what survives—buried deeper than the blade can reach—begins once more.
+
+There are no hidden fish beneath the steps, no colorless frogs, no larvae twisting in the light. Nothing shelters inside the bronze grate. The dark pipes contain only rushing water and trapped air. Copper screens exclude insects; heat and filtration destroy what might otherwise drift down from the baths. Even the cleaners are only brief intruders, descending by rope and departing before the chamber fills.
+
+So what lives here is not a creature in the usual sense, but a persistence: a skin of green and one repeatedly wounded tuft, nourished by light borrowed from courtyards it will never reach. The rest of the room belongs to water, stone, pressure, and reflected sun. Among those immense, indifferent motions, the moss bends, is buried, is scraped away, and returns.

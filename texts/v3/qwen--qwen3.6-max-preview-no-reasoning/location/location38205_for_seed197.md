@@ -1,0 +1,33 @@
+The place is not a forest, though it breathes like one. It is a city that forgot it was ever stone.
+
+It sits in a low-lying basin, a cupped hand of earth barely above the water table, yet there are no rivers here, only the damp, heavy air that clings to every surface. The elevation is negligible; you do not climb here, you sink into it. The scale is intimate, deceptive—a single neighborhood’s worth of space, perhaps three hundred meters across, bounded by high, sheer walls of woven root and hardened sap that curve inward like the ribs of a leviathan. It feels small, enclosed, a room made of biology.
+
+But inside this chamber, the density is wrong.
+
+The vegetation parameter suggests totality, and indeed, the world is green. But it is not a tangle. It is a vacuum of leaf and limb. The "built" structures—what were once towers, archways, bridges, and plazas—are entirely subsumed by plant life, but they have been eaten hollow. The trees do not crowd each other; they stand as solitary pillars, spaced with terrifying precision. Between them lies an emptiness so profound it hurts the eyes. You can see from one end of the hamlet-sized enclosure to the other without obstruction, save for the occasional floating mote of pollen or spore. The plants form the architecture, yes, but they have stripped away the clutter. The floor is a smooth, polished mat of moss and lichen, unbroken by underbrush. The walls are vertical gardens, but they are flat, seamless sheets of fern and ivy that absorb sound until there is none left to hear, except...
+
+Except for the noise.
+
+The sound level is deafening, yet there is no wind, no crashing water, no thunder. The noise comes from the fauna.
+
+The air is thick with insects, birds, amphibians, and things that defy easy classification. They do not occupy the empty spaces between the tree-pillars; they *are* the empty spaces. Millions of wings beat in synchronized chaos. A cloud of iridescent beetles hangs suspended in the center of the square, vibrating at a frequency that rattles the teeth. Frogs the size of fists cling to the underside of broad, waxy leaves, their throats pulsing in a rhythmic, bass-heavy croak that overlaps with the shrill chirping of cicada-like creatures embedded in the bark of the structural trees. The sound is not random; it is a layered cacophony, a wall of acoustic pressure that presses against the eardrums. It is the sound of a million lives screaming their existence into the void.
+
+The temperature is warm, a humid 24°C (75°F), trapped within the bowl of the landscape. Condensation drips constantly from the canopy above—not rain, but the exhalation of the plants themselves. Water beads on the tips of leaves, swells, and falls in slow motion, hitting the mossy floor with soft, wet taps that are instantly swallowed by the roar of the fauna. This is the water cycle here: not storm, but sweat. The ecosystem is damp, slick, alive with moisture that never evaporates because the air is already saturated.
+
+Erosion has done its work, but gently. There are no jagged edges. The boundaries of the built environment—the remnants of whatever civilization first planted these seeds centuries ago—are smoothed over. Stone foundations have been dissolved by acidic root secretions, replaced by lignin and cellulose. The world is settled, weathered, in balance. It has reached a state of dynamic equilibrium where growth and decay happen at the same speed, visible only in the slow shift of shadows.
+
+And then, the weirdness sets in.
+
+Look closely at the spacing. The emptiness between the tree-pillars is not just visual; it is spatially distorted. If you walk toward the center of the clearing, the distance seems to stretch. The trees remain stationary, but the ground beneath your feet feels elastic. The light, normal in hue and intensity, behaves incorrectly. Shadows do not fall away from the light source; they pool around the base of the trees like spilled ink, defying the angle of the sun. Occasionally, a shadow will detach itself from its object and drift lazily across the moss, independent and curious.
+
+The fauna contributes to this breakdown. The beetles in the central cloud do not fly in straight lines. They move in fractal patterns, tracing geometric shapes in the air that linger for seconds after they pass, glowing faintly before dissolving. Some of the birds have too many joints in their wings. When they land, they fold themselves into shapes that should be impossible for bone and feather, becoming two-dimensional silhouettes against the green walls before popping back into three dimensions.
+
+There is no technology here. No tools, no machines, no artificial light. Everything is biological. The "urban" layout is evident in the grid-like arrangement of the major tree-pillars, suggesting streets and intersections, but these are now pathways for air and sound. The infrastructure is organic: bridges made of braided vines connect the upper canopies, swaying gently in the thermal currents. These bridges are empty, save for the occasional spider-web hammock strung between them, glistening with dew.
+
+The ecology is aggressive in its abundance. Every surface is colonized. Even the air seems to have texture, thick with spores and micro-life. Yet, despite the overwhelming presence of life, the feeling is one of isolation. The deafening sound creates a bubble of solitude. You cannot hear your own thoughts. You cannot hear your footsteps. You are alone in a crowd of millions, surrounded by a city of plants that watch you with the passive indifference of photosynthesis.
+
+As you stand there, the dynamic nature of the place becomes apparent. The cloud of beetles shifts color, turning from blue to red, signaling a change in humidity or perhaps a shift in the collective mood of the swarm. The frogs stop croaking simultaneously, creating a sudden, jarring silence that lasts for three heartbeats before the noise crashes back in, louder than before. The shadows on the ground ripple, as if something large is moving beneath the moss, though nothing is there.
+
+This is a place where reality is thin. The boundary between the observer and the observed blurs. You feel the vibration of the insect wings in your chest cavity. You taste the spores on your tongue. The warmth of the air feels like a breath on your neck. The emptiness between the trees pulls at you, inviting you to step into the void, to become part of the pattern, to let the sound dissolve your edges until you are just another note in the deafening song of the living city.
+
+It is beautiful. It is terrifying. It is perfectly, horribly balanced.

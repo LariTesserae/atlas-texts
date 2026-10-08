@@ -1,0 +1,35 @@
+# The Perspiring Cathedral
+
+There is a place where the plants have built a city, and the city is sweating.
+
+You approach it through a corridor of cane — bamboo or its analog, dense as a wall, the stalks so close together that your shoulder brushes them if you turn. The air changes before you see anything. It thickens. The bamboo is breathing out a humid perfume, something between cut grass and warm stone, and the sound of it is a continuous creak — not the stalks themselves, but the joints, the swollen nodes, as water moves through their long bodies. The whole corridor is *loud* in this quiet way: a wet wooden sigh that does not stop.
+
+You emerge, and the cathedral is before you.
+
+It is a single chamber, perhaps two hundred meters across, carved out of what was once a quarry or a sinkhole or a wet-weather lakebed. The walls are plant. Living walls — thirty meters high, buttressed with roots and buttress-roots and buttress-roots of buttress-roots, every surface furred with moss and liverwort and the small felted fronds of filmy ferns. Water comes down them everywhere, not as a fall but as a seep, a thousand threads. The walls are *weeping*. The cathedral is *weeping*. There has been rain here recently, or there is always rain here, or the difference has stopped mattering.
+
+The floor is a marsh, but a constructed one. There is a grid beneath the water — you can see it through the green-black surface when the light angles right — of ironwork, heavy Victorian stuff, riveted plates and I-beams now orange with a hundred years of oxidation. The grid is overgrown but not hidden. The plants have accepted it. The ferns have threaded through every aperture. A fig, or something like a fig, has split a beam down the middle with the slow patience of a root that has decided a thing is inside it.
+
+In the center of the marsh stands the *engine*.
+
+It is the size of a small house. It is a steam engine. It is running.
+
+Somehow — you do not understand the engineering, and neither does anyone living, if anyone lives here — the engine takes water from the marsh and the weeping walls and boils it, somewhere deep inside its iron belly, and pushes steam back out through a hundred branching copper pipes that climb the walls and disappear into the root-mass overhead. The pipes are green with patina. They weep too, where the steam condenses on them and runs down in slow ropes. The engine turns a great flywheel, patient as a millstone, and the flywheel drives — something. A dynamo, maybe. A compressor. Something with a purpose you cannot read from the architecture. The point, perhaps, is not the purpose. The point is the turning.
+
+The sound of the engine is the *sound*. It is the loudness that is here. A low rhythmic breath — *thump-hiss, thump-hiss, thump-hiss* — that you feel in your sternum before you hear it. The cylinders exhale. The flywheel groans on its bearings. Steam chuffs from a relief valve in a regular cadence, like a slow heart, and the chuffing echoes off the living walls and comes back to you changed, dampened, made mossy. Somewhere a drip falls into the marsh at exactly the interval of the engine's cycle, and the two rhythms are not the same but they have been neighbors for a long time and you can hear them leaning into each other.
+
+Above you, in the canopy of the cathedral — a true canopy, a vaulted ceiling of leaves — light comes in through a thousand small openings in the rock that overlooks the sinkhole. The light is the warm gold of late afternoon on a wet planet. It falls in shafts, and where the shafts hit the marsh they light up the water and you can see the grid-iron beneath, and the long pale roots descending from the canopy, and the fish — there are fish, a few — turning slowly in the lit columns as if they were the saints in the windows.
+
+The plants, then. The plants are everywhere. The plants are the cathedral. Ferns unfurl from every pipe. Orchids — small, fleshy, obscene — root directly into the seams of the engine's housing. A strangler fig has taken the smokestack; the stack breathes through the fig's hollow trunk. Bromeliads fill every horizontal surface with water of their own. There is a tree that grew up through the floor of an abandoned catwalk and now holds the catwalk in its branches thirty feet up, a wooden bridge to nowhere cradled in green arms. The canopy is sealed except for those shafts of light; you cannot see the sky; you have forgotten the sky.
+
+What machines remain besides the engine are fragmentary. A switchboard, fused shut by corrosion, its brass labels gone to green powder. A length of cable trailing into the marsh and emerging somewhere far above in the canopy, its purpose forgotten. A telegraph key on a wooden desk in a wooden booth that is also, now, a treehouse — the desk is moss, the walls are planks but also roots, the booth is held up by a strangler and is being slowly digested by the strangler. On the desk: nothing. On the floor of the booth, among the roots: a single boot, leather, full of ferns.
+
+The fauna is sparse. A frog, somewhere, that has learned to time its croak to the engine's offbeat. Something batlike that roosts in the canopy and drinks from the bromeliads. A pale crab in the marsh, orange-clawed, that picks its way along the iron grid. You do not see these things often. You sense them. The crab is the warden of the floor. The frog is the cantor.
+
+The air is warm and very wet. If you sit still on one of the iron crossbeams that still lies above the waterline, your skin will glisten within a minute. The smell is chlorophyll and warm iron and the faint sulfurous sweetness of bog gas. The engine is patient. The engine has been turning since before the strangler fig was a seedling. The strangler fig is older than the catwalk. The catwalk was built for men who are not here.
+
+The cycles here are long. The flywheel turns. The ferns uncurl. The water seeps. The fig grows another foot toward the smokestack, and the smokestack, patient, lets itself be opened. The water in the marsh rises by a millimeter in some season, falls by a millimeter in another, and the fish go up and down with it. The bronze label of the switchboard loses another letter of its name to the season's damp. You could return in ten years and the place would be recognizably itself, and you would have to look hard to see what had changed.
+
+This is what it is. A wet, packed, slow, strangling, breathing, working thing. A place that was built and was overgrown and is still working. A place where the boundary between machinery and grove has been negotiated over many decades and the negotiation has produced something that is neither, and that does not know it is strange.
+
+You sit on the iron beam. The engine breathes. A drop falls into the marsh on the offbeat. Somewhere in the canopy, the batlike thing murmurs. You are inside the sweating cathedral, and the cathedral is warm, and the cathedral is patient with you.

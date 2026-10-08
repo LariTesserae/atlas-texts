@@ -1,0 +1,29 @@
+The saddle is inhabited by things adapted not to a stable world, but to one still being made.
+
+The first settlers are the pale reeds: sparse, jointed vessels that drink from the air rather than the ground. They fill until their own water bends them, then empty themselves with a knock and rise again. Though each stand appears solitary, the reeds behave as parts of a buried awareness. Disturb one, and others answer at a distance, inclining toward some shared point above the clouds.
+
+Beside them lives the maroon felt, a skinlike growth that clings to shaded basalt. It withdraws from contact and leaves no dampness behind, as though it consumes not only water but the evidence of water. Black membrane fans occupy exposed knobs. They bloom under rain, catching droplets in their stretched surfaces, then close into blades when the rain stops.
+
+Across the thin flood skitter six-legged walkers with wide, translucent feet. Their passage makes a dry ticking strangely untouched by the wetness beneath them. They seldom pause, perhaps because the surface itself is unreliable: warm in one place, cold in the next, solid everywhere except where birds disappear through it.
+
+Among the walkers travel bubble-bearers, small amphibious creatures enclosed beneath globes of carried air. Their dull, reflective skins lag behind time. Each bears an image of the saddle from minutes earlier, so a migration of them becomes a broken procession of recent history: vanished light, departed rain, an empty place where a predator had been. The bubble is shelter, lung, and vulnerability. When threatened, they retreat into it. Their hunters have learned to crack it first.
+
+Beneath the water film move the ribbon schools. Individually they are almost nothing—living threads, flashes more than bodies—but together they alter the shape of the basin. They gather below sheets of water and lift them from the basalt, bearing trembling blisters across the ground. They may be feeding, migrating, or working. Whatever their purpose, they are among the place’s chief makers, redistributing water before erosion can claim it. When attacked, they release their burden all at once.
+
+The nearly featherless birds hunt them. Long-winged and metallic-voiced, the birds circle continuously without visible effort. They dive into water too shallow to receive them and pass through it as though every wet surface were an entrance to one continuous hidden depth. They emerge from distant pools with ribbons writhing in their beaks. Their flight belongs to the clouded air; their hunting belongs to a submerged space that the saddle does not outwardly possess.
+
+Larger predators inhabit the steam and impossible fissures. They are lean quadrupeds whose bodies resemble articulated wet ceramic. Water runs visibly through open channels in their sides. They do not bow to drink. Instead, water climbs their legs and enters through valves at the knees. Around the marsh they stalk the spawning bubble-bearers, tapping each carried globe with ritual precision before feeding. Their voices are vast enough to texture every pool in the basin. When the hunt ends, they fold themselves into cracks far narrower than their bodies, returning to whatever interior geometry also receives the diving birds.
+
+And something else inhabits the saddle: not an animal, plant, or visible machine, but the process that continually constructs it.
+
+It lives beneath the floor without chambers or components. It precipitates basaltlike material in layers, lifts the whole ecosystem without burying it, heals chips, recalls loose grains, and edits footprints from the surface. At dusk it sheds invisible agents from the nine shell structures, sending them through water and stone to alter pores and rearrange matter. Its repairs resemble intention, but not mastery. It can restore an edge while failing to correct a sinking corner. It preserves the young landscape while inadvertently creating the marsh that concentrates spawning, predation, and sediment.
+
+The nine structures may be organs of this inhabitant, or embryos of another kind of life. They admit bodies only when flesh and stone reach the same temperature. Their walls choose separately whether to obey wind, water, light, and distance. Inside, they make a little more room than they outwardly contain. They hold other weathers: clear night, amber fog, vertical black water. They are still deciding what sort of objects they are.
+
+Their rotating rings are the place’s most obvious senses. The rings attend not to north or gravity but to occurrences. They point toward dives, ruptures, clouds, old footsteps, and now toward the pale line emerging near the saddle’s center. They may indicate where the fabricating intelligence is concentrating, or where it has lost control.
+
+That pale growth is the newest inhabitant and the least determined. It could become a vein, a foundation, a root, a boundary, or an instrument. It lengthens nightly while all the rings watch. Perhaps it is the first feature the saddle is making without reference to an earlier design. Perhaps it is the error around which the rest of the place will eventually organize.
+
+Everything here lives provisionally. The reeds rehearse a forest. The maroon felt rehearses soil. The ribbons rehearse rivers, while the rain rehearses erosion. Predators perform an old ecology on ground younger than their instincts. The amphibians carry memory externally because the landscape itself has almost none. Even the hidden maker seems less like a finished intelligence than a habit struggling to discover its purpose.
+
+What lives in the saddle, then, is a whole ecology of anticipations: creatures ancient in appetite, structures unborn in function, and a landscape-sized organism that heals every wound because it cannot yet distinguish damage from change.

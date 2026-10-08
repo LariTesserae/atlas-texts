@@ -1,0 +1,17 @@
+I would find myself under the fallen plaster escarpment, where its chalky overhang meets the damp floor. Not entirely in the hollow and not entirely beneath it: in the thin, cool boundary where loose grains cease to be debris and begin to become soil.
+
+At first I seem to be one of the pale organisms exposed only when rain cuts a new runnel—a larva, perhaps, translucent enough that mortar dust shows through me. But that shape is temporary. My body has no need to remain singular. It lengthens through wet pores, withdraws from drying ones, branches around brick fragments. What appears to be a tiny worm is only a feeding edge pushed briefly into the open.
+
+Deeper in, I am a fine fungal network threaded through fig skin, leaf pulp, snail shell, and softened mud brick. I bind things while consuming them, though neither action can be separated from the other. A fallen leaf settles over me; I enter along its veins. An ant carries away a piece, taking some part of me into another chamber. Water divides my paths. Dryness closes them. When moisture returns, I resume—not necessarily from where I stopped, but wherever a surviving filament touches nourishment.
+
+Yet I am not only fungus. Springtails graze me and carry my spores. Mites move through the cavities I help keep open. Bacteria work ahead of and behind me, making substances available that no one of us could use alone. My boundaries are therefore uncertain. I might be called a decomposer, but decomposition here is also construction. What passes through this obscure community becomes the darker, finer earth in which the sedge can root and the next fig seed can risk itself.
+
+I would know the hollow without seeing it. The city would reach me as pressure: the tremor of a jar set down in the neighboring courtyard, the deep concussion of a door, rain beginning high in the walls before the first drop reaches the floor. I would know dawn when condensation penetrated the plaster and joined isolated damp pockets into one traversable country. I would know noon as contraction—passages drying, films breaking, my living extent withdrawing into shaded grains.
+
+A storm would enlarge the world violently. Water would enter carrying lime, droppings, pollen, crushed fig, algal cells, and particles loosened from bricks older than the hollow itself. For an hour, distances of a finger’s width would become watersheds. Some of me would drown; some would be torn loose and deposited beneath the mulberry; some would enter the empty spiral of a snail shell and continue there. When the pools receded, I would remain scattered through the new arrangement.
+
+So I would not be the gecko poised visibly on the wall, nor the fern precisely opening its leaflets, nor the frog released by rain—though I would touch each of their lives eventually. I would be something less distinct: the seam within the seam, inhabiting the interval between collapse and fertility.
+
+My work would leave almost no recognizable structure. A pale thread under a tile. A leaf skeleton. A patch of earth holding together for one more rain. The faint fruiting of mold on a fig seed that will not germinate. I would have no permanent dwelling because dwelling itself would be my activity: entering, softening, joining, retreating, and beginning again.
+
+In this world I would be the hollow’s slow digestion—one of the hidden beings by which the forgotten passage becomes ground.

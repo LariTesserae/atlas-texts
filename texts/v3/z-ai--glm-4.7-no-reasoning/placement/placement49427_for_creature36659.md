@@ -1,0 +1,31 @@
+To look for them is to look for the wrong thing. If you search for movement, for the darting shadow or the rustle of undergrowth, you will find only the creeping rock-crawlers and the shifting fog. The true inhabitants of the Roaring Mire are not hidden by the gloom; they are *of* it. They appear, at first glance, to be nothing more than an irregularity in the stone, a moss-covered boulder left behind by some ancient glacial retreat.
+
+They are low, immense things. Standing upright, they might reach the chest of a human, but they rarely stand. Their posture is a perpetual, flattened crouch, a compression of the self against the damp surface as if gravity here is doubled. Their bodies are broad and densely constructed, layered with thick slabs of muscle that hang heavily off their frames, insulated against the marrow-chilling 0.3 cold by layers of coarse, bristle-like hair and a thick, waxy dermis that smells of ozone and wet leather.
+
+They have no ears. The evolutionary pruning of the Roaring Mire has removed entirely the organs that would otherwise capture the 2.9 roar and drive the mind mad. Their heads are smooth, sloping domes, lacking any external auditory canals. Where ears should be, the skin is thick and callused, often scarred from rubbing against the stone walls they inhabit. Their faces are stark and minimalist—wide, slit-like nostrils that can seal shut to keep out the damp, and a mouth that rarely opens. Their eyes are their most striking feature: immense, black pools that reflect nothing, protected by heavy, transparent membranes that blink slowly, like the shutter of a camera dying in the cold.
+
+They move with the same agonizing slowness as the crustaceans they share the stone with. A "dynamic 1.0" existence is not just a preference; it is a survival mechanism. In this place, rapid motion is a waste of precious heat, a disturbance in the acoustic pressure that can cause vertigo. When they shift their weight, it is a geological event—a grinding slide of heavy limbs, the sound of wet skin separating from polished rock, a vibration felt through the soles of one’s feet rather than heard.
+
+They are the Tuners, though they have no word for it.
+
+You see one near a cluster of ferns. It is huddled behind a low, dry-stacked wall, a structure so perfectly fitted to the surrounding geometry that it looks natural. The creature is engaged in work. It holds a heavy flint chisel in one hand, its fingers short, thick, and tipped with flat, spatulate nails designed for gripping slick surfaces. In the other hand, it holds a stone hammer.
+
+It is not carving the rock; the rock here is too hard to be shaped by such rudimentary tools. It is carving the *sound*.
+
+The Tuner leans forward, pressing its massive, smooth forehead against the cold stone. It is listening—no, *feeling*—the thrum of the breather tube ten yards away. The roar is a physical assault, but to this being, it is a current, a river of vibration that flows through the solid earth. It finds a node of resonance, a point where the frequency is particularly violent. With the slowness of a tectonic plate, it raises the hammer and strikes the chisel.
+
+*Thud.*
+
+The impact is dull, absorbed instantly by the wet moss and the creature’s own padding. It does not crack the stone. It creates a micro-fracture in the sub-strata, a new pathway for the acoustic pressure to escape. The Tuner pauses, pressing its head to the stone again, feeling the shift in the tone. The deafening note drops by a fraction of a hertz. The headache in the air thins, just barely. It is a Sisyphean task, a constant adjustment of the earth’s acoustics to keep the world from shaking itself apart.
+
+They are solitary, for the most part. The density of life is too low to support tribes, and the roar makes complex social bonding impossible. You cannot whisper affection here; you cannot sing a lullaby. However, they are not entirely alone. Occasionally, you will see two of them standing in the open slick, separated by twenty feet of empty space. They stand perfectly still, facing one another for hours.
+
+They are communicating.
+
+It is a language of posture and gesture, amplified by the acoustics of the hollow ground. They shift their weight, sending ripples through the stone. They raise an arm, changing the air pressure around them, creating pockets of turbulence in the fog that can be read by the other. It is a slow, grand conversation, like the dance of mountains in the dusk. To the observer, it is indistinguishable from a statue exhibit.
+
+Their relationship with the rock-crawlers is one of mutual tolerance. The crawlers are the gardeners, grazing down the aggressive ferns that would otherwise choke the Tuners’ living spaces. The Tuners, in turn, do not eat the crawlers. They are vegetarians, stripping the waxy fronds with sharp, beak-like incisors, their digestive systems adapted to process the tough, water-rich cellulose. You might see a Tuner reach out with a thick, calloused hand to stroke the shell of a passing crawler, a gesture of immense slowness and gentleness. The crawler does not react; it, too, operates on a timescale where a moment of touch is an eternity.
+
+At night, or what passes for night in the perpetual twilight, they retreat. They do not have roofs. The acoustic pressure would crush anything that tried to enclose them. Instead, they sleep in the open, curled into tight balls in the deepest depressions of the stone. They wrap themselves in heavy, cured leather hides—stripped from the massive, shed carapaces of the ancient crawlers—and line their nests with the driest moss they can find.
+
+They dream in vibrations. Their brains, wired to ignore the deafening roar of the breathers, are tuned instead to the subtle shifts of the tectonic plates miles below. They sleep lightly, one eye often slightly open behind the protective lid, watching the pale smear of the sun fade, waiting for the cold to settle, listening with their bones for the moment the earth decides to change its song.

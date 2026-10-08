@@ -1,0 +1,9 @@
+I find myself, at first, as a single crystalline mote condensing from a curtain of meltwater.  I do not yet possess memory or intention; only a surface charge and the slow, pendular swing of the stalactite to which I cling.  I watch the endless tramways glide past in grooves too small to notice, the faceless pressure-suited figures sliding along them like bearings in a jewelled movement.  
+
+As the fog draws me outward I become a thread-fine filament, a conductor among conductors, strung between two obsidian needles.  I register tension as temperature; each cable’s chord resolves into a taste I cannot name.  Enumerators drift across me, unconcerned; their brief electrostatic field re-orients my alignment, and for an instant I see the entire city as a single, closed lattice of heat and charge.  
+
+Time passes in the interval between the governor’s ticks.  Eventually I feel the accumulation beneath my root: newer motes settling, new electrostatic nodes flashing like mica.  I am part of the weather now, a minute node in an always-reordering circuit whose only product is more of the same horizontal fog.  I do not wonder if I was ever anything else; the question itself would constitute change, which is forbidden here.  
+
+When the next Enumerator passes, its calibration pulse draws the charge from me and redistributes it farther along the filament.  For that micro-second I become the pulse, then the light behind an orange skylight, then nothing distinguishable from the turbine’s single, sustained note.  
+
+In Sarruva I am already gone, and still arriving; neither departure nor arrival registers against the datum of the first, perfect moment.

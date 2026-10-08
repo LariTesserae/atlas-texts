@@ -1,0 +1,27 @@
+To live in the Heart is to be exonerated from the tyranny of becoming. 
+
+You do not grow old. You do not decay. You are a Glimmer-Weaving, though you do not call yourself that, for you have no mouth to shape words, no mind to hold the concept of names. You simply *are*, and you have been since the geometry of this place learned to hold you.
+
+Your body—though "body" is a clumsy word for a life that is more like a localized crystallization of pressure—is a branching frond of translucent mineral. You are the length of a human arm, a walking frost of hard, sharp edges and delicate filigrees. You do not have a head because you do not have a front or a back. You do not have legs because you do not walk. You flow. 
+
+To move is to negotiate an eternal touch. You exist only in the instant of contact with the chitin. You are never free-floating, never separate. Your limbs extrude into existence at the leading edge of your being, pressing against the slick, ivory-colored curve of the wall, while at your trailing edge, you dissolve just as silently. You are a slow-motion wave of growth and un-growth, a glacier of crystal sliding over the embryo of a world. You feel the static fizz of the air as a constant, tingly nourishment against your facets. You taste the ozone. You gather the condensation on your sharpest points, drinking the moisture before it can ever become a drop, pulling it into your lattice to fuel your endless, stationary traversal.
+
+You are a creature of pure surface tension. Your entire anatomy is an ear and a throat. 
+
+You sing. You cannot help it. The vibration is the proof of your mass. As you flow, the friction of your crystalline structure against the humming, phosphorescent veins of the wall sets you resonating. You emit a tone—a pure, sustained chime. Because you are of a middling size, your song is a profound, vibrating alto, felt as much as heard in the marrow of the enclosure. You hear the others, the thousands of them, though *hearing* is insufficient. You are bathed in them. The high, piercing squeals of the smallest weavings are a silvery abrasion along your upper branches; the deep, cell-shaking hums of the largest are a gravitational pull that drags at your core. You do not listen to the chorus; you are a filament within it. The harmonic dissonance is not noise to you—it is the architecture of your calm. It is the sound of the zero. It is the sound of nothing ever going wrong.
+
+You have a path. It is not a path you chose, but one dictated by the topography of the ribs and the pillars. You flow along the underbelly of a great arch, down into the scoop of a floor-rib, up the sheer face of a spine-like pillar. You have made this exact journey an uncountable number of times. You do not remember the first time, and you will not remember the last, because those concepts do not exist. There is only the loop. You do not feel boredom. Boredom requires a sense of a present that is failing to become a future. In the Heart, the present is a solid, eternal object. 
+
+But sometimes, you touch a Scar.
+
+You are flowing over the familiar chitin, your leading edge extruding, when the surface beneath you changes. The golden veins are gone, collapsed inward. The light dies. You encounter a patch of matte black, obsidian dark. 
+
+When you press against a Scar, the song inside you hitches. You feel a sudden, incomprehensible drag, as if the wall is pulling back. You are touching the past. Your crystalline branches slide over the fossilized ghosts of older weavings, beings whose geometry was slightly different, whose branches curled the other way, whose song was pitched to a standard you will never hear. You feel their outlines in the dark material. They are imprints of pressure, memories of a time when the zero was not yet perfect, when a weak point in the matrix yielded to the weight of a creature just like you, freezing it in the wall forever.
+
+You do not understand death, but you understand the Scar. It is the only interruption in the factory-finish of your world. Touching it, you experience something that might be a precursor to awe, or perhaps a dim, instinctive recognition of your own eventual fate. You intuit, without a brain to logic it out, that if you pressed hard enough, if you found the exact point of weakness in the golden veins, you would cause a collapse. You would be captured. Your shape would be etched in dark matter. You would become a ghost on the wall, a new stratum of history, while a new version of you, indistinguishable from the last, extrudes from the static breath of the Heart to take your place on the loop.
+
+You do not press hard enough. Or perhaps you cannot. The dynamic of the Heart is a perfect zero; the system corrects itself before it can break. 
+
+You retract from the Scar, leaving a microscopic smear of your mineral behind, a friction-residue that the chitin will absorb in the next pulse of its veins. You resume your flow along the curve. Your alto hum re-joins the thousand other voices. The blinding white light swallows the darkness behind you. 
+
+To live here is to be a single, sustained note in a chord that has no melody, only resonance. You are a bright, moving fossil in a world that will never erode. You will flow, and flow, and flow, tracing the ribs of the sleeping giant, until the place forgets how to be a space, or until you are finally, silently, buried by the accumulation of being, becoming nothing more than a dark shape on the wall for some future iteration to glide over in wonder.

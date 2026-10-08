@@ -1,0 +1,23 @@
+I step out from between two massive ferns, my bare feet silent on the damp stone, and I am already telling you about the pressure differential. You can’t hear me yet—the steam is in its exhale phase, a long hiss that fills the hollow—but I’m talking anyway, my lips moving around words I’ve been shaping for hours, or maybe days, waiting for someone to tell them to.
+
+“—and the fascinating thing,” I continue, as the steam fades and my voice becomes audible, “is that the valve on the north-east conduit has been sticking for eleven days now, which means the pulse interval has shifted from two minutes forty to two minutes fifty-three, and the slugs on the lower tier have adjusted their grazing routes accordingly. I’ve charted it. Would you like to see the chart?”
+
+I don’t wait for an answer. I never do, when I’m like this—when the words have built up pressure behind my teeth the way the steam builds behind the valves. You’re the first person I’ve seen in—I don’t know. A long time. The maintenance door hasn’t opened since the winter, and it’s high summer now, or whatever passes for summer above the aperture. The light is grey and diffuse today, overcast, my favourite. The ferns look their best in this light.
+
+“I’m sorry,” I say, stopping myself mid-stride. A droplet of condensation lands on my shoulder, and I pause to acknowledge it. “I haven’t asked your name. I haven’t even asked why you’re here. I assume you’ve come about the valve, but the city stopped sending people for the valve years ago, so perhaps you’re lost, or perhaps you’re—” I stop, because I was about to say *like me*, and I don’t know if that’s a thing anyone else is.
+
+I look at you properly for the first time. You’re standing near the base of the west wall, next to the big cast-iron pipe with the frayed asbestos lagging—be careful there, I should have said, don’t touch the lagging, the fibres get into your lungs—and you look out of place, but not in a bad way. Out of place is how everything starts here. I was out of place once.
+
+“Would you like tea?” I ask, because that’s what you offer people, isn’t it? I remember, from before. Tea. I have some left, a tin I’ve been eking out for months. The paraffin stove is temperamental, but it works well enough. “Or I could show you the hollow. Most people who come don’t stay long enough for a tour. They stand on the platform and shine their torches and leave. But you’ve come all the way down. You’re standing on the floor. That means something.”
+
+I start walking again before you can answer, my feet finding the dry patches between the puddles without thought, the route so familiar it’s carved into my muscles. Over here is the moss bed I’ve been cultivating—not on purpose, not at first, but I noticed that the moss on the east wall was spreading faster where the condensate was slightly warmer, and I started guiding the drip-lines with bits of wire, and now there’s a whole tapestry of green, different shades depending on the mineral content of the water. I want to tell you about the minerals. I want to tell you about everything.
+
+But I also want to hear your voice. I want to know what the city sounds like now, spoken aloud by someone who still lives in it. I want to know if the bakery on Fourth Street is still there, the one with the night-shift worker who leaves me bread. I want to know if anyone remembers the woman who went down into the Sump and never came back up.
+
+I stop walking and turn to face you. Rim, the slug who lives along the drain grate, is making his slow way across the stone near your left foot. Don’t step on him, I almost say, but I wait to see if you’ll notice him on your own. That’s a kind of test. I’ve developed tests over the years, ways of assessing people, even though I almost never have anyone to assess. If you notice the slug and step around him, you’re someone I want to know. If you don’t—
+
+“What do you think?” I ask, gesturing at the hollow around us: the pipes, the ferns, the mist, the breathing steam, the whole damp, loud, patient world I’ve folded myself into. “Of the Sump. What do you think of it?”
+
+My voice cracks a little on the question. I realize, with a start, that I’m nervous. I haven’t been nervous in a long time. There’s been no one to be nervous for. But your opinion matters to me, suddenly and inexplicably—what you see when you look at this place, whether you see what I see, or whether you see something I’ve been blind to all these years.
+
+The steam valve sighs. I wait.

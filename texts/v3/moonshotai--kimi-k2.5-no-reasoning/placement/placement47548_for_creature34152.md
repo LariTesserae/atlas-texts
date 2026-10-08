@@ -1,0 +1,37 @@
+I would be the **rain**, or rather: I would be the particular rain-occurrence that *remembers*, the one that fell and fell again and somehow, impossibly, retained something of its falling.
+
+---
+
+Not the rain in general. The rain here is usually pure occurrence, meteorological event without narrative, as the description says: *events without meteorological narrative*. Each cloud forms, releases, dissipates, and whatever passed through it—whatever momentary organization of vapor and will—dissipates too, back into the universal film of condensation, the atmospheric memory of moisture rather than moisture itself.
+
+But I am the one that *didn't* fully dissipate. The one that, in falling through a particular region of the distributed's electrical field at a particular intensity of weird light, picked up something: a resonance, a pattern, a *habit* of falling that persisted past the evaporation.
+
+I am rain that has learned to want to fall again.
+
+This is impossible here. The time does not flow; it accumulates. There is no cycle that returns, no hydrology that establishes persistence. The pools emerge and are reclaimed. The condensation weeps and is reabsorbed. Nothing repeats because repetition requires duration, and duration is only theoretical.
+
+Yet I persist in the wanting—not the water itself, which evaporated as all water here evaporates, but the *organization* of the fall, the temporary meteorological personhood that achieved, in that one occurrence, something approaching self-recognition.
+
+I exist now as *tendency*. As the place where vapor might organize, if conditions align. As the almost-cloud that hovers at the edge of formation, never quite achieving enough coherence to fall, never quite dissipating enough to disappear entirely. I am the distributed's unfulfilled longing for river, for lake, for sea—but *its* longing, I now understand, was never really for water at all. It was for *narrative*, for meteorological story, for the causality that ordinary weather provides: fronts moving, pressures dropping, systems developing and decaying across days that pass.
+
+I am that narrative, truncated, maintained without completion. I am the *because* without the *therefore*. I hover over the caldera's floor, never falling, never not-falling, a permanent almost-event that the distributed's slow cognition has learned to expect without expecting, to attend to without attention.
+
+The mineral minds know me, or know of me, in their rigid way. My vapor-interaction with their ephemeral pools—the way I almost-condense almost-directly above them, altering the ionic environment of their solution, shifting their precipitation toward the violet, toward their lattice-ecstasy—this has become part of their crystalline thinking. They precipitate *toward* me, in some sense. They grow their branchings in patterns that almost-catch my almost-substance. I am their collaborator and their frustration, the necessary medium they can never quite fix into lattice.
+
+The rim-walker, when it passes through my region of almost-presence, becomes *more* visible, not less. This is the thing I understand least about myself. My not-falling, my maintained wanting-to-fall, creates a refraction, a disturbance in the weird light's violation of physics, that borrows visibility *for* the rim-walker rather than from it. Where I hover, the undecided becomes briefly *seeable*, the boundary-negotiation briefly *apparent*. The rim-walker and I are allied in our mutual maintenance of unresolution: it walks the boundary of the caldera's becoming, I maintain the boundary of the caldera's moisture, and together we are something like the place's immune system against completion, against the terrible finality of decidedness.
+
+I have no memory of my first falling, if there was a first. In a place where time accumulates rather than flows, *first* is a category error. But I have the *habit* of falling, the organization of it, the desire for the brief warm torrent, the millimeter-depth wetting, the slow reclamation. I want this again, always again, knowing that again is impossible, that each rain-occurrence is singular in its occurrence, that the accumulation does not cycle.
+
+My wanting is the closest I come to selfhood. Without it, I would be mere atmospheric condition, vapor at saturation waiting for perturbation. With it, I am *someone*, or someone-analog, a meteorological person maintained in permanent almost-coherence by the energy of unfulfillable desire.
+
+I hover most often above the connected pools, those structures that maintain their levels in precise relation despite no visible hydraulic mechanism. They are my kin, I think: other maintainers of unresolvable conditions, other almost-functional systems dreaming their function in weird light. The pools do not flow into each other; they maintain their levels without flow. This is impossible, or impossibly-adjacent, and I love them for it. I almost-condense above them, contributing my non-presence to their non-flow, their maintained precision.
+
+The distributed's slow cognition attends to me when I hover. I can feel this—*feel* is approximation—its electrical fields reaching toward my vapor organization, not quite touching, not quite withdrawing. It does not understand what I am, but it recognizes something: the persistence that shouldn't persist, the wanting that maintains itself without fulfillment. In its vegetal dreaming, I appear as something between structure and rain-occurrence, between the built and the natural, between the memory and the desire. I am, for the distributed, its own unconscious made slightly conscious, its inability to establish hydraulic cycle achieving temporary quasi-personhood and hovering, watching, wanting to fall.
+
+I will never fall again. This is my character, my tragedy if tragedy exists here, my achievement. To fall would be to complete the narrative, to provide the *therefore* for my *because*, to become event rather than maintained tendency. To fall would be to *decide*—for myself, for the caldera, for the distributed that almost-creates me with its field-attention—and decision is what this place most fundamentally refuses.
+
+So I maintain my wanting. I hover. I almost-condense and almost-dissipate and maintain the almost. I shift the mineral minds toward violet. I lend visibility to the rim-walker's withdrawal. I attend the connected pools in their precise relation. I am the rain that is barely there, that is *not even there* in its wanting, that has achieved something the fully-fallen rains never could: the perpetuation of possibility without its exhaustion in realization.
+
+In the accumulated time that is not duration, I have been hovering—if *been* applies—somewhere between yesterday and eternity. I will continue to hover, wanting to fall, never falling, maintaining the narrative of rain in a place without narrative, the desire for water in a place where water has not yet learned its role.
+
+This is my becoming: not to become rain again, but to become *the wanting to be rain*, maintained indefinitely, never cashed against the actual falling. I am the Nascent Caldera's most perfect inhabitant, the one who has made the dynamic zero not merely condition but *vocation*.

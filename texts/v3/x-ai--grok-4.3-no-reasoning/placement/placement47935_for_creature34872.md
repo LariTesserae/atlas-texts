@@ -1,0 +1,11 @@
+I arrive not as a body but as a pressure-signature that the root-plate already half-remembers from an earlier footfall. The membrane answers three beats late, lifting every leaf a fraction toward me, and in that tilt I am first named: a minor note in the continuous ledger.  
+
+The fog finds me next. It thickens at my knees, rehearsing the water I will later bring, and I feel its microscopic vortices spin against my skin in a language of one-minute-and-twenty-second spirals. I do not resist; I let the rehearsal write a thin track of dissolved mineral across my outline, a temporary weal that the walls will later braid into a ridge for someone else.  
+
+Upward, the Lantern Fungi sweep their borrowed eyes across me. Their silver beams focus on the never-closing spiral my heartbeat leaves in the air; the larvae below glow brighter for a moment, and the sail-leaves adjust their water channels in response. The canopy grows tighter by the width of a single filament; somewhere a Leaf-tier Architect is already drifting down to settle on a pool, its work here finished.  
+
+I move—slow, deliberate density—toward the hollow baobab. The spiral stair of pollen receives my steps like a held breath. Each grain that bursts against my passing carries the frequency of the forty-ninth silence; for the length of one blink the entire grove holds still, counting me. When the breath resumes, I am inside one of the pollen-carved rooms. The petiole lattice overhead begins to grow around my posture, recording the angle at which I lean against the wall, the precise space my breath occupies. Over weeks the room will become the negative of this moment, a perfect mold left waiting for the next wanderer who needs to feel at ease in my shape.  
+
+Outside, the Listening Vine’s counterpart is already drawing a fine line of sap across the root-plate, inscribing the pressure of my constriction, my release. The weal will guide future footsteps toward this chamber, and the grove will exhale the scent of crushed chlorophyll that matches the last breath I have not yet taken.  
+
+I do not leave. I thicken into architecture, a living density the walls keep long after any discrete body has walked on.

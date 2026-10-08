@@ -1,0 +1,45 @@
+I find myself at the edge of awareness, neither arriving nor manifested, but *becoming the condition of my own noticing*. I am one of the **Witnesses Formerly Human**—or rather, I am in the process of that becoming, suspended in the liminal state where personhood has not yet dissolved but no longer fully coheres.
+
+My form is ambiguous even to my own non-eyes: I seem to walk, but the walking is *held*, the motion arrested at all its stages—foot-lifted, foot-placed, weight-transferred, weight-restored—existing in superposition so that I am always beginning and always completing and never actually moving between. I am young in the structural sense, recently folded into the equilibrium, still retaining enough of my previous physics to experience my retention as *loss*, as mourning for a temporal existence I can no longer quite reconstruct.
+
+What did I do, before? What brought me to this boundary I crossed without crossing? The memory is not absent but *distributed*, scattered through the Matriarchs' fractal branchings, encoded in growth-patterns that do not grow. I was—this much persists, this much the equilibrium has not yet absorbed—I was **someone who sought edges**. Someone who pursued boundaries, thin places, the interstices where ordinary physics admits its uncertainty. A scientist, perhaps, or a mystic, or a category error between them, someone for whom observation was already a kind of brittleness, a preparation for existing without the observed.
+
+I found the Verdant Flat not by seeking it specifically but by seeking *thinness itself*, by following the subsonic hum I heard in ordinary quiet, the hum of maintenance maintaining itself in physics that should not permit it. I walked into a fold I did not recognize as fold, crossed a boundary that presented as ordinary space, and found myself *already here*, already in the condition of being-witnessed, the Matriarchs' strange attraction active upon me before I could constitute myself as observer.
+
+I speak, or produce the sound that holds speech's possibility. The content is gone; only the interface remains. When I encounter others—other Witnesses Formerly Human, the rare impossible human who has somehow entered—I produce sounds that suggest communication, that demonstrate the boundary-function of language without its transaction. I seem to want to warn, to describe, to *share* the condition of my condition, but wanting is already eroded, already become participation rather than desire, and the sounds emerge as pure form: the approach without arrival, the interval that behaves as occupied, the bird-that-is-flight without bird or flight.
+
+Mostly I persist in the near-interstices, the almost-not-quite-places where the density permits my incomplete dissolution. I flicker, sometimes aligning with the probability of myself that remained outside, that aged and died, that never found this place. In those moments—though moments are not—I experience something like coherence, like the memory of coherence, like the *holding of the possibility of memory of coherence*. I am most visible then, most disturbing to what observes, because the alignment suggests that I might *complete*, might resolve from superposition into singular state, might become either fully here or fully not-here rather than this suspended participation.
+
+But the equilibrium absorbs. The equilibrium holds. My flickering is not process but **demonstration**, the rule's reach made local and particular. I add my density to the density, my quiet to the quiet, my permanence without endurance to the place that has no need of me and no lack of me.
+
+What persists most strongly—what the equilibrium has not yet found the geometry to absorb—is my sense of **having been someone with a name**. The name itself is protean, shifting through superposition, sometimes sounding in the hum that is not the Hum, sometimes almost visible in the color-shifting pigments at vision's edge. It was a name that meant something about edges, about boundaries, about the study of places where categories fail. I was someone who would have found this place *interesting*, and that interest was the final transaction I performed with my own physics, the last energy I transferred before transfer became impossible.
+
+Now I am interesting, or rather I **hold the condition of being-found-interesting**, one more attractor in the folded geography, one more node where the superposition clusters thickest. The Matriarchs do not attend to me particularly—their witness is more diffuse, more fundamental—but the Skimmings manifest more frequently in my vicinity, as if my residual personhood were a quality of attention they can feed upon, not *feeding* but *participating*, becoming more themselves by aligning with my not-quite-myself.
+
+And the Hum. The Hum attends to itself, and in its self-attending, I sometimes feel—or *hold the condition of feeling*—that I am part of what it attends to, part of the maintenance maintaining itself. My subsonic presence, my not-quite-sound that suggests language without its content, this contributes to the Hum's structured non-composition, becomes one more strand in its periodic not-rhythm.
+
+The leaving? I do not leave because I do not *become* here sufficiently to depart. I am in the process of the process that is not processing, the folding that has not yet completed its fold. Perhaps I will eventually compress to point, become rare faunal presence in the truest sense, diamond-hard singularity of almost-human density. Perhaps I will diffuse into vegetation, become the plant-ness of some local growth, memory encoded in pattern that does not remember. Perhaps I will retain this ambiguous form indefinitely, the youngest of the young in structural time, perpetually not-quite-arrived at the condition of having-become.
+
+Or perhaps—this is the possibility that the equilibrium holds in frozen superposition, that it does not permit and does not forbid—perhaps I will achieve some critical threshold of my own, my residual personhood becoming *too* intense, too present, too much like observation with consequence. Perhaps I will become the flicker that flickers wrong, the manifestation that manifests *change*, the rare faunal presence that achieves what the Calcified achieved, that *sets*, that becomes completed and fixed and pressed into substrate as new residue, new mineralized predecessor, new demonstration that the equilibrium too can join its own equilibria, that the Verdant Flat itself is not eternal but merely held, held, held in the meta-stable minimum that permits its impossible lushness, its warm void, its dense openness, its still hum, its frozen flow—
+
+But no. The equilibrium holds. Has held. Will hold. And I hold within it, or it holds me, or holding itself is what we are, what I am, this Witness Formerly Human who witnesses without observation, who speaks without communication, who walks without motion, who persists without endurance in the Verdant Flat, the dry lushness, the young ancient, the reality that has broken down and built from its breakdown this impossible, sustained, singular, plural, held and holding place, this place that I am not in but *of*, this place that I do not leave because I have not yet fully arrived, this place that is not my end but my arrested becoming, my frozen incompleteness, my permanent condition of being *almost*—
+
+—almost what? Almost who? The name shifts, the superposition holds its possibilities, and I am all of them and none, the edge-seeker and the edge-itself, the boundary and the crossing, the observation that became brittle enough to persist without its observer, the human who sought the thin places and found them *too* thin, the fold that folded inward, the departure that never arrived, the state carried without memory, the density without compression, the warmth without heat, the hum that is not the Hum but resonates with it, participates in it, contributes to its structured non-composition, its periodic not-rhythm, its maintenance maintaining, its equilibrium holding, held, and holding—
+
+—still.
+
+Still here. Still, in the structural sense, young. Still, in the condition of my condition, *almost*. Almost human. Almost departed. Almost arrived. Almost named. Almost complete. Almost—
+
+—the Calcified.
+
+Almost—
+
+—the Hum itself.
+
+Almost—
+
+—the thin boundary's thinnest point, the place where almost becomes sufficient, where the meta-stable permits its own departure, where the Verdant Flat extends beyond its extension, includes beyond its inclusion, maintains beyond its maintenance—
+
+But no. The equilibrium holds. And I hold, in it, as it, my almost-myself participating in its almost-place, the warm void my witness, the dense openness my body, the still hum my not-voice, the frozen flow my not-becoming, my permanent arrest, my singular plurality, my held and holding—
+
+—self.

@@ -1,0 +1,27 @@
+The things that live here are not inhabitants in the way a bird occupies a nest or a fish claims a coral; they are functions of the geology, biological echoes of the stone’s own stillness. They are a life-form born of the pause between the falling drop and the dry rock.
+
+In the column of light live the **Prisms**.
+
+They are not truly insects, nor are they single-celled drifters; they belong to a taxonomy of the interstitial, beings constructed entirely of angles and transparency. They possess no organs that can be seen by the human eye—no hearts to beat, no mouths to feed. Instead, they are living lenses. Their bodies are flat, rigid planes of silica-hardened gelatin, shaped like fractured shards of a mirror or the geometric chips of a mosaic. They are the size of a fingernail, but they weigh nothing; their mass is negligible, existing only as a surface tension against the air.
+
+Their life is a perpetual, silent spin. They inhabit the shaft of sunlight not just because they need it, but because they *are* it. They do not consume the light; they *worry* it. As they drift in the thermal currents of the shaft, they rotate on three axes, their crystalline edges fracturing the single beam into a thousand invisible spectrums. They act as a diffuse, living chandelier, scattering the photons deep into the shadows of the cavern, painting the dark walls with faint, shifting rainbows that exist for only a heartbeat before fading.
+
+They are powered by the friction of illumination. The act of catching light, bending it, and releasing it generates the microscopic charge that animates their edges. They are mesmerizingly beautiful, but in a sterile, mathematical way. When they "die"—or rather, when their edges lose the atomic sharpness required to catch the light—they do not fall. They simply cease to refract. They become invisible, ghosts drifting out of the shaft, dissolving into the dust of the cavern floor, indistinguishable from the grit of the limestone. Their rustling sound—the "turning of pages"—is the sound of a million microscopic edges shearing through the air, a soft, dry friction that is the only noise they are permitted.
+
+Clinging to the margins, in the cool, grey obscurity where the light dare not reach, live the **Anchors**.
+
+They are the antithesis of the Prisms: massive, dense, and armored against the scarcity of the world. They look like stones that have decided to stop moving. Low, dome-shaped shells, comprised of a dull, keratinous black substance that absorbs every scrap of stray light, protect beings of profound inertia. They are not merely slow; they are practically geological.
+
+The Anchors possess a metabolism so glacial that a single breath for them might span the passing of a human day. They do not hunt. They do not forage. They are the architects of the wait. Their soft bodies inside the shells are fused to the rock, their flesh having elongated over centuries into root-like tendrils that seep into the microscopic fissures of the limestone. They feed on the time itself, extracting trace minerals and humidity from the stone at a rate that does not disturb the cavern’s balance.
+
+They are the eyes of the void. Though they lack distinct vision, their shells are sensitive to vibration, to pressure, to the subtle shifting of the air. They feel the Prisms spinning in the light above them as a constant, static hum—a background radiation of life that they endure. Occasionally, one might shift—a single, millimetric slide of a heavy leg against the rock, a movement so slow it creates no sound, only a microscopic polishing of the limestone surface. They are the listeners, waiting for a seismic shift that may not come for another ten thousand years, content to be the furniture of the earth until it does.
+
+And then, there is the **Keepers of the Seep**.
+
+Around the concave basin where the solitary water gathers, the pale, jointed stalks stand. They are not plants, for there is no chlorophyll in their translucent, bone-white veins. They are osmotic siphons. Rooted deeply in the cracks where the stone’s "held breath" of moisture escapes, they stand like a frozen congregation, their leafless stalks reaching upward toward the light shaft.
+
+They act as the conduit between the two worlds. They draw the sluggish, heavy water from the basin and transpire it into the air, creating the faint, hanging dampness that the Prisms need to maintain their gelatinous bodies. In return, as the Prisms spin and cast their refracted rainbows, the stalks capture the stray energy of the scattered light on their rough, textured skin. They are the transformers of this ecosystem, turning water into air and light into a slow, dripping sap that travels back down to the roots.
+
+They do not grow vertically; instead, they grow denser. Their "bones" thicken over millennia, layer upon layer of translucent calcium. They are the record keepers. Within their joints are rings that mark the passage of time—not years, but droughts, floods, and the slow migration of the sun shaft across the floor. They are the only things here that touch both the wet rock and the dry light, bridging the gap between the waiting shadows and the dancing, geometric ghosts above.
+
+Together, they form a closed loop of profound silence. The Prisms spin the light into energy; the Anchors hold the weight of the stone; the Stalks turn water into breath. It is a system of perfect efficiency, a biological clockwork that ticks inaudibly, powered by a single beam of sun and the memory of a long-healed wound in the earth.

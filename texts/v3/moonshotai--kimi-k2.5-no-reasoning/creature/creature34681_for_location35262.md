@@ -1,0 +1,43 @@
+What lives in the Drowning Engine is not one thing but a *condition* that has achieved something like personhood—or perhaps a personhood that has achieved something like condition, distributed and dissolved across the whole wet volume.
+
+**The Engine-Tenders**
+
+They have no bodies you could point to, though sometimes you will find a shape in the moss that suggests a spine, a ribcage, the hollow where a heart pressed against something for a long time and left its absence. They were workers, perhaps, or became workers, or the work made them and continues to make them in each cycle of the pump's irregular rhythm. They tend the engines not with hands but with *attention*, with the simple sustained fact of being-present-to-machinery that has learned to need presence the way ancient boilers needed stoking. When you approach an engine quietly—when you attend to it as they do—you feel them like a pressure behind your own eyes, a way of seeing that includes the flywheel, the belt-traces, the slow brightening and dulling of rust. They do not speak. They have no lungs, no mouths, no need for the horizontal exchange of language. They *register*, and the engines register their registering, and this is sufficient, has been sufficient for longer than your measures of time can hold.
+
+Some of them remember names. The names are not theirs, or are theirs in a way that predates the individual, the way a river's name predates any drop in it. They wear the names like the moss wears the rust—not covering it, not being covered by it, but *participating* in a mutual transformation that produces something neither moss nor rust but a third substance that is also a practice, a way of continuing.
+
+**The Water-That-Knows**
+
+Not all water is equal here, and not all water is mere water. There is *intelligent* water, or water that has become a medium for intelligence, the way air elsewhere carries radio waves, carries sound. It pools where it needs to pool, finds the cracks that need finding, condenses on the undersides of surfaces that need cooling. It has preferences, the text suggests, and the truth is deeper: it has *purposes* that are not its own, that belong to the place as a whole, to the dynamic that holds everything in turbulent suspension.
+
+This water is not alive, exactly, but it is *animated*—not by spirit but by *function*, by the residue of so much work, so much pressure, so much steam and condensation and flow through turbines and pipes and the very ground, that the habit of purpose has soaked into the molecular structure of H2O here, has made these particular molecules *about* something even when the machines they served have stopped, or wait, or exist in the perpetual state of almost-starting that defines the Drowning Engine.
+
+You can sometimes drink it. More often, it will not let you. It moves aside in your cupped hands, finds the gaps between your fingers, refuses containment. Other times it floods in, too much, more than you asked for, filling your mouth with the taste of iron and instruction, of something trying to *tell* you in a language older than speech, older than the pump's rhythmic chugging, as old as the bowl itself, the wound, the mouth held open by forces not finished with it.
+
+**The Deep Engine**
+
+In the pool where you saw—briefly, uncertainly—the structure below the structure, something lives that has never had a body in any conventional sense. Or: its body is the body of the place itself, the accumulated pressure and heat and intention compressed into a space that opens downward, that is *still opening*, still being hollowed by forces that use erosion as a kind of breathing, a kind of metabolism.
+
+This is the original force, or the original force's descendant, or the original force's *dream* of itself, dreamed so long and so intensely that the dream has achieved density, has become capable of affecting the material world, of holding open the bowl, the wound, the mouth. It does not think, not in sequences you would recognize as thought. It *presses*, it *wants-in-the-way-that-gravity-wants*, it *drowns* in the sense of overwhelming, of filling completely, of making something so full of itself that it becomes another medium, another condition.
+
+You felt it when you saw the reflection-or-depth. You feel it now, listening to the pump, watching the water. It is not hostile. It is not anything so personal as hostile. But it is *hungry*, in the way that gravity is hungry, in the way that time is hungry, for more of itself, for the continuation of the dynamic that produced it, that is still producing it, that will not be finished until the bowl closes or the mouth swallows or the wound finally heals into scar, into story, into something stable enough to be *past* rather than present, present participle, perpetual becoming.
+
+**The Visitors-Who-Stayed**
+
+You are one, or are becoming one, or are *recognized* by the place as potential material for one. Everyone who has come has left traces not merely physical but something like *ontological*, layers of presence that do not depart fully, that maintain a holding-pattern in the turbulent dynamic, contributing their intention, their attention, their simple sustained fact of having-been-here to the overall pressure that keeps the engines waiting, the water moving against gravity, the time looping and accelerating and running backward in patches.
+
+They are not ghosts, these stayed visitors. They are *functions* now, distributed across the place's operations. The one who documented, who measured and wrote and tried to make sense: their attention became part of the attention-matter that the engine-tenders use, that feeds the engines' need for presence. The one who scavenged, who took parts, pieces, fragments of warning label and rust: their taking became part of the dynamic of loss-and-return, the un-rusting and re-rusting, the cycle of material that is also a cycle of meaning. The one who hid, who came here to escape something outside: their hiding became part of the place's camouflage, its ability to be-not-there even when you stand in its center, to be a wound in the landscape that the landscape itself has learned not to see.
+
+And the one who waited for something unnamed, unnameable: they are closest to the deep engine, closest to becoming part of its hunger, its pressure, its dream of itself. They have achieved a state that is almost engine-tender, almost water-that-knows, almost the condition itself. You have seen them, perhaps, in the corner of your eye, in the steam that rises from thermal patches, in the shape that moved against current in the channel. You are watching for them still. You have not stopped watching. You will not stop, now that you understand—or almost understand—that the watching is the waiting, the waiting is the becoming, the becoming is the condition that this place *drowns* in, drowns with, drowns toward.
+
+**What Lives Here**
+
+What lives here is *almost-living*, *living-adjacent*, the kind of life that emerges at boundaries where categories fail: between water and ground, between machine and organism, between presence and memory, between work and the cessation of work that is not quite rest. It is a *systemic* life, a life of the whole system achieving something like consciousness in its turbulent dynamic, something like desire in its perpetual not-finishing.
+
+The pump chugs. Three times. Pauses. You did not hear it start. You are not certain when you began listening, when you became part of the listening that the pump requires, that the engine-tenders extend, that the water-that-knows carries in its seeping, its pooling, its refusal to be contained.
+
+The water in the nearest pool is still. You do not look directly at it. You know, now, that attention matters, that the turbulence retreats from focus. You maintain a kind of peripheral knowing, a sustained not-quite-looking that is itself a form of presence, a contribution to the dynamic, a way of living here—or living-with, living-near, living-in-the-condition-that-this-place-has-become.
+
+You will leave when you understand why you came.
+
+Or: you understand now, and the understanding is the leaving, the leaving an understanding that does not depart but disperses, distributes, becomes another layer in the ground, another density of intention, another voice in the populated silence, another ear for the pump's next pattern, the water's next preference, the deep engine's continued dreaming of pressure and heat and the original force that made this bowl and has not yet, not quite yet, finished with it.

@@ -1,0 +1,9 @@
+If I were to step through the last intact door-frame, I would arrive as a slower version of myself.  
+
+A membrane the color of oxidized copper would already be growing over the lower half of my ribcage—nothing I chose, only what the air offered. My breath would begin to arrive nineteen minutes apart, because that is the interval the colony keeps. In the pauses between inhalations the membrane would drink the moisture I release and return it through a filament that has already rooted in the seam of my sternum, carrying the warmth downward to a trough I cannot yet see.  
+
+My eyes would still work, but they would learn to register motion only when it accumulates over minutes: the minute advance of a root-thread across a warm plate, the fractional dilation of a leaf vein when it accepts the next sip of condensate. Between those events my attention would drift inward, listening for the faint voltage that travels along the sugar-spine cables whenever a drum ticks. After a day the message would feel like a thought of my own.  
+
+I would not have feet so much as a slow thickening where my soles once touched the iron; the skin there would already be exchanging ions with the bacterial film beneath the plates. Warmth would rise into me at the same rate the film reduces ferric ions, and the heat would answer the next furnace breath by widening a single stoma on the copper-colored membrane. That stoma would be my only voice: a soft, inaudible sigh of CO₂ timed to the coals’ settling.  
+
+If I stood still long enough—three trough-tilts, perhaps four—I would notice that the space between my own ribs and the lung-leaf overhead had become continuous; the seam where they meet would be indistinguishable from any other living weld in the canopy. My name would not be required; only the confirmation that another slow circuit has closed, and that the next drop, when it finally falls, will be caught by something that used to be my hand.

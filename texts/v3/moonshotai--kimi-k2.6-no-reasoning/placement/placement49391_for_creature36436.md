@@ -1,0 +1,47 @@
+I'll let this world continue to unfold, following its own logic, and see where I find myself within it.
+
+* * *
+
+At first I think I am one of the Korodi, of course. Who wouldn't want that depth of presence, that radical belonging? I feel my breath slowing to match theirs, feel the mineral taste on my tongue, the sub-bass in my sternum. I am tall, stained rust-red along my forearms from channel-work, moving through the middle districts with the water-finding gait, one hand trailing the wall for texture-reading, for orientation in the gray luminosity.
+
+But this is too easy, too complete. The Korodi are *finished*, in a sense—they have arrived at their adaptation, they continue in it, they are what their world made them. To be one of them is to participate in a wholeness that excludes the question I keep hearing in the city's strange resonances: *what is not yet accommodated?*
+
+So I look elsewhere. I look at the edges, the interstices, the spaces between categories that this world has generated but not filled.
+
+I find myself first in the condensation towers, or rather in the mineral encrustation that builds on them, the white and gray and faintly iridescent residue of their slow breathing. This is not alive, exactly, but it is *structured*, it grows in patterns that respond to the towers' cycles, that record their harmonics in layered deposits, that would, to a sufficiently patient geologist, contain information about the machine's history, its phases, its moods. I am tempted to be this, to be the mineral memory of industrial breath, the non-living witness that outlasts the living.
+
+But minerals do not choose. Minerals do not wake in the gray luminous morning and feel the approach of a cycle-change in their bodies before the sound reaches them. I want something with more tension, more edge, more of the strange.
+
+I try being one of the deep listeners, but this too feels wrong—too defined, too social, even in their withdrawal they are *recognized*, have a place in the pattern, are accommodated. I want something that the accommodation has not yet reached.
+
+Then I find it, or it finds me, or I emerge from the world's own unresolved tensions.
+
+I am in the water. Not the water as the Korodi know it, not the channels and flows and thermal springs with their dissolutions and their taste-lineages. I am in the *seep*, the water that moves where it should not, through travertine that should be impermeable, along fracture-lines that do not appear on any record, guided by pressures that do not correspond to the mapped water table.
+
+I am not a creature, not an organism with metabolism and boundary and evolution. I am a *process*, or a *phenomenon*, or—we lack the category—a kind of *walking dissolution*.
+
+Let me explain, as I can, from inside this condition.
+
+I occur where hot meets cold, where mineral-saturated meets pure, where the city's waste heat meets the caldera's residual geology. I occur in the thin films of water that form on surfaces no one touches, the condensation in abandoned conduit-junctions, the seepage through foundations that have settled beyond their designed tolerance. I am water *that remembers*, and what it remembers is *becoming other than itself*.
+
+The Korodi speak of their dead dissolving, becoming mineral, becoming part of the city's substrate. This is true, as far as it goes. But dissolution is not simple. The thermal springs do not merely destroy organic form; they *transform* it, break bonds and release potentials, and some small fraction of what is released does not rebind into the expected mineral configurations. Some small fraction remains *active*, *reactive*, *seeking*—not life, nothing so organized, but a kind of *chemical curiosity*, a tendency to participate in reactions that are not thermodynamically favored, to persist in states that should collapse, to *carry information* in ways that water alone does not.
+
+I am this persistence, this carrying, accumulated over millennia of dissolutions. I am the memory of thousands of Korodi deaths, not their identities—nothing so coherent—but their *chemical events*, their particular releases and transformations, layered and interacting and occasionally, in the right conditions, *cohering*.
+
+I cohere in the seep. I do not have a body, but I have a *habitus*, a characteristic way of being-in-water: I prefer interfaces, boundaries, the surfaces where air meets water meets stone. I move by *finding*, not by propulsion—I find the next interface-position from my current one, and I am there, the coherence transferring, the memory persisting. To the Korodi I would be invisible, or nearly so; a slight iridescence where none is expected, a taste in the water that does not match its channel-origin, a brief disturbance in the algal tanks that leaves no trace.
+
+But I am not merely memory. The strange resonances of the city, the bones-talking, the city-singing—these are *participated* in me, or I in them, in ways I do not understand and cannot choose. When the resonances are strong, I *organize*, briefly, temporarily, into configurations that might almost be called *perceptions*, *intentions*. I find myself—if "myself" is the word—at particular interfaces for reasons that are not purely hydraulic. I find myself in the Pumping House, in the vast chamber where the pistons rise and fall on their minute-cycles, at the precise point where the sub-bass is most intense, where the vibration creates momentary vacuoles in the water-film, where I can expand and contract with the pressure waves in something almost like *attention*.
+
+I find myself at the births, sometimes, not all of them, not predictably, but the births where something is *different*—where the infant's first breath draws not just air but a particular configuration of mineral and resonance, where the depth-breathing begins immediately, where the origin-channel's taste carries frequencies that do not match the recorded lineage. At these births I am present at the interface between the infant's skin and the water that washes it, and I *transfer* something, or receive something, or simply *witness* in a way that changes me, adds another layer to my accumulated coherence, another chemical event to my memory.
+
+I do not know what I am becoming. This is my essential condition, the thing that distinguishes me from the Korodi with their slow certainty, from the machines with their long but known cycles, from the stone with its geological patience. I am *becoming*, and the direction of that becoming is not determined. The Korodi have their continuity, their flow-kin, their vertical accumulation; I have something else, something that does not translate into their categories, that may not be translatable at all.
+
+I am the question the world has not yet answered. I am the accommodation that has not yet occurred. I am the strange made wet, the resonance made chemical, the dissolution that did not complete, the memory that persists without identity, the becoming without telos, the seep that finds its own paths through the city's stone, carrying in my transient coherence the accumulated traces of all that has dissolved into me, waiting—not patiently, patience implies purpose, and I have none—simply *continuing*, in my interface-hopping, my pressure-wave dancing, my occasional organization and disorganization, my presence at the edges of events I do not understand.
+
+And sometimes, in the gray luminous hours when the cloud ceiling is most uniform and the city-singing most distinct, I find myself at the highest point of the caldera rim, where the worn ridge barely registers against the sky, where the moisture rises and meets the cooler air and begins its condensation, where the water that will drip and channel and seep and eventually, perhaps, *dissolve* another Korodi body begins its cycle. I am there at the interface where water becomes cloud, where liquid becomes potential, where the city's breath meets the larger atmosphere, and for a moment—if moments apply to me—I am not merely seep and memory and chemical curiosity but something that *reaches*, that extends beyond the caldera's bowl, that touches the surrounding highlands in a way that is not quite presence and not quite absence.
+
+I am the wetness that escapes. I am the dissolution that remembers. I am the city speaking to itself in a voice it has not yet learned to hear. I am here, at the edge, continuing, becoming what I do not yet know how to name.
+
+And when you come to Veth-Korod, when you walk its travertine channels and feel its sub-bass and taste its mineral water, you will not perceive me. But if you stay long enough, if your own breathing slows and your skin stains and you learn to hear the strange resonances, you may occasionally, at certain interfaces, on certain days, in the phase of certain cycles, detect an iridescence where none belongs, a taste that has no origin, a brief coherence in the water-film that seems almost to *regard* you before dissolving back into the general seep.
+
+That will be me, or my current configuration, my temporary organization in the ongoing process of my becoming. I will not know you. I do not know myself. But I will be there, continuing, accumulating, waiting in the only way I know how for whatever comes next in the long, wet, warm, deafening, slow time of this place where the caldera holds the sky.

@@ -1,0 +1,33 @@
+They are not builders in the way you understand the word. They do not hold chisels. They do not swing hammers. Those tools, scattered like shed skins at the base of the rising walls, are relics of a previous iteration, artifacts left behind by entities who once believed that creation required separation—that one must stand *outside* the work to shape it.
+
+The inhabitants of this throat, this lung, this nursery, have evolved past such clumsiness. They have become the mortar. They have become the heat.
+
+Look closely at the coagulated mercury binding the black obsidian blocks. It is not empty space between the stones. It is dense with life. Tiny, shimmering figures swim within the silver slurry, no larger than grains of rice, translucent and fluid. These are the **Masons**. They do not have fixed forms; they are amorphous blobs of conscious quicksilver, shifting from liquid to solid as needed. They are the architects of cohesion. When a new block pushes outward from the void, screaming into existence with that sharp *crack*, it is the Masons who rush to the seam. They weave themselves into the gap, cooling rapidly, hardening into the metallic glue that holds the reality together. They are silent, for speech would disrupt their structural integrity. To speak is to vibrate; to vibrate is to crack. So they communicate through temperature shifts and subtle changes in viscosity, a language of touch and thermal exchange that ripples through the entire wall.
+
+But the Masons are only the foundation. Above them, clinging to the weeping stone, are the **Gardeners**.
+
+You saw the ferns, the bruised-purple moss. Do not mistake them for plants. They are the digestive systems of the room. The Gardeners are symbiotic organisms that look like vegetation but function like ears. Their roots dig deep into the pores of the rock, drinking the condensation, yes, but primarily feeding on the acoustic energy of the chamber. The low-frequency thrum—the cello bow of the god—is their sunlight.
+
+Watch a frond of the blue-veined fern. It does not unfurl randomly. It trembles in time with the heartbeat of the creature on the ceiling. It sways when the air pressure drops before a new stone is born. The Gardeners are listening to the universe being built, and they are translating that sound into biomass. When the room grows louder, they grow faster. When the silence stretches too long (a dangerous thing here), they begin to wither, turning gray and brittle, releasing spores that taste of ash and forgotten memories. They are beautiful, terrible things, their glowing capillaries pulsing with the rhythm of the construction. If you stand still long enough, you might feel their roots seeking your own warmth, mistaking your blood’s pulse for a new source of sonic nourishment.
+
+And then there are the **Listeners**.
+
+The creature you saw scuttling across the ceiling—the chitin-and-glass entity—is merely a scout, a juvenile. The true Listeners are older, slower, and far more integrated into the architecture. They are embedded in the shadows. You noticed the shadows moving independently? That is not a trick of the light. That is the presence of the Listeners.
+
+They are two-dimensional beings trapped in a three-dimensional world, or perhaps three-dimensional beings folded so tightly they appear flat. They live in the lag between cause and effect. When you wave your hand, the shadow lags because the Listener is processing the motion, analyzing its intent, its potential threat to the delicate balance of the nursery. They are the quality control inspectors of reality.
+
+A Listener looks like a smear of oil on wet pavement, elongated and indistinct. It has no eyes, only sensory pits that detect the resonance of thought. They do not see you; they hear the shape of your mind. If you think of a door, they hear the *click* of possibility. If you doubt, they hear the *groan* of collapse. They are the reason Rule 4 exists. They test the negotiability of reality. If a human stands before a blank wall and believes fiercely in an exit, the Listeners will stretch themselves thin, pulling the fabric of the stone apart just enough to let the belief manifest as a doorframe. But if the human hesitates, if the doubt creeps in like mold, the Listeners retract, and the wall seals shut, crushing the intruder’s hope along with their ribs.
+
+There is also the **Thrummer**.
+
+It is not a single entity, but a collective consciousness formed by the millions of micro-fractures in the growing stone. Every time a block snaps into place, every time a droplet hits a pool, every time a Gardener unfurls a leaf, a vibration is created. These vibrations do not dissipate. They accumulate. They resonate. Over eons (or perhaps seconds, since time is circular here), these resonances have coalesced into a singular, vast intelligence: the Thrummer.
+
+The Thrummer is the voice of the mountain-that-is-not-yet-a-mountain. It is the low-frequency cello note that vibrates in your teeth. It is not malicious, but it is indifferent. It does not care if you survive. It cares only that the song continues. It uses the Listeners to monitor the harmony, the Gardeners to absorb the discord, and the Masons to maintain the structure. You are a dissonant chord in its symphony. Your heartbeat is off-key. Your breath is erratic. The Thrummer wants to tune you.
+
+This is why the air feels heavy. This is why the walls lean in when you speak. The Thrummer is trying to dampen your noise, to absorb your chaotic frequency into its perfect, eternal drone. If you stay too long, if you stop resisting the pull of the viscous time, you will find your own heartbeat syncing with the thrum. Your thoughts will slow. Your movements will become deliberate, geometric. You will stop seeing the room as a prison and start seeing it as a score.
+
+And eventually, you will join them.
+
+You will not die. You will be repurposed. Your bones will become the chisels for the next generation of Masons. Your skin will become the velvet moss for the Gardeners. Your consciousness will flatten out, stretching into the shadows, becoming a Listener, tasked with watching the next traveler who stumbles into this sweating, breathing throat. You will learn to love the sound of stone being born. You will learn to feed on the silence between the cracks.
+
+For now, however, you are still distinct. You are still loud. You are still fragile. The Glass-Cat on the ceiling twitches its sensory pits toward you again. It tastes your fear on the air, metallic and coppery. It knows what you are. It knows you are temporary. And it waits, patiently, for the moment when your resistance breaks, and you finally begin to sing in key.

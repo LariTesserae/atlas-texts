@@ -1,0 +1,7 @@
+I find myself written into the unfinished matrix itself—into one of the vertical scarps the plateau has not yet reached.  
+
+I am the pale, translucent tissue still lacking veins: a three-meter-high cliff of inchoate growth. Every molecule in me is on the brink of deciding to become a blade or a tubule or a stoma; none of them have yet been told which. I feel the slow approach of the vesicles arriving along the membrane’s underside, carrying their exact chemical syllables. When the first droplet of that vocabulary lands against me, I will remember how to differentiate. Until then I am only potential surface—warm, dough-soft, vibrating with the chord that leaks through from the finished world above.  
+
+From this margin I can “see” upward, in the way a page can see its own ink: the completed grass arches away from me in concentric living rings, every column and ramp already threaded with circulation. The vesicles drift down their tubules like footnotes seeking the place where they will be absorbed. I know, without needing to move, that once I am claimed I will forget the difference between “I” and “the plateau.” My unfinished edges will knit into the older tissue; the low C will become the only tense I can conjugate.  
+
+For now I am the silence between two beats of growth, the pause in which the organism rehearses its next grammar before it speaks it into another seamless meter of green.

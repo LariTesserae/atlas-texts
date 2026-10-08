@@ -1,0 +1,11 @@
+What lives here is a community of reciprocal clocks.  
+
+The ferns are the oldest residents and the slowest to move: they keep time by the rate at which their fronds lift and lower, each micro-tilt a single tick of a multi-century pendulum. Their roots never strike one another, but they trade warmth in the stone cracks, equalizing their temperature so the whole carpet stays three-tenths of a degree cooler than the air—sufficient to keep the water film from boiling away at its edges.  
+
+The crystalline scarabs, by comparison, are the fastest counters. Their parabolic backsides are organs as much as mirrors; every landing transmits a piezoelectric spark into the node beneath them, and every departure steals a trace charge away. The cumulative result is a shifting map of faint voltages that the worked slab reads the way a blind musician reads braille. When the slab answers, the hum in the walls rises or dips, and the scarabs steer toward the brighter or dimmer patch exactly as though the stone itself had cleared its throat.  
+
+The basalt pillars overhead participate only once every few minutes, when the unseen counterweight deep below the cleft rolls another degree. Their fractional rotation is not mechanical error but the second hand of a planet-sized clock. Each shift changes the light geometry inside the pocket; the scarabs react instantly, the ferns more slowly, so the three systems remain phase-locked even though their intervals differ by orders of magnitude.  
+
+Nothing here is truly stationary. The water film at the cleft edge continuously evaporates and re-forms, a metronome too quiet to hear, and the scarabs’ chiming is its audible harmonic. Should any single cycle drift—the water thread slacken, a scarab swarm fail to re-phase, a fern carpet cool unevenly—the others adjust their own periods until the whole pocket swings back into synchrony.  
+
+Thus the cleft houses not a population of discrete organisms but a single, slow conversation made of temperature, voltage, and rotation, in which stone, insect, and fern each complete the others’ unfinished sentences.

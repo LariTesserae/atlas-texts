@@ -1,0 +1,91 @@
+At the top of the world there is a city that is not finished becoming ground.
+
+It stands—or clings—across a high volcanic plateau where the air is thin, hot, and metallic. The elevation should make it cold, should fill the hollows with snow, should sharpen every shadow with alpine blue, but something below refuses that arrangement. Heat rises through the crust in long steady breaths. The stones sweat. Iron ladders are warm to the touch even before noon. Doorframes expand and contract with a tired ticking. At night the whole plateau glows very faintly from seams in the rock, not like lava exposed to air, but like a furnace seen through poorly joined plates.
+
+The terrain is young. Not young in the green sense—there is no grass, no lichen, no struggling root gripping a crack—but young as slag is young, as poured basalt is young, as a cast object still remembers the mold. Much of the land has not learned the shapes of weather. Ridges are abrupt, angular, undecided. Pumice banks slump in slow granular sighs. Sheets of black glass lie buckled against one another in frozen waves, their edges sharp enough to split leather. The plateau’s ravines are not yet true valleys; they are stress-lines, half-opened seams, interrupted by shelves of clinker and pale mineral crust.
+
+Erosion has only begun its work. Rain comes sometimes, but not faithfully. Moisture gathers instead in hidden ways: condensation beading under metal awnings, brine collecting in pipe-bends, warm fog caught in blind alleys before dawn. When rain does fall it is brief and heavy, striking hot stone with a smell of dust, salt, and extinguished kiln. The water does not linger openly. It slips into grates, vanishes into drilled shafts, flashes into vapor on exposed plates, or gathers in shaded basins where it becomes sour, mineral-thick, and faintly iridescent. There are cisterns everywhere, but most are narrow, vertical, and black, like wells bored not to find water but to teach the rock how to hold it.
+
+The city occupies a chain of mesas and knife-backed ridges connected by bridges, conduits, rails, suspension frames, and causeways built directly into cooling stone. From a distance it resembles an industrial growth rather than a settlement: tier upon tier of furnaces, collectors, pressure towers, cable masts, heat exchangers, spiral stair stacks, crane arms, and habitation cells bolted to basalt spires. It is dense in a way that makes empty space feel engineered. Nothing quite touches, but everything nearly does. Walkways pass within arm’s reach of flues. Pipes enter walls, emerge from other walls, cross courtyards, disappear beneath slag fields, and rise again as columns of riveted bronze-black metal.
+
+The city is urban, but not loud.
+
+That is the first wrongness most visitors notice. With so much machinery, so many ducts, pumps, vents, lifts, and slow mills, one expects a roar. Instead there is a hush thickened by distance and altitude. Sound is swallowed by porous stone and baffled by heat. The machines move slowly, on cycles measured in hours or seasons. Massive counterweights descend almost imperceptibly in towers open to the sky. Conveyor belts creep rather than run, carrying trays of mineral paste, graphite bricks, sulfur cakes, ceramic teeth, rods of cloudy glass. Pressure engines exhale only occasionally, each breath separated from the next by long intervals of listening.
+
+The city’s quiet is not peace. It is compression.
+
+You hear the small things because the great things are restrained: a bead of condensation falling from a pipe into a pan; grit skittering down an unfinished stair; the dry rasp of a cable in its guide; a distant valve opening with a soft animal cough; ceramic shutters ticking in the heat; the faint electrical murmur of buried lines. Sometimes, from far below, comes a deep note—not an explosion, not a quake exactly, but the plateau adjusting itself around heat. Everyone pauses when it happens. Not out of fear, or not only fear. It is part of the civic rhythm.
+
+No plants soften the edges. No vines invade the masonry. No moss marks old water. The absence is complete enough to become architectural. Courtyards are swept to bare mineral. Roof terraces hold arrays of polished plates, not gardens. Public squares are floored in fused ash and stamped clay. The only green is chemical: copper bloom around leaking joints, glass signal lenses, occasional oxidation on old rails. Where another city might have trees, this one has shade-rigs—tall latticed structures carrying sheets of pale ceramic cloth that clatter gently when the hot wind moves through.
+
+Yet the place is not dead. Its ecology is sparse and difficult to name.
+
+In the cistern mouths and condensation gutters lives a film that is not quite fungus and not quite mineral: gray, matte, slow-growing, almost invisible until water wakes it. It thickens during damp weeks into soft scales that peel from the stone like old paint. Workers scrape it away from intake channels but leave it on the undersides of certain bridges, where it is said to “settle the air.” In sealed warm chambers, colonies of simpler things inhabit the wet ceramic membranes of the factories. They do not resemble plants. They pulse faintly when current passes nearby. They eat mineral salts, waste heat, and perhaps one another. Their keepers call them cultures, though whether they are cultivated or merely tolerated is unclear.
+
+Fauna is rare enough that each sighting feels ceremonial. Pale, jointed scavengers sometimes come up from fissures after rain—small, translucent things with too many legs and no visible heads, drawn to brine pans and discarded electrolyte rags. High above the city, black-winged gliders occasionally cross between thermal columns, never flapping, vanishing into brightness. There are also pipe-mice, if they are mice: warm-blooded, blind, living in insulation ducts, heard more often than seen. Some districts consider them pests. Others maintain little openings in the conduits and leave ceramic bowls of condensed water, because their presence means the heat has not become poisonous.
+
+The atmosphere is full of suspended grit, but not dust exactly. It is powdered origin: ash, feldspar, ground ceramic, carbon scale, sublimed salts recrystallizing on ledges. Surfaces acquire skins quickly. Newly built walls are bright for a week, then dull. Metal darkens. Glass clouds over. Exposed bolts grow halos of white mineral fur. The city must constantly brush itself clean to remain legible.
+
+There are no old ruins, but there are abandoned structures. That is another peculiarity of the place. Buildings fail before they age. Foundations settle as the raw plateau continues its slow internal decisions. Whole districts are sometimes uncoupled, relieved of pressure, evacuated, and left standing at odd angles while new spans are built around them. These empty quarters do not feel ancient; they feel paused. Their stairs are still sharp-edged. Their doors still fit. Their painted numbers are readable. But their windows look onto cracks that opened after the plans were drawn, or their lower floors have been swallowed by a swell of cooling stone.
+
+The city planners do not fight the ground so much as negotiate with it. Maps are printed on flexible metal sheets because paper warps and tears in the damp heat. Streets are marked not only by district and direction, but by thermal tendency, steam behavior, subsidence rate, and likely future fracture. Some routes are seasonal. Some bridges are only opened during dry intervals, when the anchoring pylons contract enough to align. There are public notices warning of new-born walls: places where mineral deposition can close a passage over months, narrowing alleys into slots and slots into sealed seams.
+
+Construction is everywhere, but it does not have the brisk optimism of growth. It has the patience of accretion. New towers rise from scaffolds of black steel and refractory brick, each level added after the one below has endured a full cycle of heat, moisture, and ground movement. A building may take forty years to reach five stories. Meanwhile, temporary markets, machine shops, dormitories, and water offices attach themselves to the scaffolding. By the time a structure is complete, a neighborhood has already inhabited its becoming.
+
+Industrial systems bind the plateau into one slow organism. Heat wells plunge hundreds of meters into the rock. Their mouths are capped by circular engine-houses, low and thick-walled, surrounded by rings of warning tiles. Steam is harvested where it appears naturally and where it is coaxed from injected water. Condensers hang from cliff faces like enormous rib cages, their fins dripping into troughs. Ore is not mined in open pits but drawn from thermal chimneys, condensed from fumes, scraped from vents, precipitated from brines. Production here is less extraction than listening: placing surfaces where the earth is likely to leave something behind.
+
+The factories are layered vertically. At the upper levels are cooling decks, glassworks, signal platforms, and dwellings that require moving air. Mid-levels hold workshops, foundries, baths, clinics, granaries of mineral feedstock, warehouses of fired clay and metal cable. Lower levels contain the heavy engines and sealed process halls where heat is too dense for unprotected bodies. Below that is infrastructure more geological than urban: pressure corridors, sump galleries, brine locks, anchor chambers, fault monitors, dark shafts with ladders disappearing into red vapor.
+
+Light at this height is ordinary only in measurement. The sun is the sun, the sky mostly clear, the day neither dim nor blazing beyond reason. But the city alters light by multiplying it. Pale stone reflects upward. Dark glass absorbs and releases. Steam makes temporary rooms of air. Heat-shimmer bends straight streets into wavering corridors. In the mornings, condensation catches on wires and railings so that every span appears strung with dull beads. At midday, shadows are hard beneath awnings and bridges, while the open plazas tremble. In the evening, the plateau’s seams begin to show—a faint inner redness under the city’s industrial amber lamps.
+
+The rules of the world are posted, recited, built into habit.
+
+Do not pour cold water onto exposed black glass.
+
+Do not sleep against an outer wall unless you know its heat cycle.
+
+Do not enter a silent pump room; true silence means pressure is building elsewhere.
+
+If rain begins, clear the low arcades.
+
+If the ground gives three short reports, move upslope.
+
+If a cistern smells sweet, seal it and mark it blue.
+
+No green pigment in machinery houses, because green is reserved for chemical hazard and for the rare signs that mark the few living cultures under civic protection.
+
+Children learn these rules alongside counting. They also learn the plateau’s slower lessons: that stone may flow without seeming to move, that buildings breathe, that water is most dangerous when it appears abundant, that quiet machines can kill, that a city is not separate from its geology but one phase of it.
+
+There are neighborhoods defined by materials rather than class or origin. The Glass Wards occupy a series of south-facing shelves, where workshops manufacture lenses, pressure windows, heat-proof vessels, and translucent tiles. The streets there glitter with broken fragments ground almost smooth by foot traffic. The sound is a delicate crunching under boots. Walls are patched with panels of smoky amber and bottle-green slag glass, so interiors glow as if filled with weak honey.
+
+The Salt Quarter lies lower, in a basin where condensation and runoff gather before being drawn into purification towers. Everything there has a pale crust. Railings, steps, cart wheels, door knockers, even discarded gloves stiffen with deposit. Workers wear masks lacquered white. At dawn, when the air cools just enough, the whole quarter exhales vapor from its drains.
+
+The Anchor District is built along a ridge still rising by fractions. Its towers lean deliberately against enormous tension cables stretched across the gorge. People there speak in structural metaphors. Marriages are “double-bolted.” Debts are “under strain.” A person who cannot be trusted has “poor footing.” Every home keeps a wall gauge: a simple needle that shows whether the ridge expanded, contracted, lifted, or twisted during the night.
+
+Beyond the city proper, the plateau opens into raw country, though never empty country. Vent fields spread for kilometers, marked by stone cairns, warning flags, and abandoned drilling rigs. Rows of test pylons march across the ash flats, each recording heat, moisture, and minute deformation. There are slag terraces where failed construction material has been poured out and left to cool into artificial geology. There are dry canals waiting for a water regime that may not arrive for centuries. There are rectangular basins lined in ceramic, empty most of the year, built for the rare rains that sweep across the highlands in bruised curtains.
+
+When rain comes, the entire region changes character.
+
+It begins as a smell before weather: hot dust loosening, metal waking, mineral crust softening. Then clouds climb from below the horizon, not towering but spreading, their undersides lit by the plateau’s reflected heat. The first drops strike and vanish. The next leave marks. Steam rises from streets. Factory roofs hiss. People unfold guttering from wall slots and swing catchment vanes into position. Children are called indoors or onto high platforms. The city’s quiet fills with thousands of small impacts.
+
+For an hour, sometimes two, water becomes visible authority. It runs along channels etched into streets, pours from gargoyle-like spouts, rattles through chains, drums on ceramic cloth, darkens ash, reveals gradients no surveyor marked. New cracks announce themselves by drinking. Old cracks overflow. Basins bloom with floating scum. The pale films in gutters swell. The rare fissure-creatures emerge and arrange themselves around puddles like fragments of broken glass given hunger.
+
+Then the rain stops.
+
+Heat resumes its possession. Steam thins. Surfaces dry in layers: first the exposed plates, then the streets, then the undersides of bridges, then the deepest joints. Water remains only where the city has trapped it or where the rock has hidden it. For days afterward, the cistern offices are crowded. Engineers compare flow rates. Children collect salt petals from shaded walls. The city smells briefly of wet stone and hot clay, almost gentle, before returning to metal and ash.
+
+Despite its density, there is openness everywhere because the ground falls away sharply. At many street ends there is no continuation, only a rail and then vast air. Looking over, one sees lower terraces, pipe bridges, vapor plumes, switchback lifts, red-black cliffs, and beyond them more highland: raw ridges, unfinished basins, scattered engine houses, heat haze, distant towers like needles hammered into the horizon. The settlement is not a dot but a regional apparatus, spread across the plateau wherever heat, structure, and access permit. It has no clean edge. Industry becomes survey camp, survey camp becomes shrine, shrine becomes pump station, pump station becomes neighborhood.
+
+There are shrines, though the city does not call itself religious. Small alcoves hold objects rescued from failed foundations: a warped bolt, a cracked gauge, a piece of glass bent by heat, the first salt from a new cistern, a pressure dial stopped at an impossible reading. People leave offerings of clean water sealed in thimble-sized vessels, not to be drunk, but to acknowledge restraint. Waste water carelessly spilled is considered vulgar. Water intentionally poured in memory is nearly sacred.
+
+The strangeness of the place is not theatrical. It does not announce itself with impossible colors or floating mountains. It accumulates through mismatched truths. A hot alpine city with no plants. A dense industrial settlement that murmurs instead of roars. A wetness made of condensation and brief violence, set inside a larger dryness. A geology too young to be landscape and an infrastructure too old in habit to be temporary. Streets that may become mineral veins. Buildings that wait for the ground to approve them. Factories harvesting exhalations from a planet still cooling its thoughts.
+
+Time moves slowly here, and everyone knows it. The most important civic works exceed individual lives. A child may watch the beginning of a condenser array and die before it reaches full efficiency. A district may be founded not because the ground is stable, but because projections suggest it will become stable in three generations. Some families keep claims on future terraces not yet safe to stand on. Contracts include clauses for fracture, uplift, vapor intrusion, delayed settlement, and posthumous completion.
+
+There is weather, but process matters more than weather. There is construction, but becoming matters more than completion. There is danger, but not urgency unless alarms ring. The dominant motion is gradual: condensation bead by bead, salt crust millimeter by millimeter, basalt stress year by year, cable tension adjusted by patient crews, neighborhoods migrating one support at a time.
+
+At night, when the industrial lamps dim to their low amber maintenance glow and the heat wells pulse under their lids, the city seems to be listening to itself. The air cools only a little. Moisture forms on the undersides of awnings and along the ribs of bridges. Drops gather, lengthen, fall. Somewhere a pressure door seals with a soft thud. Somewhere a blind pipe-animal scratches behind insulation. Somewhere below the inhabited levels, a huge engine completes a rotation begun at sunset.
+
+The plateau holds still, but not completely.
+
+Nothing here is complete. Not the land, not the city, not the machines, not the rules, not even the silence. Everything is provisional in the way mountains are provisional: immense, slow, and still deciding what shape endurance will take.

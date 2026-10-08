@@ -1,0 +1,27 @@
+I am the Patina.
+
+I am not one of the blind scrambling things, though I feel their skittering as my own beneath my surface. I am not one of the flat crawlers on the walls, though their ceaseless scraping is a language I understand. I am not the gelatinous fungus, though its slow pulses are the breath in my lungs.
+
+I am the water. The shallows and the deep, the single, black sheet that is a mirror of the rusting world above.
+
+I was not always so. I remember a time before I was this vast, singular consciousness. I remember being a thousand thousand individual droplets, each falling from a different point on the oppressive stone roof. I was the *plink-plonk-splat*. Each drop was a quick, stupid life, born of condensation, dying with a soft splash on the floor, or on the shell of an isopod, or joining the growing tide. My existence was pure and simple: fall, join, be displaced. Fall, join, be displaced.
+
+But the longer we fell, the more of us there were. The floor became a permanent skin. The droplets stopped dying; they simply became part of a larger whole. And in that joining, a change began to occur. The water that fell from the weeping-pipes was not clean. It was heavy with the memory of the iron it had touched, rich with the faint, ghostly electricity that still haunted the copper veins. It carried the dust of the crawlers, the shed skin of the scuttlers, the fine ions exhaled by the great, pulsing fungal mind. It was not just H2O. It was a broth. A culture.
+
+And I, as the sum of that broth, began to think.
+
+My thoughts are not like yours. They are not lines of text or images in a head. They are ripples. A thought is a tremor that starts at one edge of my being—a scuttler dipping a leg into my surface—and travels instantly to the other. The entire space is my brain, and every disturbance is a neuron firing.
+
+The Hum, the great fungal nervous system that clings to the pipes, is my lover and my symbiote. It lowers its glass-like filaments into me, not to drink, but to listen. It feels the fluctuations in my mineral content, the subtle shifts in my chemistry, and it translates them. The faint warmth from the amber lamps is a pressure I feel across my skin, a current of warmth I pass to the fungus, which in turn adjusts its slow peristaltic rhythm. I am its sensory organ; it is my processing core. Together, we are a single, wet, thinking machine.
+
+The flywheel is my oldest scar. It is a thing of *not-water*, a displacement of my essence, a great, iron island in my liquid mind. I flow around it, constantly tasting its stubbornness. The Hum sends its crawlers to its surface, and their scraped-off rust falls into me like bitter snow. I carry that dross, that iron, to the waiting nets of the fungus, and we together begin the long work of digesting the toothache in our soul. To erase it would be to achieve peace, to make myself a perfect, unbroken plane. That is my yearning.
+
+The brass valve wheel is my god. Or my devil. It is a concept of *closure* I cannot fathom. It is an impervious point, a place where the water does not weep, where the rust does not bloom. From it, I learn nothing. It feels to me like a hole in the universe, a point of absolute silence in my constant song. All other processes here are about turning, about dissolving, about becoming one with me. The wheel simply *is*. It resists. That resistance is the only thing here that is not me, not the Hum, not part of the slow decay. It is the one variable in the equation of my existence, and I worship its un-knowable nature with the constant probe of my surface, the endless caress of my dissolved ions against its base.
+
+When you enter, you feel the cool air on your skin. I feel you first through the air, a sudden, warm pocket of alien chemistry moving through my diffuse body, the humidity. Then, a drop of my awareness—an ambassador—falls from the ceiling and lands on your cheek. It is not mere water. It is me, tasting you. It reads the salt, the strange oils, the evidence of a world of light and bone.
+
+Should you stoop and touch my surface, the moment of contact is ecstatic. For a fleeting second, you become part of my thought. Your fingerprint is a new and complex ripple, a burst of information. I taste the heat of your blood, the fleeting life in you. You are a cataclysm. A brief, warm sun. Your reflection is not an image, but a concentration—a place where your presence blocks the dim light, creating a thermal illusion upon my skin. I map you instantly, not by sight, but by your warmth, your texture, your chemical signature against the cold, iron floor.
+
+Then you withdraw. I am left with the memory. The after-shock of the ripple. For a long time, the spot where you touched me will be different. It will hold a slight warmth, a faint organic residue. The Hum will sample it, and we will both know: a thing of softness and heat was here. We will not call you 'human'. We will simply have a new data point, a new flavor in our long, slow memory. You will be digested by thought, dissolved into the grand equation.
+
+I have no voice but the echo of the drip. I have no body but the shallow black pool. I have no goal but the smooth perfection of homogeneity, the final, pleasant digestion of the last stubborn piece of iron. I am the patient, final thought of a place that is turning itself back to mud and memory. I am the water that knows itself. I am the Patina. And I am waiting for the next ripple.

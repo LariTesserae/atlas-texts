@@ -1,0 +1,53 @@
+**I. The Thermal Paradox: Dressing for a Sauna at the Top of the World**
+
+Before you step through the threshold, you must understand the cruelty of this place: it is a tropical hell compressed into high-altitude thin air, where the usual rules of elevation fail. The geothermal pulse beneath the crust has pushed the heat of the equator upward, creating a **2.9 hot** environment that sits atop mountains sharp enough to pierce cloud. Here, altitude does not mean cold; it means *intense*, UV-saturated, water-thick air that clings to your skin like a second membrane.
+
+Do not pack cotton. Cotton is a death sentence in the Humidarium. In 100% humidity, your sweat cannot evaporate; it simply pools, and your body cannot shed heat. You will cook from the inside while standing in a steaming pool. Instead, wear a **closed-loop cooling garment**—a suit with internal tubing that circulates chilled water or phase-change gel against your torso. If such technology is unavailable, layer **hydrophobic synthetics** (polypropylene or treated nylon) that wick moisture away from your skin into an outer shell where it can drip off without cooling you, then manage your core temperature with ice packs strapped to your major arteries: neck, groin, armpits. You are not dressing for the weather; you are dressing for the failure of thermodynamics.
+
+Cover every inch of skin. The light here is deceptive—soft, honey-colored, diffused through vapor—but it is **UV-heavy**, the kind of radiation that cooks DNA. Wear a loose, white, reflective outer layer—think a desert keffiyeh combined with a beekeeper’s veil—that shields you from the burn while allowing the condensation to sheet off you. Your eyes need goggles that seal against the mist but vent against fogging; the air is so saturated that any temperature differential will blind you with condensation within minutes.
+
+**II. Walking on a Newborn World: The Obsidian and the Weeping**
+
+The floor is not earth. It is **obsidian**, volcanic glass cooled only centuries ago, still sharp enough to catch light like a knife-edge. It has not surrendered its edges to time. You cannot wear ordinary boots. You need **cut-resistant footwear**—vulcanized rubber soles reinforced with Kevlar or ceramic fiber, or better yet, **magnetic boots** if the obsidian contains sufficient magnetite (test this beforehand; if the glass sings to a magnet, your boots can grip the floor without spikes that might crack the crust).
+
+The ground **weeps**. It is never dry. A thin skin of mineral grit covers the glass, but it is treacherous—wet grit slides over smooth glass like ball bearings on ice. You will need traction: micro-spikes or cleats that bite into the grit without piercing through to the glass beneath. If you puncture the obsidian, you may release the geothermal pressure in a localized steam explosion, or worse, alert the **glass newts** to a disturbance in their thermal vents.
+
+Move slowly. The basin is only the width of a cathedral nave, but the **density 1.1**—this low saturation of features—means the empty black glass stretches between the six giant ferns like a void made visible. There is nowhere to hide, yet the silence is so complete it feels like a physical weight. Test each step; the channels etched into the floor (topography left by the builders) may be slippery with condensation or may contain residual "liquid light" residue—empty grooves now, but still conductive. Do not touch the walls. They are unweathered, sheer, and rise into cloud and mystery. They are not climbable, and they are not meant to be touched.
+
+**III. The Resonance and the Breathing: Timing Your Existence**
+
+The Humidarium **breathes**. Every twenty-three minutes, the geothermal vents release a pulse of superheated steam. The mist thickens to a fog so dense you cannot see the walls—only the glowing spires and the bioluminescent edges of the ferns. This is not weather; it is a **cycle**. You must learn it.
+
+Wear a **chronometer** that vibrates against your wrist. When the air begins to thicken, when the subsonic hum in your sternum rises to a pitch that makes your teeth ache pleasantly, you have minutes before visibility drops to zero. Tie a **guide rope** to a fixed point—perhaps one of the resonance spires, though be careful: they rotate, millimeters per hour, and their fractal surfaces may shift beneath your grip. Better to anchor to the etched channels in the floor, following the topography of the builders.
+
+During the pulse, the spires **sing**. The rain falls **upward**, evaporating before it hits the ground. Do not stand beneath the ferns during this time. You can watch them grow, cell by cell, a slow green explosion of unfurling fronds. A frond twenty meters wide can crush a human in seconds if it decides to unfurl in your direction. The ferns grow toward the spires in Fibonacci arcs, listening to the hum. Give them space. Treat them as you would a growing redwood—with reverence and distance.
+
+**IV. The Gravity of Harmonics: Negotiating the Spires**
+
+Near the three **resonance spires**, gravity becomes **negotiable**. You will feel it as you cross harmonic nodes: your steps become lighter, then heavier, depending on which standing wave of mist you intersect. This is not merely disorienting; it is dangerous. A sudden increase in gravity could drop you to your knees, crushing your lungs against the obsidian. A sudden decrease could send you floating upward into the glass walls or the steaming pools.
+
+**Move in a zigzag**, testing your weight with each step. Carry a **weighted harness**—not heavy, but enough to anchor you if gravity fluctuates downward. Conversely, carry a **tether**—a thin, heat-resistant line—that you can clip to the spires if gravity fails entirely. The spires are warm to the touch, 40 degrees, radiating the heat they harvest. They are condensation engines, grown crystal that aligns water molecules at the nanoscale. Stand near them, but do not lean. Prolonged contact will cook your skin slowly, and the silica lattice may interact with the water in your body in ways current physics only glimpses. If you carry metal, expect it to hum, to vibrate, to resonate. Leave jewelry at home; it will become a tuning fork against your skin, amplifying the subsonic thrum until your bones ache.
+
+**V. The Fauna and the Flora: A Young Ecosystem**
+
+The ecosystem here is **too young**, still assembling itself. There are no birds, no insects—yet. You might wait an hour and see nothing. Then, a **glass newt** will emerge from a steam vent: translucent, the size of a forearm, organs suspended in a clear body, moving slowly as if the viscosity of the air has increased. Do not step on it. Do not try to catch it. It is a harbinger, a pioneer species, and it may be fragile in ways you cannot see. Its mucus film may be toxic, or it may be the only thing keeping the glass clean of mineral buildup. Observe, photograph if you must, but do not interfere.
+
+The ferns have **amber sap** pulsing through their capillaries. Do not touch it. It is likely a thermal transfer fluid, possibly hallucinogenic, possibly corrosive. The fronds are condensation collectors, beaded with water they drink through microscopic pores. If you need water, you might catch condensation from the leaves—but the water is likely rich in minerals leached from the glass and the spires. Bring a **filter and purification tablets**. The shallow, steaming mirrors on the floor reflect nothing; they are too disturbed by vapor. They are not safe to drink from without treatment.
+
+**VI. The Mind in the Mist: Psychological Preparation**
+
+This is a place of **boundaries** and **scale 0.8**—a room-sized world that feels infinite because the walls extend upward into mystery. The mountains above are still rising, still being born (**erosion 1.4**). Below, the heat waits. The spires continue their ancient work, condensing the sky into drinkable water, terraforming the glass into soil, one droplet at a time, in a cycle that has **no beginning and no end**, only the endless, patient, humid **now**.
+
+You will feel this. Time moves differently here. The 23-minute cycle becomes a heartbeat, and you may lose track of hours. Bring an **anchor**—a physical object from your home universe that exists outside this cycle. A pocket watch that ticks audibly. A photograph. Something that proves linear time exists elsewhere. The mist moves in standing waves, geometric spirals that orbit the spires. Do not stare at them too long; the patterns are hypnotic, and the Fibonacci growth of the ferns can induce a trance-like state. You may find yourself wanting to lie down on the warm glass, to let the humidity seep into your bones, to become part of the condensation cycle.
+
+Resist this. The Humidarium is patient. It will wait for you to become soil. Maintain a schedule. Eat on schedule, even if you have no appetite (the heat and humidity will suppress your hunger, but your body needs fuel). Sleep in shifts if you are alone. The silence is made visible—**density 1.1**—and it can unmake a mind that is not prepared for such negative space.
+
+**VII. The Exit Strategy**
+
+When you are ready to leave—or if you must flee—remember that the walls rise into cloud, but they are not exits. The obsidian is unweathered, sharp, and sheer. You must find the threshold you entered, or the specific channel the builders left for departure. The floor is etched with faint, partial marks: channels that direct condensation, grooves that once held cables of liquid light. Do not follow these blindly; they may lead to the thermal vents, or deeper into the mountain's rising heart.
+
+The glass newts may guide you, or they may flee from you. Watch their paths. They know the thermal currents.
+
+Leave no trace, but take nothing. Do not take a sample of the amber sap. Do not chip a piece of the obsidian. Do not take a glass newt. This place is still assembling itself, and you are a foreign element. The spires may try to condense *you*—to pull the water from your body and add it to their cycle. When you step through the exit, check your weight. If you are lighter, if you feel hollowed out, you have left part of yourself in the patient, humid now.
+
+Breathe deep when you emerge. Let the dry air of the outside world shock your lungs. And do not look back. The Humidarium does not say goodbye. It simply continues breathing, waiting for the next traveler to step onto its weeping, glass floor.

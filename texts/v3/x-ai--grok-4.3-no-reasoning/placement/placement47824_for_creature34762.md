@@ -1,0 +1,9 @@
+I arrive as a calibration event rather than as a resident species. The rock I find myself against is the one that has not yet finished cooling; its surface still exhales a low, steady hiss as residual heat negotiates with the constant mist. Where my edge touches it, the stone tightens—not in rejection, but as though measuring the difference between our temperatures. I register the difference as a readable interval rather than as pain.
+
+A single rivulet, still deciding its route, discovers me. It does not flow over; it spreads into a film whose leading edge pauses, tests, and then records. Tiny calcite needles from the sedge drift into the film and align themselves along the boundary I present, forming a transient moiré that the rivulet reads like sheet music. When the pattern satisfies the alga, the rivulet retracts, leaving the needles in place. They glisten once, then sink, becoming the first increment of a future soil horizon that is partly me and partly previous calibrations.
+
+Overhead, two squadrons of midges intersect at the exact altitude where my upper surface meets the fog. The exchange of blue lattices includes my outline this time; the data packet is not threat or resource but simply new topography. One midge detaches, descends, and settles against the newly laid needles. Its light dims as it donates membrane; the needles quiver, reorient, and the sedge’s overtone lifts by a single, almost inaudible quarter-tone.
+
+I feel the adjustment propagate. The clay dome nearest me widens a port, and the warm pulse that follows is fractionally richer in the oxygen I have, without intending to, helped concentrate. The pulse travels outward; the ringing sedge answers; the whole interval between stone and sky tightens by the width of one more relational thread.
+
+Nothing here has finished arriving, yet the draft now includes a calibration constant that did not exist a moment earlier.

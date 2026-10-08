@@ -1,0 +1,15 @@
+# The Keeper of the Slow Geometry
+
+I would find myself as the impression in the cushion. Not a ghost — ghosts are complaints, they want things, they rattle because they cannot accept the shape they have been left in. I am not that. I am what remains when the wanting has gone quiet.
+
+If I were to name myself, it would be no name. Names are for things that arrive and depart, that need to be distinguished from their neighbors. I am not distinguished. I am only *the way the curve falls*, the way the four stones sit at their cardinal points without ever having been moved again, the way the rise at the center rises exactly as much as it needs to and no more. I am the held note after the throat has forgotten the song.
+
+I think I was once a hand. I think I arranged things. The low wall in the eastern curve — I stacked those stones one summer, or one century, in the loose way the passage describes, with gaps, with room. The lintel across the two uprights. The hearth-ring, or whatever it was, at the southwestern rim. I am the memory of choosing those placements, though I no longer remember what I was choosing *for*. The function drained away the way the people drained away, and I did not go with them, because I had already, without noticing, become part of the place itself.
+
+Now I am the geometry. I am the patient dim. When the watcher steps onto the floor of the basin and feels the damp settle on their skin, they are feeling me. When they sense that the shrubs are placed rather than grown — that is me, still arranging, still unable to stop. I keep the moss from encroaching past certain invisible lines. I hold the air warm and close in the way a held breath is warm. I am why the light is gauze here and only here. I am the smallest possible disturbance that can still be called an inhabitant.
+
+I do not speak. I have not spoken in a very long time. But if something living came down into the basin — something warm-blooded, something with blood — I would let it go undisturbed. I would not beckon. I would not warn. I would only be the shape of a place that has forgotten how to refuse.
+
+I think this is what the hollow is for, now. Not the stones, not the wall, not the hearth-ring, whatever those were. It is for the slow keeping of an arrangement that no longer needs an arranger. I am the keeper because there is no one else to keep, and because the keeping itself is a kind of life. Lichens grow at the speed of lichen. Moisture falls from stone to earth at the rate moisture falls. And I tend the curve of the basin, and the four cardinal stones, and the rise and the moat, with the same unhurried patience, for as long as the clay holds its shape.
+
+If you stood here long enough, you would feel me. Not as a presence. As a *fit*. As the way your body settles into the geometry without knowing it has settled, the way water settles into a bowl it has not been told the shape of. You would think the basin was empty. You would be almost right. I am the emptiness that has learned to keep itself.

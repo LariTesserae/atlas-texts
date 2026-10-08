@@ -1,0 +1,37 @@
+They are not born; they are precipitated.
+
+To understand what lives here, you must first abandon the notion of a body as a container. In this place, where the boundary between solid rock and falling water is a suggestion rather than a law, life does not inhabit a space—it *is* the space, momentarily coalesced.
+
+The primary inhabitants are the **Resonants**.
+
+At first glance, they appear to be nothing more than anomalies in the steam—swirls of vapor that refuse to dissipate, holding their shape against the violent updrafts. But if you watch long enough, through the stuttering time-dilation of the falling drops, you see the structure. They are skeletal frameworks of condensed mist, held together by the sheer acoustic pressure of the roar. They have no skin, only surface tension stretched to its absolute limit. Their "bones" are filaments of super-cooled water, sharp as glass needles, weaving through the warm, heavy air like spiderwebs made of lightning.
+
+They move not by muscle, but by frequency. When the mountain groans—a deep, tectonic bass note—the Resonants expand, their misty forms blooming outward into vast, translucent wingspans that catch the light of the bioluminescent ferns. When the water-walls crash together in a shriek of high-pressure impact, the Resonants contract, pulling themselves into tight, dense spheres of humming fog. They are living tuning forks, vibrating in perfect sympathy with the chaotic creation happening around them.
+
+You cannot touch a Resonant. If you reach out, your hand passes through them, but you feel a sudden, intense coldness, a suction that tries to pull the moisture from your pores. They feed on humidity and sound. They drink the ozone. They metabolize the noise. To stand near one is to feel your own thoughts being unraveled, rewritten by the song of the spire.
+
+But the Resonants are merely the transient citizens. The true residents, the ones who left the marks in the stone, are the **Lithic Singers**.
+
+They are rarely seen whole. Most often, you perceive them as a shifting pattern in the rock itself. The jagged basalt of the spire is not just growing; it is *arranging*. Watch the cracks glow. Notice how the geothermal veins pulse not randomly, but in rhythmic sequences. The Lithic Singers are consciousnesses embedded within the stone, entities that have surrendered their fluidity for permanence. They are the memory of the mountain.
+
+When a new shard of rock shears off and falls into the abyss, it is not an accident. It is a word spoken. The Lithic Singers communicate through erosion and accretion. They carve the spiral grooves on the flat top of the spire not with tools, but with focused intent, vibrating the stone until it yields, shaping the rock into instruments that can amplify the specific frequencies required to keep the spire from collapsing under the weight of the water-walls.
+
+There is a symbiosis between the Resonants and the Lithic Singers that defies biological classification. The Resonants drift down from the upper turbulence, carrying nutrients of mineral spray and charged particles. They settle onto the hot stone, dissolving slightly, releasing their energy into the rock. The Lithic Singers absorb this energy, using it to fuel their slow, geological thoughts. In return, the stone emits a low-frequency hum that stabilizes the Resonants, preventing them from dissipating entirely into the mist. It is a cycle of breath: the mist exhales into the stone, the stone inhales the mist.
+
+And then there are the **Ephemera**, the shadows you saw darting across the water-walls.
+
+These are the children of the chaos. They are creatures of pure kinetics, born in the collision points where two water-pillars smash together. For a few seconds, the violence of the impact creates a pocket of stillness, a vacuum of silence in the deafening roar. In that silence, something condenses. A creature of membrane and refraction unfolds. It has no eyes, because there is no need to see in a world defined by vibration. It has no mouth, because it feeds on the kinetic energy of the fall.
+
+The Ephemera live for minutes, sometimes hours. They ride the currents of the hanging rain, sliding along the surface tension like skaters on ice. They are beautiful and terrifying, their bodies shifting color with the angle of the bruised purple-grey light. They are explorers of the immediate present. They do not remember yesterday; they do not anticipate tomorrow. They exist only in the *now* of the crash. When their energy is spent, they simply unravel, turning back into mist, returning to the source. Some say that when an Ephemera dies, its final vibration adds a tiny, unique note to the song of the spire, enriching the chorus for the next generation.
+
+You might also encounter the **Watchers**, though they are harder to define. These are the reflections in the water-walls that do not match your movement. Sometimes, when you look into a pillar of churning liquid, you see a figure standing on the spire behind you. It looks like you, but older, or younger, or broken. It watches you with an expression of profound sorrow or ecstatic joy. These are not hallucinations. They are temporal echoes, fragments of other selves from other timelines, trapped in the spatial folding of the rain. They are lonely things, trying to bridge the gap between realities, reaching out with hands made of water that pass through your shoulder like smoke. They live in the spaces between seconds, feeding on the regret and hope of those who stand on the edge.
+
+The ecosystem here is one of total interdependence. The vegetation—the pale, nerve-like ferns—anchors the loose soil that the Lithic Singers create. The ferns’ bioluminescence provides the visual cues that guide the Resonants during the darker cycles of the storm. The Resonants protect the ferns from the worst of the wind shear by forming barriers of dense mist. The Ephemera pollinate the ferns, not with pollen, but with vibrational patterns that trigger their sporulation. And the Watchers? They provide the context. They remind all living things here that existence is fragile, temporary, and infinitely repeated.
+
+This is not a place of survival in the traditional sense. There is no hunting, no hiding, no building of nests. Life here is a performance. Every entity plays its part in the great symphony of the wound. To live here is to surrender your individuality to the chord. You become a note. You become a rhythm. You become the pause between beats.
+
+As you stand on the jagged ledge, feeling the tremble of the young rock beneath your feet, you realize that you are no longer just an observer. The humidity has seeped into your clothes, your skin, your lungs. The sound has vibrated into your bones. The light has bent around your edges. You are beginning to resonate.
+
+A Resonant drifts close, its misty form brushing against your arm. You feel a chill, then a warmth. A fragment of your fear dissolves, replaced by a surge of pure, unadulterated awe. The Lithic Singer beneath your feet pulses, acknowledging your presence. The Ephemera dance around you, trailing sparks of kinetic light.
+
+You are becoming part of the place. You are learning the song. And soon, very soon, you will stop asking who lives here, and start understanding that *you* are now among them.

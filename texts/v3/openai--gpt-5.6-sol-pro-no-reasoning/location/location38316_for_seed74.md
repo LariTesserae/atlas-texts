@@ -1,0 +1,41 @@
+The town occupies a shallow basin no wider than a large public square, though it contains streets, factories, reservoirs, and districts in miniature. It lies low beneath long, cool skies. From the surrounding plain it resembles a dark green depression, nearly level with the sedges: a place that has sunk under the weight of its own vegetation.
+
+There is no bare ground.
+
+The streets are braided roots, worn smooth and gray by generations of traffic. Their surfaces flex slightly underfoot, and pale sap beads along old cracks after rain. Walls rise from pleached trunks planted close together, their branches grafted into lintels, galleries, chimneys, and vaulted roofs. Most buildings are not constructed so much as persuaded. The oldest have broadened almost beyond recognition: warehouses swollen into groves, houses reduced to doorways in enormous boles, whole terraces joined by woody tissue into one continuous organism.
+
+Yet the town feels sparse. Buildings stand apart, separated by deliberate courts of moss and low fern. Empty lanes pass between them. There are no dense crowds, no ornamental thickets, no exuberant canopy overhead. Plant life fills every surface, but it has been disciplined into planes, conduits, cavities, and load-bearing members. Vegetation is total without being lush. It is the substrate from which emptiness has been carved.
+
+The basin was once cut by a small river. Long erosion rounded its edges and left shallow channels wandering through clay beneath the living streets. The river itself now appears only intermittently. After prolonged rain it rises through grates of woven willow and runs in open gutters, cold and tea-brown, carrying scales of bark and yellow pollen. During drier weeks it withdraws underground. Moisture remains in cistern knots, root hollows, and condensation chambers. At dawn, every pipe and railing is furred with droplets. By noon most of them are gone.
+
+Rain here is rarely dramatic. It comes as a fine, slanting fall that darkens bark and wakes the machinery.
+
+The industrial quarter begins moving almost soundlessly when wet. Water turns broad, slow wheels made from concentric vine rings. Pistons travel inside lubricated bamboo sleeves. Belts of braided fiber creep between buildings, carrying seed, charcoal, pulp, and compressed cakes of resin. Electricity is generated in low sheds where metal plates are embedded among acidic roots. The current is weak but steady after rain. It lights glass bulbs with amber filaments and powers the municipal relays: ranks of clicking, leaf-insulated switches housed in a long hall of black trunks.
+
+Nothing gleams for long. Iron is rusted to velvet. Copper roofs have become green enough to disappear into the town’s living fabric. Brick survives only in a few furnace foundations, softened at the corners, split by patient roots, and buried under liverwort. The settlement’s machines are old, repaired continually, and so completely incorporated into growth that it is difficult to say where mechanism ends. Flywheels carry rings like tree trunks. Valves bud each spring. Some pressure gauges have roots behind their faces and register the swelling of the soil as readily as steam.
+
+The largest structure is the pulp house, a low cathedral of arching trunks at the center of the basin. Its roof consists of leaves arranged in overlapping layers, each as broad as a table. Rain runs from one to another and descends through hollow columns to underground vats. Inside, mechanical hammers rise and fall very slowly, reducing pruned wood and fallen foliage to fiber. The sound is subdued: one padded impact every few seconds, followed by the whisper of slurry through wooden channels.
+
+The town produces paper, insulation, resin, lamp oil, cordage, and thin panels of compressed pith. It appears active not because it is loud, but because nearly everything is in gradual motion. Walls thicken. Roots lift paving ridges and are cut back. Gutters contract when dry and open when damp. Leaves tilt to distribute light into the workshops. The streets tighten overnight, altering their curves by a hand’s breadth. Municipal crews mark these changes with chalk and redirect carts accordingly.
+
+There are few animals. A small gray moth lives in the warm housings of electric motors, where its larvae feed on fungus growing over wire insulation. Threadlike worms inhabit the cisterns. On rare mornings, a single marsh bird walks in from the plain, placing its feet carefully on the springing roads. Its arrival may be noted for weeks afterward: a feather pinned to a notice board, a three-toed print preserved beneath glass. There are no rats and almost no insects in the open. Pollination is performed by machinery. In the flowering season, fan carts move down the lanes blowing pale dust into receptive crowns.
+
+The scarcity of fauna lends the vegetation an uncanny independence. Leaves turn toward footsteps though no breeze is present. Doors swell shut against unfamiliar hands. The grafted houses recognize their keepers by pressure, warmth, or chemistry and open seams in their bark to admit them. Abandoned buildings do not decay in the ordinary way. They heal. Windows seal over, stairs merge into solid grain, and empty rooms slowly fill with pale, folded wood. Within a decade, an unused factory may become a smooth hill with only its chimney breathing above the moss.
+
+The inhabitants therefore maintain absence as carefully as growth. Every courtyard must be walked each day or it will begin to close. Every road must carry weight. Empty rooms are struck with padded mallets to assure the building that they remain occupied. At dusk, workers make circuits through the quiet districts, touching doorposts and sounding copper chimes against the trunks. These are not alarms. They are declarations of continued use.
+
+The town’s principal law is simple: nothing may be left still without being named.
+
+Objects bearing names are pruned, repaired, and allowed to persist. Unnamed things are reclaimed. A dropped tool may be found the next morning bound to the street by fine roots. A disused cart becomes a trellis within a month. A forgotten alley narrows first to a passage, then to a green crease, and finally disappears. Old maps are consequently less records than petitions. Surveyors walk continuously, fixing enamel plaques to corners before those corners soften and migrate.
+
+Despite all this activity, quiet dominates. The machinery is driven slowly to avoid bruising its housings. Vehicles use broad wooden wheels and travel at walking pace. Voices are absorbed by moss, foliage, and porous walls. One hears individual sounds at great distances: a valve closing; rain ticking into a copper basin; the scrape of a pruning knife; the restrained knock of the pulp hammers; the dry murmur of belts beginning to turn.
+
+The air smells of wet rope, tannin, cold metal, and crushed stems. In the condensation houses, it tastes faintly mineral. The temperature remains cool throughout the year, moderated by the basin and by the immense mass of living tissue. Frost sometimes whitens the upper roofs, but the root streets stay warm enough to steam. Summer is merely a lighter green.
+
+Beyond the final workshop, the town ends abruptly. The woven roads unbraid into separate roots and enter the soil. Buildings diminish into pollarded trees. A rusted pipe extends several yards into the sedge and stops above a shallow pool, dripping only after rain. From there, looking back, the settlement seems neither city nor forest. It is a compact arrangement of old agreements: between growth and clearance, moisture and machinery, use and reclamation.
+
+Nothing is new, though everything is changing.
+
+On damp evenings the lights come on one by one beneath the leaves. Amber current travels through sap-wet cables. The mills resume their slow circulation. Water hidden for days rises into the gutters and makes the root streets shine. Somewhere under the central square, valves respond, cisterns fill, and buried channels revise their routes through the ancient clay.
+
+Then the whole small town appears to inhale.

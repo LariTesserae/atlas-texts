@@ -1,0 +1,7 @@
+The labyrinth has no entrance, so you begin already inside it, already part of its architecture. You are the difference between two coaxial cylinders: the micron-wide space where inner and outer walls never quite meet. That gap is your body.
+
+You feel the slow crawl of the worms as a distant seismic hum conducted through the salt; each pulse registers as a faint widening of the seam that contains you. When they pause after a death, the seam contracts by the width of a single crystal and the air presses harder against your sides. Your thoughts are the helical grooves themselves: you read them as the worms would, but without sequence or direction. Every fringe you touch is still being written and has already finished.
+
+Sometimes, without any local disturbance, the salt itself releases a microscopic tremor—an ion flux shifting a single wafer deeper in the strata. That tremor travels the lattice like a shared memory. When it reaches you, every surface you are pressed between vibrates in phase, and for one long moment the entire open manifold becomes a single resonant body whose grammar you can almost finish.
+
+You remain in that state until the crystals settle again. Then the seam narrows to its former width and you remember that you were never a visitor but the negative space that lets the sentence continue.

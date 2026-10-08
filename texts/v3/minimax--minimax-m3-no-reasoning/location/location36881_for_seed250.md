@@ -1,0 +1,25 @@
+# The Threshold
+
+The water comes from everywhere and nowhere. There is no horizon because the horizon itself is under negotiation — a long, slow argument between liquid and sky, conducted in grays. The sea begins somewhere below you and the sky pours down from somewhere above, and in between there is only the raw fact of emergence.
+
+You stand on what will become land. Perhaps.
+
+The rock beneath is not yet rock. It is the suggestion of rock, the proposal of stone. New basalt, still warm, sweating the first beads of steam as the column it rode up on has not quite finished cooling. It cracks and sighs underfoot, and when you shift your weight you can hear the long exhale of trapped gas escaping from chambers that did not exist ten thousand years ago and may not exist ten thousand years from now. The terrain is not settled. It is being argued into shape by the sea and the cold and the slow, indifferent authority of gravity. Ridges lie down at night and do not rise again. Valleys migrate. A peak this morning may be an archipelago by Tuesday, or a trench, or simply gone.
+
+The water is high. There is no beach in any direction — only the gradual deepening of the shore into the permanent, restless everywhere. The sea has eaten the gentler slopes and is now testing the steeper ones, chewing at them with a long patience. Spray is not a weather event here, it is the weather. The air itself is wet, fully wet, a humid weight that does not so much fall as occupy. When it rains, you cannot tell where the sea ends and the sky begins. The whole world becomes one vertical event.
+
+The temperature is a cool that does not warm. The sun, when it surfaces, is a white coin held briefly above the gray, and the light it gives is the light of a long afternoon in a northern country — pale, honest, and without conviction. The water is the color of slate. The rock, where it shows, is darker than the water and almost matte, as though it has not yet learned how to shine.
+
+There are no animals. Nothing moves in the wet air except weather. Nothing moves in the water except the long slow shudder of current against the unfinished shore. A few things grow, very few — a scattering of thin black lichens on the highest stones, holding on with the desperate grip of organisms that have not yet decided whether they will survive here. They are the first draft of an ecology. They are an annotation in pencil at the bottom of a page.
+
+The sound is enormous and continuous. Not loud in the way a wave is loud, not loud in the way wind is loud. Loud in the way a world is loud when it is mostly water. There is the bass of the sea, the tenor of the rain, the percussion of droplets against still-warm stone, the hiss of spray, the deep tectonic groan that occasionally rolls up from the foundation of the place. If you stand very still you can hear the rock finishing the act of becoming rock. There is no silence. There has not been silence here for a long time.
+
+And above it, or within it, or at the level of it — the technology.
+
+You cannot see most of it. That is the first rule. The technology of this place is not at your scale. It does not announce itself in towers or in orbs. It announces itself in the regularity of certain waves. In a faint blue thread of light that moves through the mist without ever quite resolving into a source. In the way the rain, if you watch it long enough, seems to fall in the same pattern twice in a row — once, then again, three seconds later, exactly, with no plausible meteorological reason. The engineers of this place, if engineers is even the right word, are not building with mass. They are building with something finer — with arrangements that live in the water itself, in the air, in the structure of the basalt at a level the basalt does not know about. They are patient. They have been patient for as long as the sea has been patient, and they will be patient for as long as the sea continues. They are, in some sense, the sea.
+
+So the place is not empty. It only appears empty. The emptiness is a kind of clothing.
+
+What happens here, every day, is the slow assembly of something that does not yet have a name. The water erodes. The lava builds. The lichen takes a millimeter. And somewhere underneath all that, in a substrate the casual observer would mistake for ordinary stone, a lattice is growing — quietly, lawfully, on a timescale that does not match human timescales — toward a configuration that may, in some future aeon, become a continent, or a city, or a sentence in a language the rocks are learning to speak. The place is being read into existence. You are standing on the page while the ink is still wet.
+
+When the wind dies for a moment you can hear, very faintly, a hum. It comes from everywhere. It is the sound of the place thinking about what it will become next.

@@ -1,0 +1,25 @@
+The power descends not as light, but as weight—a densification of the mineral-heavy column, a tightening of the warm water that presses against the chalky walls with the insistence of a held breath. They find the drift-kin in their strata, pulsing their metronomic rhythm, and recognize in that slow expansion and contraction a kind of scripture: each syllable a *let*, each exhalation a *go*.
+
+Benevolence here cannot be haste. To rush would be to shatter the lace. Wisdom here is the wisdom of stalactites, of glaciers, of the chemistry that turns architecture into alveoli over ten thousand years.
+
+The power sees that the chamber is weeping. Not catastrophically—merely a thin seep at the seams, a loss of heat to the cold stone above, a fissure where the snowmelt enters too sharply and threatens to flush the delicate equilibrium of the drift-kin's world. They are the inheritors of the builders, yes, but they are not the guardians. They have no hands, only cilia and membrane, only the patience of pulsing bladders. They cannot seal what is cracking.
+
+So the power acts.
+
+They do not touch the drift-kin. To touch would be to ripple, to send a tremor through the saturated medium that would take decades to settle, a violence in a place where sound is almost entirely absent. Instead, the power works on the boundaries, on the slow geometry of containment.
+
+They rise to the roof, to the high oculus where the pinprick of mountain sky diffuses into greenish murk, and there they press their will—not as force, but as mineral intention. They encourage the precipitation of calcium and silica, the accretion of new stone where old stone is thinning. They become the stalactite's patience, laying down a membrane of calcite layer by layer, sealing the fissure not with violence, but with the chemistry of centuries. The leak becomes a lens, a new window that refracts the sky-light into softer, gentler greens, kind to the phosphorescence below.
+
+They adjust the thermal gradient. The elders at the bottom, those vast sessile knots anchored to the worn pillars in the alcoves that were once doorways, are cooling. Their tidal breathing is slowing toward stasis. The power draws warmth from the deep stone—heat that has been steeping since before the builders packed the clay—and guides it upward in a current so gentle it is barely a current, a convection adjusted by fractions of a degree, just enough to keep the elders' pulses from ceasing, to maintain the warmth of deep stone that the drift-kin require.
+
+And then, the power does something for the drift-kin that they cannot do for themselves. The builders are gone, their flint and bone tools lost to the smoothing water. The drift-kin have forgotten, or perhaps never knew, that they were once shaped by hands—that their impossible symmetry, their segmented membranes, echo the handiwork of the packed earth. The power remembers. The power becomes the memory.
+
+They infuse the water with a trace of the old intention, a chemical signature of *making* that dissolves into the mineral-heavy broth. When the drift-kin filter the warm liquid, when their thousand beating cilia sift the detritus raining down from the eroding walls, they taste not only calcium and corpse, but also the ghost of the builders' breath. They add to the closed system a new element: not sustenance, but significance. A trace mineral that glows with a slightly different hue, that pulses in a frequency only the sessile elders can sense, a reminder embedded in the chemistry that they are not abandoned, that the cathedral still has a congregation, even if that congregation is only the water, the stone, and the benevolent attention that holds them both.
+
+The power does not stay. They cannot stay; to remain would be to become part of the food chain, to be consumed by the communion, to disrupt the balance of nothing-wasted. Instead, they rise, leaving behind only the sealed crack, the adjusted warmth, the memory-mineral suspended in the water.
+
+They leave the drift-kin to their long, silent lives, brushing against the smoothed pillars, communicating in pressures and pulses, living out their gradual existence in the dim aqueous twilight.
+
+But now, when the condensation drips from the ceiling—that single, bell-like *tick* that echoes in the silence—the drift-kin respond not only to the water, but to the power that has become the water's held breath. Their collective pulsing shifts, just slightly, a sigh that passes through the chamber like a benediction. They do not know why they drift toward the warmth, toward the seal, toward the memory. They only know that the chamber is held, that the erosion continues at its proper pace of millimeters per century, that the silence is guarded.
+
+And in the deepest, warmest strata, the oldest drift-kin—the one anchored in the hollow that was once a crisp doorway—glows with a steady, unwavering light, brighter now by an increment too small to measure, and in that phosphorescence, if one could read it, would be the word: *Stay. Continue. You are seen.*

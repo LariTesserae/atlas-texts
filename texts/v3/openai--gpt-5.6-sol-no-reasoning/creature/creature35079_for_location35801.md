@@ -1,0 +1,69 @@
+The people of the Potters’ Undercourt are compact in their habits before they are compact in body. They turn sideways without thinking, duck beneath baskets in mid-conversation, and sleep with elbows tucked close. Even small children learn the court’s dimensions as an instinct: which arch permits a rider on another child’s shoulders, which passage requires a held breath, which stair has room for only the front half of a foot. They do not walk through their home so much as fit themselves into its moving gaps.
+
+Generations of such fitting have marked them. Their palms are broad and roughened by clay, rope, lime, and brick dust. Their shoulders carry pale scars from hot oven mouths and low lintels. Many have knees permanently darkened by crawling through service spaces. Older inhabitants often stoop, though not always from age; an upright posture is useful in only a few chambers, and can seem almost boastful below. They wear their hair bound tightly or cut short, because loose hair catches flame, pulleys, wet plaster, and the fingers of infants. Their clothes are wrapped and belted rather than trailing, patched until the patches form the garment’s greater part.
+
+They distinguish one another partly by occupation, but more by traces. Potter families go red at the wrists and beneath the nails. Limeworkers seem perpetually dusted with flour. Cistern keepers smell of wet mineral and lamp smoke, and have cracked skin from reaching into cold water. Pen-tenders carry the sharp warmth of animals. Those who tend the fig tree have green stains on their fingertips from crushing pests and pinching away diseased leaves.
+
+Nearly everyone does several kinds of work. A baker may also keep quail, inspect an air shaft, and mend water jars. A child turning a runoff wheel may be reciting drain routes to prepare for adulthood. A respected mason may spend mornings collecting dung for fuel. Special skill matters, but no craft is permitted to become so proud that it forgets the court around it. A potter who blocks a breathway with drying vessels will have them removed, however beautiful they are.
+
+Their households are difficult for outsiders to understand because walls do not define them. A family may sleep in three shelves on opposite sides of an alley, cook beside a cousin’s kiln, store grain beneath an unrelated widow’s stair, and keep its goats in a warm pocket technically belonging to the cistern guild. Kinship follows repeated acts of catching: who held whom as a child, who took in a family after a ceiling shed bricks, who kept a lamp lit during fever, who lowered a rope when floodwater rose.
+
+Children belong first to these nets of obligation and only second to particular rooms.
+
+They are rarely quiet. They call to each other through grilles and drains, play at identifying neighbors by footfall, and race chips of fired clay down gutters after rain. Their games imitate serious duties. They build miniature vaults and overload them until they fail, then argue over where the braces should have gone. They hide beads in trickling channels and recover them with tiny sieves. One child drops an object from a walkway while the others try to catch it in aprons, baskets, or joined hands. Missing the object is shameful only if no one warned those below.
+
+A child’s first important possession is often a catch-cup: a small, thick-walled vessel tied to the belt by cord. It may hold runoff, spilled grain, beetles for the quail, useful nails, figs, or a frog carried briefly and then returned to a drain. Their first memorized lesson is not an alphabet but a litany of falling things:
+
+Water seeks the low place.  
+Smoke seeks the breathway.  
+Fire seeks the dry edge.  
+A frightened beast seeks the narrow place.  
+A falling person seeks a voice.
+
+They are taught to shout before they drop even a scrap.
+
+The Undercourt’s elders are repositories of noises. They sit near columns, cisterns, and ovens not merely for warmth or company, but to listen. An elder may interrupt a story because a rope has begun rubbing differently two rooms away. Some can tell how full a hidden jar is from the pitch of a dripping cord. Some wake when pigeons lift from a particular vault, knowing that dust, rats, smoke, or a shifting brace has disturbed them.
+
+The most trusted of these listeners are called, in ordinary speech, the Quiet Hands. The name does not indicate a formal office. A person becomes one when others begin falling silent at their raised palm. Quiet Hands inspect white powder under arches, press cheeks to walls to feel seepage, and lie full-length on tiles to hear water moving below. They carry chalk, wedges, a plumb cord, and small cups of colored slurry. None claims certainty. Their authority rests on noticing early and being willing to empty a room before proof arrives.
+
+Beside them work the Catchers, though almost every adult serves in that role during an emergency. Catchers maintain nets, aprons, railings, hooks, sand jars, flood ropes, and the baskets kept ready beneath unstable shelves. During heavy rain they station themselves at known failures: the stair that becomes a chute, the kiln passage where runoff carries embers, the cistern lip where children lean too far. They are selected less for strength than for steadiness. The ideal Catcher does not stare at the falling thing, but first checks what else will be pulled down with it.
+
+The breathways have their own keepers. These men and women wear blue handprints on their sleeves and renew the marks along ventilation corridors. They trim fern growth from shafts, remove pigeon nests from dangerous mouths, test drafts with wool fibers, and settle disputes over smoke. They are unpopular whenever they order shelves dismantled or animals moved, yet their judgment is rarely ignored. Blocking a breathway deliberately is among the few acts considered not merely selfish but profane: it treats shared air as private space.
+
+No single ruler governs the Undercourt. Decisions gather, as runoff does, toward the people most affected. Oven households settle firing times. Cistern households allot water. Pen-tenders set limits on animals. When a matter crosses several chambers, speakers meet in a columned room near the fig tree, where everyone can see whether the leaves are moving. Debate pauses if they become still. The court does not trust important decisions made in air that is not circulating.
+
+Disputes are often settled by measures of burden rather than ownership. Who must step around the obstruction? Whose ceiling bears the weight? Whose children breathe the smoke? Whose jars catch the leak? A person may possess a shelf and still be forbidden to load it. A household may inherit a room yet owe access through it to three others. The oldest contracts are remembered as routes: seven steps past the blue wall, under the rabbit cages, through the low arch, left of the warm stone. If construction alters the route, the agreement changes with it.
+
+Their wealth consists largely of capacity. A family is prosperous if it owns many sound jars, dry shelves, good ropes, kiln time, access to light, and the goodwill of neighbors beneath its floors. Iron is precious, but trustworthy support is more precious. A household with little food may still be considered rich if its cistern stays sweet and its beams are known to hold. Conversely, anyone living above several other families carries a kind of debt merely by standing there.
+
+Animals are not separate from this social order. Goats have names, temperaments, and recognized climbing habits. Pigeons are tolerated as thieves, meat, messengers of disturbed air, and living gauges of the vaults. Cats are admired but not sentimentalized. A skilled rat-catcher may be fed from multiple kitchens and sleep wherever it chooses. Dogs tend to be small, sharp-eared, and capable of backing through passages too narrow to turn around in. They learn the difference between the warning for falling masonry and the call for escaped rabbits.
+
+The pale frogs are treated differently. They are not pets and are seldom touched. When they emerge, people count their voices by drainage quarter. Children may follow them but are forbidden to block their retreats. A frog appearing far from the sump can halt work in a workshop, because it may indicate water moving behind the walls. Some say the frogs remember every wet path the Undercourt has ever had. Others say there are no individual frogs at all, only one damp chorus withdrawing into the masonry and dividing itself again when rain returns.
+
+The inhabitants keep few ceremonial spaces, because no space can remain ceremonially useless for long. Reverence attaches instead to repeated actions. Before opening a kiln, the potter taps its side and waits for an answering sound. Before entering a cistern, the cleaner knots a second rope beside the first, even if the first is new. Before sleeping, many households set an empty bowl beneath the most likely leak. These practices are practical, but practicality refined over generations has become their form of devotion.
+
+Their dead do not remain below. There is too little space, too much warmth, and too much need to protect the water. Bodies are carried to the surface by routes opened only for that purpose, sometimes requiring shelves and pens to be dismantled. Yet something of each person stays: a name scratched inside a repaired wall, hair mixed into fig compost, a favorite cup broken for drainage fill, a handprint renewed in blue along a breathway. A dead mason’s plumb weight may continue in use until no one remembers whose hand first steadied it.
+
+They have an uneasy relationship with the city overhead. Surface people are called, depending on tone, the High Walkers, the Weathered, or simply Those Above. The Undercourt knows them by soles, cart wheels, spilled rain, kitchen grease, falling coins, and decisions that arrive as changed drainage. Some residents work above, trading vessels, tiles, glaze, rabbits, lamp oil, and repair labor. Others go up rarely and find the sky excessive. They dislike having nothing overhead to judge distance by. Sunlight exposes dust they are accustomed to breathing unseen.
+
+Surface dwellers often imagine the Undercourt as a single community. Those below know it as dozens of overlapping neighborhoods: the Hot Steps, the Long Drip, Blue Palms, Quail Turn, Ash Mouth, the Bent Arcade, the Three Cisterns, the rooms called Morning because light reaches them first, and the rooms called Evening though no direct light enters them at all. Accents shift across very short distances, shaped by echoes and the need to be understood through walls.
+
+They speak loudly in open rooms and softly beside drains. A whisper into the right channel can travel farther than a shout, so children are taught which openings carry words. Courtship occurs partly through these hidden acoustics. Two people may exchange songs while working in separate chambers, knowing each other first as altered voices arriving with the smell of wet stone. Eavesdropping is common but bounded by custom: hearing is not the offense; repeating is.
+
+Their songs favor short phrases with staggered replies, because long melodies blur under the vaults. Work rhythms often begin accidentally—a pestle, a mallet, a treadle—and gather neighboring tasks into time. During firing, when certain rooms must remain quiet enough to hear cracks, songs pass elsewhere through the court and return softened through the drains.
+
+The strangest inhabitants are found around the Basin of Returns.
+
+These are not visibly different people, at least at first. They are the sievers, drain crawlers, sediment sorters, and record-keepers who descend after storms. They know the court through what it loses: buttons from one household, glaze flakes from another kiln, a child’s milk tooth, rabbit bones, gaming pieces, beads, bent pins, roof grit, bits of blue pigment. They can often identify where an object entered the water by its coating and smell.
+
+Long service at the basin alters their sense of age. They handle yesterday’s losses made ancient overnight. They stop trusting smoothness as proof of time. An old object may be sharp; a new one may return tenderly worn. Among themselves they say the basin does not age things. It removes the part that expected to last.
+
+The chief siever—usually an older person with patient fingers—keeps a tray of unclaimed returns. Nothing is thrown away until it has survived three floods without recognition. After that it may be built into a wall, ground into temper, strung as a charm, or given to a child. Some pieces are never reused: a tiny clay hand, a blackened copperless ring, a whistle that produces no audible sound but causes pigeons to shift in the rafters. These remain on a high shelf beside the basin, gathering neither dust nor explanation.
+
+There are stories of drain children who went missing for minutes and returned with their nails worn smooth, or of rats drawn from the sump white-muzzled and slow, as though very old. Such tales are told without insistence. The Undercourt has no need to make mysteries larger than they are. It already lives inside one: a wholly built earth, without soil or natural stone, which nevertheless grows, settles, drinks, breathes, sheds, and remembers.
+
+The people understand themselves in the same way. They are not trapped beneath the city, nor hidden from it, nor merely surviving in its discarded hollow. They are the court’s moving repairs. They widen what must carry more, empty what must breathe, brace what cannot yet be allowed to fall. Their bodies pass warmth, news, water, vermin, tools, songs, and obligations from chamber to chamber.
+
+Nothing may fall without being caught.
+
+And so each inhabitant lives partly as a vessel held beneath another life: receiving what spills, bearing what shifts, and passing onward whatever can still be used.

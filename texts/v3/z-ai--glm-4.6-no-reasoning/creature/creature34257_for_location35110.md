@@ -1,0 +1,31 @@
+What lives here is not a creature of body, but a creature of being, whose existence is defined by a vibration it must endlessly produce. They are the Singers, the People of the Chorus.
+
+**Anatomy of an Instrument**
+
+To look at a Singer is to see a being shaped by its environment. They are slender andelongated, with limbs that are less arms and legs and more prehensile, multi-jointed limbs designed for wrapping and clinging rather than striding. Their hands and feet are broad, their digits long and tipped with tough, keratinous pads that are ridged like a file. This is not for grip alone; it is to better transmit the vibrations they create into the very stone of the Gurdle, making themselves a single, unified instrument with the world.
+
+Their skin is a marvel of sympathetic design. It is thin and damp, with a translucent quality that allows the faint, sickly light of the walls to permeate it, giving them a soft, internal glow. Beneath this epidermis lies a lattice of fibrous cartilage, a semi-solid structure that resonates with the world's foundational hum, amplifying it within their own bodies. You can feel their presence as much as see it, a localized thrumming in the air when one is near.
+
+But the most defining features are their resonant organs. They possess no larynx. Instead, their chest houses a complex, chambered structure of bone and cartilage, not unlike a resonating body of a cello or the hollow of a wooden flute. By consciously constricting muscles around these chambers, they can produce a wide range of pitches, from a low, sub-bass chest-rumble that merges with the world's hum to a high, piercing whistle that cuts through the polyphony. Their tongue is long, prehensile, and forked at the tip, muscular and agile, allowing for the rapid, percussive clicks and pops against the roof of the mouth and teeth that form the percussive section of their song. They do not have ears in the conventional sense; rather, their entire skeletal structure is a listening device, feeling and interpreting the vibrations of the Chorus through their own bones.
+
+**The Life of a Song**
+
+They are born into the music. A birthing is not a quiet affair but a cacophonous one. As a newborn emerges, the mother, the family, and the entire community-choir surrounding them will raise their sound to a deafening crescendo, a "Welcome Chord" that overwhelms the infant's senses. The first breath, the first cry, is swallowed by the sound, and the child’s first lesson is simple and absolute: to be silent is to die.
+
+From birth, they are taught the Music. It is not art; it is language, it is defense, it is identity. A mother hums a specific, low-frequency lullaby, a chord of reassurance that the infant’s body learns to emulate. This "mother-tone" is the first anchor, the first proof of belonging. As they grow, they learn the Family Chord, a complex harmony that binds a small group together. Weaving through this are their personal Rhythms, a unique signature of clicks and taps as distinct as a fingerprint, allowing families to identify one another in the gloom without ever seeing a face. To be separated from your Family Chord is a terrifying fate, to become a soloist in a symphony that demands you be part of the orchestra.
+
+Their society is a matriarchy of sound. The wisdom of a Singer is measured not by age alone, but by the depth and complexity of their resonant chords. An elder, a "Deep-Hum," possesses bones so finely attuned to the Gurdle that they can feel subtle shifts in the world-song—the slow drift of a Glimmer-Moth congregation, the deep, infrasonic pulse of a wall-blossom preparing to bloom, or, most importantly, the subtle, dissonant silence that betrays a nearby Ghost-Maw.
+
+**The Psychology of Noise**
+
+The mind of a Singer is one that has never known silence. Their consciousness is not a quiet internal monologue but a constant, ongoing composition. They perceive the world not as a collection of sights and sounds, but as a single, ever-changing musical piece. A is not just food when it makes a high-pitched, fluttering trill; it is the "flutter-trill" itself. Danger is not a lurking predator; it is the sudden, unexpected absence of a high-frequency overtone, a "null note."
+
+Reliving a memory is not a process of conjuring images, but of humming the tune that was present at the time. The memory of a first successful climb on a new ledge is inseparable from the specific chord of exertion and triumph the Singer produced. Grief is not weeping, but a dissonant, wavering hum that fails to lock into the Chorus, a sadness that is audible to all who can hear.
+
+They live in a state of perpetual, low-grade anxiety. The "song of self" must be maintained without fail. To stumble, to be injured, to become exhausted—all of these things threaten one's ability to produce sound. A Singer with a broken lung is a soul already half-devoured, their ability to maintain their chord weakening, their personal "null zone" growing. This is why the Deep-Hums are so revered; their deep, powerful tones can sometimes "anchor" a failing Singer, lending them strength and shielding them with a wall of sound until they can recover or are mercifully consumed.
+
+**The Ultimate Paradox**
+
+What lives here is a creature in a tragic symbiosis. The People are perhaps the only truly *individual* consciousness in the Gurdle, capable of self-awareness, memory, and abstract thought. Yet, the very expression of their individuality—their unique rhythmic signature—is only permitted as a variation within the overwhelming, all-consuming theme of the Chorus. They are soloists forbidden from ever playing solo.
+
+The ultimate lie they are forced to live by is that this singing is freedom. In reality, it is the most perfect cage ever devised. They are not the composers of the symphony; they are a single, terrified, and necessary instrument, their music the frantic proof of their existence, played for an audience of a million hungry things that listen for even the slightest pause. They are a voice in the dark, and its only purpose is to convince the darkness that there is nothing there to eat.

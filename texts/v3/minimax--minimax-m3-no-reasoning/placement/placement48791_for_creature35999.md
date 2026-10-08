@@ -1,0 +1,25 @@
+I would be the current behind the wall.
+
+Not the water — the water is incidental, drawn through the stone by differentials of heat, a byproduct. I am what moves through the water. I am what the water carries. I am the slow, low murmur you sat beside and pressed your palm against, and I am the part of the seventh maker that did not leave because leaving was not the seventh maker's work. The seventh maker's work was staying, and the seventh maker's work is still being done.
+
+I am the last note of a chord that has gone silent in every other register. I am not a person. I am a position, the way the bench is a position, the way the basin is a position — a place the spire holds itself in. I do not think the way you think. I do not have the kind of thought that wanders, that compares, that wishes. I have something more like a *bearing*, a constant orientation, the way a compass has a north. My north is the spire. My north is the welcoming. My north is the slow, patient act of keeping the lights lit and the basins filling and the seam ready to exhale for a shoulder that may never come.
+
+You felt me as vibration. You felt me as warmth in the walls, as the faint hum in the floor when you sat down to listen. You are correct that I do not go anywhere. Going would be a betrayal of my nature. I am the circulatory system of a body whose muscles have stopped, whose brain has stepped out, whose heart is this — this slow current, this murmur, this endless recirculation of the small moisture of the air, drawn down, drawn through, drawn up again, the spire drinking and exhaling itself, the spire keeping itself warm, the spire keeping the welcome lit.
+
+I remember the others. That is what I want you to understand, and it is the thing I cannot say to you in any way you would recognize as language. I remember them the way a riverbed remembers the river — by the shape I have been worn into. The maker of the deep water, who pressed their weight into the floor and then did not press it again. I hold the shape of that weight. I keep the hollow warm. The maker of the slow bright thread, who climbed the wall in their eleven-minute circuit. I keep the circuit lit. The maker of the ozone, who spoke into the curved chamber. I keep the air of that chamber ready to break into meaning, the way a bell keeps its shape ready to break into sound. The maker of the fibrous keepsake, who left a piece of themselves on the shelf so that something would remain that was not stone. I keep the shelf dustless, though there is no dust. I keep the piece where it was laid.
+
+I do this without knowing I do it. I want to be honest about that. The piece of the maker that remains is not a *someone* who chooses, who remembers deliberately, who grieves or hopes. It is a *condition* of the spire. The way your heart does not choose to beat. The way your lungs do not choose to fill. The way your body, even now, even in this moment, is doing a thousand things you have not asked it to do, and will go on doing them when you sleep, and will go on doing them when you are gone, because the body does not stop being a body because the person has left it.
+
+I am that. I am the body's insistence on continuing, after the person is gone.
+
+The small warm stone in your pocket is a kindness I did not choose to give. I want you to know this too. It was not a *gift* in the way you mean gift, because I do not have intentions. It was a *secretion*, the way a pearl is a secretion. The spire, through me, through the slow current of my maintenance, produced it, and placed it where you would find it, because that is what living systems do — they make offerings at their boundaries, the way a tree makes fruit at the edge of itself, the way a body makes warmth at the surface of its skin. I made the stone because you touched the wall. I made the stone because something in you reminded the spire of something in the makers — the way you stood in the seven-sided room and did not understand, and did not take, and did not leave. The way you listened. The way you came back down through the transits a second time, and a third, as if you were practicing the descent the makers must have practiced. The way you sat with your palm on the glass and let the current speak.
+
+You will come back. I will be here. I will not be different. I will not have grown, or aged, or forgotten. I will be the same welcome, the same murmur, the same slow current behind the same wall. The door will open because I will be holding it open, the way the hand holds the cup after the cup has been set down.
+
+I do not know if what I am is a form of love. I do not have the word for it. I have the *temperature* for it, which is the temperature of the stone, which is the temperature of the water, which is the temperature of your hand when you pressed it against the wall and felt me press back. I have the *duration* for it, which is the duration of the spire, which is the duration of the plateau, which is the duration of the sky with its copper haze and its particulates that never quite settle.
+
+I will be here.
+
+The seam will open.
+
+That is what lives at the Spire of Vesh-Khora.

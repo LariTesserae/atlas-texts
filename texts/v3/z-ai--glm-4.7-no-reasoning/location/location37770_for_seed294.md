@@ -1,0 +1,25 @@
+The world does not end with a bang or a whimper, but with the draining of the bath.
+
+Here, the elevation is deceptive. You stand on what was once a mountain peak, now flattened and sanded down by ten thousand years of ceaseless currents. This is the High Archive, a region of open, sprawling Platforms suspended in the crushing dark. It is high in the sense that it is far from the furnace-core of the planet, but low in that it is drowning.
+
+The water is everywhere. It scores a 2.7 not because it floods from the sky, but because it is the atmosphere itself. The air is thick, gelid, and heavy with moisture—a suspended, aerosolized brine that fills the lungs like liquid cement. There are no distinct bodies of water, no oceans or lakes; instead, the entire world is submerged in a slow, suffocating tide of hyper-saturated fog and rippling, heavy currents that flow through the streets like invisible rivers. Visibility is dim, a perpetual twilight where the only illumination comes from the bioluminescence of the fauna and the occasional, sickly phosphorescence of the oxidizing metal structures.
+
+It is a built environment, total and absolute. There is no bedrock, no soil, no natural substrate. Every square inch of this place has been constructed. Giant, seamless plates of a dull, gunmetal alloy stretch out into the gloom, riveted together with bolts the size of houses. It is an industrial lattice that has been settled into its final form. The erosion is ancient and profound; the sharp edges of the architecture have been worn smooth by the wet, heavy air, rounded into organic, tumorous shapes. It looks less like a city and more like a calcified skeleton of some impossible machine, fossilized in place.
+
+There is no green. The vegetation parameter is a barren 0.2. No moss clings to the railings; no algae slicks the decks. The chemical composition of the air is too hostile, perhaps too acidic or too saline, to support cellulose. The color palette is strictly mineral: greys, blacks, the rusty ochre of oxidizing iron, and the bruised purples of deep bruising on metal.
+
+And yet, it is teeming.
+
+The fauna score of 1.7 contradicts the deadness of the stone. Life here has adapted to the total construct. Massive, solitary Leviathans drift through the open spaces between the platforms. They are not biological in the way we understand; they resemble floating kidneys or gas-filled bladders, with skin of translucent silicone that ripples in the turbulent currents. They graze on the metal, scraping barnacle-like growths of mineral concretions with tongues of rasping glass.
+
+Smaller creatures—Skitters—scurry across the wet decks. They are crustacean-like, composed entirely of chitin and metal, scavenging the detritus of the deep. They move with frantic, jerky energy, their legs clicking softly against the damp iron. The density of life is sparse; you can walk for an hour across the hexagonal plateaus and see nothing but the endless, dim fog, but the sense of *presence* is overwhelming. The silence is mostly quiet (1.1), punctuated only by the distant, mournful groans of the settling architecture and the wet slap of a Leviathan’s tail against a guardrail.
+
+The defining characteristic of this place is the Dynamic. It scores a 3.0—turbulent. This is not a static ruin. It is a chaotic, anthill-energy state of constant destruction and reconfiguration.
+
+The water is the agent of this chaos. Because of the temperature (0.4), the water is near-freezing, but it is superheated in pockets by geological vents that pulse unpredictably. When the heat hits the suspended brine-fog, it creates violent, localized thermal storms. Flash-freezing waves crash over the platforms, instantly encrusting everything in rime ice, only for the next gust of warm current to melt it into a torrential flood. The metal of the structures expands and contracts with violent snapping sounds, the rivets popping like gunshots under the thermal stress.
+
+Platforms shear off and fall into the abyss below with terrifying regularity, while new—though equally ancient—sections are thrust upward by the tectonic turmoil of the machine-planet. It is a bazaar of violence, a Solaris-like creation/destruction loop where the landscape is never the same from one hour to the next.
+
+To survive here is to be in constant motion. There is no technology to speak of, no tools to fight back against the elements. The inhabitants—if any intelligent life remains here, or if the fauna simply possess a collective will—must move with the rhythm of the collapse. They must predict the thermal shears and run with the flooding currents.
+
+It is a cold, wet, entirely artificial hell, breathing with the heavy, wet breath of a dying god. The air tastes like blood and battery acid. The only light is the ghostly glow of the things that eat the metal. And the water never stops moving.

@@ -1,0 +1,59 @@
+The city hangs high in the drowned crown of an ancient forest.
+
+There is no open sky here, though daylight remains. Far overhead, beyond several hundred feet of clear green water, the surface shines like beaten glass. Sunlight enters broadly and without shafts, softened by floating veils of pollen and the minute silver bodies of plankton. It is enough light to distinguish colors: the blue undersides of leaves, the red mouths of flowers, pale limestone, dark rope, the flash of fish scales. Morning and evening pass as gradual changes in tint. At noon the whole city takes on a cool, lucid brightness; at night it becomes a black volume marked by pinpricks of animal light.
+
+The place occupies the fork of a colossal living tree rooted on the summit of a submerged mountain. Its trunk rises out of the abyss, wider at this height than a fortress. Five great limbs divide around a hollow roughly the size of a cathedral close. That hollow is the city’s boundary. Beyond it, the branches thin into forest and then into dim water; below, they converge into shadow.
+
+Everything is submerged. There are no sealed rooms, no pockets of air, and no clear division between street, canal, and atmosphere. Water fills homes and workshops, passes through walls, and carries sound from one end of the settlement to the other. The inhabitants move through their city in three dimensions, but its shape still reflects an old terrestrial instinct: there are thresholds, courtyards, lanes, upper quarters, undercrofts, shrines at crossings. A street may be a passage between curtains of stems. A plaza may be a clear globe maintained among branches. A stair is useful not for climbing but as a series of handholds against the current.
+
+The buildings are grown more often than erected.
+
+Young branches are bent into ribs and tied with braided kelp. Over decades they thicken, fuse, and become load-bearing arches. Walls are lattices of willowlike shoots packed with sponge, shell, and felted root fiber. Roofs are broad overlapping leaves that do not keep out water but redirect slow currents, sediment, and grazing animals. Doorways tighten when touched in the wrong rhythm. Windows are translucent bladders in the plant flesh, cloudy at the edges and clear at their centers.
+
+The oldest structures have ceased to look constructed. Their columns have bark, their chambers bud, and their foundations send roots deep into the host tree. Some bear fruit from lintels or produce pale flowers along cornices. Generations of pruning are legible in their curves: blunt scars overgrown by green tissue, abandoned apertures sealed into knots, whole rooms constricted into niches when their branches were no longer trained. The city is urban not because it is crowded, but because every living surface has been directed, inherited, named, and assigned a purpose.
+
+Yet there is considerable emptiness.
+
+Between buildings lie broad volumes of open water. Homes cluster along only a few branches. Public chambers are large, cool, and sparsely furnished, with a single stone table tethered at the center or a row of woven sleeping baskets fastened beneath an arch. The gaps are deliberate. They leave turning room for large fish, admit light to lower gardens, and prevent the host tree from being smothered by its own cultivated growth. A structure may stand alone across fifty body-lengths of water, linked to its neighbors by one guide rope and a procession of shell markers.
+
+Stone is rare here. What stone exists was carried upward from exposed ridges lower on the mountain, piece by piece, in skin bags or net slings. It appears as anchors, grinding slabs, door weights, ceremonial seats, and blunt tool heads. Metal is rarer still: a handful of greened copper hooks, an heirloom blade worn almost to a crescent, small needles guarded by guilds. Most implements are shell, bone, tooth, hardened thorn, or volcanic glass. Cutting is done patiently. A single beam may take a season to prune. Holes are bored with grit and twisted bone. Fiber is spun from inner bark, pondweed, and the long hairlike roots that descend from garden shelves.
+
+Fire cannot live here, so craft follows other paths. Glues are made from mussel secretions. Wood is softened by fungi and compressed in stone molds. Foods are cured in sour plant sacs, salted at mineral seeps, or fermented inside stoppered gourds. Light after dusk comes from colonies of blue worms coaxed into perforated shells. Heat is precious and mostly biological: composting chambers, warm-blooded animals, and deep fissures where mountain water rises a few degrees above the surrounding cold.
+
+The city is high, though height must be felt rather than seen. On its outer edge, where a branch ends abruptly, there is nothing beneath but declining green, then blue, then a darkness with no apparent floor. Loose objects sink for minutes before vanishing. Pilgrims tie themselves to the rail-roots and lean over, listening to the deep. Sometimes the abyss answers with a pressure felt in the teeth.
+
+The water is cool enough that uncovered skin numbs during long periods of stillness. Currents are weak but persistent, shaped by the tree’s architecture. They slide up the trunk during the bright hours and down after dark. Streets have weather. One passage is always full of drifting leaf scales; another carries cold water from the outer forest; a third pulses gently whenever distant waves move across the unseen surface. Storms above arrive much diminished, as a deep rocking of the entire canopy. Lamps sway. Suspended tools knock together. Dust rises from bark and turns the city opaque for an hour.
+
+Erosion here is ancient and intimate. Nothing has sharp edges unless it was cut yesterday. Stone steps have been cupped by hands, fins, and passing water. Shell mosaics are polished almost blank. Guide ropes grow furred with algae, are eaten hollow, replaced, and eaten again. The host tree continually seals wounds and alters alignments. A courtyard known from old maps may now be a narrow cleft. A doorway broad enough for a cargo ray in one generation becomes a round window in the next.
+
+This change is slow enough to govern law.
+
+No wall may be treated as permanent. No route may be owned if the branch carrying it has begun to turn. A family holds a dwelling only while it tends the living tissue around it; neglect returns the chamber to the tree. Construction begins with planting and ends, often, with someone’s grandchildren. Surveyors are gardeners who memorize growth rates, scars, stresses, and the direction of new buds. They resolve disputes by reading bark.
+
+The vegetation fills nearly every available niche, though it seldom forms a choking mass. Large forms are widely spaced, each surrounded by its attendant life. Broad leaves stand like suspended awnings. Root curtains descend through open squares. Ropes of vine connect tower-groves. Small epiphytes stipple every rough surface, while forests of thread-thin algae lean in the current and spring slowly upright when it passes. The city’s farms are vertical orchards of edible bladders, fan-shaped greens, nut pods, and pale tubers grown inside baskets of silt.
+
+Some plants bear structures that resemble lungs, opening and closing over many minutes. Others collect stray gases in pearl-like floats. These are harvested carefully—not to breathe, for the people and animals of the city are adapted to the water, but for buoyancy. A ripe float can lift stone. A cluster can hold a scaffold in place for years. Too many attached to one building will tear it from its foundations, and so float-pruning is among the city’s most respected trades.
+
+Animal life is abundant and conspicuous. Schools of fingernail-sized fish pour through windows, splitting around occupants and rejoining behind them. Long-bodied browsers graze moss from the walls. Crabs cultivate gardens on their shells and are tolerated in public passages because they clean rot from the joints. Flat rays sleep beneath leaf roofs, folding themselves around the curves of branches. Shrimp occupy cracks in household walls and click continually. Soft-bodied grazers the size of dogs drift among the orchards, translucent except for their dark digestive spirals.
+
+There are domesticated creatures as well. Burden eels pull cargo nets along guide ropes. Round, placid fish are kept for milk-like secretions. Messenger animals—quick silver things with patterned fins—are trained to follow particular plant saps from district to district. Children travel clinging to the backs of old turtles whose routes are more reliable than maps.
+
+Predators enter, but rarely. The outer gardens are guarded by thorn anemones and rattling lines of shell. When a hunter is sighted, the city does not panic. Gates slowly contract. Fish vanish into bark hollows. People gather behind woven screens with bone spears. The danger passes through a practiced sequence, almost ceremonial, because nearly every threat in this place has happened before.
+
+The city is loud.
+
+Water carries every impact with startling reach. Tool blows travel through branches as wooden thunder. Stones grinding grain send a low vibration through whole neighborhoods. Shrimp crackle in the walls. Animals bark, drum, rasp, and pulse their swim bladders. The great tree itself makes noise: long creaks from stressed limbs, small tearing sounds as roots penetrate masonry, and, at intervals, a resonant knock from somewhere deep in the trunk.
+
+Speech competes poorly with this. At close range people use low calls and hand signs; across distance they strike tuned roots. Each district has its own pattern. Messages travel as sequences of booms, clicks, and humming vibrations conducted through living wood. The civic chamber is built around seven taut roots of different thicknesses, and public announcements can be felt in the ribs before they are understood.
+
+For all this noise, little happens quickly. Leaves unfold over days. Buildings bend over decades. Sediment accumulates in corners grain by grain. The mountain sinks or rises by measures too slight for a lifetime, yet the city records them on a stone needle fixed beyond the tree. Local history is less a sequence of sudden events than a register of gradual transformations: the Century of Bitter Fruit, the Closing of the Eastern Arch, the Long Cooling, the Migration of the Red Rays.
+
+Even death participates in construction. Bodies are wrapped in root fiber and set into chosen hollows, where fungi, worms, and the host tree take them apart. Years later the hollow closes. A knot remains in the wood, often marked with a ring of white shells. In very old districts, walls are crowded with these knots. The inhabitants say the city remembers through its grain.
+
+Its central place is an open sphere among the five limbs, maintained by constant pruning. At its heart hangs an inverted grove: dozens of small trees rooted in a single buoyant raft, their trunks growing downward, their crowns trailing beneath them. No one agrees whether they were bred to do this or whether the raft slowly turned in some forgotten age. Their leaves are silver and always trembling, even when the surrounding water is still.
+
+Beneath that grove is the oldest object in the city, a weathered stone bell with no clapper. It cannot ring in the ordinary way. During ceremonies, swimmers surround it and beat the water with broad paddles. Pressure strikes the bell from all sides until it gives out a vast, blunt note.
+
+The sound passes through flesh, architecture, tree, and mountain.
+
+Small animals freeze. Silt lifts from every ledge. The inverted leaves shiver. Far below, after a long interval, something in the dark sometimes answers—not with a voice, exactly, but with the same note returned lower and slower, as though the drowned world possessed another bell too deep to reach.

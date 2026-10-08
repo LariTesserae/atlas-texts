@@ -1,0 +1,45 @@
+The people of the basin are practical, damp-cuffed, and difficult to hurry.
+
+They live in the cottages between the halls, in narrow brick terraces beside the channel, and in rooms above laundries, workshops, and municipal stores. Most households contain someone employed by the three great halls, but few identities end at a single trade. A press operator may also keep bees in an unused signal box. A reed-filter tender repairs clocks. Children learn to clear culverts, read pressure gauges, and distinguish safe moss from the blue film that indicates copper runoff.
+
+Their clothing belongs to the climate: waxed jackets, wool layers, heavy shoes whitened by clay, gloves stained with rust or green salts. Indoors, garments hang perpetually above stoves. Nearly everyone carries a rag for wet railings and a folded enamel cup. Umbrellas are uncommon; the rains are too abrupt, the gantries too crowded, and there is usually a roof, pipe bridge, or loading canopy within running distance.
+
+The largest profession is maintenance. Channel keepers walk the river each morning, noting shifted gravel, vole holes, new seepage, and reeds bent by illegal discharge. Orchard crews collect the dawn yield from the iron trees and test it for dissolved metals. Bank surveyors set bright pegs several paces behind unstable cuts, accepting that paths and fences may need to retreat. Fitters tend the slow machinery, listening for changes in its rhythm with an attentiveness others might reserve for speech.
+
+Some workers scarcely need to look at a machine to diagnose it. They hear a dry bearing across a waste lot, a loosened conveyor tooth through rain, or a pump beginning to labor beneath the frogs. Because the equipment moves slowly, repairs are performed with deliberation. A hall may continue working around a dismantled press for weeks, its pieces laid out on oiled cloth and labeled in chalk.
+
+The town’s laundries are warm social centers, supplied partly by the condensation orchards. Steam clouds their windows, and their back rooms host meals, arguments, union meetings, birthday suppers, and municipal hearings that have run too late. Boiler-house attendants arrive with news from the industrial yards; orchard collectors bring gossip from the outer plots. Most announcements are known in the laundries before the clock tower posts them.
+
+There are gardeners everywhere, though little ground is privately enclosed. People cultivate what can tolerate damp roots and mineral soil: cabbages, sorrel, beans, mint, currants, pale strawberries, and medicinal ferns. Communal glasshouses raise seedlings in warmth borrowed from cooling systems. Each glasshouse has its own temperament depending on which factory line heats it. One grows excellent tomatoes when the conduit furnaces are active; another produces mushrooms under the steady exhaust of the casing foundry.
+
+Children range freely through the designated gaps. They know the numbers of vacant lots better than street names and use the channels as routes through town. They float bark boats beneath pipe trestles, collect discarded ceramic rings, and compete to find the oldest black snail without touching it. They are forbidden from entering cable trenches, cooling sumps, crane lanes, and reed beds after dusk. These prohibitions chiefly teach them where to move quietly.
+
+The protected snails have their own municipal keepers, though the work is often done by apprentices and school groups. Once each season, specimens are measured, sketched, and recorded by location. The angular terraces of their shells preserve bands of soot, iron, and copper. An unusually dark year may indicate a failing filter; a green flare may reveal a leaking mesh bath. Older residents can sometimes identify historic shutdowns and accidents from a shell’s ridges.
+
+No one kills the snails deliberately. If one is found on a rail or roadway, it is moved with a flat wooden token stamped with the town seal. Such tokens are kept near gates and inspection boxes. Visitors often take them for some obscure industrial tool.
+
+The animals live almost as citizens do: in the spaces assigned to something else.
+
+Swallows nest inside the halls, fastening mud cups to beams above cranes and flywheels. Workers stretch small awnings beneath favored nests so droppings do not foul the machinery. Pigeons inhabit unused lofts and announce themselves with wingbeats magnified by brick vaults. Starlings pack the condensation orchards at dawn, turning the copper branches black before rising all at once and shaking down a glittering rain.
+
+Frogs occupy the settling ponds and reed filters in such numbers that their evening calls blur into the mechanical clatter. Newts shelter in flooded conduits, orange bellies flashing when maintenance crews lift a cover. Pale fish travel the warm channels between the halls; some have missing or reduced eyes, not from darkness but from generations spent in cloudy mineral water where sight matters less than sensitivity to vibration.
+
+Water voles are both cherished and cursed. Their burrows collapse young banks and undermine walkways, yet they are considered proof that the channels remain alive. The river office keeps separate maps of tolerated colonies and colonies marked for discouragement. Foxes patrol the rail spur and waste lots, feeding on rodents and discarded lunches. They have learned the quarter-hour bells and often appear just after a shift ends, when dropped food is easiest to find.
+
+Hares inhabit the drier rim and come down among the orchard frames before sunrise. Their fur is sometimes stained rusty at the paws. Dogs bark at the clock, cranes, foxes, and one another, but rarely at strangers. Most are broad-footed local mongrels bred less deliberately than selected by weather, slippery banks, and generations of following maintenance crews.
+
+The basin’s plants are equally opportunistic. Alders secure raw banks with quick roots. Birch grows wherever clinker has lain undisturbed for a few seasons. Willowherb marks old fires, demolished sheds, and places where hot waste once sterilized the soil. Nettles favor forgotten machinery, feeding on grease, ash, and the rich debris of workers’ meals. Ferns gather beneath leaking joints and on the shaded sides of foundations. Moss is read almost like an instrument: bright green for steady clean seepage, yellow for intermittent heat, blackened at the margins where runoff carries too much metal.
+
+Among this ordinary abundance are subtler adaptations. Some reed beds have developed copper-streaked stems. A small moth lays its eggs only on willowherb warmed by buried steam lines. Pale cave crickets live in sumps that are neither caves nor entirely dark. Lichens on the oldest brick arrange themselves in sharp rectangular territories corresponding to differences in mortar composition. The people notice such things, name them locally, and rarely make them grander than they are.
+
+Life follows the factories’ continuous rhythm rather than a strict division between day and night. There are always people awake: night fitters, pump attendants, watchmen, nurses, bakers, orchard guards, and the small crews who inspect condensation before dawn. Shift changes bring brief crowds to otherwise empty streets. Boots cross bridges; bicycles rattle over grates; lunch tins knock against railings. Then the open spaces settle again.
+
+The basin’s slowness has entered its inhabitants. Decisions are tested, marked, and reconsidered. Houses receive extensions one room at a time. Courtships may last for years and marriages be arranged in weeks. Arguments are seldom forgotten but often allowed to weather into something manageable. A person who arrives from elsewhere is treated courteously, watched without hostility, and considered new until several seasons of rain have passed.
+
+The dead remain close. The cemetery lies on the dry rim beyond the last lamps, because no grave may break the blue clay. Stones are low, and many bear not occupations but maintenance marks: a pump wheel, a reed head, a mesh branch, a rivet. Those lost in industrial accidents are remembered by pauses in machinery rather than sirens. One by one, the halls stop. For a minute the basin hears only water, birds, and the clock’s escapement.
+
+Then the machines resume, each at its own pace.
+
+Nothing living here is untouched by industry, but neither is anything entirely possessed by it. People borrow heat from furnaces to raise seedlings. Birds borrow halls for cliffs. Moss uses leaking pipes as springs. Snails turn contamination into architecture. The river accepts the first dirty rain, carries it through reeds, and returns in channels where children wade and pale fish turn.
+
+What lives in the basin is not a community on one side and a wilderness on the other. It is a single, unfinished population of workers, weeds, engines, animals, brick, water, and mineral dust—each making conditions for the next, each held in place less by harmony than by long accommodation.

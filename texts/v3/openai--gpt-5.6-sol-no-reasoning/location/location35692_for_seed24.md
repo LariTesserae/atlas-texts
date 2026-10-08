@@ -1,0 +1,21 @@
+The place is a shallow basin enclosed by old, rounded escarpments. It is not large. Standing near its center, one can sense the entire hollow at once, though little of its boundary is visible in the dark. The surrounding slopes rise gradually and then steepen into shelves of weathered stone, giving the basin the proportions of a roofless chamber.
+
+The ground is dry clay and pale mineral crust. In places it has contracted into broad, many-sided plates, their seams narrow and deep. Elsewhere the surface is soft with powder: ocher dust, powdered gypsum, and grains of black volcanic rock. There is no open water and scarcely any trace that water ever passed through. The basin’s forms seem to have been made instead by heat, pressure, wind, and a very long settling. Nothing here looks freshly broken. Every exposed edge has lost its sharpness.
+
+Warmth remains in the ground through the dark hours. It rises evenly through the soles of the feet, without the pulses and currents of a living climate. The air is dry but not violently so. It has the mineral smell of sun-heated stone, old ash, and bitter roots. Breathing leaves a faint alkaline taste on the tongue.
+
+There is little light. Above the basin, the sky is moonless or perpetually obscured by a thin, high veil of dust. The darkness is not complete: mineral patches hold a weak gray pallor, enough to distinguish the cracked floor from the lower slopes. Black stones absorb even that. Distance is difficult to judge, and the edges of the hollow seem to withdraw when looked at directly.
+
+Vegetation survives sparsely along the seams. Low mats of gray-green leaves lie pressed against the earth, each patch separated from the next by many paces of bare ground. Their surfaces are waxy and dust-coated; their roots descend into fissures where the stone is marginally cooler. A few rigid stalks rise no higher than a hand, carrying dry husks that may remain unopened for years. There are also crusts resembling lichen on the shaded faces of rocks, dull orange by day and nearly invisible now.
+
+These plants grow slowly enough to seem geological. No leaves stir. Nothing browses them, nests among them, or carries their seeds. The husks open only when the day’s heat and the night’s contraction reach a rare exact balance. Seeds then fall directly beside the parent and wait. Thus the vegetation forms small, ancient families, each occupying one crack and spreading no farther than the ground permits.
+
+There are no animals. No tracks cross the powder. No insects rasp beneath the stones, and no wings interrupt the air. Even decay proceeds without visible scavengers: dead stalks fade, split, and become fibers among the dust.
+
+The silence is correspondingly deep, though not absolute. Now and then stone releases heat with a tiny click. Dust settles into a fissure with a sound like distant cloth. If a foot disturbs the mineral crust, the fracture carries surprisingly far around the basin and returns as a soft succession of dry echoes. Afterward, stillness closes again.
+
+Nothing has been built here. A few loose flakes of dark stone possess edges suitable for cutting, and rounded nodules could fit comfortably in the hand, suggesting the first possibilities of tools without proving that any hand has used them. One chipped-looking shard lies near the center, but its facets may be natural—the result of heat repeatedly passing through a hidden flaw. The distinction between artifact and accident remains unresolved.
+
+The basin has reached an old equilibrium. Wind enters weakly, circles once along the walls, and loses itself. Dust accumulates where it has accumulated for centuries. Plants hold to their inherited cracks. The escarpments shed perhaps one grain at a time. There are no floods, migrations, fires, or seasons dramatic enough to revise the place.
+
+In daylight, if daylight comes, the hollow would likely be plain: low slopes, sparse scrub, pale earth. Darkness gives it gravity. Each isolated plant becomes a presence; each rock appears deliberately placed, though nothing here has been arranged. The basin feels neither hostile nor welcoming. It simply persists—warm, dry, and complete within its modest boundary, requiring almost nothing from the world beyond it.

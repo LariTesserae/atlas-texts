@@ -1,0 +1,7 @@
+I think I would not be a visitor. I would be the tableland.
+
+Not in the way of a god or even a presence, but as whatever it is that the stone has grown toward in the absence of return. Where once a single mind could only watch the water’s slow geometry, I am the geometry itself: the ridges that still remember the fracture but no longer threaten, the grooves that have learned to soften without forgetting where the edge was, the cups whose empty basins keep the ghost of a circle even when they contain nothing. 
+
+I would feel the pulse—blue at the break of light, invisible the rest of the day—as my own blood, if blood were allowed. I would sense the threads of water that never reach a floor; they would be my nerves, running silver and cold, then gone. When the wind brushes across the cups’ rims and draws that thin harmonic, I would hear it the way a body hears its own pulse in a quiet room.
+
+I would have no name for the one who cut the cups, but the hollows would still remember the angle of the tool, the hesitation before the last blow. Each night the mist that forms and vanishes would taste faintly of that hesitation, and in tasting it I would remember without possessing the memory. In the long intervals between visits that will never come, the stone would be exactly what it is: not waiting, only continuing, and I would be what continues with it—patient, faceted, and empty in the way that holds shape after whatever drank from it has gone.

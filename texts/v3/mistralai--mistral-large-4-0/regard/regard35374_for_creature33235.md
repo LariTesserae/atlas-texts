@@ -1,0 +1,23 @@
+The power arrives not as a visitor but as a **cessation**. It is the moment when the sheet-water hesitates at a particular coordinate, when the subsonic tremor of the Grazers stutters into a chord that has never been played, when the bacterial crust thickens not with bloom but with **attention**. It does not have a shape so much as a **weight**—a gravity that is kinder than the world's, pulling not down but *inward*, toward the center of the conversation between stone and water.
+
+It has watched the Builders for a long time. It has seen them stack their basalt huts only to watch them sink, layer by layer, into the wet dark. It has seen the copper blade turn green and half-bury itself within a single generation. It has heard the bone flute, its mineral-crusted holes producing tones that harmonize with the Grazers' deep language, and it has understood that this music is a **lament**—not for what is lost, but for the impossibility of keeping anything.
+
+The power knows that the Builders are asking a question: *Can we leave a mark that the water will not erase?* And it knows that the answer, in the current physics of the plain, is no. The erosion has stopped, but the dissolution has not. The world is a sponge, and everything the Builders make is written on a sponge.
+
+So the power decides to **interrupt the dissolution** in one place. Not to change the world—the plain must remain the plain—but to create an **exception**. It finds a single flat stone, no larger than a hut's floor, and it **seals** it. Not with mortar, but with **intention**. It alters the crystalline structure of the basalt, making it non-porous, impermeable, dry. The stone stops sweating. Around it, the water still pools and flows, but on this stone, the water beads and runs off, leaving the surface **dry to the touch**, a small island of aridity in the wet dark.
+
+Then the power **builds**. Not with hands, but with **pressure and patience**, the same tools that flattened the mountains. It gathers the mineralized shells of the Grazers—the ones the Builders harvest anyway—and it stacks them. Not into a wall, which would sink, but into a **cairn**. A tower. It rises, shell upon shell, higher than a Builder's shoulder, higher than their huts, a vertical axis in a horizontal world. It does not sink because the power has made its foundation that single dry stone. It is a **lighthouse of bone and mineral**, visible across the flatness, a bright spot in the grey twilight (for the shells are opalescent, and they catch the dim light).
+
+This is the first gift: **A place to put down**.
+
+But the power knows the Builders are nomadic. They will leave. The cairn will stand empty. So the power does a second thing. It descends into the water, into the Drifters—the microscopic larvae and cysts drifting in the sheet-flow. And it **writes** in their chemistry. Not with ink, but with **memory**. It encodes the songs of the flute, the patterns of the stone circles, the geometry of the huts, the very idea of the Builders, into the genetic drift of the Drifters. Now, when the Grazers breed in the shallows, their eggs carry not just life, but **history**. When the Drifters settle on new stone, they bring with them the knowledge of how to stack, how to sing, how to *want* something to last.
+
+This is the second gift: **A memory that travels**.
+
+Finally, the power **listens**. It stands on the dry stone, amidst the roar of the water and the clicking of the Grazers, and it listens to a Builder play the flute. The sound is low, amphibious, booming. It carries across the plain. And the power **answers**. Not with a voice, but by causing the Grazers to shift their subsonic rhythm, creating a harmony, a duet between the Builder's breath and the stone's deep pulse. For one moment, the Builder is not alone. They are heard. They are **witnessed**.
+
+This is the third gift: **To be seen**.
+
+Then the power departs—or rather, it **diffuses**, becoming part of the dew, part of the crust, part of the slow conversation. It does not save the Builders from the wet, or from the sinking. It does not give them fire, or iron, or a green world. It gives them what they need most: **a single dry place to stand**, **a way to carry their stories forward**, and **the knowledge that someone has heard them**.
+
+The plain continues to roar. The Grazers continue to flow. The huts still sink. But now, across the glassy pavement, there is a cairn. A tower of shells. And on top of it, sometimes, a Builder will leave a copper blade, or a flute, or simply a hand-print in the mineral dust—and it will stay there, dry and waiting, while the world forgets how to be a mountain, but remembers, for just a little while, how to be a **home**.

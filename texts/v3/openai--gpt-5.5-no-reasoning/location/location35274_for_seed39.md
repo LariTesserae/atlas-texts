@@ -1,0 +1,53 @@
+At the top of the range, where the air has thinned to a hard, metallic cold, the land is still being assembled.
+
+It is not a finished mountain landscape, not yet a country of softened ridges and familiar valleys. The ground has only recently been forced upward, in geological terms, and everything about it feels raw: broad backs of dark stone thrusting through shallow snowfields, fractured shelves of slate and basalt, pale seams of mineral crust exposed like unhealed bone. The slopes are steep but not deeply carved. Water has not yet had time to write its long handwriting into them. There are few gullies, few settled streambeds, only provisional channels where meltwater slips for a season or two before finding another weakness in the rock.
+
+The plateau is high enough to feel almost unfinished by weather. It stretches openly from one uplifted shoulder to the next, a cold upland basin suspended among higher black peaks. Distance is clear in shape but muted in color. Everything is dim: not dark, but underlit, as if the sun is always behind cloud or just beyond the rim of the world. The sky hangs low and dense, a continuous lid of pewter vapor, brightening slightly in the direction of the hidden sun. Light enters the landscape as a dull wash over wet stone, ice skins, animal backs, and the tarnished surfaces of shallow pools.
+
+Water is everywhere, though seldom in dramatic abundance. It weeps from seams in the rock, gathers in hoofprints and frost hollows, beads along mossless ledges, and condenses on stone so cold it seems to sweat. The ground is often saturated just beneath its surface. Step on the gray gravel flats and they darken, breathing up hidden moisture. Thin films of water travel silently under translucent ice. Small tarns lie in depressions between upthrust slabs, their edges rimed with white, their surfaces sometimes free, sometimes filmed over with a trembling skin that rings faintly when disturbed.
+
+The water has the quality of something recently released: snowmelt from slopes above, condensation wrung from cloud, springs forced upward through new fractures. It has not yet gathered itself into rivers. Instead it appears as seep, sheen, trickle, mist, a thousand beginnings. Some slopes glitter with narrow wet lines descending only a few meters before vanishing under scree. In the early cold of morning, these lines freeze into glassy threads. By afternoon, if the cloud cover thins even briefly, they loosen again and resume their barely audible movement.
+
+The terrain is open but not lush. Vegetation keeps low to the ground, sparse and stubborn. There are scattered mats of black-green cushion plants pressed into cracks where fines have collected, dull lichens stippling sheltered rock faces, dry tawny grasses in shallow pockets of soil, and small reddish alpine herbs that seem less to grow than to endure. Nothing rises high enough to break the wind. There are no trees. No shrubs of consequence. The few plants that live here are close-fitted to the stone, armored against frost, wind, and grazing mouths.
+
+And yet the place is alive.
+
+At first it seems almost empty because there is so much space between things. The ridges are wide, the flats broad, the rock fields extensive and bare. The eye travels a long way before meeting a vertical interruption. But movement begins to appear once you stop looking for abundance in the form of greenery. A herd of pale mountain ungulates crosses a wet gravel pan below the slope, picking its way among newborn channels. Their coats are thick and smoke-colored, nearly the same shade as the stones until they move together. They pause often, heads down, tearing at sparse grass and salt crusts, then lift all at once to listen.
+
+Higher up, dark birds ride the weak thermals along the cliff faces. They do not cry often. They tilt and vanish against the dim rock, reappearing only when a wing catches the low light. Smaller birds move among the scree in sudden hops, following insects that rise briefly from damp places whenever the temperature allows. There are marmot-like animals in the talus, though their burrows are shallow and new, tucked beneath boulders where snow cannot fully seal them. They whistle rarely, and the sound carries with startling clarity across the emptiness.
+
+Tracks are everywhere around the wet margins: split hooves, padded paws, small claws, bird feet printed in mud so fine it looks like ash. The fauna here is more abundant than the plant life would suggest, sustained by mineral seep zones, seasonal insects, windblown seeds, lichens, carrion, and the brief violent productivity of thaw. Life moves in pulses. When the cloud lifts and a little warmth touches the ground, midges gather above dark pools, birds descend, grazers spread out, predators begin to quarter the slope. When snow squalls pass over, everything folds back into rock-colored stillness.
+
+There are predators too, though seldom seen directly. A lean gray shape travels along a ridge and disappears behind a tilted slab. A raptor drops without a sound into a lower hollow and rises heavy. Once in a while the empty air fills with a brief scramble of hooves, the scrape of stone, the thud of bodies changing direction, and then quiet resumes. Death here is not theatrical. It is absorbed quickly: by birds, by cold, by bacteria in wet soil, by fox-sized scavengers that emerge at dusk and vanish before full dark.
+
+The atmosphere has an industrial character, though nothing has been built.
+
+There are no roads, no pylons, no towers, no walls, no huts. No tool has marked the stone. But the mountain itself behaves like a vast machine beginning operation. Deep below, pressure works. The slopes give off muted reports as frost opens cracks. Stones tick and ping with expansion. Under certain parts of the plateau, a low vibration passes through the ground, more felt in the bones than heard. It could be distant tectonic strain, or water hammering through new subterranean conduits, or the slow settling of the uplifted mass into itself.
+
+Steam rises from some of the wet seams, not hot enough to create a geothermal wonderland, but enough to put breath into the rocks. Mineral vents exhale faint sulfur and iron smells. Mud in one basin trembles with trapped gas, releases a bubble, and becomes still again. In another place, a slope of fine black gravel slides steadily, grain by grain, into a shallow meltwater pool with the patient efficiency of a conveyor. Ice forms, cracks, reforms. Water sorts sediment into bands. Frost jacks stones upward. Gravity lowers them again. The whole region is engaged in production: grinding, separating, freezing, thawing, compressing, lifting.
+
+The sounds remain mostly quiet, but not silent. The quiet is spacious and full of small mechanisms. Drip. Tick. Wingbeat. Hoof on wet stone. A distant fall of scree like poured coal. The low shudder under the crust. Wind passes over the plateau in long, restrained streams, less a howl than a steady drawing of air across edges. In hollows, one can hear the faint gurgle of water beneath rock, as if plumbing has been installed by the mountain’s own pressure systems. In the coldest hours, the ice speaks more often: fine snaps, brittle clicks, an occasional deep pop from a pond skin tightening across black water.
+
+The place smells of wet mineral surfaces, cold animal fur, old snow, iron, and the faint organic sharpness of dung and trampled grass. Because vegetation is sparse, there is little leafy scent. The dominant odor is stone made damp: slate, basalt, powdered moraine, mineral seep. In some basins, the mud has a metallic tang. In others, water carries dissolved salts that dry into pale crusts around hoof-worn edges. Animals come to lick these deposits, and their repeated visits have made the only true paths in the landscape: braided, muddy, narrow, leading from sheltering rocks to water, from water to grazing patches, from grazing patches to the lee of ridges.
+
+The ecology is arranged around scarcity and timing. Nothing here wastes motion. Grazers migrate across the plateau in loose bands, never staying long enough to strip a patch fully. Burrowing animals feed hard during brief open periods, then vanish underground into insulated chambers lined with grass and fur. Birds follow the weather. Insects appear abruptly and in great numbers near meltwater, then are gone by evening frost. Lichens grow with a slowness that makes the newness of the rock apparent; most exposed faces are still bare, uncolonized, awaiting the first thin films of life.
+
+Snow is present but not dominant. It lies in tongues and shields where wind has packed it: beneath cliffs, in the lee of boulder fields, along shaded rims. The rest of the ground is dark, wet, and cold. Sometimes clouds drag directly across the plateau, reducing the world to a few meters of slick stone and moving animal shapes. Condensation forms on every surface. Fur silvering. Rock shining. Grass blades jeweled with freezing droplets. Then the cloud thins and the wider basin returns, enormous and underpopulated, with herds like scattered ash on the flats.
+
+The rules of this world are simple and severe.
+
+Water begins but does not yet belong anywhere.
+
+Stone rises faster than it can be worn down.
+
+Life gathers wherever moisture, mineral, and shelter briefly coincide.
+
+Sound travels far because there are few obstacles.
+
+Warmth is temporary, and every organism knows it.
+
+Nothing made by hands exists here, yet the processes of the place feel scaled, repetitive, almost industrial: pumping, sorting, venting, grinding, cycling. It is not an industrial landscape because industry has arrived. It is industrial because the mountain is behaving like industry before invention: a cold factory of geology, manufacturing basins, channels, soils, cliffs, habitats, deaths.
+
+Toward evening, the dimness deepens without much change in color. The cloud ceiling lowers again. The water skins over. Grazers pull together into denser groups and move toward the lee slopes. Birds settle on ledges where their bodies become part of the rock. Small animals vanish beneath talus. The vents continue breathing. The hidden channels continue working under ice. Now and then the ground gives a muffled knock, like a distant engine turning once in sleep.
+
+The landscape remains open, empty, and active: a high cold region at the beginning of its form, wet with first waters, sparsely clothed, crowded with animals that know how to live between raw stone and coming weather.

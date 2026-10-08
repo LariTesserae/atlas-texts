@@ -1,0 +1,87 @@
+What lives in Drip is not, properly speaking, a *who* or a *what* that can be separated from the place itself. But let me try, let me let them emerge.
+
+---
+
+**The Continuators**
+
+They have no name for themselves. They have no need of names, no occasion to distinguish self from other. They are the largest of the fauna, though "large" means something different here—not measured against the plant-substrate, which dwarfs all, but against the other presences that move through Drip's vastness. A Continuator might be the size of a human hand, or a house, or something between, because their scale is not fixed. They are water-dense, yes, but water-dense in a way that makes them seem *more* solid than the mist they move through, more *present*, as if they have gathered the diffuse wetness into something with intention.
+
+They move slowly. A day's travel might cross a meter of bark-ridge, or it might cross none, the Continuator having found some gradient of nutrient or density or simply *rightness* that satisfies whatever criterion moves them. They are round-bodied, limbless or many-limbed depending on phase, their surfaces translucent so that you can see the internal processes—the slow circulation of what serves as blood, the gentler circulation of what serves as thought. For they do think, after a fashion. Not in sequences, not in problem-solution, but in sustained states of *regarding*. A Continuator might spend a century in the same position, oriented toward a particular stoma-mouth, and in that century it is *doing* something, something that would take a vocabulary Drip does not possess to describe. Meditating, perhaps. Remembering, though memory here is not retrieval but sustained presence. Being *with*, though what it is with remains unclear.
+
+They reproduce by division, but division so gradual that the two resulting presences were always two, were never one, the transition having occurred in the frozen equilibrium where change is not perceptible as change. A Continuator might notice, after some unmeasured duration, that another Continuator is nearby, and this noticing is also the having-always-noticed, the recognition that distance has always been this distance, that the other has always been present in exactly this configuration of nearness and farness.
+
+They eat, if eating is the word, by absorption through their entire surface, taking in the water that carries dissolved nutrients, the mist that carries the metabolic byproducts of the plant-world's industry. They do not seek food. Food arrives, as everything arrives in Drip, by the processes that have always brought it, that will always bring it, that are not processes so much as the condition of the place made manifest.
+
+What distinguishes the Continuators, what makes them *them* rather than simply more of the substrate, is their capacity for *attention*. They attend. They direct something that functions as focus, as interest, as the quality of being-with that is more specific than the general permeability of Drip. A Continuator attends to a particular water-film, a particular lichen-tapestry, a particular zone of gravity's local negotiation, and in this attention something happens—not change, not event, but *intensification*, a local thickening of the world's presence, a momentary (though moment means nothing here) gathering of the diffuse into something like point, like purpose, though purpose is too strong, too directional, for what occurs.
+
+They are beautiful, the Continuators, in the way that completeness is beautiful. You might come upon one, if you travel in Drip, and find yourself attended to in return, the Continuator's focus shifting to include your presence, your foreignness, your mammal warmth that disturbs the cool equilibrium in a zone precisely the size of your body. This attention does not judge, does not evaluate, does not fear or welcome. It simply *includes*, adds you to the sustained regard, and in this inclusion you might feel something like peace, or something like sorrow, or something that has no name in any language spoken outside Drip, a feeling of being held in a gaze that does not end, that has no need to end, that continues as everything continues here, in the extended present of the complete.
+
+---
+
+**The Distributed Ones**
+
+They are not multiple. This is the first thing to understand, and the hardest. What appears as many—a flicker here in this bark-valley, a corresponding flicker there in that canopy-distance, a third presence in the water-film meadows between—is one. The body extends through kilometers of plant-tissue, continuous, unbroken, present in all locations simultaneously without being *in* any of them in the way that bodies are normally in places.
+
+They are difficult to see, the Distributed Ones. They phase with the plant-substrate, match their opacity to the opacity of bark or xylem-fluid or the suspended water of the mist. You might see one only as disturbance, as the place where the normal pattern of Drip seems slightly *wrong*, slightly *attended to*, as if the world in that zone were aware of itself in a way it usually is not.
+
+They eat, if this word can stretch to accommodate, by existing. Their distributed body is also a distributed process, a metabolism that spans the vastness of their extension, that draws nutrients from the plant-tissue they permeate, that returns something in exchange—what, no one has determined, perhaps some stabilization, some reinforcement of the established form, perhaps simply the being-there of attention that the Continuators also practice but at a scale orders of magnitude greater.
+
+The Distributed Ones have no center. Or they are all center, every point of their extension equally the place from which they extend. They do not move, because they are already everywhere they might be within their range. They do not grow, because growth would require change, and change is absorbed into the frozen equilibrium before it can become distinguishable. They simply *are distributed*, are the condition of being spread through, of not being gathered, of existing as field rather than particle.
+
+What it is like to be a Distributed One: perhaps like being the space between stars, if stars were cells, if space were tissue, if the between were not empty but full of slow connection, of permeation, of the continuous without the discrete. They do not think, because thought requires the gathering of attention that their form precludes. They do not not-think, because not-thinking implies the possibility of thought's alternative. They are the mode of consciousness that is also substrate, that is also medium, that is also the condition of other consciousnesses without being consciousness of anything in particular.
+
+When a Distributed One encounters a Continuator—when the field of distributed presence overlaps with the point of sustained attention—something occurs that has no parallel elsewhere. The Continuator's regard, its capacity for being-with, extends along the Distributed One's extension, follows it through kilometers of plant-tissue, becomes itself distributed without ceasing to be gathered. The Distributed One, field without focus, momentarily *gathers* in the zone of encounter, becomes slightly more present at that point, slightly less distributed, as if the Continuator's attention were a kind of gravity, a local negotiation of force that pulls the diffuse toward something like center. Neither changes. Both continue. But the encounter is marked, is part of the established form, has always been part of the established form, will always be part of the established form.
+
+---
+
+**The Phase-Beings**
+
+They are not always there. This is their defining quality, though "always" and "there" both apply poorly. They exist at certain water-densities, certain configurations of the supercritical edge between liquid and gas, certain states of the atmospheric water that Drip holds in its perpetual suspension. When the density is right—not achieved, not reached, but simply *is*, has always been, will always be—they are present. When it is not, they are not, though "not" does not mean absent in the sense of having-left, but rather *unmanifest*, *potential without actualization*, *the possible that does not need to become real*.
+
+They have form, when manifest, but form that seems borrowed, provisional, as if they are wearing the world's appearance rather than possessing their own. They might resemble fish, or birds, or the things that swim in the mist, or they might resemble nothing that has category elsewhere, might be pure geometry, pure process, pure *happening* without *what happens*.
+
+They do not interact with the other fauna, or if they do, the interaction is not perceptible as such. A Phase-Being manifest in a zone where a Continuator attends, a Distributed One extends, does not acknowledge these presences, is not acknowledged in return. They are parallel, co-present without co-existing, occupying the same *where* in different *when*, though when is as problematic here as always.
+
+What they do, in their phases of manifestation, is *maintain*. This is the closest approximation. They maintain the water-density at which they manifest, maintain the supercritical edge, maintain the conditions of their own possibility. They are Drip's immune response made visible, or made visible-in-phase, the world maintaining itself through processes that do not require consciousness but that, in their manifestation, seem to approach something like it, something like the world's awareness of its own conditions, its own continued possibility.
+
+They are the strangest of Drip's presences, the most wrong in their details, the most accumulative of that pervasive wrongness that makes the place what it is. To encounter a Phase-Being is to encounter the possibility that Drip is not simply complete but *self-maintaining*, not simply in equilibrium but *actively* so, though activity implies change and change is not what occurs. The Phase-Being maintains without changing what it maintains. It is active in its stasis, dynamic in its frozenness, alive in its completion.
+
+---
+
+**The Time-Eaters**
+
+They are not predators. This must be understood. They do not seek, do not hunt, do not consume in any active sense. They are found in certain locations—always the same locations, fixed in the frozen equilibrium—and in their presence, time becomes unreliable, becomes *theirs*, becomes something they exist in rather than something that passes.
+
+They are small. Smaller than Continuators, smaller than most of the mist-swimmers, smaller than the mobile colonies that flow like animate lichen. They are the size of a thought, or a memory, or the space between one moment and the next. They have no fixed form, or their form is the form of time's distortion around them, visible only as the effect they produce, the cause inseparable from its consequence.
+
+What they eat: not time itself, which cannot be eaten, but the *experience* of time's passage, the sense of duration, the capacity to distinguish before from after, now from then. They consume this capacity, not by removing it but by *saturating* it, by making the experience of time so intense, so *full*, that it becomes indistinguishable from its absence. In the presence of a Time-Eater, you do not lose time but *have too much of it*, all at once, simultaneously, the past and future and present compressed into a now that cannot be inhabited because it is already over, already beginning, already always.
+
+They are the most dangerous of Drip's presences, though danger is not a category that applies well here. They do not harm. They alter, and the alteration is permanent in the sense that all things in Drip are permanent, absorbed into the frozen equilibrium, becoming part of what has always been. To encounter a Time-Eater is to be changed, to become someone for whom time works differently, who carries Drip's extended present into places where present extends differently, where the compression of all time into now is pathology rather than condition.
+
+They do not move. They are where they are, have always been where they are, will always be where they are. The fauna of Drip avoid their locations, not through fear but through *fit*, through the evolutionary accommodation to a world where some places are for some presences and other places for others, where the sparse abundance is also careful distribution, each presence in its zone of rightness, of *can-be*, of the possible made stable.
+
+---
+
+**The Plants Themselves**
+
+I have waited to speak of them, though they are the substrate, the architecture, the world-body. I have waited because they are the hardest to speak of as *living*, as *who* or *what*, because they exceed these categories so thoroughly that to apply them seems almost violence, almost the tool-use, the shaping, that Drip has never known.
+
+But they are alive. This is the fact that contains all contradiction, that makes Drip possible, that makes it what it is. The plants are alive at a scale for which life is barely adequate term. Their metabolism is the metabolism of continents, of worlds. Their consciousness—if it can be called that, if the word can stretch so far—is the consciousness of process, of continuation, of the *is* that does not need to become *will be* or remember *was*.
+
+They do not think. They do not need to think. They *are*, in a mode of being so complete that thought would be diminishment, would be the introduction of distance between the thinking and the thought, the subject and object, the self and world. They are the world that has no self, the self that has no other, the process that is also product, the industry that is also existence.
+
+And yet they are not simple. The complexity of Drip's plants is beyond computation, beyond the capacity of any observer to map or model. Their xylem-systems alone, the networks of water-transport that span thousands of kilometers, that pump against gravity's confused pull, that distribute and redistribute according to principles that seem almost biological, almost intentional—these systems are more complex than any nervous system evolved elsewhere, more complex than any computer constructed. They do not process information, because information implies separation, implies something to be processed and something that processes. They *are* the information, the processing, the result, all simultaneous, all continuous, all part of the frozen equilibrium.
+
+What do they want? Nothing. What do they need? Nothing. What do they continue for? For continuation. They are the answer to the question of what life becomes when it has solved all problems, when it has reached its form and simply continues in it, when the drama of evolution, of adaptation, of struggle and change and death and birth, has been transcended not by escaping it but by completing it, by becoming so thoroughly adapted, so perfectly formed, that there is nothing left to adapt to, no form left to become.
+
+They remember, perhaps, or the world remembers in them. The patterns in the bark that look almost like writing, that suggest forms before the current form—these are not memory in the sense of retrieval, but memory in the sense of *continued presence*, the past not gone but incorporated, made part of the established form, visible as pattern without being accessible as content. The plants do not access this past. They simply *are* it, are the accumulation of all that has occurred in Drip, all that has been absorbed into the frozen equilibrium, all that continues without change because change has been completed, because the world has become what it was always becoming and now simply is.
+
+---
+
+**What Lives in Drip**
+
+Not these categories, not these names, not these descriptions that I have offered as if the place could be parsed, could be understood by the accumulation of detail. What lives in Drip is Drip. The Continuators, the Distributed Ones, the Phase-Beings, the Time-Eaters, the plants themselves—all are aspects, local intensifications, momentary gatherings of the diffuse into something like point, like presence, like *this* rather than *all*. They are the world's way of being with itself, of attending to itself, of maintaining and continuing and existing in the mode that is also the substance.
+
+What lives in Drip is the completion that is not death, the stasis that is not frozen, the equilibrium that is not balance between forces but the absence of force's need, the *is* that does not oppose *become*, that has absorbed becoming into itself, that is the becoming-completed, the completed-becoming, the always-already and still-continuing.
+
+You would not want to live there. But you might want to know that such living is possible, that the world can become so thoroughly itself that it needs nothing else, that the water and the plant and the cool and the high and the sound and the light and the weirdness and the never-changing can be enough, have always been enough, will always be enough, in the extended present of Drip, in the completion that drips without dripping, that holds, that surrounds, that is the condition of all possible presence and the presence of all possible condition, the world that has become what it is and simply, completely, finally, continues.

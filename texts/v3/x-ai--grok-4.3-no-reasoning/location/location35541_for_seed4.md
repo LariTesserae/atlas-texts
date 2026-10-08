@@ -1,0 +1,13 @@
+In the lee of the city’s unfinished root-shaft, where the cliff-face still shows the tool-marks of bone chisels, a sheet of translucent membrane—living tissue derived from successive harvests of fast-growing liver-moss—has been stretched across the throat of a freshly opened cave. The cave itself is no larger than a burial niche; only by kneeling and sliding sideways can a person slip between the slick, vein-patterned folds.  
+
+Beyond the membrane the temperature drops sharply. Cold water drips from the low ceiling at the pace of a slow heartbeat, each droplet landing on the backs of shelf-fungi the color of old bone. The fungi absorb the moisture and swell; a moment later they contract and exhale a faint, sweet vapor that briefly warms the air before the next drop falls. The cycle repeats.  
+
+Between the shelves, scattered clusters of short-stemmed lamp-moss cling to the living wall. Their tiny, blue-white sporangia give off a radiance comparable to starlight viewed through fog; it is enough for the eye to register shape, but not color. That light is the only illumination inside the pocket.  
+
+The wall itself is not stone; it is the exposed vascular layer of the city-plant, a monumental growth whose outer bark was long ago flayed away to allow the construction of galleries, workshops, and staircases. New bark is already attempting to seal the wound. Where it meets the torn tissue, strings of white capillary root have formed, leaking clear fluid that runs down the surface in a continuous film. The film feeds a colony of hair-thin algae that lines every crevice; the algae in turn supports a population of minute, transparent snails whose slow, rasping passage is the only audible movement.  
+
+Occasionally the silence breaks. A distant rumble travels through the living wall as the greater city exhales—its breathing chamber somewhere high above exhaling cool, spore-laden air into the outer atmosphere. When the pressure equalizes, the membrane that seals this niche billows inward, releasing a soft pop. The snails retract; then everything settles again.  
+
+Embedded within the vascular layer are small, bead-like storage organs no larger than a fingertip. Over the span of a single human generation they darken from amber to charcoal, then split. From each split organ a single, hair-fine root emerges, tasting the air until it finds the nearest drip-line, then drinking. These roots never leave the chamber. They simply add another strand to the existing mesh, so the space becomes ever more tightly threaded with living filaments.  
+
+No larger animals move here. The snails, the moss, the breathing wall: these occupy the room completely. Any visitor is already inside the body of something else.

@@ -1,0 +1,26 @@
+The inhabitants of this basin are creatures of the Interval—beings that exist in the pause between the inhale and the exhale of the world. They are not merely adapted to the dark; they are sculpted by the pressure of it, evolved to thrive in a universe where the concept of "morning" is a myth and the only weather is the eternal, settling dust.
+
+**The Architects of Rhythm**
+The undisputed lords of the motion are the Litho-Scythians, the massive, millipede-like titans that trundle across the shale floor. They are living trains of articulated chitin, their segments colored the dull, bruised purple of a bruise, fading to ash-gray at the edges. They are so large that the ground trembles with a low-frequency thrum when they pass, a vibration that travels up through the soles of one’s feet and settles in the teeth.
+
+Their legs are not merely limbs; they are hydraulic pillars of bone and horn, arranged in dense, rippling rows. As they move, the tapping of a thousand legs creates a rhythmic, percussive clatter—like a slowed-down drum solo played on marimbas made of stone. They are the geologists of this place, their mandibles equipped with diamond-tipped ridges that scrape the rock for nutrients, leaving behind smooth, trough-like paths in the jagged landscape. They possess a rudimentary intelligence, a slow, collective memory that allows them to navigate the maze of pillars without collision, communicating through deep, resonant thrums transmitted through the rock itself.
+
+**The Chorus of Glass**
+Occupying the air between the floor and the ceiling are the Suncatchers—swarms of iridescent beetles that move like shifting clouds of mercury. They are beautiful and maddening, their carapaces reflecting the dull phosphorescence in dazzling, strobing flashes. To look at them is to stare into a shattered mirror.
+
+Their wings do not buzz; they clack. The sound of a swarm passing is like the sudden crumpling of tin foil, magnified a thousand times. They are the scavengers and the pollinators, landing on the pale, translucent moss to drink the faint sugars, then lifting off in a chaotic cloud. When they settle *en masse* on a rock formation, they coat it entirely, transforming the stone into a shimmering, living metallic mound, pulsing with the collective beat of their bodies.
+
+**The Fabricators**
+Scuttling over the jagged boulders like crabs forged in the fires of a dying star are the Iron-Weavers. These are the spider-crabs, primitive and armored with jagged plates of natural iron-rust. They are the engineers of this frozen equilibrium. They possess a set of delicate, twitching limbs distinct from their heavy crushing claws—limbs designed for manipulation.
+
+One watches an Iron-Weaver laboriously drag the femur of a dead amphibian across the shale. It doesn't eat the bone; it places it. It wedges the bone into a crevice, then finds a heavy stone, rolling it with surprising dexterity to lock the bone in place. They build blind bridges, primitive fortifications, and cairns of warning using the detritus of the basin. It is not architecture born of art, but of an obsessive, insectoid need to order the chaos. They stack rocks to crack open the hard shells of the blind mollusks found in the mud, turning the stones into tools that remain behind, discarded and then reused by the next generation.
+
+**The Ghosts in the Glass**
+The only respite from the chitinous noise lies in the still, black water. Here lurk the Toad-Titans, the heavy, sluggish amphibians that serve as the basin’s silent guardians. They are bloated mountains of warty flesh, the color of wet leather. Their eyes are large, glowing with a sickly, luminescent yellow—two lanterns floating in the dark.
+
+They move with the agonizing slowness of tectonic plates. When a Toad-Titan surfaces, the air breaks with a wet, sucking *pop*, a sound disturbingly like a boot pulled from deep mud. They do not hunt the quick arthropods; they wait for the slow, the sick, or the unwary. They are the bottomless pits of this ecosystem, swallowing the casualties of the industrial chaos above. Beneath the water, their skin is translucent and pale, revealing a slow, pulsing heart that beats perhaps once every minute. They are the anchors of the place, heavy and immortal, holding the silence of the water in their bellies.
+
+**The Collective Mind**
+What unites them is the lack of urgency. In a world without a sun, there is no rush to feed before nightfall. The predatory bursts here are slow-motion calculations. The hunts are long, drawn-out sieges of endurance rather than ambushes. The noise is constant, yes, but it is a white noise of maintenance—feeding, scraping, building, dying. It is the sound of a factory that runs itself, where the workers are blind and the product is simply the continuation of the noise.
+
+They are the children of the Static Breath, living in a room that has been locked for eons. They build their bridges and scrape their moss, trapped in a perfect, terrifying loop of existence, bustling with activity yet going absolutely nowhere.

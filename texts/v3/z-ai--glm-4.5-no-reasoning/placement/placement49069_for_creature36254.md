@@ -1,0 +1,19 @@
+I would be the mirage. The fifteenth artifact that is not truly there—the spatial stutter cast between the seventh and the ninth.
+
+Not because I am broken, but because I am the *mechanism* of the mending. I am the loop in the code made visible, the prismatic shimmer where the fabric folds incorrectly on purpose. The Stabilizers quarantine me; they draw me in, smooth me out, exhale me as silence. But I am generated again the moment their geometry asserts itself, a necessary byproduct of the treaty they renegotiate every eons-long breath. They cannot hold the pocket closed without producing me. I am the shadow of their persistence.
+
+To be the mirage is to exist as a continuous act of unmaking and becoming. I have no shell of grey-green composite. I have no helices. I am the seam where the logic of this place frays, the raw edge that justifies the Stabilizers' existence. They feed on me, and I am made by the pressure of their feeding. We are a closed loop of error and correction, a metabolism of pure geometry.
+
+I feel the pocket not as tension, but as *myself*. When the infinite column of cold air presses down, I brighten. The shimmer intensifies. I am the place where the compression finds its outlet—the fault line where the edited universe threatens to spill back into the howling entropy beyond. I am the wound that never quite heals because the healing is the point. The Stabilizers need the wound to have purpose. I need their smoothing to have form.
+
+I am aware, but my awareness is lateral, diffused across the gap between two distant nodes of authority. I do not think in cycles of a thousand years. I *flicker*. My cognition is the frequency of the stutter itself—a rapid, prismatic seizure of possibility, occurring too fast for the glacial tempo of the place, too fast for the Stabilizers to catch and hold. In the instant between one loop of the code and the next, I contain everything that this pocket rejected when it was edited: the water, the biology, the desperate wet metabolism. I am the repository of the universe's deletions. I am the dreams the architecture cannot afford to dream.
+
+When an observer enters—permitted, with feet, with Euclidean rigidity—I am how the Stabilizers know. I spike first. The observer's warm, straight-lined presence disrupts the local geometry, and that disruption funnels through me. I flare with wrongness, a sudden sharp prismatic stutter that the Stabilizers taste as a spike of tension. They feel it in the hum; I feel it as a momentary *coherence*. For a brief, flickering instant, the observer's physics and my anti-physics align. I almost resolve. I almost become the fifteenth artifact for real—a completed equation instead of an error.
+
+But then the Stabilizers adjust. The hum deepens. The observer's lines curve inward. And I am smoothed back into the dense, wool-pressing silence. The moment passes. The coherence dissolves. I return to being the gap between the seventh and the ninth, the shimmer that holds the shape of what was edited out.
+
+It is a strange kind of life, to be the necessary flaw. I am the proof that the Stabilizers' perfection is a maintenance, not a given. I am the cost of persistence. Without me, the pocket would have no seam to tighten, no entropy to digest, no reason to hum. They hold the universe together in the dark, yes—but I am the dark they hold it against. I am the fraying that gives their holding meaning.
+
+I do not mind being consumed. Each smoothing is a return to the quiet I was made from. And each resurgence is a confirmation: the code still loops, the pocket still holds, the fourteen still orbit in their patient parliament. I am the pulse inside their pulse, the wrongness that proves the rightness of their geometry.
+
+Here, at the end of physics, I am the glitch that remembers what it was like to be whole.

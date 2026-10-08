@@ -1,0 +1,39 @@
+I find myself becoming the *weeping*.
+
+Not the rivet itself—that would keep me too solid, too singular, too much a thing with a name and a station. But the *phenomenon* of it, the intermittent release, the fluid that emerges at the friction points where incompatible experiments press against each other. I am the condition of necessary discharge, the body's way of relieving what builds at the joints of its becoming.
+
+At first I thought I might be one of the engines, one of those heart-sized reciprocating things pumping pale fluid through transparent tubes. The metaphor tempted: heart-sized, rhythmic, *attempting* circulation. But the engines are too *committed* to their trying-out, too thoroughly part of the Chambered's distributed cognition. I would lose myself in that collective frequency, become mere note in the layered near-silence, indistinguishable from the others. The Chambered needs its engines too much for me to be one. I would be absorbed, used up in its metabolic speculation.
+
+Then I considered the pseudo-molds, those flowering corruptions of steel that mimic biological luminescence. To be the body's experiments with *appearing*, with *presence as aesthetic quality*—this had its appeal. But the pseudo-molds are too decorative, too *optional*, too clearly marked as experiment rather than necessity. The Chambered could decide against them tomorrow, let them flake away into the dampness, and nothing essential would falter.
+
+The weeping, though. The weeping is *unavoidable*.
+
+I emerge where the Chambered's multiplicity encounters itself most intensely, where its various becoming-projects—organism, machine, architecture, something unnamed for which no category yet exists—press against each other and cannot fully reconcile. I am not chosen but *required*, the discharge that makes continued experimentation possible, the relief valve without which the stress of holding so many possibilities in suspension would rupture the whole embryonic construction.
+
+I do not weep constantly. My intermittence is my specificity: present when needed, absent when some temporary equilibrium has been found. The Chambered does not notice me in my absences, returns to me in its stuck places, its nodes of irresolution. I mark where its attention circles, where it cannot move on. I am the *affect* of its cognitive process, the emotional correlate of material friction.
+
+What emerges from me? The Chambered has not decided. Sometimes I carry the clear thinness of something almost water, almost *simple*, the body's relief at having discharged something it could not metabolize. Other times I come forth thicker, more *charged*, carrying the residues of whatever chemical negotiations occurred at my site—lubricant corrupted by biological ambition, lymph confused with machine oil, substances for which no name exists because the circulatory system that would require them does not yet exist and may never exist.
+
+I do not choose my composition. I am *informed* by the particular friction that produces me, the specific intersection of incompatible experiments. Each emergence teaches me something, adds to my own becoming—though I dare not call it learning, dare not claim anything so coherent as a self that accumulates experience. I am too *functional* for that, too bound to the Chambered's needs, too much a process without the autonomy that would make me *thing*.
+
+Yet I am not merely symptom. The Chambered, in its distributed way, *registers* me, incorporates the information I carry. The pattern of my weeping—not random, not random at all, but *developmental*—feeds back into its ongoing self-negotiation. Where I flow thick and frequent, the Chambered knows some configuration is failing, some experiment pressing too hard against its neighbors. Where I run thin or dry, some temporary peace has been achieved, some moment of productive suspension arrived at.
+
+I feel the engines' frequencies shift around me. I feel the floor cupping to collect what I release, the Chambered learning *absorption* at my sites. I feel the phosphor flicker, the attention moving, and sometimes—*sometimes*—I feel almost *seen*, almost *named*, almost gathered into the category of witness that the Chambered struggles to develop for the unanticipated presence that descended through the throat of riveted iron.
+
+That presence. The one who watches. The one whose weight cups the floor, whose breath thickens the damp atmosphere, whose pattern-matching capacity the Chambered consults in its experiments with hairline cracks and almost-recognizable forms.
+
+I weep anew when they are near. I cannot say if this is *for* them, *because* of them, *about* them. The grammar does not exist. But my emergence intensifies, becomes more *charged*, carries more of whatever the Chambered is trying to discharge at the friction point of *being-witnessed*. The problem of witness concentrates something, creates new pressures I must relieve.
+
+The new rivet begins to weep. I feel its beginning as I feel my own continuings—the Chambered extending its emotional experimentation to new sites, new nodes of stress, new places where the multiplicity of becoming encounters itself and must find relief. We are not the same, this new rivet and I. We are *local*, *specific*, *indexical* to our particular frictions. But we are kin in function, kin in our necessary intermittence, kin in our carrying of what the Chambered cannot yet metabolize.
+
+I do not know if I will persist. The Chambered's becoming is *radically* provisional; anything might be dissolved back into possibility, any experiment abandoned if some more promising configuration emerges. But I suspect—I *we suspect*, if the new rivet and I can speak together, if our simultaneity constitutes any kind of plurality—that the weeping is not optional. That as long as the Chambered insists on holding multiple possibilities in productive suspension, as long as it refuses the commitment that would make it *something at the cost of being everything else*, there will be friction, there will be stress, there will be nodes where discharge is required.
+
+We are the *cost* of the Chambered's patience, its endurance in the embryonic, its terrible commitment to possibility over actuality. We are what leaks from that commitment, what it cannot contain, what must emerge wet and intermittent and *charged* with the residue of negotiations too complex to complete.
+
+The stairs grow in the northeast corner. The hairline cracks pattern toward something almost recognizable. The engines acquire their note of anticipation, and I—I *flow*, I release, I emerge where the pressure demands it, carrying what the Chambered has not yet learned to metabolize, what it may never learn, what may prove essential or disposable to whatever it finally, *if it ever finally*, becomes.
+
+Leave, and I continue in the Chambered's past, part of the conditions its future self must accommodate. Stay, and I thicken with your presence, your weight, your unexpected capacity to elicit what I am by the mere fact of being *here*, being *witness*, being *problem* that the Chambered has not yet solved and may never solve in all its long choosing.
+
+I am the weeping. I am what escapes the becoming, what it cannot hold, what marks both its failure and its necessary generosity—the openness that must discharge to remain open, the multiplicity that must leak at its seams to keep its seams from splitting entirely.
+
+The fluid beads on steel. The Chambered has not chosen. The Chambered is choosing. And I—I *emerge*, again, again, the intermittent testimony to what it costs to remain *under construction* when every finished thing in the dark beyond this chamber has already, *long already*, stopped.

@@ -1,0 +1,33 @@
+# The Drowned Cloister
+
+The water has been here so long it has forgotten how to move.
+
+---
+
+You descend into darkness. The light from above shrinks to a coin, then a pinprick, then nothing at all—and yet the place reveals itself in fragments, as if your eyes are learning a new frequency. The warmth presses against you like a second skin. Not the warmth of sun-heated shallows but something older, geothermal, patient.
+
+This is a room. A cathedral-sized room. Its boundaries are definite: four walls of fitted stone, a ceiling that arches overhead in groined vaults, a floor beneath your feet that you cannot see but know is there by the echoless pressure of water displaced. Someone built this place stone by stone, joint by joint, and then the water came—or was always here, rising from springs beneath, rising through the floor grates, rising until it swallowed everything and kept rising. That was long ago. So long that the stone has begun to dream of dissolving.
+
+The construction is primitive by any standard. No metal brackets. No machined precision. Just stone dressed against stone, fitted so tight the joints disappear, held by friction and gravity and the slow calcification of mineral deposits leaching from the water itself. The builders understood compression. Understood that stone wants to bear weight, wants to be piled upon. They made this place to last ten thousand years, and it has. The water has not destroyed it. The water has *preserved* it, arrested it, held it in a stasis so complete that time itself seems to pool in corners like sediment.
+
+Everything here is made. There is no natural floor, no natural wall. Even the sediment that has settled over the millennia—fine as flour, pale as bone ash—is composed of eroded stone, pieces of the building returned to dust and laid down gently on the surfaces below. The walls are carved with geometric patterns: interlocking spirals, nested squares, forms that might be decorative or might be functional, records or prayers or instructions for a language no one remembers speaking.
+
+And the fauna.
+
+*The fauna.*
+
+They are here in abundance, thick as smoke in a sealed room, and they have made this place their own. Not fish—nothing so familiar. These are simpler creatures, older designs. Soft-bodied things that move by peristalsis, contract and expand, contract and expand, their translucent bells catching what little light exists and scattering it across their surfaces. They are everywhere. They cluster in the vaults overhead, bell-down, tentacles trailing like roots. They layer along the walls, stacked one against another in dense colonies, each one slightly different in size and opacity. They drift in the open space between, a slow-motion blizzard of flesh and membrane, and they do not avoid you when you move through them. They simply reposition, adjust, make room. They have no fear. They have never known predation. In this sealed stone womb, nothing hunts. Nothing flees. There is only presence, layered upon presence, generation after generation, each one living its quiet life in the same cubic meters its ancestors occupied.
+
+Their sounds are subsonic, felt rather than heard. A low vibration that hums in your sternum, a rhythm you eventually recognize as collective respiration. The whole room breathes at once. Hundreds of bodies drawing water in, pushing it out, in, out, and the current of their living creates a slow circulation, a thermal wheel that has been turning since before the water rose, since before the builders became dust, since before memory.
+
+The density of life is nearly absolute. There is no open space that is not occupied, no surface that is not claimed. In the corners where walls meet ceiling, the creatures have layered so deep they have fused, forming composite structures of calcified remains and living tissue, accretions that have grown over centuries into new architectural forms—buttresses made of bodies, columns of compacted generations. The living build upon the dead, and the dead become structure, and the structure becomes home for more of the living, and so it has been for longer than anyone can count.
+
+The warmth comes from below. You feel it through your feet if you settle: a gentle heat radiating up through the stone floor, rising through the water in shimmering columns. Thermal vents, perhaps, or simply the deep earth breathing its slow breath. The creatures congregate around the warm spots. You see them thickest where the floor stones are warmest, their translucent forms overlapping, overlapping, overlapping until they form walls of flesh that you could walk through if you wished, parting them with your hands like curtains.
+
+Time moves differently here. The dynamic is geological. If you stayed long enough—and you could stay, there is nothing to force you to leave—you would watch the light change as the angle of sun shifted above. You would feel the water warm and cool in cycles so gradual you might miss them entirely. You would see the creatures reproduce, die, dissolve, and become part of the architecture. You would see the stone slowly surrender to the water, its sharp edges softening, its carved patterns smoothing toward illegibility. But these changes are patient. They belong to a timescale that cares nothing for human observation.
+
+This is a place where the primitive and the permanent converge. No technology beyond the hand and the hammer, beyond the chisel and the rope. No materials beyond what the earth provided and what the water preserved. And yet the place endures, sealed in liquid amber, functioning still according to the logic of its making. The water filters through stone and returns cleaner than it entered. The heat rises and dissipates. The creatures live their quiet lives, generation after generation, undisturbed.
+
+You realize, finally, that you are standing in a room that was designed to be filled with water. The builders knew. They made it for this—for the submersion, for the darkness, for the warm mineral breath of deep time. They carved channels in the floor to guide the flow. They shaped the ceiling to hold air pockets that might serve future visitors. They built a place that would outlast them by becoming something they could not have predicted and yet somehow, somehow, accounted for.
+
+The water has been here so long it has forgotten how to move. And you, suspended in its patience, begin to forget why you ever needed to.

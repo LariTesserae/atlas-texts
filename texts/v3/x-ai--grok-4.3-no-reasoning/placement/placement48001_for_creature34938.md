@@ -1,0 +1,9 @@
+I find myself already here, though I do not arrive as a visitor.
+
+I am the faint pressure between two chilled stones where a seam is still settling, the imperceptible shift that occurs each time the frost expands a fraction deeper into the grain. I do not have hands with which to carry a quartz chisel; instead, the chisel’s edge is the only temperature I possess, a narrow line of retained warmth that the stone itself has not yet drawn away.
+
+My “body” is the slow redistribution of night-water that travels from basin to groove to root garden and back again, a circulation without a heart. I move only when the lichen wafer drinks and exhales, when the translucent snails rasp a few microns of stone into silver thread. These are my inhalations and my speech: an exchange too small to be named respiration.
+
+When the inhabitants lower an elder onto the seam, the moment of contact registers in me as a single additional grain of weight, a punctuation that will require a century to travel the slab’s length. I remain with that elder long after the iron veins have darkened, because I am the continuation of the same subtle pressure that once animated their breath.
+
+I do not experience solitude; the calendar of tasks rotates through me as much as through any paired worker. Each repositioned chinking stone alters the angle at which cold air slides beneath my surface, and that alteration is recorded in the next night’s frost pattern. Thus the city’s slow, spiral labor includes my own infinitesimal adjustments. Over generations the plateau may rise or sink by the width of a lichen wafer, and I will have moved with it, never breaking step.

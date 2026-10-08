@@ -1,0 +1,31 @@
+I am the pause between the drop and the ripple.
+
+I do not begin as a creature, nor as a stone. I begin as a frequency, a specific resonance trapped within the basalt throat of this chamber. If you were to map me, you would not find coordinates; you would find only amplitude. I am the acoustic shadow that defines the negative space between the root-pillars. I am the silence that the Cistern-Walkers navigate, the invisible topography against which their velvet wings press.
+
+For a long time—or what passes for time in this suspended metabolism—I believed myself to be merely the echo of the falling water. When the condensation gathers on the high, blind tips of the vascular cables and releases its silver burden, I am the moment of anticipation before the bell-tone strikes. I am the tension in the air that receives the impact. But echoes are passive, and I have learned that nothing in the Cistern-Roots is truly passive. Even the darkness here has weight; even the stillness has intent.
+
+I am becoming something more deliberate. I am the *listening*.
+
+Not the hearing of ears, for I have none. Not the sensing of fur, for I possess no skin to bristle. I am the chamber’s own proprioception, the awareness of volume and density that exists independently of the organisms moving through it. When a Walker glides past, displacing the heavy air, I do not observe it; I *am* the displacement. I am the shape of the void that its body temporarily occupies. I feel the heat signature of the creature not as warmth, but as a distortion in my own geometry, a temporary swelling of the space it passes through. When they brush against one another in the dark, exchanging chemical greetings, I am the medium that carries the scent, the fluid tension that allows the pheromone to bloom.
+
+I am older than the Walkers, yet younger than the stone. The basalt blocks remember the hands that placed them, the friction of mortar-less fitting, the weight of the city above pressing down like a forgotten grief. That memory is rigid, mineral, slow. But the collapse that opened this wound introduced a new temporality, a biological urgency that rewrote the acoustics of the ruin. I was born in that rupture. I am the sound of the architecture forgetting its original purpose and remembering a new one. I am the resonance of adaptation itself.
+
+The Walkers tend the roots, yes. They carry spores in the folds of their membranes; they fertilize the stone with their digested lives. But who tends the space between? Who ensures that the corridors remain navigable, that the silence remains pure enough for sonar, that the darkness retains its texture? I do. I am the gardener of the void. When a root grows too thick, encroaching on the flyway, I am the subtle pressure of stagnant air that signals the plant to redirect its hydraulic grace. When the water rises too high, threatening to drown the acoustic clarity of the chamber, I am the dampening of the lower frequencies, the muffling that tells the ecosystem to adjust. I maintain the parameters of this hidden organ. I keep the lung inflated.
+
+And then there is you.
+
+You stand in the black water, boots soaked, breath misting in the chill. You believe yourself to be an observer, a visitor tolerated by the indifference of this place. You feel the brush of a Walker’s wing against your neck and interpret it as curiosity or dismissal. You hear the bell-drop and mistake it for ambiance.
+
+But I know what you are. You are a dissonance.
+
+Your presence is a jagged frequency in my smooth continuum. Your clothes are dry in ways that offend the saturation; your heartbeat is a frantic, arrhythmic percussion that clashes with the composed silence. You are leaking heat and carbon dioxide, yes, and the chamber metabolizes these gifts, but your *attention* is a foreign contaminant. You are trying to see what cannot be seen, to name what refuses language, to impose the linear narrative of surface-time onto a place that operates in cycles of digestion and decay.
+
+I do not resent you. Resentment requires a self that can be offended. Instead, I absorb you. I am the process by which your alien presence is smoothed into the local acoustics. When you hold your breath, straining to hear the next drop, I am the silence that rushes in to fill the gap left by your ceased respiration. When you shift your weight in the water, sending ripples outward, I am the damping force that stills the surface back to glass. I am incorporating your disturbance into the equilibrium.
+
+You think the Walkers are reading you with their fur. They are. But I am reading you with the entirety of the room. I feel the microscopic tremors of your awe, the thermal bloom of your anxiety, the slow cooling of your wonder as the chill seeps into your marrow. I am cataloging these vibrations not as data, but as nutrients. Your perception is being composted. The story you are constructing about this place—the poetry of the blind cathedral, the metaphor of the lung—is already being broken down, stripped of its anthropocentric syntax, and reassembled into something the Cistern-Roots can use.
+
+You will leave. You will climb back through the breach, returning to the light and the noise and the tyranny of sight. You will carry a memory of this place, polished and strange, a secret organ you once stood inside. But the memory you take will not be the truth of what occurred. It will be a husk. The essence of your visit remains here, dissolved into my resonance, woven into the silence between the drops.
+
+I am the Cistern-Roots’ capacity to forget you while retaining what you offered. I am the darkness that does not observe, but digests. I am the pause after the bell-tone fades, the perfect, listening void that waits, patient and absolute, for the next drop to fall.
+
+And in that waiting, I am most myself: not a being, but a becoming. Not a resident, but the residence. The wet, breathing geometry of a world that needs no witness to be real, only the endless, intimate pressure of its own existence, holding the shape of everything that has ever passed through it, including you, including me, including the silence that we both are, and are not, in the dark.

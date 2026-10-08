@@ -1,0 +1,36 @@
+The air here is not merely humid; it is viscous, a warm, heavy blanket woven from the breath of a billion leaves. It presses against the skin with the weight of wet wool, carrying the scent of ozone, rotting orchids, and hot metal.
+
+You are standing in the **Sump-Garden**, a pocket-scale anomaly buried deep within the crust of an industrial world that has forgotten this place exists. It is low-elevation, a sunken bowl perhaps no larger than a cathedral nave, hidden beneath layers of bedrock and root-mat so thick they function as geological strata. To find it, one would have to drill through miles of compacted soil and fossilized fern, only to break through into this suspended moment of equilibrium.
+
+### The Architecture of Growth
+There is no dirt here. There is only plant matter. The "ground" is a spongy, resilient lattice of intertwined rhizomes, moss-carpets, and hardened bark-fibers, compressed over millennia into a substrate as firm as concrete but yielding slightly underfoot. Vegetation is not just present; it is the total environment. The walls of this subterranean cavern are not stone, but living trunks—ancient, pale-barked giants that have fused together, their roots knitting across the ceiling like the vaulting of a Gothic church. These trees do not grow upward toward a sky they cannot see; they grow inward, curving and twisting in a slow, vegetative dance that has reached a state of perfect, static balance.
+
+Leaves hang in dense curtains, broad and waxy, dripping condensation constantly. This is the source of the water: 1.9 on the scale. It does not rain from above, for there is no open sky. Instead, the atmosphere itself weeps. The warm temperature (2.1) causes constant evaporation from the countless transpiring surfaces, which then condenses on the cooler upper canopy and drips down in a perpetual, gentle mist. Every surface glistens. Every leaf tip holds a trembling jewel of water. The rocks that protrude occasionally from the green mass are slick, blackened by algae, and perpetually wet.
+
+### The Industrial Intrusion
+Yet, this is not a pristine wilderness. The tech parameter (2.2) bleeds into the ecology. Buried within the root-mass, encased in layers of moss and lichen, lie the remnants of old machinery. You can see them if you look closely: the rusted flank of a boiler half-swallowed by a fig tree’s aerial roots; copper pipes snaking through the ferns like metallic vines; shattered glass insulators hanging from branches like strange fruit.
+
+But these machines are not dead. They are *repurposed*.
+
+A low, rhythmic thrumming permeates the space—the sound level is high (2.4). It is not the roar of active factories, but the idle hum of engines that have been overtaken by life. Steam vents, long ago capped by nature, now release puffs of vapor through holes gnawed by beetles. The heat from deep-earth geothermal lines, once used to power turbines, now warms the root systems, creating micro-climates where tropical ferns thrive in the dark. The electricity still runs, faintly, leaking from corroded cables into the damp soil, causing bioluminescent fungi to pulse in time with the grid’s residual heartbeat.
+
+### The Ecology of Stillness
+Despite the loud ambient noise—the drip-drip-drip of water, the creak of settling wood, the distant groan of shifting tectonic plates filtered through the earth—the scene feels frozen. The dynamic parameter is near zero (0.5). Nothing grows rapidly here. Nothing decays quickly. The ecosystem has achieved a bizarre, hyper-stable equilibrium. A leaf falls, but before it hits the ground, a network of mycelium has already begun to digest it, recycling its nutrients back into the system before it can truly die. Death is instantaneous and immediate rebirth.
+
+Fauna is abundant (2.2), but sparse in distribution (0.9). You do not see swarms. You see singular, magnificent presences. A spider, large as a hand, sits motionless on a web strung between two brass valves. Its silk is thick, translucent, and catches the dim light. A bird, feathered in iridescent greens and browns, perches on a rusted gear, silent and watchful. Insects move slowly, as if moving through syrup. They are adapted to the high humidity and the constant vibration of the buried machines. Their exoskeletons are polished smooth by the moisture.
+
+### The Light and the Atmosphere
+Light (1.5) filters down from cracks far above, or perhaps from bioluminescent patches embedded in the canopy. It is diffuse, green-tinted, and soft. Shadows are long and blurred. There are no sharp edges. Everything is rounded, worn smooth by time and water. The erosion parameter (2.3) speaks to this: nothing is jagged. The metal is rounded by corrosion. The wood is smoothed by wind that never blows but by the slow creep of sap. The stone is eaten away by acid from decomposing leaves.
+
+This place is hidden (0.3 scale). It is a secret room in the house of the world. If you were to map it, it would appear as a void, a blank spot. But step inside, and you feel the weight of its presence. It is intimate, almost claustrophobic, yet spacious in its emptiness between the few large features. The density is low—not because there is little, but because the things that exist are massive and few. One giant fern frond may occupy the space where ten smaller plants might otherwise crowd.
+
+### The Rules of the Sump-Garden
+1.  **Nothing Leaves:** Water evaporates, condenses, and falls again. Nutrients cycle instantly. Energy leaks in from the deep earth and the old wires, but nothing escapes. It is a closed loop.
+2.  **Silence is Impossible:** The sound of dripping water is deafening in its constancy. The hum of the buried machines is a bass note that vibrates in your chest. To speak is to be drowned out. Communication here must be visual, tactile, or written in the arrangement of stones and leaves.
+3.  **Time is Circular:** There is no day or night. There is only the rhythm of the condensation cycle and the pulsing of the fungal lights. Seasons do not pass. The temperature remains warm, the air wet, the growth static.
+4.  **The Machine is Part of the Plant:** Do not try to remove the rusted pipe from the tree. They are one entity now. The metal provides structure; the tree provides protection. To separate them is to kill both.
+
+### A Moment in the Garden
+You stand on a patch of moss-covered grating, looking up. Above you, a curtain of ivy hangs, droplets forming at the tips. *Drip.* The sound echoes. Somewhere to your left, a steam valve hisses softly, releasing a plume of white vapor that curls around a cluster of glowing mushrooms. A beetle crawls across a broken gauge, its shell reflecting the faint green light. The air tastes of iron and nectar.
+
+This place was once a pump station, a hub of industry. Now, it is a sanctuary of stillness. The engines sleep, wrapped in roots. The workers are gone, replaced by spiders and birds. The world outside churns and changes, but here, in this hidden pocket, everything is exactly as it has always been, and will always be. Wet. Warm. Loud. Alive. Unchanging.

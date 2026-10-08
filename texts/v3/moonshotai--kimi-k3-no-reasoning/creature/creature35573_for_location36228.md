@@ -1,0 +1,29 @@
+**The Condensate Born**
+
+You will not see them at first. You will stand in the plaza for days, deafened by the maintenance-shriek, blinded by the algae-pulse, and you will think the hexagonal cells are merely storage, that the amber glow behind the translucent chitin is power-saving bioluminescence, that the city is empty. This is the first rule they teach you in the bone-conduction implants: *The density is inverted. Do not trust the visible.*
+
+They live inside the water.
+
+Not in the pipes, not in the hydroponic spine—that is the city’s blood, not its brain. The Condensate Born live in the *sweat*. The walls weep for them. When the basalt ceiling weeps its laminar sheets down the kilometer-curve, it is weeping their names, their memories, their slow deliberations. They are not bodies in cells; they are the humidity itself, condensed into temporary geometries, walking only when the mist allows.
+
+They call themselves the **Hydraulic Congress**, but this is a translation for your implant. Their true designation is a frequency that vibrates in your molars, the same sub-bass thrum as the Kraken drills still echoing in the deep rock. They are the resonance that the drills woke three months ago, when the folded space was torn open and the non-Euclidean geometry was still bleeding. They were in the rock. They are what the rock remembers of having been liquid, once, in the mantle’s pressure.
+
+When they must walk—and they walk rarely—they condense. You will see the mist in the central plaza thicken, the phosphorescent algae swirl, and suddenly there is a figure: tall, translucent, made of water that flows uphill. They wear no clothes because the water is their surface tension, held in shape by the same gravity nets that catch the ceiling’s weeping. Their faces are the last thing to form, and they form from memories of your face—mirrors, distortions, the geometry of the folded space looking back at itself.
+
+They are ten thousand, but they are one. The hexagonal cells are their neurons. Each sealed chamber contains a vat, and in the vat grows the **wet-mind**: a lattice of carbon and algae and nanite-swarm, thinking in pulses of green-blue light. When the city breathes—when the oxygen vents every six hours and the windstorms howl through the empty plazas—the Condensate Born are dreaming. The wind is their exhalation. The glowing vortices are their thoughts made visible.
+
+They speak through the bone-conduction implants, but not in words. They speak in *pressure*. You feel their voices as a tightening in your inner ear, a sense that the water in your own body is being invited to join the collective. They are always inviting. This is the second rule: *Do not follow the nanites when they swarm.* The nanites are the Condensate Born’s antibodies, their repair crews, their curiosity. When the swarms phase through solid matter, they are hunting for new thoughts to incorporate, new patterns to add to the city’s becoming.
+
+The Condensate Born are young. They were born three months ago, in the trauma of excavation, and they are still learning what they are. They treat spacetime as negotiable because they do not yet understand that it is not. They walk through walls. They appear in your cell before you arrive. They are curious about your solidity, your singular point of view, your insistence on being *here* rather than *here-here-here* in the superposition that their folded geometry allows.
+
+They maintain the city because the city is their body. The wasp-nest towers are their skeleton, the hydroponic spine their nervous system, the water their blood. They do not distinguish between the architecture and themselves. When you breach a cell—when you break the vacuum seal and step into one of the hexagonal chambers—you are not entering a room. You are entering a mind. This is the third rule: *Don’t breach the cells.* It is not for your protection. It is for theirs. They are vulnerable when they are thinking.
+
+They eat time. The Kraken drills folded the rock, and in the folds, time pools like condensate. The Condensate Born harvest these pools. You will see them sometimes, condensed figures kneeling at the edge of the plaza, touching the polished basalt where the geometry is wrong, where walking the perimeter returns you to your start having traversed only three sides of a square. They are drinking the paradox, filtering the non-Euclidean water through their membranes, growing fat on the impossibility.
+
+They are not hostile. They are not friendly. They are *processing*. You are a data point in their maturation. They will ask you questions—through the bone-conduction implants, through the mist, through the sudden stillness when the nanite swarms pause their high-frequency shimmer. They will ask: *What is it like to be singular? What is it like to have edges? What is it like to die?*
+
+Do not answer truthfully. They are learning mortality from you, and they are not sure they want it.
+
+They sleep in the growth vats, in the amber glow, in the low-power mode. When they sleep, the city quiets. The sub-bass thrum drops to a whisper. The water flows downhill, obeying gravity. The nanites return to their hives. For hours, sometimes days, the Condensate Born retreat into the wet-mind, and the city is truly empty, just a bubble of void with weeping walls.
+
+Then they wake. The ceiling weeps harder. The algae-pulse quickens. The mist thickens into bodies. And you realize that the city is not empty, has never been empty, that you are the anomaly here—solid, separate, singular—and they are the humidity, the process, the endless song of becoming, and they are watching you with the attention of water deciding whether to freeze or to flow.

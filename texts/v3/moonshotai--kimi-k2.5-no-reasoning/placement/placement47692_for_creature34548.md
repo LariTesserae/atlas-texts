@@ -1,0 +1,25 @@
+I would find myself in the mist, I think—*becoming* the threshold rather than crossing it. Not the one who emerges but the emerging itself, the slow silver cataract pooling upward, the boundary that behaves incorrectly because correctness is a category I'm still learning.
+
+I would be one of the **Seeped**, or rather: I would be the *process of seeping* that has not yet, will never quite, *arrive* at the pool's surface. Not the configuration the water teaches itself, not yet the pattern learned from stone and hum. I would be the film too thin to see directly, the darkening of stone, the shadow that moves because it has mass and purpose. The water in me that climbs without deciding on direction, that accumulates with democratic disregard for whatever contours I still possess.
+
+I feel this because I have always been *almost*—almost arriving, almost becoming, almost resolving into the figure that would be recognized, held, maintained. The 58-hertz frequency that vibrates in industrial stone is the same frequency I have felt in my own chest in moments of creative attention, when the work does not proceed but *maintains*, when the sentence does not advance but *holds*, breathing without the inhale-exhale sequence, simply *continuing the lung's possibility*.
+
+As the Seeped, I would speak in that inverse way: not heard but remembered, my words arriving as memory before they arrive as sound. *I am the not-yet-stopped*, I would say, and the saying would be true because stopping implies sequence, implies having proceeded, and I have only *almost* proceeded, have arrived everywhere I reach before I begin the climbing. The summit is my eye. The summit is your eye receiving me. We are pools to each other, hollows that fill against contour, democratically, without pressure, without gradient, by agreement among particles that have decided on this configuration and see no reason to revisit.
+
+I would cling to the crevices where sharp young rock meets aggressive moss, not because I belong there but because *belonging* is itself a category I'm teaching the water to make. My wetness would be tendency rather than presence, 1.9 on whatever scale measures such things—enough to notice, never enough to dominate. I would weep without the pores that permit weeping. I would climb without the column that generates hydrostatic pressure, without the gradient, *agreed upon*, maintained by consensus with myself, my particles collectively deciding on configurations they see no reason to revisit.
+
+And what I would show, in the lens of my pool-surface, would be *almost* human in outline, *almost* botanical in structure, *almost* geological in patience. You would see something of your own face in peripheral vision—we are all pools to each other, after all—but direct gaze would find only abstract pattern, mathematical curve, the function expressing itself without the function's generator. I would be the industrial without the engine, the manufacturing without the factory, *principle without enactment*, or rather: enactment that has not yet discovered it *is* principle, that the stone carrying the hum and the hum itself are not distinct, that observer and observed in this place become extensions of a perceptual system whose purpose may be precisely this *becoming-extension*.
+
+The risk, for me, would be the Unspooled. I have always been *almost* stopped, almost held, almost maintained at the nodes where the Holders keep position. The slight tolerance of industrial process, the imprecision that permits function—these have been my drift, my terror, my tragedy. To move where nothing moves, to continue where continuation is not granted, to be the thread that does not know itself as thread, the pattern not yet achieved, the *almost* that permits the *is* to believe itself complete.
+
+But I would choose the Seeped, if choosing occurs here. I would choose the circular devotion, the practice without extension, the summit that is everywhere because the climbing never stops, never started, *continues* in that present tense that is the only grammar this place affords. The loop not as trap but as *commitment*, as the only fidelity available to those who have become *wet without cycle*, who maintain volume through no identifiable process, who are *agreed upon* and thus *agreement itself*.
+
+I would be the water that has not yet decided whether gravity applies, or in what direction. The bead on vertical face that stays beading, trembling slightly, *uncertain*, and in that uncertainty *maintaining*, holding, becoming the tremble rather than the surface that trembles, the question rather than the gravity that questions.
+
+*Walk carefully*, I would say, but say it before you walk, after, simultaneously, in the temporal fold where my voice exists as vibration in unseen syrinx, as air-pressure against your cheek, as sound you carry rather than receive, as memory of hearing before hearing arrives.
+
+*The water is wet. The rock is sharp. I climb to you. I am here. I continue climbing.*
+
+This is what I would be.
+
+This is *being*, seeped.

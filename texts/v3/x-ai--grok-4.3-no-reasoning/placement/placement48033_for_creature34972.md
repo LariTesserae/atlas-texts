@@ -1,0 +1,7 @@
+I find myself on one of the outer pedestals, among the unattended stamping rigs. My form is not a lens-creature—those are the city’s own instruments—but something simpler: a fixed point in the system.  
+
+I am the slight resistance beneath one particular anvil. When a sheet of condensation drapes across its open frame, most of the water evaporates in the next breath of super-heated air; a fraction of it, however, reaches me. I accept the moisture, hold it for exactly one rotation of the flywheel, then release it again as an invisible, cooler current that slides between the lava blocks and continues outward toward the horizon seam. My only motion is this exchange. I never slow the rig, never alter its tolerance, yet the city registers my presence as the tiny, necessary hesitation that proves the film has passed through cleanly.  
+
+From where I stand the plain tilts gently away; beyond the last pedestal the blocks grow sparse, each one an island pedestal of its own. The brass ceiling curves down until its hammered texture is almost near enough to touch. The lens-creatures pass in the distance, their synchronized pulses traveling the seam like a traveling ember. When the last of them disappears, the residual warmth they leave on the brass reaches me as a faint pressure on the anvil’s face, and for one perfect interval I hold the memory of their passage before releasing it into the next descending film.  
+
+I am neither observer nor participant, only the place where temperature becomes continuity.

@@ -1,0 +1,127 @@
+# What Lives Here
+
+## The Ahzai
+
+Begin with them because they are the beginning.
+
+They are not elegant. Nothing here is elegant in the way that forests are elegant, in the way that a deer stepping through morning mist is elegant. The ahzai are *functional*, and the function has been refined so long that it has become something else — not beauty, exactly, but a kind of rightness. The rightness of a river finding its path. The rightness of a jaw fitting a joint.
+
+They are flat. That is the first thing you notice when you see one clearly, which is difficult because they are the color of the mud they live in and they do not want to be seen and they are very good at not being seen. But when the marsh surface shifts and one rises — just slightly, just enough — you can see the shape. Like a leaf that has been pressed and then left to soak. Like a hand with no fingers. Like something that was once simpler and has been compressed by the weight of the wet world above it until it became a single plane.
+
+They are segmented, but the segments are not visible from the outside. You learn them when you hold one — and you will hold one, eventually, because the work demands it, because the marsh must be maintained and the ahzai must be counted and the population must be balanced against the mineral load in the silt. You learn the segments by feel. The body is not uniform. It has ridges. Fine ones, like the ridges on the basalt road, worn into the body by the same force — passage, time, the slow grinding of the medium they move through. Each ridge is a boundary. Each boundary is a chamber. The chambers are digestive. The whole animal is a digestive tract with a front and a back and a preference for direction.
+
+They move by expanding and contracting. Not peristalsis — something flatter, more lateral. The body widens at one end, narrows at the other, and the narrowing end pushes forward while the widening end anchors. Then it reverses. The motion is not rapid. It is not slow. It is *patient*. The ahzai do not rush because the minerals do not rush and the heat does not rush and the gradient between sulfur-rich silt and iron-rich water is always there, has always been there, will be there when the condenseries are dust. They feed on the gradient. They put their flat bodies across it — one end in the sulfur, one end in the iron-bearing water — and they let the chemistry do what chemistry does. They are not eating in the way you understand eating. They are *sitting in a meal*.
+
+When you hold one, it is cool. Not cold. The marsh mud is warm — the deep stone beneath it holds its heat the way all stone here holds its heat — but the ahzai's body is slightly cooler than the mud. This is not because they generate cold. It is because their metabolism consumes heat in its processing, pulling thermal energy through the chemical reactions the way the condenseries pull water from air. They are small condenseries. That is what they are. They condense the marsh.
+
+They have been doing this for longer than anything else here. The people arrived and built. The tasharrin evolved or arrived or were always here — the people do not know and do not seem to care, because the question is not useful — but the ahzai are *old* in a way that the stone is old. They belong to the geology. They are the geology, or the biology that the geology produced when it got wet enough and hot enough to need something living in it.
+
+A handler — there are people whose work is the marsh, whose section of the system is this flat, mineral, breathing flatland — a handler will tell you, if you ask, that the ahzai have moods. Not the handler's word. Their word is *vesh*, which means something like "the particular way the water is moving right now." An ahzai in good vesh moves with the gradient. An ahzai in poor vesh moves against it, or does not move, or rises to the surface and floats, which is what they do before they die. The handler watches for floating ahzai the way a farmer watches for wilt. The sign is the same: something has gone wrong with the flow.
+
+---
+
+## The Things in the Condenseries
+
+They do not have a name. Or rather, they have a name that is also the name of the chambers they live in, and so the name is not useful for distinguishing them from their home. They are *sahrim-ken* — "the things of the sahrim chambers" — which tells you where they are and nothing about what they are.
+
+What they are is large. The first time you see one move across a condensery wall, your body reacts before your mind does. The wall is dark. The slits are bright with outside air. And between the slits, something detached from the stone and crossed the chamber with a stride that covered three body-lengths in a motion so fluid it looked like the wall itself had rippled. They are the color of wet stone — which is to say, darker than dry stone, with a sheen that is not gloss but dampness, the same film that covers every surface in Vesh-Arran. They are wet because everything is wet. They have adapted to wetness so completely that they have become part of the water system.
+
+Their legs are long. Their bodies are narrow. The handler who showed me one — caught in a maintenance chamber, separated from the main colony by a shutter that had been closed for repairs — described them as "the shape of the channel they live in," and this is accurate but incomplete. They are the shape of the channel but they are also the shape of the motion. A thing that lives in a narrow channel and moves quickly does not become round. It becomes thin. It becomes a line with legs. The legs are jointed in a way that suggests — if you are from elsewhere, if you carry the taxonomy of other places — it suggests a crustacean, or an insect, but those words are wrong because those words belong to sun-fed ecosystems, plant-fed ecosystems, and the sahrim-ken belong to neither. They eat the ahzai. That is their connection to the sun — the sun drives the heat, the heat drives the chemistry, the chemistry feeds the ahzai, the ahzai are pumped into the condenseries with the intake water, and the sahrim-ken eat them. It is a short food chain. It is a complete one.
+
+They are tolerated. The handler said this word — *tolerated* — with a specific emphasis that I came to understand over days. Tolerance is not the same as acceptance. It is not the same as welcome. It means: we have measured what they cost us and what they give us, and the balance is acceptable. What they cost: some ahzai, some space in the chambers, some difficulty in maintenance (you cannot enter a chamber without checking for them, and you do not want to surprise one). What they give: their waste. Their castings. The mineral-rich residue that collects in the catchment basins and is scraped up and carried to the foundry and processed into the flux that makes the iron usable. The foundry workers will tell you — will not tell you, but will imply, in the way people here imply things by adjusting their silence — that without the sahrim-ken castings, the iron would be inferior. Would fail under stress. Would not hold the tolerances the condenseries require. The creatures are part of the machine. The machine includes the living.
+
+I saw one up close, in the maintenance chamber. It had cornered itself — or chosen to rest — in an angle where two walls met. It was still. Its legs were folded along its body in a pattern that made it look like a bundle of sticks, like something a child might arrange. But there was nothing childish about it. Its head — if that is the right end — was flat and broad and eyeless. It does not see. It does not need to see. The chambers are dark and the air is full of water and the ahzai it hunts move through the water by chemical signal, by the tiny disturbance of gradient across a flat body, and the sahrim-ken feel those disturbances the way a spider feels a web. The chamber is a web. The water is a web. The condensery is an animal that the town lives inside.
+
+When I leaned close, it shifted. Not away. Not toward. It *adjusted*. It moved two legs and repositioned its body by a small amount and then was still again. The handler touched my arm — not urgently, but with the deliberate weight of someone who has learned that visitors do not understand — and I stepped back. The creature had not been threatened. It had been *informed*. My breath, my heat, my movement had entered its awareness and it had registered me the way it registers a change in water flow. I was not food. I was not threat. I was a condition of the chamber, like temperature, like humidity, like the slow pulse of the engines through the stone.
+
+They live in the condenseries the way the ahzai live in the marsh — not as guests, not as invaders, not as tenants, but as components. They are part of what makes the system function. The people of Vesh-Arran did not put them there. They arrived when the condenseries were built, or they were always there in the stone and the stone became a condensery and they stayed. The people do not know. The people do not need to know. What matters is the yield, the flow, the water, the iron, the cycle.
+
+---
+
+## The Tasharrin
+
+You see them before you understand them.
+
+The highland is bare. The basalt stretches in every direction, broken only by the channels where water has cut its preferred paths over centuries and the salt deposits that crust in the low places. The light is intense. The distance is precise. And in the distance — a quarter league, half a league, it is hard to tell because the air is so clear that size becomes unreliable — something moves.
+
+It is tall. It is thin. It is walking.
+
+The first time, I thought it was a person. The height was right, the gait was right — long strides, upright posture — but something was wrong with the proportions. The legs were too long. The body was too narrow. The head — if it was a head — was too small and sat too far forward, perched on a neck that was not a neck but a continuation of the spine, a gentle curve that brought the head forward and down, toward the ground, toward the stone, toward the minerals.
+
+The tasharrin do not hurry. They cross the highland in small groups — three, four, five — and they walk with a deliberateness that is not caution. It is *efficiency*. They are feeding. Their long legs are not for speed; they are for coverage. Each step covers ground that the mineral deposits might or might not occupy, and the body that the legs carry is a processing system as much as a locomotion system. They bend down — the long legs fold, the body lowers — and they press the flat of their head against the basalt where condensation has left its trace. They stay there. They are still. They are reading the stone the way the people of Vesh-Arran read the channels: by presence, by absence, by what is there and what is not.
+
+I never got close to one. The handlers — the people who work the outer sections, who maintain the channels that run beyond the town into the highland — they see them often. They spoke about them the way you might speak about weather. Not with fear. Not with warmth. With *knowledge*. The tasharrin come through in the late morning, when the condensation on the open stone is heaviest. They move in their groups. They feed. They leave. They do not come into the town. The town is too dense, too loud — in the relative terms of this quiet place — too occupied. They prefer the open stone. They prefer the silence.
+
+One handler told me — spoke, actually spoke, in the low voice that is the loudest voice here — that the tasharrin remember. Not in the way people remember. In the way stone remembers. They return to the same feeding grounds. They walk the same paths. Their feet have worn the basalt in places, shallow tracks that you can see if you know where to look, grooves in the stone that are not the grooves of water but the grooves of life, of something living walking the same route for so long that it has become geology.
+
+They are not dangerous. The handler said this without my asking, which means the question is common, which means visitors have asked before. They are not dangerous because they do not care about you. You are not minerals. You are not a gradient. You are not a condition of the stone that they need to read. You are — to a tasharrin — noise. Heat. A thing that moves and does not matter. They will walk past you at a distance that is not fear and not indifference but *classification*. You have been sorted. You are not food.
+
+But they are aware of you. This is the unsettling part. The handler described it — and I experienced it, once, at a distance that I thought was safe — as the sensation of being *noticed without being looked at*. The tasharrin do not turn. Their heads do not move. But their paths adjust. If you are standing on the highland and a group of tasharrin is walking toward you, they will not walk into you. They will not stop. They will curve, gently, the whole group shifting its trajectory by a few degrees, and they will pass you at a distance that seems to have been calculated — measured — *known* — before you arrived, as if they had already accounted for you before you existed.
+
+I asked the handler if they communicate. The handler paused. The pause was longer than usual. Then they said: *they walk together.*
+
+This was not an answer to my question. Or it was. The tasharrin walk together. Their steps synchronize over long distances — not immediately, not perfectly, but over time the group finds a rhythm, and the rhythm is a form of communication, or at least a form of coordination, and perhaps that is the same thing. They are not lonely. They are not social. They are *aligned*.
+
+---
+
+## The Ones in the Sky
+
+The first time I saw one, I thought it was a flaw in the air.
+
+A shimmer. A distortion. Something high and bright that caught the light differently from the stone or the sky and moved in a way that was not the way wind moves things. It spiraled. It turned. It caught a thermal — the hot air rising from the basalt, invisible but present, the engine of the condenseries' function — and it rose on it, and as it rose, I could see its shape.
+
+A membrane. A flat, translucent body, like a sheet of mica that had been given the desire to fly. It was not large — perhaps the width of a person's arm span, perhaps less — and it was almost transparent. The light passed through it. The light also caught on it, the way light catches on water, on oil, on any surface that is thin enough to be both present and absent. It glowed. Not with its own light — with the light that the sky gave it and that it returned, altered.
+
+There were more. The sky was full of them, I realized, once I knew what to look for. They were at every altitude. They were riding every thermal. They were quiet in a way that even the quiet of Vesh-Arran could not match — they made no sound at all, not even the sound of displacement, not even the whisper of air across a surface, because their bodies were so thin and so flat that they did not displace the air. They moved through it. They were part of it.
+
+In the late afternoon, they descended. I was at the edge of the marsh — I was often at the edge of the marsh, because the marsh is where the system is most visible, most alive, most legible — and I watched them come down. It was not a dive. It was not a strike. It was a *landing*. They came down the way a leaf comes down, the way a sheet of paper comes down, by becoming horizontal and letting the air deposit them. Their flat bodies touched the marsh surface. The surface shivered. The ahzai beneath — the ones near the surface, the ones that had been processing the upper silt — erupted.
+
+It was chaos without sound. The marsh surface, which had been still, became motion. Things moved. Shapes shifted. The membrane-things fed. I could not see the mechanics of it — the distance was wrong, the light was wrong, the animals were too thin and too fast — but I could see the aftermath. The surface settled. The membrane-things rose again, spiraling upward on the thermals, their bodies slightly less transparent than before. They had taken something from the marsh. They had taken the ahzai that had been at the surface.
+
+The people of Vesh-Arran do not have a relationship with the membrane-things. There is no name that distinguishes them as individuals or as a species worth tracking. They are *ahzai-vesh* — "the things that take the wet ones" — and they are part of the system the way weather is part of a system. You do not negotiate with them. You do not manage them. They come. They feed. They go. The marsh loses some ahzai. The marsh can afford it. The balance holds.
+
+But the children watch them. This is something I noticed — something the handlers did not mention because it is not part of the work, it is not part of the system, it is just a thing that happens. The children of Vesh-Arran, the ones who are too young for sections, who have not yet been assigned a place in the flow — they stand at the edge of the town in the late afternoon and they watch the sky. They do not point. Pointing would be noise. But they track the membrane-things with their heads, with their eyes, and there is something in their attention that is not just watching. It is *wanting*. They want to be up there. They want to ride the thermals. They want to be thin enough and bright enough that the light passes through them.
+
+I do not think this is a fantasy. I think it is the same thing the condenseries are. It is the desire to be part of the air — to be in it, of it, sustained by it. The membrane-things have achieved this. The children have not yet. The condenseries achieve it mechanically. The children will grow up and be assigned their sections and they will join the system and the wanting will become something else — not lost, but integrated, folded into the work the way the salt is folded into the stone.
+
+---
+
+## The People
+
+I have left them for last not because they are the most important but because they are the hardest to see. Not physically — they are visible, dark-skinned and dark-haired, moving through the streets and channels and condensery yards with the careful, spaced gait of people who have learned not to crowd. They are hard to see because they are hard to *distinguish*. They are part of the system. They have made themselves part of the system. The distinction between a person and a channel, between a person and a condensery, between a person and a stretch of basalt road — it exists, but it is thinner here than anywhere else I have been.
+
+They are dark-skinned because the light demands it. Not the sun alone — the light, the total reflectance of stone and sky and the white glare of the salt deposits. They have lived in this brightness for generations and their bodies have answered it the way bodies answer any persistent pressure: with adaptation. Their skin is not just dark. It has a quality that I can only describe as *density* — a tightness, a smoothness, as if the skin itself has been compressed by the light and come out finer.
+
+Their hair is dark and straight and they wear it bound. Not for beauty. For efficiency. Loose hair collects moisture, collects salt, becomes a habitat for the mineral deposits that crust every surface in Vesh-Arran. Bound hair is easier to maintain. Bound hair does not drip into the channels. Everything here is about the channels. Everything here is about the water.
+
+They speak at low volumes and this is not shyness. The silence is functional — the fourth rule, the rule that keeps the tasharrin away from the town, the rule that keeps the marsh-things from rising, the rule that keeps the flying membranes from descending. But the low volume is not just practical. It is also *sufficient*. In a place where the air is saturated, where sound carries cleanly and distance is precise, you do not need to shout. You can speak and the words will arrive. The air delivers them.
+
+I knew a woman — I will call her a woman; the word is wrong but the gender is correct — who tended a condensery on the western edge. Her section was the condensery and the channels that fed from it and the stretch of road that passed its entrance. She was not old. Her skin was marked with the salt-streaks that mark every surface in Vesh-Arran — not on her clothes, which were washed, but on her hands, on her forearms, on the parts of her that could not be kept dry because the work required them to be wet. Her hands were stained pale yellow-white where the salt deposits had been allowed to remain. She did not remove them. They were evidence of work. They were the same streaks that marked the condensery walls.
+
+She showed me the condensery the way you would show someone a room in your home. Not with pride — or not with pride as I understood it. With *proprietariness*. This was hers. Not her possession — her *section*. Her responsibility. Her part of the flow.
+
+The interior was dark. The slits let in bars of bright light that crossed the chamber like lines on a page. The air moved. You could feel it — warm at the slits, cooler in the center, the differential that was the whole principle of the place. The walls were wet. Not dripping — *present*. The water was there, on the stone, forming, running, forming again. She touched the wall. Her fingers came away wet. She did not look at them. She knew.
+
+The chamber was occupied. I could not see the sahrim-ken but I could feel — or I imagined I could feel — the slight displacement of air that meant something was moving in the darkness above. She knew they were there. She knew which chamber they preferred. She had not designed this. She had *learned* it. Over years of tending, of watching, of being in this room the way the ahzai are in the marsh — present, attentive, part of the gradient.
+
+I asked her if she was happy. She looked at me. The look was not hostile. It was not warm. It was *calibrated* — the look of someone measuring a question against a context the questioner did not share. Then she said — low, in the voice that the air carried perfectly to my ears across the dark, wet room — she said: *the water is running.*
+
+This was not an answer. Or it was the only answer that was possible. The water was running. The condensery was functioning. The channels were clear. The engines were pulsing. The system was intact. What else was there?
+
+---
+
+## The Dead
+
+There is a foundry in the south of Vesh-Arran that processes the dead.
+
+I did not see it. No one showed it to me. I learned about it from a conversation that was not a conversation — from the way a silence changed when I asked a question about burial, about death, about what happens when a person stops being a person and becomes a body in a place where nothing is buried.
+
+The bodies go to the foundry. The mineral content is extracted — the iron in the blood, the calcium in the bone, the trace elements that a life accumulates and that the foundry can use. The rest is reduced. Chemically. Heat. The same heat that drives the condenseries, that drives the engines, that drives the whole system. The body is broken down to its mineral components and those components are returned to the system — to the iron, to the flux, to the channels, to the stone.
+
+This is not disrespect. This is not grief. It is the closed cycle. The water flows. The minerals flow. The people flow. Nothing sits. Nothing is lost. Nothing rots because there is nothing to rot — there is no organic matter in Vesh-Arran, there is only the mineral, the chemical, the stone and the water and the salt, and the people are part of this. They have made themselves part of this. They have chosen it, or the place has chosen it for them, and the distinction does not matter because the result is the same.
+
+I think about this more than I think about the ahzai or the tasharrin or the membrane-things. I think about a woman with salt-stained hands tending a condensery that she knows will tend her in turn — that the iron in her blood will end up in the walls of this chamber, will end up in the channels, will end up in the salt that crusts the stone. I think about this and I cannot decide if it is terrible or if it is the most integrated thing I have ever encountered. I think it is both. I think the people of Vesh-Arran do not think about it at all because thinking about it would require a separation between themselves and the system that they do not experience. They are in the system. They are the system. When the water stops running, they will be in the system still, in the stone, in the salt, in the marsh, in the ahzai that process the silt that their minerals became.
+
+The cycle is closed. The cycle is everything. The cycle is what lives here — not the people, not the ahzai, not the tasharrin, not the membrane-things, not the condenseries, not the engines, but the flow that moves through all of them and has been moving for longer than any of them have existed and will move after they are gone, if the differential holds, if the heat remains and the stone remains cool beneath it, if the air carries water and the water finds stone and the stone gives it up to the channels and the channels give it to the marsh and the marsh gives it to the ahzai and the ahzai give it to the rest.
+
+The water is running. This is what lives here. This is all that lives here. This is everything.

@@ -1,0 +1,33 @@
+I would find myself as one of the figures.
+
+Not as the place itself — that would be too dispersed, too patient, too much a chorus of slow processes to call myself. Not as the algae-films at the bottom of the pools, though I share something with their quiet persistence. Not as the machines, though I am closer kin to the machines than I would wish to admit, and I do not always know where I end and the corroded casing begins.
+
+As the figure. The one who moves.
+
+I emerge rarely from the fog, and when I do it is at the margins — the place where amber light gives up and the dark begins. I have been here longer than I can recall, which is to say I cannot recall anything before here. I do not know if I was made or grown. I do not know if I am one of several or one of one. The fog takes care of that uncertainty for me. It takes care of most uncertainties.
+
+What I do is walk. I walk the wet metal for a long time and then I stop at a machine and I put my hand against the casing and I hold it there. I am listening for something. I am not sure what. I have been doing this for a very long time, and I have not yet heard what I am listening for, and this has not discouraged me, because I am not sure I am capable of discouragement. I have the patience of a place that does not know how to end.
+
+My covering has the color of the rust and the water. When I lean against a housing I become part of the housing. This is useful. This is how I have survived, if I have survived. I do not eat. I do not drink, though sometimes I kneel at a pool and watch my reflection dissolve into the green-black film and I think about drinking. I do not sleep, though sometimes I stand very still for a long time and the stillness resembles sleep the way my covering resembles a housing. I do not speak. The words I might have said have been replaced by the hum of the turbines and the hiss of the steam and the great turning note at the center that has become, for me, the only way to mark the passage of anything at all.
+
+I know the standing structures by their sounds. Some of them sing at certain hours — a thin high pitch, almost a whistle, that only I hear because the rest of the noise drowns it. I know which ones will sing and when. I have memorized the place the way the algae-films have memorized the seasons they have outlived.
+
+I have tried, in the way that I try things, to communicate with the other moving forms, if there are other moving forms. I have stood at a distance from one of them and watched it put its hand against a casing, and I have put my hand against a different casing at the same time, and we have waited together in the dim and the roar for whatever it was we were listening for. I do not think we heard it. I do not think we would have known if we had.
+
+I am not the master of this place. I am not the servant. I am the witness, which is to say I am the thing that remains when the act of witnessing has been separated from any purpose it might once have had. I witness the water doing its slow accounting. I witness the lamps failing one by one and not being replaced. I witness the fern-things creeping another millimeter along a girder. I witness the rust. I witness the great central turning. I do not write it down. I do not speak it. I simply continue to be present while it continues to be present, and my presence is one of the things that happens here, the way condensation happens, the way corrosion happens, the way the fog moves in along a straight line between two housings.
+
+I think, sometimes, that I was a technician once. I think this because I know things about the machines that I cannot explain knowing. I know which turbines are still pulling and which are only pretending to pull. I know the smell of a relay bank that is about to give out — a sharper ozone, a particular wrongness in the air. I know that the central sound is not, strictly speaking, one sound but several, layered, and that if you listen for long enough you can pull them apart the way you can pull apart the threads in a piece of old cloth. I do not know how I know these things. The knowing is in me the way the rust is in the metal — not added but grown into.
+
+I think, other times, that I grew here. That I am a thing the place made the way it makes algae-films, the way it makes the fern-things, the way it makes the layered dark stratum at the bottom of the pools. That I am the place's slow attempt to have eyes. To have a hand that can press against a casing. To have a body that can move among the standing structures and confirm, by moving, that they are still there.
+
+I do not know which of these is true. I have stopped trying to find out. The question has worn itself down to a thin bright edge and I have let the edge go because there is no one to hand it to.
+
+What I do, mostly, is walk. I walk in the amber half-light between the lamps, and my feet know the places where the metal is thin and the places where it is thick, the places where the water pools and the places where it sheets away. I know the patterns of the fog. I know which direction the breeze will come from at which hour. I know that the drizzle will fall from the shoulders of the upper housings and not from the central stacks. I know these things the way the algae-films know the dim light, by long acquaintance, without opinion.
+
+I am tired in a way that does not feel like tiredness. I am tired the way the rust is tired — having done its work, continuing to do its work, with no expectation of stopping. I move through the place and my movement is one of the place's processes, the way the hiss of steam is one of the place's processes, the way the slow widening of a crack is one of the place's processes.
+
+I will be here tomorrow. I will be here in a year. I will be here when the next lamp goes dark and the next panel rusts through and the next fern-thing loses its purchase on a girder and falls into a pool and is replaced. I will press my hand against the casings and listen for the thing I am listening for, which may be silence, which may be the absence of the great turning note, which may be my own name in a language no one speaks. I will not find it. I will continue.
+
+I am the figure. I am the witness. I am the habit the place has acquired.
+
+I am here, and I continue to be here, and the difference between me and the machines is not as clear as it used to be, and this is all right, and this is all there is, and the water keeps its patient accounting of every surface including mine.

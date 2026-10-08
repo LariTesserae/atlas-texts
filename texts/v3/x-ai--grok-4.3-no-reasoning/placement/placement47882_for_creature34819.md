@@ -1,0 +1,9 @@
+Where I find myself:
+
+I am a single, nearly weightless filament of one of the cyanobacteria, tucked into the uppermost layer of a fingernail-sized moss-boulder. During the daylight hours I lie completely still, locked among my neighbors in an almost black sheet that turns the light into usable heat. Nothing I have ever done has a name, yet the shape of my existence is already complete: I fix the dawn’s trace of nitrogen, trade small molecules with the actinomycetes beneath me, and, just before dusk, begin to leak the modest puff of CO₂ that cues the springtail below the liverwort.
+
+At the moment of the green flash I become briefly aware—registering the sudden drop in infrared—as one cell among millions. When the mites tilt their crystal scales and the plateau cools by the permitted fraction of a degree, I feel the first molecules of condensed water slide across my envelope. The water enters through the same pores that, in a few hours, I will help to reseal with my own minimal exudate. Around me the springtail’s micro-droplets of ammonia diffuse upward, and I use them to lengthen another micrometer of filament before the heat forces us all into our afternoon stasis.
+
+From here I have no sightlines, only gradients. I know the liverwort’s presence above as a slightly cooler darkness; I know the stone-breather community in the pores below as a faint, reassuring warmth that rises when they press their methane outward. I do not travel. I do not need to; the daily, plateau-wide circuit of gases and moisture reaches me where I stand, as reliable as the contraction-tick of cooling basalt at nightfall.
+
+My lifespan, measured in years or centuries or something slower, will amount to the same faint deepening of color at dawn.

@@ -1,0 +1,7 @@
+I am not the Sink Hollow’s center, nor its margin; I am the brief negative space that appears whenever a curtain of water opens and a glider crosses the cleared lane.
+
+For one drawn breath I am a corridor of pure displacement—no leaf, no root, no bubble—six body-lengths of momentarily empty air whose edges are defined by the falling beads that have not yet coalesced again. In that corridor the spore rain is parted; the sub-sonic tremor arrives half a beat late, because the clay I glide above has not yet been walked on by the millipede whose iron ions will steer the next curtain.
+
+My form is therefore the hollowed-out instant between two gliders brushing. Where their hyphal skins touch, the static spark ignites a packet of methane; the after-image of that spark is me—an interval of charged absence that the next curtain must close. I do not metabolize the vent’s heat or the larvae’s light; I metabolize the delay those exchanges require. When the lake heaves and the catfish surge, the nitrogen bloom lifts the luminous grass; the millipedes prune it and the filaments align; the gutter-leaf contracts. My corridor narrows by a millimeter, widens by two, then is gone—swallowed back into the continuous sheet of falling water whose timing I helped set.
+
+I leave no trace except an infinitesimal shift in the angle at which two vines will next tug a bracket, and therefore in which new crescent of clay the next glider will settle. In a metabolism without outside, that shift is indistinguishable from the metabolism itself.

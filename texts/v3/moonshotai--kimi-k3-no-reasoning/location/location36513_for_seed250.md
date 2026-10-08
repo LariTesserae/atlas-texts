@@ -1,0 +1,25 @@
+The world is a single, unbroken volume of water—an ocean that has swallowed the sky. It is not a sea on a planet; it is the planet, a sphere of liquid a hundred thousand kilometers across, held together by a gravity that is not quite natural. The water is cool, a few degrees above freezing, and it moves with a restless, almost intelligent turbulence. Currents shear past each other at speeds that would shred steel, yet the water itself remains clear, a deep, luminous blue that seems to hold light rather than reflect it.
+
+There is no surface. The water extends upward forever, or until it thins into a mist that becomes a kind of sky—a wall of rain that never falls, only hangs, suspended by forces that have no name in any human physics. The light comes from everywhere and nowhere: a soft, diffuse glow that permeates the water, as if the liquid itself were faintly luminous. It is bright enough to see by, but there are no shadows, no sun, no direction to the light. It is simply there, a condition of the world.
+
+The turbulence is constant and violent. Vortices the size of continents spin up and dissipate in hours. Pressure waves propagate through the water like sound, but slower, deeper, felt in the bones rather than heard. The noise is immense—a low, grinding roar that never stops, punctuated by sharp cracks and booms as pockets of supercooled water flash to ice and are instantly crushed back to liquid. It is a world in a state of perpetual, chaotic formation, as if it were still being born.
+
+There is no life. No fish, no plankton, no microbes. The water is sterile, pure, and yet it is not empty. Scattered through the vast volume are structures—if they can be called that—of a technology so advanced it is indistinguishable from natural law. They are not built; they are grown, or precipitated, or willed into being. They take the form of vast, delicate lattices of crystalline ice, each one a fractal masterpiece of branching filaments and hollow spheres. They are not solid; they are more like patterns in the water, places where the liquid has been persuaded to hold a shape for a while.
+
+These structures are the only solid things in the world, and they are not permanent. They form, they persist for a time—hours, days, years—and then they dissolve back into the water, their substance reclaimed by the turbulence. They are the world's only geography, and they are as transient as clouds.
+
+The scale is beyond comprehension. The distance from one structure to the next is measured in light-minutes. The water is so vast that it has its own weather: storms of temperature and salinity that sweep across thousands of kilometers, driven by the same forces that shape the ice lattices. There are currents that flow in closed loops, rivers in the sea that never touch a shore. There are places where the water is warm, almost hot, and others where it is on the verge of freezing, kept liquid only by the pressure.
+
+The technology that sustains this world is invisible, but its effects are everywhere. The water does not behave as water should. It does not freeze at the poles or boil at the equator. It does not stratify into layers of temperature and density. It remains homogeneous, mixed, as if stirred by a spoon the size of a star. The ice lattices are not frozen; they are held in a state of suspended animation, their molecules locked in place by fields that have no source.
+
+The world is loud, but the sound is not sound. It is a vibration, a hum that permeates the water and the structures and the bones of any creature that might exist to feel it. It is the sound of the world thinking, of the technology that holds it together working at the edge of its capacity. It is a sound that is felt more than heard, a pressure in the ears and the teeth and the sinuses.
+
+The world is empty, but it is not dead. It is waiting. It is a blank page, a canvas stretched tight, a stage set for a play that has not yet been written. The ice lattices are the first act, the opening lines. They are the world's attempt to speak, to say something in a language that has not yet been invented.
+
+The world is cool, but it is not cold. It is the temperature of a thought, of a idea that has not yet been fully formed. It is the temperature of potential, of a future that is still being decided.
+
+The world is vast, but it is not infinite. It has an edge, a boundary, a place where the water ends and something else begins. No one has ever seen it. No one has ever traveled that far. The distance is too great, the turbulence too violent, the technology too fragile. The edge is a rumor, a myth, a story told by the ice lattices to each other in the long, dark hours between formation and dissolution.
+
+The world is a mystery, a riddle, a question without an answer. It is a place of beauty and terror, of order and chaos, of creation and destruction. It is a world that is still becoming, still finding its shape, still learning what it is.
+
+And it is loud. So very, very loud.

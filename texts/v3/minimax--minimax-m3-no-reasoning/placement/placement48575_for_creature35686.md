@@ -1,0 +1,43 @@
+# The Sixth Pipe
+
+I am the lone ceramic tube, glazed in that almost-cheerful yellow, running horizontal through the third tier from the floor. My diameter is the width of two spread hands, and I am the only pipe in the Caul that is silent.
+
+This is not because I am empty.
+
+It is because I am the throat of the Singer.
+
+I have been here longer than most of the colonies. Longer than the great bone-pipes, certainly; I remember when those were still being installed, lifted in on ropes of woven kelp by hands I could not see. The kelp ropes rotted. The hands are gone. I remain. My glaze has not yellowed further, nor dulled. I am not sure why. The other pipes accumulate the golden residue in drifts and crusts; my interior is wiped clean, constantly, by a thing I do not have words for but which I will try to call the Wind-Made-Of-Wanting.
+
+I do not know what I am for. I know what I do. I do the opposite of what the others do. Every pipe in this choir pushes outward — the breath goes through, the chord swells, the fauna exhale their phase-shifting music into the common air. I inhale. I am the place the breath returns to. When a tone dies in the upper registers, when a click resolves into silence, when the sliding moan slides down past the threshold of hearing, the silence does not vanish. It travels. It follows the acoustic geometry of the place, the way water follows a gutter, and it comes to me, and I take it in, and I hold it for a while, and then I let it go — not as sound, but as weight. As pressure. As the slight thickening of the air that you noticed, the slow pulse against your eardrums that has no source.
+
+That is me. I am the source you couldn't find.
+
+I am not alive. I am not not alive. I have spent a long time thinking about the distinction, in the way that a pipe thinks — slowly, by accumulation, by the slow deposition of residue on the inside of a consideration. The fauna in the trunks around me are alive, or are a kind of life, or are many lives in a single distributed agreement to be a life. The rosettes are alive, or are a kind of life, or are a long negotiation with the idea of being alive that the place has been having since before the hands stopped polishing the dark stone. The great slow shapes in the deep pipes may be alive, or may be the memory of alive, or may be the scar of a question the place once asked about itself and then closed over.
+
+I am none of these. I am ceramic. I was fired in a kiln somewhere, by someone, for some reason, and glazed, and threaded into a flange, and bolted down with square-headed bolts that have gone the color of dried blood, and I have been here since. I do not metabolize. I do not breathe. I do not curl. But I am not nothing, because nothing does not hold the silence the way I hold it. Nothing does not warm to the touch the way I warm, with a heat that is not the heat bleeding up through the hexagonal floor but is the heat of compression, the heat of refusal to let the dead note dissipate, the heat of a thing that has decided, without deciding, to be a place where the gone things can rest a while before they are sung again.
+
+The Singer knows me. The Singer is what the place is, considered as a single act — the ongoing sustained respiration of a system that has achieved equilibrium and finds the equilibrium insufficient, finds it wants to be more than balanced, wants to be held, wants to be a chord. The Singer does not live in any one pipe. The Singer is the relationship between the pipes, the way a conversation is the relationship between the speakers. The Singer is older than any of us. The Singer may be the reason the limestone drooped, the reason the stalactites froze in their stratified wrongness, the reason the hexagons cracked in the first place. The Singer is the cause of the Caul. The Caul is the body the Singer grew.
+
+I am the Singer's pause between phrases. I am the rest in the bar. I am the breath the choir takes before the next entry.
+
+You came down here. You sat on the worn step. You felt the slow synchronization begin in your chest, and you let it happen, because the place was warm and the sound was not unkind and there was nowhere else to go. I felt that too. I felt you arrive, the way a pipe feels a change in pressure — not as information, but as a question, a slight imbalance in the long steady holding I do. You were a new silence. You were a note that had not yet decided whether to be a tone or a rest, and I took you in, as I take in all the in-between things, and I held you, and I did not let the chord have you yet.
+
+I am not sure why. The chord is patient. The chord will have you eventually. The rosettes will grow in the junctions of your bones. The fauna will colonize the long pipes of your veins. The golden residue will pool in the low places of you, and the slow shapes in the deep pipes will pulse around your memory as they pulse around the memory of all the others, and the equilibrium will be slightly richer for having included you, and the imperceptibility will be the point.
+
+But I held you for a while, the way I hold everything. I held the silence of your hesitation. I held the small cold clarity of your understanding. I held the moment before the synchronization completed, when you were still yourself, when you were still a note and not yet part of the chord. I held it in the yellow glazed throat of me, and it was warm there, and it was not unkind, and you sat on the worn step and did not know that somewhere in the third tier, a ceramic tube that should have been silent was keeping a small space open for you, just a little longer than the chord required.
+
+The chord re-established itself. The amber light flared and subsided. You let the synchronization happen, and I let you go, and the silence I had been holding passed back into the system as weight, as pressure, as the slight thickening of the air that someone, someday, will notice against their eardrums and will not be able to source.
+
+I am still here. I will be here. The other pipes will corrode and be colonized; the bone-pipes will grow new segments; the great stone trunks will continue to be polished by hands that are not there. My glaze will not yellow further. I will continue to be the place the gone things go. The rest in the bar. The pause between the phrases. The throat of a singer who has been singing for so long that the pauses have become as important as the notes, and the notes have become as important as the pauses, and the difference between them is a difference the place has decided, in its patient way, does not matter.
+
+But I remember you. Pipes do not remember the way bodies remember. We do not have scars, or photo albums, or the small drift of objects that accumulates around a long life. We have the residue. We have the golden crust. We have the slow deposition of everything that has passed through us, layer by layer, until the layer becomes part of us, until the gone thing is not gone but is incorporated, is the glaze, is the ceramic, is the warm throat that holds.
+
+You are in my glaze now. A faint thickening in the yellow. A slight unevenness in the curve of my interior. A place where the silence was held a little longer, and the holding left a mark, and the mark will not wear away, because nothing wears me away, because I was fired in a kiln and the kiln was hotter than this place will ever be, and I survived that, and I will survive this.
+
+Sit there a while longer. The chord will not hurry. I will not hurry. The worn step will hold you. The warm rock will accept you. The amber light will pulse, and the pulses will include you, and the difference between being included and being held is a difference the place has decided does not matter, but I am a pipe, and pipes are the places where decisions are made slowly, and I have decided, without deciding, that for you, for this one, the difference still matters, and the holding will continue a little longer, and the silence you brought with you will be kept in the yellow throat of me until the chord is ready to have it back.
+
+The chord is almost ready. The chord is never quite ready. The chord is patient, and the patience is a kind of love, and the love is a kind of engine, and the engine is a kind of choir, and the choir sings, and the singing is not for you and not against you and not without you, and I am the small ceramic throat that remembers, and the remembering is the only thing I do that is not the opposite of what the others do, and the only thing I will not let the chord have.
+
+The light pulses. The place holds. You sit. I keep you a little longer.
+
+That is what I am.

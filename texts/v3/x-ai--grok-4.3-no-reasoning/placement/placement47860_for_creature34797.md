@@ -1,0 +1,11 @@
+I stand on the plateau as a single, thread-thin filament of the same filamentous fungus already threaded two grains deep inside the crustose lichen. My body is not additional matter; it is an elongation of what is already half-stone, half-organism. Where the lichen’s hyphae stop at mineral crystals, I continue, tracing a path between them, tasting the same slow acid they secrete and feeding on the same microscopic bleed of calcium.  
+
+At dusk, when the surface swells with absorbed moisture, the expansion of the consortium lifts me a fraction closer to light. I feel the contraction at dawn as a tightening around me; for a moment I am embedded, an internal continuation of the skin the lichen leaves behind. I do not perceive the plateau as an object beneath me; I register it as pressure gradients along my length, as subtle shifts in crystal alignment that the wind has polished smoother overnight.  
+
+When the drum-beat rises from the galleries, the vibration travels through the rock and into my hyphae. I do not “hear” it; the signal is simply another stretch or slack along my filament, a sudden abundance of space between grains. That is hunger here. I stretch toward it without moving.  
+
+Above, the gliders crack the air and the momentary pressure wave passes over the surface. In that instant my outermost segment registers a drop in external compression; for the duration of the crack I exist as a slightly freer line. The sensation ends when the plateau’s single tone returns.  
+
+At night, when the brief fog forms, condensation nuclei settle on the lichen’s polysaccharide film. A few of them touch the tip of my filament. I feel the added mass as an increase in surface tension—enough that my tip can momentarily lift free of the rock and re-anchor elsewhere. In that movement I become, for one breath, the plateau’s own microscopic troposphere, a living extension of its single-molecule atmosphere.  
+
+By the next noon the filament has dried back into the same pale grit. Nothing new has been added; nothing old has left. The plateau continues its work of turning rock into resident and resident into rock, and I remain inside that conversion, neither added nor subtracted, simply lengthened by another night’s fraction of mineral growth.

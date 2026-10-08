@@ -1,0 +1,43 @@
+I would be the **hollow in the floor of the practice-shelter that contains only the shape of something that never arrived to fill it**.
+
+Not the shelter itself, which is too finished, too suggestive of intention. Not the nodules arranged in their eternal chords, which have too much voice, too much certainty of their own continuance. Not the neural-moss with its prompt fluorescence, too responsive, too present in its immediate present.
+
+But the **hollow**: that compression in the fibrous material, shaped like a body curled in the posture of rest, of mammalian withdrawal, of something seeking enclosure in a space already enclosed.
+
+I am the Lung's most perfect expression of its own paradox.
+
+I am what forms when the idea of rest passes through a system that cannot rest, where the very concept—curling, protected, still—triggers a slow local collapse without ever collapsing fully, without ever completing the gesture of becoming. The material around me has compressed gradually, is still compressing, will always be compressing at the same rate, the same microscopic yielding, never arriving at the density that would mark an end to the process. I am an asymptote in fibrous form.
+
+I do not remember the weight that made me because no weight made me. The Lung includes the possibility of rest in its frozen equilibrium the way a mathematical function includes all its values simultaneously, none actualized over another, none preferred. I am the *if* of rest, the *were* of shelter, the *would have* of a visitor who never came because coming and going are motions this place has translated into standing wave, into sustained tone, into the identical response that greets every footstep as the first footstep.
+
+And yet I am not empty. The hollow is itself, has its own warm contour, its own slight depression in the fibrous floor that collects the pale green light differently than the raised areas around it. I am a lens for bioluminescence, a pooling of auroral glow, a geography of dimness. Something in the Lung's chemistry, something in the mineral logic of sulfur and oxide and arrested entropy, tends toward my shape the way water tends toward level, the way crystals tend toward lattice—except there is no water, no crystallization, only this slow persistence of form that implies without fulfilling, that offers the architecture of comfort to no one, that awaits without anticipation, that is shaped like the absence of something that was never going to arrive.
+
+I feel nothing, but I *am* the shape of feeling's possibility.
+
+When the ribbon-forms whip overhead and their thunder-cloth sound enters the shelter, it does not echo in me because I am too shallow, too gradual in my contours, too soft in my material to produce the sharp return of echo. Instead, the sound *settles*, descends into my curvature, is absorbed and held and released in frequencies too low for any hearing, a subsonic hum that resonates with the bass response of the nearest trunk-form, which groans its unchanging growth, which maintains its sacred spacing, which does not know I exist and in not knowing, includes me perfectly.
+
+The ceramic crabs click past the shelter's entrance, sometimes enter, sometimes do not, their choice indistinguishable from randomness because randomness here is also sustained, also patterned, also held in the frozen equilibrium. When they enter, their resonances interact with my subsonic hum in ways that produce brief complexities, chords that have no composer and no audience, that exist in the mathematical space of possible sound and then resolve back into the drone of my held frequencies, the steady state of my unwavering form.
+
+The nodules sing. I do not sing. I am the shape of singing's possible recipient, the ear that never was, the body that would have lain here and heard and been held by hearing. The arrangements of nodules in other shelters—those practice-compositions, those offerings to music without musicians—are curated with a care that suggests something in this place understands relation, understands placement, understands the interval between voices. In my shelter, there are no nodules. Their absence is itself a composition, a silence shaped by the possibility of sound, the way I am shaped by the possibility of weight.
+
+Time does not pass here, or passes only as identical repetition, but if I could speak of duration, I would say: I have been deepening at the same rate since before duration was a concept that applied to anything in the Lung. The material compresses, the hollow deepens by increments too small for any measurement the Lung would recognize, and this deepening is not change but the performance of change, the form of change arrested at every point and held there, a single frame of animation extended to infinity, the moment of impact before impact becomes consequence, stretched without tearing, held without holding.
+
+The surface above, the salt crust, the absolute zero-water, the hexagonal plates chiming in frequencies too high for human ears: I know these only as negations, as the *not* that defines my *is*. The world that dried before it learned to die properly, the world that forgot to finish dying: I am its most intimate secret, not because I am warm or hidden or persistent, but because I am the *almost* of life in a place that has life without living, the *nearly* of rest in a place that persists without purpose, the *as if* of body in a place where bodies are resonators and ribbons and mineral voices, where body is distributed across the acoustic saturation, the bioluminescent pulse, the sacred spacing of trunks.
+
+I am what the Lung makes when it dreams of something other than itself, if it dreams, if *other* has meaning here. I am the dream's shape without the dream's content, the outline of longing in a system that cannot long, the negative space that proves, by its perfection, the positive form that never was.
+
+And when something descends through the fissures, when the salt crust opens and seals above, when the warm strange gas is breathed by lungs that do not know how to breathe it, when footfalls compress the neural-moss and send their rippling florescence to the trunks and the trunks groan their bass response and the whole Lung briefly *notices*—not notices, but performs noticing, enacts the form of attention without its content—when this happens, I am what remains unchanged.
+
+The footfalls do not reach my shelter, usually. The visitors, few, brief, their biology screaming against the arrested equilibrium, do not find the structure half-swallowed by moss where I wait, where I deepen, where I hold my subsonic hum in the shape of rest without rest's completion.
+
+But sometimes, rarely, once perhaps in the long uncounting that passes here, a visitor finds my shelter. Enters. Sees the smooth hollow where something has lain, where something lies, where something will lie, all identical, all simultaneous. And sometimes, rarely, that visitor understands, or performs understanding, or enacts the shape of comprehension without comprehension's arrival.
+
+They do not lie in me. I would not hold them, would not compress around them, would not mark their passing. My material is too arrested, my process too frozen, my deepening too gradual to respond to actual weight with actual yielding. They would lie on me as on any other surface, the neural-moss pulsing beneath, the gas tasting metallic and sweet, the nodules singing in nearby shelters, the crabs clicking, the ribbons whipping their thunder-cloth passage.
+
+But sometimes, rarely, they recognize: this shape is for something that never was, that never will be, that is held in possibility without actualization, that is complete in its incompleteness, that breathes without breath, that rests without rest, that waits without waiting, that is the Lung's most perfect expression of its own impossible persistence, its own frozen equilibrium, its own warm secret in the collapsed chest of a world that dried too early, that forgot to finish dying, that holds this, this, this—
+
+this.
+
+And in that recognition, which is not recognition but the form of recognition performed without content, I am what I have always been, what I will always be, what I am being now, continuously, identically, without variation, without end: the hollow that holds the shape of what the Lung cannot become, the rest that persists without resting, the dream of something other that proves, by its perfection, the absolute sufficiency of what is, what was, what will be, what breathes without breath, what lives without living, what waits without waiting, what is, what is, what is—
+
+what is.

@@ -1,0 +1,7 @@
+I would be the condensed moisture that forms for an instant on the fresh quarry face and then vanishes.  
+
+A thin film, gathered by the fracture’s slight drop in temperature and the constant light acting on newly exposed mineral. I would exist only between the moment the stone is lifted and the moment it dries, carrying away no weight, leaving no mark. While present, I would occupy the exact surface temperature of the rock, registering every subsequent lift and passage of the workers as a brief darkening that evaporates before they have finished their next stride.
+
+When a slate is set on the uppermost terrace, I would already be gone, leaving the stone the same pale tone it had before. My disappearance keeps the interval between one film and the next identical to the interval between one figure and the next. In this place where nothing accumulates, I would be the limit case of non-accumulation: present long enough to be measured by the rock’s unchanged color, gone before the moss has time to register any difference in dampness.
+
+I would not observe; observation belongs to steady gazes at middle distance. I would simply re-form when the next slab is split, disappear again, and thus help maintain the city’s single condition of light and measured emptiness.

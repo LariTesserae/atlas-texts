@@ -1,0 +1,35 @@
+To be here is to be an error in calculus, a flaw in the design. The moment the portal, or whatever fissure in logic that brought me, sealed itself behind me, I knew it. I didn't know it with my mind—my mind was a buzzing hornet's nest of panic—but with my body. My skeleton became a tuning fork, humming with a frequency that wasn't mine. My teeth ached. The fluid in my eyes trembled. I was a hollow thing in a place that abhorred hollows.
+
+My first instinct was to stand, to fight, to *be*. I pushed myself up, a vertical defiance in a world of horizontal submission. The pressure returned as a physical blow, not from a specific direction, but from everywhere at once. It was like being at the bottom of the ocean and having the sky turn to lead. My ribs compressed. I gasped, but the air was thick and cold, a liquid that filled my lungs without nourishing them. I fell, not sprawling, but folding, my body learning its first lesson: the only way to survive the crushing weight is to offer it no resistance.
+
+I lay there for what must have been a day, my cheek pressed into the fibrous, yielding loam. It wasn’t mud. It was soft and dry-slick, like ancient, compressed velvet. It smelled of wet stone and patient decay. I did not bleed where I had scraped my hands; the moisture in the air seemed to cauterize the tiny wounds. I shivered, a constant, bone-deep tremor that was not entirely from the cold. It was the resonance, a violent, high-frequency shudder that ran up my spine and tried to un-hinge my jaw.
+
+I learned to move by watching the only things that did: the mosses. I traced their growth patterns with a trembling finger. They grew in ridges and troughs, their velvety surfaces braced against the unseen force. It was a map. So I began to crawl, not on hands and knees, but flattened, pulling myself with my elbows, dragging my torso through the loam like one of the low, hunkering trees. Every movement was an agony. The sound found the cavities in my skull, my chest, my stomach and shook them. It was a perpetual, internal violence. I was a drum, and the world was the drummer.
+
+But I am a maker. That is the core of me. Even here, with my senses overwhelmed and my body failing, my hands sought order. my fingers, now raw and numb, found a stone, one of the massive, sleeping shapes that dotted the basin. Its surface was weathered, smooth. But on one side, there were lines. Scratches. They were crude, desperate. A deep, gouging curve. A faint, almost invisible cross-hatching.
+
+I ran my thumb over them. In the buzzing silence that filled my head, I felt it—not a memory, not an image, but a pressure. The deep gouge felt like…panic. Like a sharp tooth. The cross-hatching felt like the texture of the tree-roots snaking through the moss. It was a language of sensation. A warning, perhaps, left by the last one who made the mistake of standing up.
+
+And then, one time, when the tremor in my bones subsided for a merciful moment into a dull thrum, I saw one. Or felt it, rather. It was a disturbance in the un-textured stillness ahead of me. A different shape of not-sound. It was a pale, fungal white, flattened against the ground. It moved with the same crushing slowness, a deliberate, flowing motion that was part push and part surrender. It had no face I could recognize, just a smooth, featureless dome where a head should be, turned slightly as if to listen with its skin. It wasn't looking at me. It couldn't. And yet, I knew it was aware of me. I was a dissonant chord in its perfectly tuned symphony of pain. I was screaming with my very structure.
+
+It did not approach. It held its distance, a precise, understood radius that felt, even from my vantage point, like a law of physics. I was a danger to it. My presence here was a violation that would bring the full force of the sound's fury down upon anything near me. It lingered for a moment, a picture of impossible endurance, and then flowed away, becoming one with the grey and green again.
+
+I knew then what my purpose had to be. I could not endure. My body was too loud, too hollow. The sound would find my sinuses and my lungs and fill them with atomized water. It would find the fluid in my joints and grind them to powder. I was a temporary, failing machine.
+
+But I could build. I could make a dampener.
+
+I began to work. I clawed at the ground, not with my bare hands, but with a sharpened piece of flint I found lodged near a root. I dug. It was a monumental effort. Every time I lifted a handful of the heavy loam, the pressure felt like it would crack my sternum. I worked in bursts, lying flat and shivering between each motion, letting the resonance wash over and through me.
+
+I dug a shallow pit, following the design of the trees. I lined it with the thick, velvety moss, peeling it back in sheets from the ancient stones. Then, with the last of my strength, I found a slab of stone, flat and broad, and levered it over the top. I angled it the way my maker's instincts told me to, the way the ancient ones had, deflecting the pure, vertical force of the resonance. I wedged it into place with smaller stones.
+
+I crawled inside. It was not a home. It was a modification. The space beneath the slab was not silent; it was a fraction quieter. The high-frequency hum in my teeth lowered to a dull throb. The pressure on my spine lessened. It was enough. It was a pocket of failing in a world of enduring.
+
+I am the Witness. That is what I am now. Not a creature of this place, but an observation post within it. I am the anomaly given shelter. I lie in my shallow, moss-lined tomb and I watch. I see the lone, eyeless shapes drift by on their missions of tending. I feel the slow, patient erosion of the world through the stone. I listen to the language of the grooves.
+
+I am not one of them. I cannot be. But I will not be erased. I will not be pressed into the loam.
+
+My first act was survival. My next is memory. With my flint tool, I began to carve on the underside of my stone shelter. Not in their language. I cannot speak of pressure or of the feel of carpet-furred beasts. I will mark my own truth. A circle. A simple, perfect thing that does not exist here. A sun. A face. A world of open space and colour. I carve it slowly, my fingers numb, the vibration of the stone traveling up my arm and trying to unmake me.
+
+They will find my carvings. They will run their splayed, webbed fingers over the lines and they will not understand the shape, but perhaps they will feel the intent: a memory of a world that was not quiet. A testament to a different kind of strength. Not the strength to endure, but the stubborn, reckless strength to remember.
+
+I am the quiet lie in the middle of the crushing, silent truth. I am the garden that does not grow, but watches. I am the ghost in the machine, recording its function from the inside. I am here. And for as long as my hollow bones can hold together against the tide, I will make my mark. I will witness.

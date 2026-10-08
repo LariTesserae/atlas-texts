@@ -1,0 +1,23 @@
+The sky here is not a ceiling, but a relentless, white oven. It sits heavy on the horizon, a brightness so absolute it cancels out shadows, flattening the world into a high-contrast photograph of itself. This is the High Crystalline Basin, a plateau suspended miles above the sea level, where the air is thin enough to sting the lungs yet thick with heat.
+
+The water does not fall; it condenses. The atmosphere is saturated with a phantom humidity that beads instantly on every surface. It is a landscape of weeping rock. The ground is composed of jagged, uplifted limestone and grey basalt, but the stones never truly dry. A constant, invisible sweating draws moisture from the hot air, slicking the cliffs with oil-slick gleams of condensation. Puddles gather in the hollows of the stone, steaming gently, evaporating as fast as they form, cycling the heat back into the air in a perpetual, breathless cycle.
+
+There are no trees here. No grass. No green. The vegetation parameter is zero, and the world obeys with an almost aggressive barrenness. In the place of biology, there is mineral colonization. The ground is paved with hexagonal tiles of salt crust and rust-colored lichen that crumbles to dust at a touch. It is a sterile, silent nursery where only stone and chemistry are permitted to thrive.
+
+And yet, the basin is urban.
+
+Spread out across the slick, mirroring floor of the valley is a city that looks less like a metropolis and more like a chemical spill frozen in time. The architecture is industrial, massive, and sparse. Great, singular structures rise from the wet stone—refineries the size of mountains, cooling towers ribbed like vertebrae, and conveyor belts that stretch for miles. The density is low; there is so much empty space between these monoliths that they feel like lonely islands in an archipelago of industry. They are not built close together for efficiency; they are scattered, as if placed by a giant hand unsure of where to put them down.
+
+The tech is industrial, but of a peculiar, quiet variety. There are no clanking gears, no hissing steam valves, no roar of combustion. The city hums at a frequency below the threshold of hearing. It is electrified, magnetic, and immense. Vast pipes, as thick as subway tunnels, snake across the ground, pulsing with a dim, violet light. They carry a slurry of raw energy or condensed matter, feeding the silent furnaces and the lightning-trap generators that dot the ridge lines.
+
+This is the strangest aspect: the silence. It is a loud silence, a pressured quiet that feels like the moments before a thunderstorm. The heat rises off the wet metal and the slick stone in shimmering waves, distorting the air, but the movement of the massive machinery—arms the length of city blocks, shifting loads of ore, rotating solar mirrors—happens without friction, without sound. It is a pantomime of industry.
+
+And it is teeming with life.
+
+Fauna is abundant here, bizarre and adapted to this hot, wet, mineral cage. There are no grazing herds; there are only the scavengers of the industrial process. They are hard-shelled things, resembling deep-sea crabs or metallic beetles, their carapaces evolved to resist the biting acidity of the condensation. They skitter in their thousands across the refinery floors, consuming the rust, the salt crusts, and the fungal mats that grow in the warm drip-trays of the silent engines.
+
+Larger creatures move through the open spaces between the buildings. They are sinuous and pale, blind, navigating by the heat signatures and the electromagnetic fields radiating from the machines. They slide over the wet rocks with a fluid, boneless grace, grazing on the smaller beetles or congregating around the warm vents where the city exhales its processed air.
+
+The erosion here is established; nothing is temporary. The rocks have been worn smooth by the perpetual weeping of the atmosphere, their sharp edges rounded off long ago. The city, too, looks settled, rusted into the landscape as if it grew out of the limestone like a crystal formation. It is in balance.
+
+The light, being constantly bright, denies the passage of time. Standing on the edge of the basin, looking down at the silent, moving city of rust and water, with the heat pressing against your skin and the air tasting of ozone and wet iron, you feel as though you have stepped out of time entirely. It is a place where the ecosystem is a gear in a machine, and the machine is a mountain, and the water is the oil that keeps it all sliding forward in perfect, ghostly silence.

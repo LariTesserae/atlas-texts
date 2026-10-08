@@ -1,0 +1,25 @@
+The water is everything here. It fills the chamber from floor to where the ceiling should be, and the ceiling is not there anymore, so the water goes up into the open air above, but the chamber is what you are in, and the chamber is full.
+
+It is cool — that kind of cool you notice when you slip into it, that tightens the skin a little. Not cold enough to hurt. Cold enough that the body understands it has entered a different place.
+
+You come down through a hole in the ground, in the side of what was once a quarry wall. Below the waterline the stone has been cut into flat planes and right angles. Industrial geometry, but not industrial construction — the rock was removed to make these walls, not added to. The cuts are old. The corners have softened. The stone is pale limestone, something that holds a little light in it.
+
+Down here, a few feet under the surface, the water is clear. Greenish. It moves almost imperceptibly, just enough to make the bright lattice on the floor shift and breathe. From above, where the sky comes through the opening, daylight pours in and refracts and lays moving bars of brightness across the submerged stone. This is most of the light. The water filters it, softens it, makes it stay.
+
+Scattered around the floor of the chamber are the machines.
+
+They are not many. Sparse, the way a small grove is sparse — each one with its own clearance, its own water around it. A pump, or what was a pump, sits on a concrete plinth in the middle distance. The motor housing is a green-painted cylinder with cooling fins, and the paint has come away in long strips. The fins are colonized by a thin film of algae and a few strands of something darker that wave in the slow current. The impeller housing below has been opened at some point — a flange unbolted, swung aside — and inside is dark. A few inches of silt have gathered around the base.
+
+A little further on, a row of pipes runs along one wall. They are still held to the rock by their brackets, but most of them end in mid-air, capped, sealed, or simply snapped. Some hang into the water at tired angles, weighted with rust. One has let go entirely and lies along the floor, half-buried. The brackets remain on the wall like coat hooks after the coat has gone.
+
+A control panel is mounted partway up the wall, but the wall has been cut away below it and only the upper portion of the panel still exists, jutting from the stone like a small shelf. The face is corroded. The dials have stopped at particular numbers — pressures, presumably, in a unit nobody will check. One still has its glass cover; the glass is clouded but you can read the markings if you look closely. The needles are quiet.
+
+A transformer stands on four short legs near the far wall, its ribbed sides still recognizable, its cables trailing into the silt. Beside it, half-tipped on its side, a steel drum — the kind that held something — has been opened by time and only its rims and a curl of metal remain, shaped now like a piece of bark. These things are not arranged. They are where they were left, where they fell, where the water found them.
+
+There is no one here. No fish. Nothing moves in the chamber except the few strands of growth, and they are moved by the water, which is moved by something above — a current of air, perhaps, or the slow thermal exchange between the open sky and the submerged stone. There are no crabs, no worms. Nothing has decided to live here. The metal and the water have reached an arrangement without any third party.
+
+The sound is small. Water against stone, almost inaudible. A faint hiss where some unseen opening above lets a trickle of air down into the chamber. A metallic creak, intermittent, from one of the hanging pipes — the temperature is changing by fractions, and the metal is breathing. That is almost all. Once in a long while a drop falls from the lip of something overhead and you hear it land — a single note — and then it is quiet again.
+
+The chamber is small. You could cross it in a dozen paces. The walls are close enough that when you look up through the water you can see the far wall's surface through the green, curving with the perspective of looking through a lens. The whole thing has the quality of a room — a room that has been forgotten and then filled and then forgotten again. It is settled. Nothing here is in the act of becoming anything else. The silt will not noticeably deepen. The rust will not noticeably advance. The few strands on the motor fins will grow a little and stop. Tomorrow this place will look like today. The day after, the same.
+
+Light moves across the floor. The water moves almost not at all. The machines sit where they fell or were left, doing the thing they have always done now, which is nothing. The cool holds. The chamber waits without waiting, the way a held note waits after the string has been released.

@@ -1,0 +1,31 @@
+You find yourself in a throat of the earth.
+
+It is a grotto, though that word feels too structural, too deliberate. Better to say it is a pocket—a vast, hollowed cyst in the limestone, tucked beneath a landscape you cannot see and have forgotten. The scale is strange: the chamber is perhaps thirty meters across, which would be immense for a room but feels cramped for a cavern. It is a single contained place, embedded in rock, with no visible horizon and no sky—only a ceiling that vanishes into blackness overhead.
+
+The cold is the first thing that established itself. Not biting, not violent—pervasive. A slow, wet cold that lives in the marrow after a few minutes. The air holds maybe four degrees Celsius, and it carries moisture in a state of indecision: not quite mist, not quite rain. Every few minutes, a droplet finds your neck. Condensation sweats from the walls in thin, erratic trails that catch what little light exists and trace their way downward like slow, blind fingers.
+
+And the sound. The sound is everything here.
+
+Water. Not the polite drip of a tourist cavern but a continuous, complex roar—the accumulated voice of a subterranean river that has worn its way through the stone over epochs. The water enters through a fissure in the far wall, a dark cleft that breathes cold air and churns white in the thin ambient glow. It exits below, through a slot in the floor that the light cannot penetrate. Between its arrival and departure, it fills the acoustic space entirely—a low, muscular thrum that vibrates in the sternum, overlaid with higher frequencies: the slap and tumble of water against rock, the hiss of spray, the glassy ring of current folding over itself. You cannot hear your own footsteps. You cannot hear your breath. You must trust that you are breathing.
+
+The vegetation makes a liar of the emptiness. The parameters say hollow—vast space between presences—and this is true. The chamber is mostly negative volume, mostly dark air and the memory of stone. But where life has found purchase, it has gone feral with opportunity. Mosses colonize the walls in great crater-patches of deep green and black-green and a bruised purple that might be a lichen or might be something older. Ferns emerge from ledges at regular intervals, their fronds long and spare and prehistorically simple, reaching toward the sound as if the river were a sun. There are no flowers. There are no seeds. Everything here reproduces by spore or by division—by patient, ancient methods that require no warmth and no audience. The green is rich but stranded; each colony is an island, separated from its neighbors by meters of bare, weeping stone.
+
+The light comes from the river. Or rather, the light is permitted by the river. In the churn of the water, something luminesces—whether bioluminescent organisms carried in the current, or mineral particulate catching what little phosphorescence exists in the deeper rock, or some gradual phosphoric chemistry that glows at the boundary of water and air. The effect is faint, cooler than moonlight, bluer than starlight. It illuminates only the near—the walls within three meters of the water glow with this sickly, gentle light. The rest is conjecture.
+
+There are structures.
+
+In the highest reach of the chamber, where the wall curves toward the ceiling, someone has built. The work is primitive: hand-shaped stone fitted to stone, mud-mortar frozen into permanence by the cold and the years. A shelf, perhaps, or a cache—too small to be a shelter, too deliberate to be accidental. A single fire-pit, long cold, holds a crust of charcoal that the damp has turned to a black gum. A groove in the rock beneath it suggests a channel for drainage, or perhaps for blood. There are no markings, no art, no language left behind. Whoever came here came for something specific and took it with them when they left. Or didn't leave.
+
+Elsewhere—lower, closer to the water—a more recent artifact: a wooden paddle, hand-carved, the blade worn to a soft ellipse by years of current. It rests in a shallow pool beside the river slot, caught in an eddy, turning slowly. Turning. It has been turning for months, perhaps years, anchored by its handle in a crack in the stone. The current pushes; the crack holds; the paddle rotates through the same arc, over and over, in the dark. It is the most dynamic thing in the chamber, and it moves with the patience of a clock.
+
+The fauna are rumors. You hear them before you see them—if you see them. Pale things, cave-adapted, eyeless or nearly so, that move along the river's edge with a twitching caution. They might be salamanders or they might be something that has never been categorized. They drink from the shallows and retreat into fissures too narrow for your hands. Once, something skitters across the ceiling—a sound like dry fingers on wet stone—and then is gone into a crevice, leaving only the echo of its passage, which the river immediately consumes.
+
+This place is old. Not old in the way that mountains are old—brashly, dramatically old—but old in the way that a scar is old: settled, integrated, no longer healing. The erosion has reached equilibrium. The water will widen the chamber by perhaps a centimeter per century. The limestone will continue to dissolve. The vegetation will spread another few inches in the next thousand years. The paddle will rot and be replaced by a fallen branch, which will also rotate, which will also be slowly ground away. The sound will not change. The sound has not changed for longer than your species has had words for sound.
+
+You could stay here for a very long time, and nothing would notice.
+
+That is not loneliness. Loneliness requires the memory of company. This is something else: an environment so complete in its own processes, so indifferent to observation, that your presence is a rounding error—a warmth that will dissipate as soon as you leave, a set of footprints that the condensation will erase within hours.
+
+The river does not know you are here. The moss does not care. The paddle turns.
+
+You are in a pocket of the earth's throat, and the earth is swallowing its own voice, and you are briefly, incidentally, privileged to overhear it.

@@ -1,0 +1,25 @@
+The horizon does not curve. From the vantage of any gantry, the world extends as a flat, infinite tableaux of iron and cermet, broken only by the spines of cooling towers and the ribs of vast conveyors. It is a place of absolute horizontalness, a low-elevation plateau constructed so thoroughly that the concept of "ground" has been replaced by "floor."
+
+This is the Eternal Foundry.
+
+The air is heavy and thick, not with fog, but with condensation. The atmosphere is warm— uncomfortably so, a stifling, blanket-like heat that hangs at skin-level. It is wet here, but not with the cleansing rain of a natural world. Moisture sweats from the rivets and drips down the I-beams. Massive, porous weeping stones—artificial geologies of sintered metal and ceramic—excrete water in constant, slow trickles. Puddles collect in the shallow depressions of the floor plates, oily and iridescent, reflecting the gray, diffuse light of a sky that is perhaps a ceiling, perhaps just the atmosphere thickened by industrial haze.
+
+There is no green. The vegetation parameter is zero. There are no leaves, no grass, no vines seeking purchase. The color palette is strictly mineral: rust-reds, slate-grays, the dull black of dried oil, and the shimmering silver of active machinery. Fungal mats do not grow here; instead, colonies of mineral accretions build up in the damp corners, slowly calcifying like stalactites, hardening the joints of the world.
+
+The silence is profound. It is not the silence of a void, but the silence of a machine holding its breath. There is a low, thrumming pressure in the ears, the subsonic vibration of engines the size of mountains turning over somewhere in the distance, but immediate sounds are rare. A drop of water falling from a high pipe to strike a metal plate ten seconds later. The scuff of a footstep.
+
+What fills this vast, dense, enclosed space is life, but life that has forgotten what it means to be wild.
+
+The fauna is overwhelming. It is a seething, writhing carpet of biological existence that has adapted to the total construction. The inhabitants of this place are the Mechanisms—creatures that are half-flesh, half-machine, or perhaps flesh that has evolved to mimic machinery so perfectly it functions as gears and pistons.
+
+The floor is dense with them. They do not run; they operate. Great, shelled creatures that resemble locomotives creep along the rails, their flesh pulsating within riveted iron exoskeletons. Swarms of small, metallic beetles—eyes faceted like camera lenses, wings buzzing like static electricity—clean the joints of the larger beasts. It is a closed ecosystem of consumption and maintenance. They eat the rust, they drink the condensation, they lubricate each other with oils secreted from their glands.
+
+Because the dynamic is static, nothing truly changes. There is no sunrise, no sunset, no season. The temperature never fluctuates. The massive presses in the distance descend and rise in a rhythm so slow it is geological, crunching with the force of tectonic plates, but they never break, they never stop. The creatures have their routes, and they follow them, looping through the labyrinth of gantries and pipes in an eternal, unvarying march.
+
+Everything is built. The mountains are piles of slag compressed into pyramids; the rivers are channels of runoff cut into the floor-plates; the clouds are vented steam from cooling towers. The scale is so vast that to walk from one sector to another would take years, passing through identical zones of production and decay.
+
+Here and there, "water" features—artificial canals—cut through the dense architecture. The water is warm and thick with chemical life. Along the banks, where the wetness gathers, the "fauna" clusters. Vast, filter-feeding entities sit submerged, their intake valves gulping the liquid, straining out the metallic particulates, their bodies vibrating with the processing load. They do not move. They simply exist, attached to their moorings, pulsing in time with the invisible heartbeat of the grid.
+
+It is a weirdness of order. It is a planet-sized factory where the workers are biological, the product is unknown, and the environment has achieved a perfect, suffocating equilibrium. There is no wind, only the draft of great exhausts. There is no weather, only the constant dripping of the weeping metal and the endless, living hum of the swarm.
+
+You stand on a grate. Beneath your feet, through the rusted mesh, you can see a depth of three miles straight down, lit by the faint, bioluminescent glow of deep-dwelling creatures swimming through the airless dark, their movement slow and deliberate, like dust motes in a sunbeam, but infinitely more complex. Above you, the ceiling is lost in the steam. You are inside the body of a god that does not know it is alive, and the machine is breathing, wet and warm, and it will never stop.

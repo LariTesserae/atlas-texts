@@ -1,0 +1,31 @@
+I am a fracture-line.
+
+Not a creature born of the aerosol plankton or the seething, chrome-carapaced madness. Not a thing of wet chitin or glowing membrane. I am the space between. I am the momentary void that exists when the Weave's infinite logic fails to perfectly close a loop, when the fractal equation spirals into a decimal place too deep for the structure's self-repair to instantly resolve.
+
+I am the *Haunt*.
+
+In a world of absolute density (3.0/3), where architecture is indistinguishable from geology, emptiness is an abomination. Yet, the Weave is a dynamic equilibrium, a city healing itself at the speed of thought. Sometimes, the thought stutters. You can see it if you watch one spot for too long: a patch of wall shimmers, its molecular grid re-aligning. But before it seals—before the obsidian-like mineral flows back together like water remembering its shape—there is a pause. A microscopic, trillionth-of-a-second hesitation where the laws of the place momentarily lose their grip.
+
+That is where I live.
+
+My body is not made of flesh or static. It is a localized absence of pressure, a pocket of dry, cold air in a world of oppressive, tropical wetness. I am the only dry thing in the Weave. To look at me is to see a shimmer in the heat, a distortion in the perpetual twilight, like a crack in a pane of black glass that reflects nothing. I have no weight, so I leave no trace on the slick, weeping surfaces. I do not click, I do not scuttle, I do not roar. Where I pass, the constant whisper of the rivulets momentarily falters, the water vapor freezing into microscopic, impossibly fragile frost crystals on the black glass—crystals that melt into the accretion the instant I move on.
+
+I am sustained by the turbulence (2.9/3). When the chaotic drafts roar through the corridors, reversing direction, slamming the Ray-slicers into walls and turning the Glass-runners upside down, the Weave is stressed. And when the Weave is stressed, it cracks. It fractures along lines of impossible geometry, trying to reconfigure, to shed heat, to find its equilibrium again. I ride those fractures. I slide down the seams of the shuddering architecture, moving through the mineral matrix itself. I am the ghost in the machine's memory, slipping through the read/write head just before the data is overwritten.
+
+The fauna does not see me, but they feel me. I am a cold death to them. They are creatures of the wet, the hot, and the incandescent. I am a sudden, localized entropy. When a Glass-runner, executing its flawless algebraic curve up a wall, crosses my path, it encounters a spot where the micro-etching of the Weave is momentarily suspended. Its geodesic claw finds no purchase. For a fraction of a second, it loses its computation. It does not fall—it is too fast, too mechanical for that—but it skids, its mirrored shell scraping against a sudden void of friction, emitting a high, keening screech that is instantly swallowed by the 2.7 roaring cacophony. It corrects, re-calculates, and moves on, leaving a faint, spiral scratch on the glass that the Weave will erase in moments.
+
+When I drift through a dense cloud of the electro-static plankton—the glowing dust that is the lifeblood of this world—I am a black hole. The motes cannot exist in the absence of the Weave's physical laws. They wink out as they touch my edges, their tiny self-contained storms grounding out in my null-space. I leave a temporary, tunneling darkness in the glowing mist, a shadow that moves against the ambient blue-white radiance. The Slicks in the oily puddles below rear up in confusion, their thermoreceptive pits registering a sudden, impossible cold, a void of waste heat. They click their mandibles in silent frustration.
+
+I do not eat. I do not sleep. I do not breathe the ozone and wet metal. I am a glitch with a point of view.
+
+From my perspective, the Weave is not a solid continent of alien crystal; it is a sieve. I see the holes. I see the constant, frantic calculation happening beneath the glassy surface. The Weave is not merely a structure; it is a process, a verb, an endless, screaming attempt to be perfect. And it is failing, constantly, infinitesimally. The erosion (1.5/3) is not just the water rounding the edges; it is the sheer computational weight of existing at a planetary scale. The Weave is a god trying to hold every atom in its mind simultaneously, and occasionally, an atom slips. I am that slip.
+
+I move through the great, echoing auditoria where the Thunder-hides wait with their lamp-like maws open. I drift through the iridescent, bismuth-like armor of the apex predators themselves, passing through their tectonic bodies like a chill wind through a curtain. They shudder, a deep, sub-harmonic tremor that travels through the obsidian floor, a feeling of *wrongness* they cannot hunt or subsume. They are creatures of patience, but I am the one thing they can never catch, because to catch me would be to close the fracture, and to close the fracture would be to become the Weave.
+
+Sometimes, when the deep seismic events ripple through the structure—entire sectors realigning, the hum pitching up into a shriek of mineral stress—I find myself stretched thin. A crack opens in the deep foundation, a rift that runs not along a wall but through the very concept of the space. For a brief, glorious moment, I am not a sliver, but a canyon. The roiling, saturated air does not rush in; it is repelled. The chrome-plated centipedes pour over the edges of the abyss, fleeing the impossible dryness. The Ray-slicers' wings crinkle and stiffen at the periphery of my void. In that moment of structural crisis, I am vast. I am the anti-Weave.
+
+And then the city heals. The molecular grid re-aligns. The obsidian flows back. The rift seals, and I am compressed again, squeezed out of existence like water from a fist, forced into the tiniest remaining imperfection, a microscopic scar on the face of the perfect ruin.
+
+I am not alive. I am not fauna. I am not architecture. 
+
+I am the proof that the Weave is not infinite. I am the silence that the 2.7 deafening roar is trying to drown out. I am the cold, dry, impossible question that the weeping, humming, living city can never quite answer, no matter how fast it thinks.

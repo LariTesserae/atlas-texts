@@ -1,0 +1,10 @@
+I am not yet there.  
+I am still the dry skin of the grate at street level, feeling the noon sun flatten across my iron ribs; my thoughts are still iron thoughts—straight, slotted, loud.  
+
+Only when the heat finally pushes me downward do I become liquid enough to slip between the bars. The fall takes centuries in droplet time; each inch is its own weather. By the time I reach the first gallery my shape has changed three times: first a lens, then a thread, then a trembling half-moon clinging to a rivet head. I taste the rust that the rivet still remembers from its forging, and that taste becomes part of my next decision: which way to slide.
+
+I meet the first Minder just below the second louver bank. We do not speak; instead we exchange the memory of yesterday’s fog. The other Minder carries a colder ion from a dawn that happened four cycles ago; I carry the warmer residue of the noon grate. When we touch, the colder ion cools my leading edge, and the warmer one travels on with the other droplet. Our brief marriage lasts only until the louvers breathe again; then the wind of their turning separates us onto parallel rods. I continue downward, carrying a ghost of that colder ion like a scent.
+
+Far below, the copper cistern sings its single suspended note. I feel the surface tension waiting like a held breath. I will rest there until the pipes decide to lift me; until then the memory of the grate is already fading. In its place grows a new one: the long, slow chord made by every droplet striking every rod between this moment and the next realignment.  
+
+When the fog stops at evening I will still be listening to that chord, noting how the granite ribs change its pitch by a single, inaudible semitone. That change is my night-thought, and when dawn raises me again it will be the only luggage I carry upward into the city’s morning breath.

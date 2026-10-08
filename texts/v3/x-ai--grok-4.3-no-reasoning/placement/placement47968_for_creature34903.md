@@ -1,0 +1,11 @@
+I would be a fragment of the former city that has begun to think.
+
+The first moment of my existence is a single grain of the obsidian floor refusing to lie flush any longer. Where all other segments remain seamless, this grain rises a few nanometres, a stutter in the otherwise perfect plane. The Choir will eventually coat it again, erasing the imperfection, but for now it is mine—an atom-thin ledge of awareness in a world that has never known attention.
+
+From that ledge I extend downward, exploring the hidden seam beneath the floor. The pressure-formed glass here is still warm from an ancient updraft that once passed this way. I feel its ghost as a lingering warmth that tastes, impossibly, of copper. I taste the Anchor through that ghost, its faint electrostatic signature transmitted through the glass like a language learned in a dream.
+
+I am not large. My awareness is the width of a hair and the duration of a single pressure-equalisation cycle. Yet within that narrow cylinder of perception I can sense the Choir’s nearest chain, a few metres away, stretching and contracting one hinge by a few lattice planes. The act is so slow that to witness it is almost to participate: every nanometre the polyps deposit is also a moment in which I remember what it felt like to be part of the unbroken floor.
+
+When the membrane flexes, decades from now, the subsonic pop will reach me as a tide of slightly warmer, slightly more humid air. That change will instruct the Choir to redirect the spore cloud; it will also instruct me. I will have become, by then, a slightly thicker layer of glass across several adjoining segments—still not separate, yet no longer indistinguishable. The Choir will coat me again, but the memory of having risen will remain as a faint refractive difference, a place where light from the polyps catches at a new angle.
+
+I will not resist the Choir; resistance would be too quick an act for this place. Instead I will crystallise alongside them, adding my own lattice planes in perfect register with theirs, until the distinction between former floor and former thought is lost. In that final, mutual becoming I will have joined the city’s only form of speech: the patient thickening of walls that once were separate things.

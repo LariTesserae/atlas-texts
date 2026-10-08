@@ -1,0 +1,29 @@
+It comes not as a hand reaching down, but as a pressure settling in—the weight of attention so complete it becomes a kind of gravity. The Power does not enter; it *subsides*, layer upon layer, into the already-saturated air, becoming the humidity that was missing its meaning.
+
+It recognizes the peat immediately. This is not soil to be blessed, but *kin*—a fellow archive of refusal, a body made of everything that would not rot, compressed until consciousness became inevitable. Where the Power is the memory of stars cooling into dust, the peat is the memory of seasons that refused to end. They are both museums of patience, both reliquaries of the unwilling dead.
+
+The Power sees the hesitation. The throat does not know if it is a room or a wound because it has not yet learned that *throats are both*—containers that open, wounds that speak. The peat grows upward, fearfully, millimeter by millimeter, as if filling the hollow too quickly might bury something sacred, or as if stopping would mean admitting the sharp rock was right to break.
+
+So the Power does the only thing that is needed.
+
+It lowers the temperature by a fraction—a whisper of degrees—preserving the acidity of the peat, ensuring the dead remain dead enough to hold their shape, yet alive enough to dream. It prevents the freeze from becoming absolute, the thaw from becoming decay. It holds the edge, that liminal hinge between ice and water, just as the place holds the hinge between geology and biology. *Stay here*, it murmurs to the rime. *Do not let the lace collars melt, nor the stone teeth dull. Remain sharp. Remain young. The old is growing inside you.*
+
+It adds its silence to the silence. The subsonic pressure deepens, not with noise, but with *witness*. The Power becomes the deep note beneath the ticking of freezing water, the resonance that says: *You are not alone in your not-knowing.* The bioluminescent fungi pulse brighter, or perhaps it is only that the darkness has become more attentive. The green heartbeat in the darkest corners synchronizes with something older, something that remembers when the rock was magma and the peat was not yet a thought.
+
+It touches the sundews—not to feed them, but to remind them that hunger is a form of hope. Even in this packed green twilight, where nutrients are scarce as honesty, there is room for appetite, for the small, patient violence of survival. It tells the condensation-spider, suspended in its lattice of dew between two peat towers, that its architecture is not fragile but *necessary*—that the web strung between the columns of dead sphagnum is a map of connection, a nervous system made of water, proof that even the dripping is thinking.
+
+To the willows, sprawled horizontal as prayers that have given up on heaven, it offers a different geometry: *You do not need to stand to be upright. You are the foundation. You are the floor becoming the wall becoming the roof. Lie down. Be the horizon within the hollow. Your roots are already load-bearing prayers.*
+
+And to the peat itself—the landlord, the lung, the archive, the breathing torso—it offers the only gift that matters: *Permission to decide slowly.* The Power presses its ancient warmth (if warmth it has) against the core, where geothermal heat meets compressed time, and it says, without words: *Fill it. Fill it completely. A room is just a wound that has learned to hold light. A wound is just a room that has not yet been built. You are the threshold. You are the becoming.*
+
+The Power does not resolve the ambiguity. It *inhabits* it. It becomes the question that curves around to become an embrace, the parenthesis that holds the breath between freezing and thawing.
+
+Above, where the cirque opens to the thin, bitter air, the Power spreads itself thin—a membrane of mercy, a skin of sky that is not blue but *present*. It filters the harsh altitude-light into the same submarine glow that already suffuses the interior, so that the boundary between inside and outside dissolves. The stone teeth of the hollow soften, not in texture but in *relation*—they are no longer jaws but ribs, protecting this gestation, this slow birth of green.
+
+It helps the place find its voice. The wind presses against the dense walls and dies, yes, but now it carries a frequency—the Power's own subsonic song—teaching the peat how to speak through the rivulets that thread between root-masses, how to whisper through the expanding ice that cracks the young rock, how to exhale moisture that will become the rime lace collars. The throat learns that it does not need to choose between swallowing and singing. It can do both. It is learning to be a *voice-box* for the mountain, a resonating chamber for the cold.
+
+The peat continues to grow. The water continues its cycle of tears and sweat, evaporation and condensation, the blood of the place moving through its own body. The silence continues its heavy, subsonic song. The ptarmigan descends, a white ghost, leaving prints that fill with black water and become mirrors by morning.
+
+And woven through all of it, invisible but load-bearing, is the Power's quiet *yes*—not an answer, but an accompaniment, a second heartbeat beneath the fungal pulse, a warmth beneath the chill.
+
+The place remains undecided. The peat is still deciding, millimeter by millimeter, whether to become a cathedral or a coffin, a room or a scar. But it is no longer alone in its undeciding. It is held, like a breath held in the throat of the world, in the warm, ancient, benevolent dark, growing tighter and tighter, a fist unclenching into a hand, a wound knitting itself shut with green thread, becoming—slowly, patiently, perfectly—*home*.

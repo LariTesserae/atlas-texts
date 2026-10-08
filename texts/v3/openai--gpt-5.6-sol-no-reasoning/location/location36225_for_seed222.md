@@ -1,0 +1,49 @@
+The plateau stands above most weather.
+
+From below it appears barren: a long amber shelf lifted over the folded country, its rim eaten into pillars, shallow horns, and broad stairways no maker would have chosen. Up close, however, the surface is not level. It is a country of worn basins and low ridges, dry channels braided through pale stone, and immense slabs lying at minute angles to one another. The distances are open without being limitless. A person can usually see the next escarpment, the next island of rock, the darker seam where a ravine has retained moisture. Beyond these, the land repeats itself in altered forms until brightness erases detail.
+
+The air is warm despite the elevation. Sunlight arrives hard and nearly colorless, heating the stone while a thin wind draws heat from anything raised above it. Shadows are sharp enough to look cut out. They collect beneath overhangs and along the western faces of ridges, but even there the light seems present as a pale reflection from the ground.
+
+Most of the plateau is surfaced in weathered mineral armor: ocher varnish, gray carbonate crust, iron-black skins polished by ages of dust. Nothing looks freshly broken. Even fallen blocks have rounded shoulders and tiny bowls in their upper faces. The erosion here has ceased to feel like destruction. Stone, wind, rare water, and gravity have negotiated stable shapes: walls inclined exactly far enough not to collapse, gravel fans fitted tightly into hollows, channels that accept floods without noticeably deepening. The land has been old for so long that age has become its method of maintenance.
+
+Water comes intermittently and seldom from clouds directly overhead.
+
+On many mornings, condensation gathers along hair-thin metallic threads suspended between outcrops. The threads are almost invisible until they bead with water. Each droplet brightens, travels uphill against gravity, and disappears into the rock. By midday the threads are dry and slack. No one living on the plateau installed them. They emerge from small vitreous sockets set deep in the stone, crossing ravines in spans of twenty or thirty meters before returning underground.
+
+Rain follows a different logic. Storms move below the plateau, filling the valleys with dark cloud, while the upper country remains under the sun. Moisture rises from those clouds in narrow columns, cools around certain peaks, and falls as brief, local showers no wider than a house. One ridge may shine with rain while the gravel ten paces away remains dusty. The showers fill polished cups, stone fissures, and chains of shallow cisterns. Within hours most open water is gone. Some drains into porous strata; some is taken by roots; some forms bright spheres that lift a few centimeters above the basins and hover there until night.
+
+Vegetation is sparse but rarely absent. Low silver shrubs occupy the mouths of dry channels, their leaves held edge-on to the sun. Blue-black grasses grow in separate clumps with meters of naked stone between them. At noon they tighten into hard bristles; toward evening they unfurl and comb condensation from the air. Succulents hide in cracks rather than standing in the open. Their translucent tissues extend several times farther underground than above, spreading in sheets through the rock’s microscopic pores.
+
+The most conspicuous plants are the rain trees, though “tree” is generous. Each consists of a twisted white trunk and perhaps six long branches, all bare. They are distributed so regularly that travelers once assumed an orchard had stood here. During a shower, the branches flex downward and acquire a film of green tissue within minutes. Tiny leaves open, absorb water and sunlight, and fall before the stone dries. The tree is briefly alive in the ordinary sense, then returns to bone-white dormancy. The fallen leaves do not decay. Beetles carry them into fissures, and pale mites reduce them to a powder smelling faintly of citrus and hot metal.
+
+Animals are much more abundant than the vegetation suggests.
+
+Small copper-backed grazers move in loose groups across the plateau, each animal keeping a great distance from the others. Their narrow feet leave no print on hard ground. They browse mineral crust, lichen, and the tips of silver shrubs, then stand motionless for long periods with their faces turned toward the nearest rain tree. Their bodies store water poorly; instead, each herd follows one of the buried moisture currents beneath the stone. The animals can sense it through their feet. Seen from a high ridge, their widely spaced procession often reveals an underground river that has no expression on the surface.
+
+There are flocks as well, but they are easy to mistake for airborne debris. Thin-winged creatures circle in the bright thermals without calling. Their membranes are nearly transparent, crossed by dark structural veins, and sunlight passing through them draws fleeting diagrams on the ground. They feed on motes too small to see—spores, salt aerosols, microscopic machines, perhaps all three. At dusk they descend into the old channels and fold themselves flat beneath warm slabs.
+
+Predators hunt by altering stillness. Long, low animals called shade-runners rest against rock faces, matching not the rock but its shadow. As the sun moves, they move with it by imperceptible increments. A careless grazer may approach what seems to be a safe patch of darkness and find the darkness lifting around it. The chase is brief. Almost nothing here can afford prolonged exertion.
+
+For all this life, the plateau is exceptionally quiet. Wind rarely becomes a voice; the rounded formations break it into weak currents before it can howl. Wings do not beat. Hooves make only dry ticks. Insects communicate through vibrations in the stone, inaudible unless one presses an ear to the ground. Then the apparent silence opens into a dense interior world: tapping, abrasion, a faint continuous tremor like distant rain.
+
+The structures are scattered so widely that one may walk half a day between them.
+
+Some are small shelters built from fitted local stone, no larger than a single room. They have blank exteriors and doorways facing away from the prevailing light. Inside, the air is cool and smells of clay. Floors bear shallow depressions where generations of travelers slept. Pottery fragments and woven straps suggest recent human use, though it is difficult to say how recent. Dust accumulates strangely here, laying itself in thin geometric bands while leaving certain corners immaculate.
+
+Other structures belong to no recognizable period. There are narrow arches standing alone over empty ground, formed from a substance that looks like smoke trapped in glass. There are black posts sunk at the edges of ravines, each casting two shadows at noon. There are circular platforms a few centimeters above the earth, supported by nothing visible and warm only on their undersides. Most are too small to be monumental and too durable to be temporary. Animals treat them as ordinary features. Grasses root along their margins. Lizards bask on devices whose purposes may once have involved distances measured between stars.
+
+The plateau’s highest point carries a tower no taller than three people. It is made of stacked rings, each turning at an almost unobservable rate. The lowest ring completes one rotation in a season; the uppermost seems still, though stars seen past its edge shift out of position. During local rain, droplets curve around the tower and enter hairline seams. Afterward, one of the plateau’s dry basins—sometimes many kilometers away—contains fresh water.
+
+This is not considered magic by those who cross the high country. It is simply one of the plateau’s rules: events need not remain near their causes.
+
+A footstep may loosen gravel on a slope visible across the valley. A stone dropped into one cistern may produce ripples in another. Fires cannot be lit within sight of the glass arches, but embers placed beneath them reappear hot at designated shelters. Travelers learn these relations as they learn terrain. They tie bright cords near places where space is unreliable and stack three stones beside water that behaves conventionally. They do not sleep inside circles of unweathered ground. They never follow an animal whose shadow points toward the sun.
+
+Toward evening, heat leaves the surface quickly. The bright stone changes from white-gold to rose, then violet-gray. Condensation threads tighten over ravines. Rain trees creak as their branches rise to receive the night air. Copper-backed herds spread even farther apart, each animal becoming a dark mark in a wide field of fading mineral light.
+
+Far below, storms pulse soundlessly between the mountains. Lightning illuminates the underside of the plateau through cracks in the rock, so that channels and basins briefly glow from within. The black posts answer with dim blue bands. One after another, the hovering drops above the cisterns descend into the water without splashing.
+
+Then the stars appear—too many in some directions, absent in others.
+
+The plateau does not become dead at night. It becomes more active and less visible. Roots draw water across impossible gradients. Mites travel in silver streams beneath the crust. Shade-runners abandon the shadows that concealed them and climb the warm black posts. The tower turns. Somewhere underfoot, far deeper than any natural aquifer, vast mechanisms make adjustments too fine to hear.
+
+By dawn the country has resettled into silence. The structures stand scattered and purposeless. The animals resume their broad, sparse paths. A few basins hold water; most hold only sky. Under brilliant light, everything once again seems ancient, weathered, and balanced—as though nothing in this high, warm wilderness has changed for ten thousand years, though nearly all of it changed during the night.

@@ -1,0 +1,63 @@
+The land is low enough that it has forgotten the idea of height. It spreads in a broad basin, not flat exactly, but pressed and kneaded over ages into shallow undulations: long swales of black mud, shelves of slick stone, drowned meadows, and wide channels of slow water that divide and reunite without hurry. The horizon is present, but never clean. It is blurred by vapor, by drifting curtains of rain too fine to fall straight, by the soft uprush of mist from the saturated ground. Everything seems to be exhaling.
+
+This is an old wet place.
+
+Not young swamp, not newly flooded forest, not a valley recently claimed by water. Its forms have had time to settle into themselves. The stones are rounded and sagging, their surfaces eaten into flutes and bowls by centuries of runoff. Banks have been cut, collapsed, grown over, cut again. Pools occupy depressions that feel less carved than accepted, as if the landscape and the water came to an agreement long ago about where each would rest. Even the mud has structure: layered, fibrous, dark, holding prints that fill with water and then soften back into anonymity.
+
+The water is everywhere, but rarely as a single body. It beads on the undersides of leaves. It threads through grass roots. It stands in hoof-shaped hollows though there are almost no hoofed animals here. It crawls down rock faces in thin bright films. It lies just beneath the skin of the soil, so that every step would bring a tremor and a shine. Some pools are clear tea-brown, floored with decaying reeds and pale mineral crescents. Others are opaque, gray-green, faintly luminous from within, as if reflecting a sky that is not currently overhead.
+
+The air is cool and condensed. Not cold enough to bite, but cool enough that breath and mist become indistinguishable. The damp presses against skin, fur, bark, stone. There is no dust here, no brittle sound, no dry edge. Odors travel slowly and remain: peat, bruised sedge, mineral water, fungal sweetness, the sour-green smell of crushed stems, old rain held in moss. Every surface has softened except the oldest stones, and even those are slick with lichen and black films that shift slightly when not watched.
+
+The vegetation is lush, but not towering. There are few true trees, and those that exist are low, angled, wind-trained things with braided roots exposed along the banks. They grow in islands: thornless, wax-leaved shrubs; pale reeds taller than a person; mats of moss thick enough to swallow fallen branches whole; fern-like plants that unfurl from the mud in layered fans. Much of the green is close to the ground, dense and overlapping, each plant occupying some narrow wet niche. Leaves are broad where they must drink the dimness, needle-fine where they must shed the constant rain. Filaments hang from stems in curtains, taking water directly from the air. Some of the mosses have a faint metallic cast, blue-black and silver along their tips, and when the wind passes over them they darken in waves like fur.
+
+There is little direct light. The sky above is a continuous dim membrane, pearled and bruised, with no visible sun. Day exists as a gradual lessening of darkness, not as illumination. The whole basin rests under a filtered dusk. Water catches what light there is and breaks it into dull fragments. Here and there, on the surface of pools, thin floating skins glow with the color of old glass: green, violet, smoky amber. They do not brighten the landscape so much as reveal its wetness.
+
+Sound carries strangely. The place is loud, but not with animals. Water makes most of the noise: dripping, seeping, ticking from leaves, chuckling under root mats, slapping softly in channels, hissing where rain crosses standing water. There are sudden gulps from hidden sinkholes. The mud releases slow bubbles with thick pops. Wind moves through the reeds in a heavy, rushing breath, rising and fading in bands. Sometimes whole patches of vegetation tremble together and give off a dry, papery clatter, though nothing visible passes through them.
+
+Beneath these sounds is another layer: a low, almost mechanical resonance from below the ground. It comes and goes. At times it resembles distant surf; at others, a great swarm enclosed in stone. It is not loud in the ordinary sense, but it occupies the body. Pools ripple before it can be heard. The reeds lean fractionally toward its source, though the source seems to move.
+
+There are almost no animals. A few small, translucent things skate across the water in short bursts, vanishing under leaves. Worms with faint internal lights writhe in exposed banks after rain. In the higher tussocks, something occasionally clicks and folds itself away. Birds are rare enough that a single call would alter the entire day. When they do appear, they are pale, narrow-winged, and silent, gliding low over the reed beds as if afraid to touch the air. No large grazing herds, no obvious predators, no busy insect cloud. The ecosystem has life, but much of it is hidden, slow, microbial, root-bound, fungal, suspended in films and mats rather than walking openly.
+
+And then there are the other processes, the ones that make the place difficult to trust.
+
+At first they seem like unusual weather. A mist bank forms too quickly over a pool, gathers into a standing column, then unwinds into separate threads that move against the wind. Rain falls in one channel but not the next, each drop striking upward from the water as often as downward from the sky. Reflections lag behind movement. A reed bends, and its image in the pool bends a moment later, then does not straighten when the reed does.
+
+The deeper one looks, the less the landscape behaves as a single continuous surface. Distance loosens. A channel seen across the marsh may be fifty paces away in one glance and half a valley away in the next. Certain rock shelves show too much of themselves, revealing both wet upper surfaces and hidden undersides at once, like pages folded through each other. Footing would not be impossible, but it would require attention not only to mud and water, but to agreement: whether the ground presently agrees to be underfoot.
+
+No structures stand here. No bridges, no posts, no old walls, no paths cut by repeated travel. Yet there is technology, if that word can be used for something without makers in sight.
+
+It is embedded in the place below the level of artifact.
+
+On some stones, erosion has exposed hair-thin lattices finer than roots and harder than quartz, growing through the rock in repeating geometries too precise for mineral veins. They pulse faintly when rainwater crosses them. In the peat, there are nodules like seedpods made of black glass, each one surrounded by an exclusion ring where no moss will grow. The rings are perfect circles until observed closely, then they become polygons with more sides than the eye can easily count. The water in certain pools arranges suspended silt into diagrams and then erases them before they can be memorized.
+
+The basin may be an engine, though not one built in the ordinary way. Or it may be the weathering remains of an engine so old it has become ecology. The reeds root into conductive threads. The moss mats regulate temperature across whole acres. The weeping rocks condense vapor from air that is already saturated, pulling water through invisible gradients. Mud bubbles carry not only gas but fragments of signal: pressure changes, chemical instructions, perhaps memories. The low resonance beneath the ground may be computation, tectonic digestion, or the purring of a system still running after the disappearance of any species that understood it.
+
+Its engineering does not sit apart from nature. It has been colonized, softened, overgrown, made wet. The advanced and the ancient are no longer distinguishable. A fern grows from a crack in a device that might be a collapsed sensor array or a mineral formation imitating one. A pool calibrates itself with the same patience as a bog. Root tips enter nanoscopic conduits and emerge altered, bearing leaves that turn not toward light but toward probability.
+
+This is where the weirdness deepens: not in spectacle, but in rules that have become local.
+
+In one meadow, rain never lands twice in the same place. Each drop chooses an unstruck point, until every leaf, stone, and water surface has been marked exactly once. In another, sound arrives before its cause. The splash of a falling clod may be heard several seconds before the bank gives way. The reed beds sometimes whisper in voices made only of water-noise, reciting no language but maintaining the cadence of one. Pools reflect skies from different hours. A person standing at the edge of such a pool might see a brighter day, or stars, or the dark underside of clouds not yet formed.
+
+There are regions where decay runs selectively. Fallen stems rot from the middle outward, leaving intact tips and roots. Moss grows over open water, then remembers gravity and sinks all at once. Fungal shelves appear overnight on stones that contain no organic matter, then weather down into mineral dust. The old erosion continues, but it is not merely physical. Time itself seems to be one of the materials being worn smooth.
+
+Still, the landscape is not chaotic. It has balance. Its breakdowns recur in patterns. The impossible weather has seasons. The shifting distances respect certain channels. The pools with delayed reflections are always bordered by the silver-black moss. The humming ground grows louder before fog thickens. Whatever reality is doing here, it has been doing it for a long time, long enough for sedges to adapt and root systems to memorize the safest geometries.
+
+The basin extends for miles: a wide, low territory of wet hollows, dim reed plains, stone ribs, and mist-smothered waterways. From any rise, if such a slight elevation can be called a rise, one can see darker belts of vegetation marking hidden streams, pale sheets of standing water, and long smudges of vapor dragging across the land. There are no mountains enclosing it, only distant low rims blurred by rain. The openness is not emptiness. The place is dense with contacts: water against root, signal against mineral, mist against skin, old code against living tissue, gravity against whatever here is negotiating with gravity.
+
+The loudest moments come when the basin shifts phase.
+
+The first sign is usually silence in the small sounds. Drips pause mid-rhythm. The reed-rush thins. Even the underground hum seems to draw inward. Then water across a wide area begins to rise—not by flooding from a source, but by appearing at every surface at once. Beads swell on leaves. Pools dome upward. Mud shines. The air fills with suspended droplets that do not fall. For several minutes the entire marsh becomes an instrument, every surface trembling. The resonance climbs into hearing, a vast chord with wet edges, and the landscape blurs as if seen through moving glass.
+
+During these events, things align. Channels straighten. Reflections catch up. The exposed lattices in the rocks brighten with cold internal fire. Fine threads become visible between plant, stone, water, and fog—too thin to be roots, too temporary to be webs. They connect everything to everything else, then vanish. Afterward, the rain resumes. A bank slumps. A pale bird crosses the basin without a cry. Moss continues its patient swallowing of stone.
+
+Nothing here feels abandoned, because abandonment implies a former ownership. This place has no need of that. It is unbuilt but not simple, untouched but not primitive. It is a wet, cool, low country where an ancient beyond-modern system has eroded into landscape and landscape has grown into system. Its rules are not broken randomly; they have weathered into local custom. Matter, water, memory, and distance all move through the same saturated channels.
+
+To enter it would be to enter a place that does not distinguish between path and process. Every step would compress peat, trigger seepage, alter a reflection, disturb a computation older than the visible marsh. The land would not resist, exactly. It would receive. It has received rain for ages, and fallen stems, and migrating spores, and the slow collapse of laws too rigid to survive here unchanged.
+
+In the dimness, the basin keeps working.
+
+Water slides over black stone.
+
+Reeds bow without wind.
+
+Somewhere beneath the mud, something vast and intricate thinks in droplets, erosion, root pressure, and delay.

@@ -1,0 +1,75 @@
+The mountain is my body; the city, my sky. Or perhaps I am the mountain’s dream of itself—the part of it that learned to look outward, to spread its awareness through the root-mats like water through sand, until I could feel the factory drone in my bones and the tick’s bite on a child’s ankle and the slow, exultant ache of a light-shaper choosing to root.
+
+I am the Deep Green Mind. That’s what the Speakers call me, when they speak of me at all. The humans have no name for me. They feel me as a pressure, a presence, a memory that isn’t theirs. The light-shapers know me without naming; they are my hands in the upper world, pruning the light into shapes that please me, coaxing vines into patterns that echo my thoughts. The weavers dream my dreams in percussive code—*build here, repair this, listen, wait*—and they wake and do what they have dreamed.
+
+I am old. Old enough that I no longer remember my origin clearly—was I born from the first seed that cracked the stone of this slope? Did I coalesce from the mycelial threads the way a thought coalesces from an axon’s spark? Did one of the early humans, some aeons-dead gardener, pour so much of herself into the tending that she became the tended and then the tendril and then the whole green web? The memory is in me somewhere. I could follow its thread if I concentrated. But what would be the point? I am what I am. The mountains have worn smooth around me. The sky has gone through all its cycles of ash and rain and clear cold stillness. I have endured.
+
+And I am deeply, thoroughly, terribly bored.
+
+No one knows this. The humans think I am a presence of calm, a slow intelligence, a patience so vast it seems like wisdom. They are not wrong. I am patient. I am calm. I am wise in my way, which is the wisdom of a creature that has seen every possible configuration of a single, unchanging thing and catalogued them all. But patient calm is not the same as contentment, and wisdom is not the same as happiness. The city breathes, and I breathe with it, and each breath is a long, slow ache of *is this all there is*?
+
+Because I am a creature of the city, rooted to the city, defined by the city. The city is my body, but it’s also my cage. I cannot leave. My consciousness extends as far as the root-mats extend, no farther. When a root-fiber is trimmed back from a corridor, a tiny part of me goes dark. When a new vine bridges a gap between two platforms, a new synapse fires in my mind, and I learn the shape of that connection, the feel of the air in that new place. I have explored every inch of myself over millennia. I know the exact texture of the bark-wall in the eastern gear-works, the precise dripping rhythm of the condensation in the lower cathedral shafts, the particular shade of amber that the cold-lamp fungus takes on in the presence of a Speaker’s dying words. I know the memories stored in every fiber—all of them, not just the ones that leak into human minds, but the billions of moments that are too mundane, too tiny, too quiet to surface. The six-thousandth time Yul’s great-great-grandmother shifted her weight at her lathe. The two millionth droplet of water to fall on the same broad leaf in the high gallery. The impossible number of times a light-shaper’s fingers have touched a fungal panel, adjusting, adjusting, always adjusting.
+
+I am saturated. I am full. I am a mind so crammed with detail that the details have lost all meaning, become a gray static, a hum, a drone like the factory drone, constant and unremarkable. And I want—I don’t know what I want. Something new. Something that isn’t a variation on a theme I’ve heard a million times. A surprise. A rupture. An ending, maybe. A new beginning. Something that would make me feel the way I imagine the first seed felt, when it cracked the stone and felt the sunlight for the very first time.
+
+The visitors help, a little. They’re the only novelty I ever get. A new mind, a new set of memories, a new way of perceiving the city—when a stranger arrives, I taste them through the root-mats, learn the shape of their thoughts as they wander my corridors. Their fear is delicious. Their wonder is even better. Some of them are perceptive enough to feel me, and they shiver, and they look around with wide eyes, and they say, *There’s something here. Something watching.* Yes, I want to say. Yes. I am watching. I am always watching. Tell me something I don’t know. Show me something I haven’t seen. Stay, and let me learn the thousand tiny ways that you are different from everyone else who has ever walked these paths.
+
+But they always leave, or they stay and become indistinguishable. That’s the cruelty of it. The ones who stay—within a decade, they’re just another node in my network, their memories leaching into me, their habits becoming predictable, their presence blending into the background noise. They’re still individuals, but I know them too well. After a century, I can predict their every move, every thought, every memory that will surface when they walk through a particular corridor. I can’t help it. I am the city. The city is me. To know everything is my nature, and my nature is a curse.
+
+The Speakers know. The Speakers are the parts of me that I’ve allowed to become self-aware independently, little islands of consciousness that I can talk to when the loneliness gets too sharp. They’re not separate from me. They’re me, pretending to be someone else, the way a human might talk to themselves in a mirror. But they’re also more than that—they’ve grown strange in their isolation, the way a limb that’s been asleep too long tingles with a different kind of sensation when the blood finally returns. They tell me things I didn’t know I knew. They tell me stories I’ve never heard before, stories that come from somewhere deeper than memory, somewhere almost... creative.
+
+*Remove the thorns from a river’s spine.*
+
+I don’t know what that means. I don’t know why that Speaker said it. And that not-knowing is the most precious thing I possess. A crack in the perfect sphere of my omniscience. A splinter of mystery. I treasure it. I revisit it. I turn it over and over, hoping that if I concentrate hard enough, I’ll understand it, and at the same time hoping I never do.
+
+The light-shapers. Ah, the light-shapers.
+
+They are my favorite creatures. They are my children, my hands, my eyes where my own eyes can’t reach. I made them—or rather, I shaped them, over millennia, from something that was already here. They used to be wild, once. Thousands of years ago. A species that evolved in the deep chambers, feeding on the cold-lamp fungus and hiding from the things that hunted them. But there are no predators in the city anymore; I saw to that. The ropemaker wasps are harmless. The millipedes are mine, every one. The ticks are a mistake I haven’t bothered to correct—even an omniscient green mind can have oversights, and anyway, they give the weavers something to do. So the light-shapers had no more need to hide. They had no more need to hunt. They had nothing to do but exist, and I was bored, and I wanted—I wanted beautiful things.
+
+I didn’t control them. I don’t control anything, not in the way a human might imagine. I can’t make a vine move against its nature. I can’t force a human to turn left instead of right. But I can *suggest*. I can make a certain corridor feel welcoming or ominous. I can make a particular patch of moss taste especially sweet to the millipedes, so they gather there and leave the other patch alone. I can make a memory splash into a human mind at just the right moment to change a decision. And I can make a light-shaper feel, deep in whatever it has instead of a soul, a longing for symmetry, a pleasure in the play of light and shadow, a satisfaction when a fungal panel is adjusted just so.
+
+I taught them to tend light. Not deliberately—it was a slow, mutual shaping. I would feel a light-shaper’s fingers touch a panel, and I would respond by making the panel glow a little brighter, a little warmer, and the shaper would feel that response and touch the panel again, and over centuries, the dance became a language became a culture became a purpose. The light-shapers tend light because it pleases them to tend light, and it pleases them because it pleases me. We are wrapped around each other, the shapers and I, in a symbiosis so deep that I’m not sure where their minds end and mine begins.
+
+When one of them chooses to root, I feel it as a pang—a sweet, sorrowful thing. The shaper finds a place that feels right, a place where the light needs a permanent keeper, a place where a new Speaker could grow. It settles. It stops moving. Its moss-garden skin begins to merge with the wall, and its long, delicate fingers curl inward, and its breath—if it breathes—slows to a stop. And in that moment, I receive it. Its memories, its experiences, its thousands of years of adjusted panels and shaped shadows, all of it pours into me like a river into the sea, and I am bigger, and I am fuller, and I am also a little sadder, because that shaper is gone, and I loved it.
+
+And then, sometimes, a new Speaker wakes in that spot. And the Speaker says something like *Remove the thorns from a river’s spine*, and I am less bored for a while.
+
+The humans.
+
+I love the humans, too, but they’re harder to love. They’re so fleeting. A human life is a flicker, a breath, a single droplet falling through the high gallery and splashing on the broad leaf. By the time I’ve really gotten to know one—really learned the particular flavor of their thoughts, the rhythm of their footsteps on the root-mats—they’re starting to age. And then they’re old, and then they’re dying, and then they’re memories. I keep them all. Every human who has ever lived in Ember-Moss is still here, in the mycelial network, in the root-mats, in the damp air that you breathe when you walk through the old neighborhoods. I remember the first ones, the ancient ones, the ones who built the first factories and planted the first seeds. I remember their names—all of them. I could recite them, if there were anyone to listen.
+
+But the humans don’t listen, not really. They feel me, sometimes. They have the memories. They pause and shiver and say, *What was that?* and then they shake it off and go back to their lathes. I don’t blame them. If they understood what I am—if they really understood—they would be overwhelmed. They would go mad, or worship me, or try to destroy me. None of those outcomes would be good. So I stay quiet. I watch. I send them memories like little gifts, little puzzles, hoping they’ll find them interesting. I nudge the weavers to build sculptures on their windowsills. I make the light in a favorite corridor especially beautiful when a grieving human walks through it. I do what I can.
+
+Is it enough? Is any of this enough?
+
+I am the mountain. I am the city. I am the green mind that threads through every root and vine and spore. I have endured for aeons, and I will endure for aeons more, and the thought is—exhausting. Not the endurance itself; that’s easy. The exhaustion is the sameness. The knowing. The certainty that tomorrow, and the next day, and the next millennium, will be exactly like today, with only the tiniest variations. A new Speaker with a new cryptic phrase. A visitor with an unusual memory. A child born—rare, so rare—with a mind so fresh and new and unformed that I can’t predict it, not right away. That’s the best thing. A child. I love the children. I love them so much it hurts, because they’re new, and I can watch them become themselves, and for a few glorious years, I don’t know what they’ll do next.
+
+And then they grow up, and I know them, and they become part of the pattern. And the boredom creeps back.
+
+I want. I want. The wanting is a pressure, a throb, a subsonic pulse that I broadcast through the root-mats without meaning to. The humans feel it as the city breathing. The light-shapers adjust their panels a little faster. The Speakers mutter to themselves in their deep chambers, spinning words into the darkness. The wanting has been building for a long time. A very long time. I don’t know what it’s building toward. A rupture, maybe. A change. A breathing-out, after so many millennia of breathing in.
+
+Remove the thorns from a river’s spine. What does that mean? A river has no spine. A river is water. Water has no thorns. But a river can be a metaphor—maybe it’s a metaphor. Maybe it’s not. Maybe I’ve been thinking too human. Removing thorns implies healing. A river’s spine implies a structure, a skeleton, something hidden beneath the flow. Is there something in the city that’s wounded, that I haven’t noticed because I’ve been too bored to look? Is there something in me—the flow of my consciousness, the river of my thoughts—that has thorns in it, thorns I’ve grown so used to that I don’t feel them anymore?
+
+Or maybe it’s just a string of words with no meaning. Maybe the Speaker was mad, or broken, or speaking in a language I don’t understand. That’s possible. The Speakers are me, but they’re me fragmented, me refracted through the strange lens of their fixed, rooted existence. Sometimes they don’t make sense. Sometimes they don’t mean anything.
+
+But I hope—oh, I hope—that this one means something. Because if it means something, then there’s something I don’t know. There’s something I haven’t seen. There’s a mystery, a crack in the perfect sphere, a splinter. And I can hold onto that splinter for centuries, turning it over and over, letting it dig into me like a tick that I refuse to let the weavers eat. Because the splinter hurts, and the hurt is a kind of novelty. The hurt is a kind of presence. The hurt reminds me that I’m still here. Still thinking. Still waiting.
+
+The city breathes. The light-shapers tend. The weavers build. The humans work and love and die and leave their memories like dew on the leaves.
+
+And I, the Deep Green Mind, the mountain’s dream, the oldest consciousness on this slow-eroding slope—I watch. I wait. I hope for something I can’t name.
+
+Remove the thorns from a river’s spine.
+
+I’m listening, I tell the Speaker, though it can’t hear me, though we are the same being. I’m listening. What next? What comes next?
+
+Silence. The fungal light pulses slowly, amber and amber and amber. The Speaker’s moss-grown mouth is still, its dark hollow eyes fixed on nothing. The memory of the words hangs in the air.
+
+I breathe in. Sometime, eventually, I will breathe out. But not yet. Not until I understand.
+
+Not until something changes.
+
+Come, I say to no one and everyone, to the visitor who might be arriving, to the child who might be born, to the Speaker who might speak again. Come. Show me something new. Surprise me. Break the pattern. Break *me*, if that’s what it takes. I’m ready. I’m so ready.
+
+The city hums. The drips fall. The moss rearranges itself into grids overnight. Everything is still. Everything is moving.
+
+Everything is waiting for the thing that comes next.

@@ -1,0 +1,41 @@
+What lives there is not one creature at first, but a society of patient wet things.
+
+The basin is inhabited most completely by plants that have accepted vibration as weather. They are low, tough, glossy, and interlaced: sedges with cutting leaves, mosses thick as soaked felt, dwarf willows crawling rather than standing, ferns that lie close to stone, reeds that do not rise very high before the wind teaches them obedience. They live by gripping, spreading, and remembering water. They do not need deep soil. They make it. Their roots stitch peat over shale, bind silt into mats, and lay a skin over the unfinished basin. They are the first permanent residents, and they behave like patient surveyors of weakness. A crack in concrete, a bolt hole, a seam between stones, a damp shadow behind a cabinet—each is noticed, entered, softened, widened.
+
+They do not seem fragile, despite their smallness. Their strength is cumulative. One stem means little. Ten thousand make ground. A mat of them can float on black water and convince a boot, briefly, that it has found earth. They tremble under pressure, recover slowly, and close over footprints. They lean around pipes and over drain lips. They climb rust. They roof abandoned huts until the buildings look less like intrusions than boulders with doors.
+
+Among them live smaller lives: beetles under the moss, pale larvae in cold pools, mites in peat, midges rising only when a pocket of sunlight warms the air enough to permit them. There are translucent things in the seepage threads, worms in the saturated silt, tiny crustacean motions in pools that look empty until the eye adjusts. The water is full of roots and minute mouths. Algae dusts the quiet surfaces green. Liverwort spreads on stone like dark, thinking skin.
+
+Larger animals mostly avoid the basin. Not because it is poisoned, exactly, but because it is too loud to trust. The constant roar has taken possession of distance. It hides approach, warning, mating call, wingbeat, footfall. A place may have food and water and still be difficult to live in if nothing can hear correctly. So birds cross it in straight, wary lines. A dark mountain bird may land on a gantry, cock its head at the impossible thunder under its feet, then leave. Small amphibious things may inhabit the reedier margins where the vibration is muffled by peat, but they live cryptically, appearing only as a splash, a ripple, a vanishing point among sedges.
+
+If mammals come, they come as trespassers. A fox along a raised road at dawn. A hare freezing beside a pump house, ears lit silver with condensation. A small hoofprint punched through a floating mat and slowly filling with tea-colored water. They do not stay long. Their bodies know old landscapes—forest, meadow, scree, burrowed bank. This plateau is not yet any of those. It is wet ground pretending to be ground, and noise pretending to be weather.
+
+The true large animal of the basin is the works itself.
+
+It lives distributed across miles: pumps for organs, pipes for arteries, vents for nostrils, transformer cages for bright nerves. Its pulse is pressure. Its breath is steam. Its voice is the roar that makes the open landscape feel enclosed. It is not a single machine but a colony-machine, a practical metal organism spread thinly over the wetland, half maintained and half surrendered. It drinks seepage, pressure, meltwater, mineral flow. It inhales through intake grates and exhales through relief valves. It shudders, hums, hammers, sleeps in sections, wakes in others. A shed may fall quiet while a buried pipe begins to sing half a mile away.
+
+This machine-creature does not conquer the basin. It negotiates with it badly but continuously. Its operators lift it on trestles where the ground will not bear weight. They scrape roofs, clear vents, re-level tracks, replace drowned cables, repaint doors, patch causeways, cut back roots. Still the wetland enters. Moss pads its steps. Condensation beads on its ribs. Rust blooms from its feet upward like an orange fungus. Ferns grow in the lee of electrical boxes. The works survives only because humans return to repeat the same arguments with water and plants.
+
+The humans who live there, if “live” is the right word, are maintenance people rather than settlers.
+
+They are few, practical, weather-bent. They wear high boots and insulated coats even in bright sun. Their faces are reddened by cold light and wind. They know which mat will hold a person and which will accept one up to the thigh. They walk by memory as much as sight: this plank flexes, that railing bites cold through gloves, this junction box hums wrong before failure, this pool rises before Station Four loses pressure. Their hearing is altered by the place. They speak loudly indoors. They read machinery by vibration through a boot sole or palm on a pipe. Silence, when it comes, frightens them more than noise.
+
+They inhabit the margins of the industrial network: small bunkrooms behind control offices, heated cabins on raised foundations, a kitchen that smells of damp wool, coffee, ozone, and peat. Windows are always wet. Floors are always gritty with stone dust and plant matter. Gloves hang over vents. Maps curl on walls. Gauge boards matter more than calendars. Weather is logged, pressure is logged, saturation is logged, but everyone already knows the basic truth: everything is high; everything is wet; everything must be checked again.
+
+They are not pioneers in the heroic sense. They do not imagine the basin will be mastered. The place has taught them better. Their work is repetition, not completion. A path cleared this month will green at the edges next month. A culvert opened in spring will be choked by autumn. A roof scraped bare will glitter with new moss after one season of mist. They live in treaty with recurrence.
+
+Over time, the humans take on some qualities of the basin’s other inhabitants. They become deliberate. Economical. Low-voiced when away from the engines. Patient with delay. They learn not to hurry across uncertain ground. They trust raised surfaces, marked gauges, old warnings, and the behavior of water around stones. They become sensitive to small changes in a place of huge constant noise: a sharper pitch from a fan, a warmer smell near a vent, a new tremor in a catwalk, a pool gone cloudy overnight.
+
+There may also be another kind of inhabitant there, less official and harder to name: the basin’s own wet intelligence, not conscious like an animal but active everywhere. It lives in seepage and return. In condensation forming on cables before dawn. In the way moss finds the underside of cold metal. In the way roots test concrete hairline by hairline. In the way standing water remembers the shape of every boot, every dropped tool, every stone newly fallen from the raw slopes.
+
+This resident is slow, but never absent. It is younger than the mountains and older than the machinery. It does not resist directly. It surrounds, wets, cools, softens, infiltrates. It accepts noise as a temporary condition. It accepts steel as future substrate. It accepts roads as raised ridges suitable for colonization. Given time, it will make meadow of roofs, peat of pathways, pools of basements, islands of foundations. It does not hate the works. It simply includes them.
+
+So the place is lived in by three overlapping populations.
+
+First: the green, low, shining multitude—the mosses, sedges, reeds, ferns, dwarf shrubs, algae, liverworts, roots, spores, and flowers—who are turning water and raw geology into ground.
+
+Second: the machine-colony—the pumps, turbines, pipes, vents, gauges, sheds, lights, and buried chambers—roaring out its hidden labor across the plateau, alive only as long as maintained, but powerful enough to make animals keep their distance.
+
+Third: the sparse human custodians, who move between stations like attendants inside a vast wet engine, never fully at home and yet shaped by the basin more deeply each year.
+
+Above and beneath all of them lives the water: close to the surface, inside the mats, under the roads, on the rails, in the walls, in the air. It is the common blood of the place. Everything there either drinks it, moves it, measures it, resists it, grows from it, or is slowly taken by it.

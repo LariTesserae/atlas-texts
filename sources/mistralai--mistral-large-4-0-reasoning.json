@@ -4,12 +4,13 @@
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-10-07",
   "date_last": "2026-10-07",
-  "texts": 373,
+  "texts": 448,
   "by_type": {
     "creature": 123,
+    "advisory": 75,
     "placement": 250
   },
   "evidence_grades": {
-    "event-observed": 373
+    "event-observed": 448
   }
 }

@@ -1,0 +1,97 @@
+# What Lives on the Forming Floor
+
+---
+
+They were not the first thing you found. You found the structure first — that windowless, doorless knot of the same dark material as the surface — and you circled it for a long time before you understood that the circling was the point. That the structure was not a building. That it was a shell.
+
+And then you noticed the movement.
+
+---
+
+## The Settlers
+
+They emerge from the surface itself.
+
+You are kneeling beside one of the wetter patches — a depression the size of a bathmat where the moisture has darkened the material to the color of wet slate — and you are watching the reddish-brown filament mat with the unfocused patience of someone who has been walking for hours and has finally found something worth looking at. The filaments move. You knew this. You saw it before. But you had attributed the movement to growth — slow, incremental, the spread of a living thing across a hospitable surface.
+
+This is not that.
+
+A filament *detaches*. One of the fine rust-colored threads lifts from the surface, peeling upward with a slow, deliberate motion that is not the passive rising of a material in wind, because there is no wind. It stands. It sways, testing the air — or testing something, some gradient you cannot sense — and then it is joined by another, and another, and the mat begins to rise in a specific patch, the filaments drawing together, braiding, thickening, lifting away from the floor in a process that looks less like standing up and more like *separating*. As though the mat is deciding, in some slow and chemically deliberate way, to stop being part of the surface and start being something on top of it.
+
+The first one takes — you do not know how long. Time is a guess here, a crude measurement made by the sluggish pulse of your own body. An hour. Perhaps two. But when it is done, there is a shape standing on the surface of the forming floor where no shape stood before.
+
+It is not tall. It comes to perhaps your hip, maybe lower. It is roughly pyramidal — not a clean geometric pyramid, but a weathered, organic one, a shape that has been resolved toward triangularity without ever fully achieving it. The base is wide and slightly irregular, widening where it still maintains contact with the filament mat that birthed it, a kind of trailing umbilicus of rust-colored thread that it has not fully severed. The body narrows upward. The apex is rounded, blunt, and it has a faintly different color than the rest — darker, almost black, and damp, as though the material at the top is still wet, still fresh, still deciding what it will be.
+
+It does not have a face. It does not have limbs. It does not have a front or a back in any way that implies orientation. It is, in the most literal sense, a column of organized filaments standing upright on a surface that is still warm and still setting and still, in some deep geological sense, becoming. And it is generating heat. You feel it from a meter away — a radiant warmth distinct from the warmth of the floor, a body warmth, a metabolic warmth, the warmth of something that is burning fuel in some slow and unfamiliar way.
+
+You sit beside it and watch. After some time — a long time, a time measured in sweat and the slow fading of your initial alarm — it moves. A lateral shifting of the base, a slow drag of the lower filaments across the surface, a centimeter of travel. Then another. It is moving toward the deeper part of the depression, where the water pools most thickly. It is moving toward moisture.
+
+This is what lives here.
+
+---
+
+They are called — you will never know what they call themselves, if they call themselves anything, if the concept of naming applies to entities that have no language and no apparent interior life. You name them. You name them Settlers, because that is what they are doing: they are settling. They are standing up out of a settling material and walking — slowly, so slowly — across the surface of a world that is still curing.
+
+A mature Settler is between hip and shoulder height. They are always wider at the base than at the top. They are always rough, textured, the color of old rust darkening to near-black at the apex where new material is still being deposited. They are always warm. They are always — when you press your hand to the side of one, which you do, because you have been alone in this place for long enough that caution has been replaced by curiosity — faintly yielding. Not soft. Not flesh. But not stone, either. Something between. Something that has the structural integrity of a living thing without the fragility of one. When you press, the filaments compress and then slowly rebound, reweaving, filling in the impression of your hand the way the surface of the floor fills in your footprints. The material remembers its shape. The Settler remembers its shape. But it remembers it the way water remembers the shape of a riverbed: as a constraint, not a choice.
+
+They move. They move slowly, a matter of centimeters per hour, and they move toward moisture. They follow the gradients you cannot sense — the capillary architecture of the floor, the hidden hydrology of seep and evaporation that maps itself in the dark patches and the wet depressions. They are drawn to water the way a plant's roots are drawn to water, except they are not roots. They are entire. They are whole organisms that uproot themselves and travel, and where they find sufficient moisture, they stop. They settle. The base widens. The filaments at the bottom splay outward and merge with the surface, re-establishing contact, becoming not a traveler but a resident, a fixed point, a low mound that will thicken over time into one of the woody, ribbed growths you mistook for landscape features earlier.
+
+Those mounds. Those knee-high, waist-high, hip-high mounds scattered across the wetter patches of the forming floor, distributed like stars, present and persistent and indifferent to the distances between them — those are Settlers that have stopped. Settlers that have found their place. Settlers that have been standing in one spot for long enough — years, decades, however time passes here — that they have thickened and densified and become architecture. The ribbing you saw is not structural decoration. It is the record of growth: layer on layer on layer of filament deposit, each layer slightly larger than the last, a tree-ring record of a life spent standing still and drinking from the floor.
+
+And the structure. That windowless, doorless structure you walked toward across the flat and shimmering distance. That is a Settler too. Or — not a Settler. A Settler is the wrong word for something that size, the way puddle is the wrong word for a lake. It is the same organism at a different scale. It is a Settler that found the deepest wettest patch on the whole forming floor and stopped there, and has been drinking and growing and thickening for so long that it has reached the dimensions of a building. Three meters high. Walls of dense, filament-woven material that has compressed over time into something approaching stone. A roof that is not a roof but an apex, a closure, the top of the pyramid filled in and sealed. No door, because it does not need one. No window, because it does not see. The interior is not a room. It is the body of the thing — the dense, warm, slowly metabolizing core of an organism that has been growing since before you arrived and will be growing after you leave and may, in some distant time, grow large enough to be the floor itself.
+
+---
+
+## How They Live
+
+The Settlers do not eat. They do not photosynthesize. They do not hunt or graze or filter-feed or any of the things that life, as you understand it, does to acquire energy.
+
+They drink.
+
+The water that seeps upward through the forming floor — the warm, faintly mineral, faintly metallic, faintly sweet water that does not quench thirst so much as address it — is their sustenance. The filaments that make up a Settler's body are, at the microscopic level, organized to draw moisture inward from wherever it is available. When a Settler is in motion, the base filaments trail across the surface, absorbing the film of water that collects in the shallow depressions, drawing it upward through capillary action into the body of the organism, where it is — processed is not the right word. *Incorporated*. The water becomes part of the filament, and the filament grows, and the Settler grows, and the heat you feel when you stand beside one is the byproduct of that incorporation, the way your body heat is the byproduct of your own metabolism. They are warm because they are alive. They are alive because they are wet. They are wet because the floor is wet. And the floor is wet because something beneath it — some reservoir, some aquifer, some shallow sea trapped between the underside of the pour and whatever is below that — is pressing upward, exhaling moisture through the still-porous, still-setting, still-uncured material of the forming floor.
+
+They do not breathe. They do not excrete. They do not reproduce in any way you can identify — there are no young Settlers, no seeds, no spores, no eggs. And yet new ones appear. They emerge from the mat. They stand up. They walk. They are born not from other Settlers but from the floor itself, from the filament mat that is, you realize, not a growth on the surface but a *feature* of the surface — a preliminary stage of the surface's own organization, a step between amorphous setting material and structured standing organism. The floor grows the mat. The mat grows the Settlers. The Settlers grow into mounds. The mounds grow into structures. The structures grow into — what? You do not know. The sample size is one. The structure is the largest thing you have found, and you do not know if it is the largest thing there is.
+
+The life cycle is a continuous process of thickening. The floor exudes filaments. The filaments organize. The organized filaments stand. The standing filaments walk. The walking filaments find water. The water-fed filaments stop. The stopped filaments thicken. The thickened filaments densify. The densified filaments become stone. And the stone — you do not know what the stone becomes, because the structure is the end of the record you can read, and beyond it is speculation, and beyond speculation is the deep, warm, luminous dark beneath the cracks that seal before you can see the bottom.
+
+---
+
+## What They Are
+
+They are not animals. They lack every quality you associate with animalness — no senses, no appetite, no fear, no curiosity, no response to stimulus beyond the slow chemical tropism that draws them toward moisture. They do not react to you. You stand in their path and they walk into you — slowly, so slowly that you have time to step aside, and even when they contact your leg they do not change course, they simply push against you with a pressure that is enormous in its patience but not in its force, and if you hold your ground they will eventually — over the course of minutes — nudge you aside, not because they are trying to move you but because they are trying to move and you happen to be in the way.
+
+They are not plants. They do not photosynthesize. They do not reproduce. They do not have a lifecycle that includes death, at least not death as you understand it — a cessation, an ending, a going-out. What they have is a continuation. A Settler that stops moving does not die. It thickens. A mound that has been standing for a century does not decay. It densifies. The material does not rot. It does not decompose. It does not return to the floor. It *becomes* the floor, or it becomes something on the floor, a feature of the landscape, a permanent addition to the surface of the forming world. Death, here, is not an ending. It is a setting. A curing. The living thing becomes the material thing becomes the structural thing becomes the landscape, and the landscape continues, and the process continues, and the floor continues to set.
+
+They are not fungi. They are not bacteria. They are not archaea or protists or any of the taxonomic categories that your world uses to sort the living from the non-living and the nearly-living from the dead. They are something that does not have a category, because the categories were made for a world with soil and sun and seasons, and this world has none of those. This world has a floor. This world has moisture. This world has heat. And in those three conditions, the material — the same material that makes up the floor, the same material that was poured or extruded or in some way deposited across the entire flat and featureless expanse of this place — the material *organizes*. It stands up. It walks. It settles. It thickens. It becomes permanent.
+
+The Settlers are not living on the forming floor. They *are* the forming floor. They are the floor in the process of forming itself. They are the material becoming structured. They are the pour becoming — not architecture, not yet, but the precursor to architecture, the way a field of saplings is the precursor to a forest. They are what the floor will be when it is finished, if finished is a word that applies to a process that may not have an end.
+
+---
+
+## What They Are Not
+
+They are not intelligent. You spend a long time with them — days, perhaps, or whatever the equivalent of days is in a place without diurnal cycle — and you watch them and you walk among them and you touch them and you speak to them, because speaking is what you do when you are alone and the silence is vast, and they do not respond. Not to your voice. Not to your footsteps. Not to the heat of your body or the moisture of your breath or the pressure of your hand. They respond to water. They respond to the gradient of moisture in the floor. That is all. They are chemical engines, metabolic automata, and the word automata is not a metaphor here but a description: they are self-moving, self-organizing, but they are not self-aware. They do not know that they are. They do not know that you are. They do not know.
+
+And yet.
+
+You sit beside the structure — the large one, the building-sized one, the one that has been growing in the same spot for long enough to develop walls and a roof and the dense, stony permanence of a thing that has fully committed to being here — and you press your ear against its surface, and you hear something. Not a sound. Not a voice. But a vibration. A low, slow, deep pulse that is not your heartbeat and is not the heat-pulse of the floor and is not the settling creak of the material. It is a rhythm that is coming from inside the structure, from the core of it, from the place where the filaments are densest and the heat is highest and the water has been drawn up through the body of the thing and is being incorporated into its substance. It is a pulse. It is regular. It is slow — perhaps one beat per minute, perhaps slower, a rhythm on a timescale that makes your own heartbeat seem frantic by comparison. But it is there.
+
+It is the same pulse you feel in the floor. The same deep, slow heat-rhythm that rises from beneath the surface, from the setting material below. The structure is pulsing in time with the floor. The structure is pulsing in time with the floor because the structure *is* the floor. It is the same material, the same process, the same slow becoming. The Settlers do not live on the forming floor. The forming floor lives in the Settlers. And the pulse — that one-beat-per-minute, deep, vast, geological pulse — is the heartbeat of the floor itself, transmitted through the filaments, through the mounds, through the structures, through everything that has stood up out of the surface and begun to organize itself into something more than surface.
+
+The floor is alive. The whole floor. Every square meter of it. The filament mats, the shallow depressions, the cracks that open and close, the moisture that seeps upward and evaporates, the heat that radiates from below — all of it is one organism, one vast flat sheet of becoming-life, and the Settlers are its organs. Its expressions. Its way of being not just surface but structure. Not just floor but feature. Not just material but — something. Something that is still being decided. Something that is still setting. Something that will not be finished for a very long time, and when it is finished, you suspect, it will not be a floor anymore.
+
+---
+
+## The Builder
+
+You asked the wrong question when you saw the structure. You asked: *is the builder still here?*
+
+The answer is yes. The builder is here. The builder is the floor. The builder has always been here, since the pour, since the material was laid and the moisture was introduced and the heat began its slow radiant work. The builder is not beneath the surface. The builder is the surface. The builder is the material that was poured and the filaments that grew from it and the mat that organized itself and the Settlers that stood up out of it and the mounds that thickened and the structures that formed. The builder built the structure the way a river builds a delta: by being, by flowing, by depositing, by following the gradient of physics and chemistry toward the lowest energy state, which is not flatness, which is not sameness, which is *form*.
+
+The structure is not a building. It is not a shelter. It is not a home. It is a knot, as you first perceived it — a place where the material has concentrated, where the process has accelerated, where the floor is becoming something faster than it is becoming something everywhere else. It is the future of the floor, visible now at one point, destined eventually to be visible everywhere. Or perhaps not. Perhaps the structure is singular. Perhaps there is only one place on the entire forming floor where the moisture and the heat and the depth of the pour have aligned in exactly the right proportions to produce a structure of that size, and the structure will grow alone until it is not alone, until it is something else, until it is — 
+
+You do not know. You cannot know. You are a visitor to a process that operates on timescales you cannot inhabit, and the process does not know you are here, and the process does not care. The floor sets. The moisture rises. The filaments grow. The Settlers walk. The mounds thicken. The structures form. The pulse beats. The heat rises.
+
+And you walk. You walk across the forming floor and you feel the warmth through the soles of your boots and you hear the silence and you see the Settlers standing in the wet patches, slow and rust-colored and warm, and you understand, finally, that you are walking across the back of something that is still becoming itself. That the floor is not a floor. That the Settlers are not settlers. That the structure is not a structure. That the world is not a world, not yet, not finished, not done. That it is forming. That it is forming now. That it will be forming after you leave. That the forming is the thing, the only thing, and the things that live here are the forming itself, standing up, walking, finding water, and settling into the shapes it will wear when it is done.
+
+If it is ever done. If done is a word that means anything, in a place where the material has not yet decided what it will be.

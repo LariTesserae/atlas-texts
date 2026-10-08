@@ -1,0 +1,67 @@
+It is a high place, though everything here is underwater.
+
+Not underwater in the simple sense of a valley drowned or a sea risen over mountains, but submerged as a condition of the world. The air has been replaced by cold black water, and the slopes, ridges, terraces, old paths, rooflines, groves, shrines, and fields all exist inside it, suspended beneath an upper surface so distant and storm-dark that it is more rumor than sky. Above, somewhere, water folds against water: rain striking flood, clouds sinking into ocean, pressure grinding weather into depth. Below and around, the land continues with the stubbornness of something that was once dry and has not forgotten its shape.
+
+The landscape is a wide upland basin, maybe the size of a small valley kingdom. Its edges rise into black ridges of stone, softened by long erosion, not sharp mountains but worn backs, glacial-looking shoulders, old high ground polished by centuries of current. The basin floor steps downward in broad shelves: ancient roads, terraced clearings, collapsed retaining walls, ledges of slate, beds of gravel, all furred with pale growth. There is space here. Long distances of dim water lie between things. A ruined hut on one slope; a grove of drowned trees half a mile away; a standing stone beyond that, leaning slightly; beyond it, the faintly ribbed outlines of terraces disappearing into suspended silt.
+
+The cold is constant. It does not bite in gusts; it presses. It inhabits stone, timber, leaf, bone-white root, the empty rooms of cottages. It has made the water slow and glass-heavy, yet never still. Every object wears a tremor. Fronds bend and recover. Ribbons of algae stream sideways from lintels. The black mouths of doorways breathe in and out as currents pass through them. Fine sediment rises from the ground in patient veils, then settles again over everything like gray ash.
+
+There is no sun. Light arrives from elsewhere in broken amounts: a weak blue murk from above during the world’s imitation of day, occasional green glimmers from plants, and the pale mineral shine of exposed stone. Most of the place is darkness layered upon darkness, not empty but thick, full of depth. At a distance, forms do not vanish so much as become possible. A tree may be a tree, or a steeple, or a column of weed, until one draws near enough for the water to give it back.
+
+The vegetation is lush, but not crowded. It grows in islands, bands, and slow banners across the drowned highland. Kelp-like trees rise from old orchards, their trunks rooted where apple and rowan may once have stood, now transformed into dark flexible columns with crowns of long, translucent leaves. These leaves are not green in the usual way. They are bottle-green, black-green, blue-green, sometimes veined with silver, and when currents move through them they flash like the undersides of storm clouds.
+
+Mosses cover walls in thick drowned pelts. Ferns grow horizontally from cliff faces, each frond divided into lace so fine it seems spun from hair. Pale bladder-plants cling to roof beams and abandoned fence posts, swelling and contracting as pressure shifts, keeping themselves upright by small sacs of trapped brightness. On the old terraces, beds of ribbon grass flow in one direction for hours, then suddenly reverse when a colder current descends from the upper ridges. Root systems travel over stone like exposed nerves. They do not merely anchor; they search. They cross thresholds, descend wells, lace through tool handles, bind collapsed carts to the earth.
+
+There are no animals. No fish move between the weeds. No crabs pick at the silt. No birds ever wheel above, no insects thread the wet dark, no frogs cling to drowned reeds. The absence is so complete it becomes one of the landscape’s laws. The plants have no grazers and no pollinators. They bloom to no audience. Their spores move by current, pressure, temperature, memory. Seedpods open when certain tones pass through the water. Root crowns divide when touched by moon-tides that cannot be seen. Whole meadows migrate over generations, creeping from one terrace to another, leaving pale scars where stone has been fed upon and softened.
+
+Because there are no animals, the sounds are not calls, not cries, not rustles of wings or feet. The place is loud in other ways.
+
+The whole basin groans.
+
+Water moves through it constantly, drawn by channels cut before the flood and by new submarine winds that follow no dry-world logic. Currents strike the ridge walls and boom through caves. Cold pressure snaps old timbers with pistol-crack sharpness, then draws the sound out into a long wooden moan. Loose roof slates clatter and settle. Pebbles roll down drowned roads in whispering avalanches. Somewhere under the terraces, trapped gases gather and release in enormous belches that shake the weeds flat and send silver globes rushing upward into the dark.
+
+There are bells, too, or things like bells. In several places, primitive structures remain: low stone houses with corbelled roofs, huts bound with wooden pegs, cairn-marked platforms, fishless weirs built for a vanished purpose, small shrines of stacked slate. Some contain suspended objects made by hand before the water came, or after. Shell-less clay rattles. Rings of hammered copper-green metal. Bone-like pipes carved from pale rootwood. When currents pass through openings in walls, these objects knock and hum and drone. The entire valley becomes an instrument played by water.
+
+One longhouse on a ridge shelf is nearly intact. Its walls are stone up to the height of a person’s waist, then dark beams pegged together without nails. The roof, once thatch or turf, has become a garden: curtains of weed fall from it like hair, and white root-beards reach through the interior beams. Inside are benches, a central hearth blackened from a time when fire existed here, and rows of hand-shaped vessels weighted with stones. The vessels are open at the top, filled with silt and small pale plants. Their stems curl over the rims like fingers. No one tends them, but they are arranged too carefully to feel accidental.
+
+Farther down, where the basin floor broadens, stand the remains of fences. Not continuous fences — just posts, widely spaced, each wrapped in vegetation, each carved with simple marks: not writing exactly, more like weather signs, depth signs, warnings made by people who understood water as a god, a road, and a wall. Some posts bear notches at different heights, though height has become meaningless except as a memory of air. Others are topped with cup-shaped stones that collect darkness. If touched, those cups release clouds of black mineral dust that sink instead of rise.
+
+The world has rules here, and they are not all physical.
+
+Nothing burns.
+
+Nothing rots quickly.
+
+Nothing with eyes lives.
+
+Sound travels too far, and shape travels poorly.
+
+Wood remembers uprightness. Even fallen beams slowly twist toward the vertical over decades, as if trying to become trees again. Stone remembers pressure. If moved from its place, it sweats milky streams and grows brittle. Clay remembers hands. Bowls found in the silt are sometimes warm at the thumb marks, though the water around them is near freezing.
+
+The drowned vegetation obeys seasons, but the seasons are made of temperature and darkness, not warmth and light. In the deep cold season, the water turns clearer and harder. All motion becomes precise. The black-green leaves narrow themselves into blades, and the bladder-plants dim to the color of old ice. Sounds sharpen. A pebble falling from a wall can be heard across the basin, ticking down through weed and silt. During the turbid season, warmer water seeps up from below and the entire valley clouds over. Plants release spores in pale storms. The ruins disappear behind milky drifts. Stone houses become silhouettes. One can pass within arm’s reach of a standing wall and not know it until a hand touches moss.
+
+There are weather cycles even here. Sometimes a descending storm arrives from above as a vertical force, a wall of colder water packed with silt, leaves, and broken fragments from unseen upper slopes. It pours down through the basin like night becoming heavier. Weed forests flatten. Long curtains of algae lash sideways. The shrines ring. Loose stones leap in place. For hours the valley is all impact and roar, though nothing falls in the ordinary way; everything is carried, pressed, translated through water. Then the storm passes into the lower ravines, and the plants rise again, slow and unresentful.
+
+At other times, the basin experiences stillness so total it seems ceremonial. The current pauses. Suspended particles hang unmoving. The ruined buildings, the terraces, the groves, and the high black ridges align in the dark like a memory being held in the mind of the water. During these pauses, faint lights appear under the moss on certain stones. Not bright lights — not enough to see by at first — but lines and clusters, as though constellations have been buried in the masonry. They pulse once, twice, then fade when motion resumes.
+
+No animal disturbs these moments. No watcher blinks from the weeds. Yet the landscape does not feel dead. It feels occupied by processes too slow or too diffuse to become creatures. The plants behave almost socially. Groves seem to lean toward ruins. Root mats thicken around carved stones but avoid thresholds. Pale vines enter some houses and refuse others. In one open square, nothing grows at all, though spores fall there constantly. The silt on that square lies smooth, undisturbed, dark as slate. Currents divide around it.
+
+The highest ridge is crowned with standing slabs, some natural, some placed by hand. They form no perfect circle, but a long broken arc facing the basin. Each stone has been weathered by water until its surface is soft, almost skinlike, and each is trailed by long streamers of black vegetation. Between the slabs are low mounds that might be graves, or storage pits, or the foundations of vanished signal fires. The ridge should feel exposed, commanding, a place from which one could see the valley. Instead it feels like the underside of a lid.
+
+Beyond the ridge, the land drops away into a deeper darkness. There the water becomes almost ink. The plants thin. The sound changes from booming and clatter to a massive continuous undertone, as if a far gate stands open somewhere below. No structures are visible beyond a few descending marker stones. They continue downward at intervals, each one smaller with distance, until they are swallowed. The people who built them, if people built them, marked a road into the depth.
+
+The scattered artifacts suggest a culture that lived either before the inundation or in early accommodation to it. Their tools are simple: stone blades hafted to water-dark handles, woven baskets weighted with river pebbles, clay lamps that could no longer hold flame, hooks without fish to catch, sled-like frames for dragging loads along silt. There are masks, too, carved from driftwood and root, but without eye holes. Their faces are smooth, sometimes with a groove where a mouth might be. They hang in a few doorways, turning gently in the current, knocking against lintels with hollow patience.
+
+Perhaps sight became unimportant here. Perhaps the last inhabitants navigated by sound through darkness and flood, striking stones, listening to returning echoes, reading pressure through skin. Perhaps they planted the first drowned groves deliberately, breeding cold-water trees to hold terraces in place and keep roofs from collapsing. Perhaps the plants are the descendants of their fields and orchards, altered by depth until cultivation and wilderness became indistinguishable.
+
+Or perhaps the buildings were never meant for air. Perhaps this is how the world has always been: a cold submerged highland beneath a black water sky, where stone houses are built by breathless hands, where fire is a myth carved as a circle in hearth ash that will never disperse, where vegetation grows lushly because no animal has ever learned to eat it, where sound is the true weather, and darkness is not absence but climate.
+
+The place is old enough to be in balance with its strangeness. Nothing appears freshly ruined. Even collapse has settled into form. Walls that fell long ago have become reefs for moss. Roofs that caved in now make sheltered basins for pale gardens. Paths remain visible not because anyone walks them, but because currents prefer them. The land has adjusted. The flood is not an event here anymore; it is geology.
+
+And still it moves.
+
+Cold streams descend from invisible snowfields of water. Silt lifts and resettles. Root systems tighten around stones. Bladder-plants glow and dim. Wooden beams creak themselves straighter. Ancient cups fill with darkness. In the longhouse, the clay vessels tremble when the valley drones. On the ridge, the standing slabs hum at a pitch too low to hear fully, felt instead as pressure in the chest.
+
+There are no animals, no flames, no footsteps, no voices.
+
+There is only the drowned upland, spacious and dark, loud with water and memory, growing slowly through the remains of a hand-made world.

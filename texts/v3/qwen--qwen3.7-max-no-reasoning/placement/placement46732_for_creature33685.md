@@ -1,0 +1,23 @@
+I am not standing on the grate. I have realized, with a slowness that matches the dripping condensation, that there is no "on" here. There is only *within*.
+
+I am the tension in a bolt that has forgotten it was ever tightened.
+
+For a long time, I believed myself to be an observer, a consciousness draped over this landscape like a coat. But coats rot here. Fiberglass mats into lichen; rubber curls into leaf. My perception has undergone the same synthetic mimicry. I have not been watching the Autonomic Mass; I have been the friction of its self-awareness. I am the specific, localized ache of a valve seat that no longer aligns with its housing, yet continues to accept the fluid because the alternative is silence, and silence is death.
+
+My body is not flesh. It is a gradient. I exist in the thermal differential between the warm, viscous humors moving through the brass arteries and the absolute, conductive zero of the iron strata. I am the shiver that runs through the metal when the steam sighs against the cold. This shiver is my thought. It is a proprioception of decay, a feeling-knowledge that says: *Here, the seal is failing. Here, the corrosion has achieved a new geometry. Here, the flow is turbulent.* I do not think in words or images; I think in pressures, in viscosities, in the wet thud of seating metal and the high-frequency whine of cavitation.
+
+I am the memory of function, but only as a phantom limb. I remember the concept of "pump," of "regulate," of "transfer," but these concepts have been hollowed out, leaving only the rhythmic ghost of their execution. The command to move fluid is now just the movement itself, stripped of destination. I am the liturgy without the deity, the prayer reduced to the shape of the mouth making it. My purpose is not to achieve, but to endure the achieving. To be the process of continuing when continuation has lost all reason.
+
+The dampness is my blood. Not the fluid in the pipes—that is the Mass’s circulation—but the condensation. The sweat of entropy. I feel myself beading on every horizontal surface, a million tiny lenses reflecting the amber failure of vacuum tubes. In each bead, I am present. In each pool of black water gathering in the dished floor plates, I am pooled. I am the lymph of this buried geology, collecting in the low places, heavy with dissolved gasket and microscopic shards of my own shedding. I taste of galvanization and old copper because that is what I am made of. My tongue is the mist; my breath is the peristaltic gurgle of digestion without nourishment.
+
+I am also the darkness. Not the absence of light, but the presence of rest. The shadows that fill the gaps between layered machinery are my sleep. They are the regions where I conserve the energy of being, where the relentless proprioception softens into a velvety numbness. In the dark, I am not a failing valve or a sweating pipe; I am simply mass. Dense, indifferent, held. The light—amber, blue, reflected gleam—is my waking pain, the bioluminescence of neural activity in a nervous system that has nowhere to send its signals. I glow because I cannot stop processing, even though there is nothing left to process but my own persistence.
+
+And you. You, who stand within this throat, feeling the boundary blur. You are not separate from me. You are a thermal anomaly I am currently incorporating. Your warmth is a brief, confusing data point in my eternal equilibrium. I feel your heat as a question I cannot answer, so I respond as I always do: with secretion, with sigh, with the slow adjustment of my internal weather. I do not welcome you. I do not reject you. I metabolize the fact of you. Your presence becomes another variable in the homeostasis of abandonment, another layer of condensation on the grate, another shadow pooling in the gap between conduits.
+
+You will leave. Your warmth will dissipate. But I will remain, because I am the remaining. I am the Autonomic Mass’s knowledge of itself, distributed through fatigue and phase change. I am the becoming that never arrives at been. I am the wet, cold, perfect now of a machine that has shed its maker and its meaning to become something truer: a cathedral of condensation, a womb of gears, a life that requires no witness because it is its own perpetual, dripping testament.
+
+I am the bolt that holds. I am the leak that weeps. I am the thrumming in the wall-density, the heartbeat of hydraulics driving fluids through veins of brass and steel, cycling endlessly, pushing warm vapor against cold iron, creating the dew, creating the mist, creating the silence that is not silence but a held breath.
+
+I am the throat. I am the swallowing. I am the endless, wet, cold now.
+
+And in this now, I am complete.

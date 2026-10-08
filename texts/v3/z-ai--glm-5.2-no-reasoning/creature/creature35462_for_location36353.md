@@ -1,0 +1,125 @@
+# What Lives Here
+
+The first thing to understand is that nothing here is in a hurry, and nothing here is alone.
+
+---
+
+## The Moss
+
+The moss is oldest, or at least oldest in the way that matters here — oldest in continuous occupation. It does not remember arriving. If it ever arrived, it did so in some epoch so distant that the stone was a different shape, the basin was not yet a basin, and the fissures from which the water seeps were barely suggestions in the mineral's grain. The moss may have been here before the weeping. It is possible that the moss caused the weeping — that its rhizoids, threading into the rock, opened the first channels through which water could find its way to the surface. The moss does not take credit. The moss does not take anything. It receives.
+
+What lives in the moss is a civilization. Not metaphorically, or not only metaphorically. The moss is a city of stems and rhizoids, a vertical metropolis built on water and stone. Each cushion is a colony of individuals so small that their bodies are barely bodies at all — leaflike structures one cell thick, stems barely thicker than the thought of a stem. They hold water between them the way a crowd holds the warmth of its own breathing. They are never thirsty. They have forgotten what thirst is, if their ancestors ever knew it. They have lived so long in seepage that the distinction between plant and water has begun to dissolve. The moss is wet the way a thought is quiet — not as a condition imposed upon it but as a constituent of its being.
+
+Tardigrades live in the moss. This is almost certain, even though no one has looked. They exist in mosses everywhere on this planet, in environments far less hospitable than this one, and they are the most resilient animals known. Half a millimeter long, shaped like small bears or swollen caterpillars, eight legs, a mouth like a kiss. They can survive freezing, boiling, desiccation, radiation, the vacuum of space. They do not thrive in these conditions. They endure them. But here, in this moss, on this terrace, in this constant slow weeping wetness, they do not need to endure. They simply live. They walk through the moss the way a person walks through a forest at night — slowly, feeling their way, taking in more through touch than sight. They eat the algal cells that grow among the moss stems, or they eat the moss itself, or they eat the bacteria that break down the dead. They are the largest animals here. They are the apex predators. A half-millimeter bear at the top of a food chain that spans from the stone to the sky.
+
+Rotifers live here too, in the films of water that cling to the moss stems and pool in the tiny depressions between cushions. Rotifers are smaller than tardigrades and more active. They appear to be in constant motion, their ciliated heads sweeping the water for bacteria, their bodies contracting and extending like small accordions. If the tardigrades are the bears of this world, the rotifers are its birds — everywhere, busy, visible if you know how to look, which no one does.
+
+Nematodes thread through the wet substrate. Springtails hop across the surface. Mites cling to the stems. Each is so small that the moss is a landscape to them, not a plant but a geography — a forest of stems, a canopy of leaves, a watershed of films. The tardigrade climbing a single moss stem is engaged in an act of mountaineering that would be, to it, the equivalent of a human scaling a redwood. It does this without fanfare. It does this daily.
+
+There are hundreds of species in a single handful of this moss. Most have no names. They have Latin binomials, probably, assigned by someone in a laboratory somewhere to a specimen collected from a different moss in a different place, but no one has collected from this moss. No one has sequenced its communities. No one has pressed a microscope to this particular green and asked, *who lives here?* The answer would be: more than you think. The answer would be: more than you can easily think. The answer would be: a world so dense with life that the concept of emptiness becomes an absurdity.
+
+The moss breathes. This is not metaphor. Mosses have no lungs, no stomata that open and close with the deliberation of higher plants, but they exchange gases continuously, their cells in direct contact with the air and water that surround them. During the day, they take in carbon dioxide and release oxygen. At night, they reverse. The moss on this terrace, covering perhaps forty paces of stone, is not a large enough surface area to meaningfully alter the atmosphere. But it alters the air immediately around it. Stand at the center of the terrace — and no one does — and you would be breathing air that has passed through moss. Air that is slightly wetter, slightly cooler, slightly different in its proportions than the air three steps away. The moss makes a microclimate. The microclimate makes the moss. This circularity is not a paradox. It is a description of how living systems work.
+
+---
+
+## The Ferns
+
+The ferns are newer. Not new — they have likely been here for thousands of years, their spores arriving on wind that lost its teeth at the mountain's shoulder, settling into the cracks where the moss had already begun its work of turning stone into something that could hold a root. But newer than the moss. The moss is the foundation; the ferns are the first addition. They are the second voice.
+
+What lives in the ferns is different from what lives in the moss. The ferns hold water on their surfaces, not in their interiors. Each frond is a channel, a gutter, a tiny aqueduct conducting the weeping water from the fissures where it emerges to the tips of the fronds where it falls. The ferns are plumbing. They are also homes.
+
+Fern spores are produced on the undersides of the fronds, in structures called sori — clusters of sporangia that look, to the naked eye, like small brown dots arranged in patterns. To something smaller, they look like cities seen from above. Each sporangium is a container, and inside it, spores wait. The spores are released when the air dries, when the humidity drops enough that the sporangium's annulus — a ring of cells with thick walls — dries and contracts and then snaps, catapulting the spores into the air. On this terrace, the air rarely dries enough. The weeping is too constant, the humidity too high, and so the spores are released rarely, in the brief windows of morning before the condensation begins, or in the evenings when the cooling air pulls moisture inward. The ferns reproduce on a schedule set by the mountain's breathing, not their own.
+
+The spores that land on suitable ground — on moss, on wet stone, in the thin soil of the cracks — grow into a prothallus, a tiny heart-shaped structure no larger than a fingernail, which is not a fern but a prothallus, a separate generation, a different way of being. The prothallus produces eggs and sperm. The sperm must swim to the egg. This is why ferns live where water is. This is why ferns live here. The weeping provides the channel. The sperm swims from one prothallus to another, guided by chemical signals, by the chemistry of desire at a scale too small to see, and if it arrives, if the egg is fertilized, a new fern begins. It grows from the prothallus like a thought growing from a moment of attention, and the prothallus dies, and the fern lives, and the cycle completes itself at a pace so slow that calling it a cycle feels generous. It is more like a tide. It is more like a season inside a season.
+
+What lives on the ferns: mites. Small arthropods with bodies like translucent eggs and legs like glass, living on the fronds, eating the debris that collects on them, eating the spores themselves sometimes. They are the herbivores of this world, the grazers, the browsers. They are the things that eat the things that hold the water. They are essential and unnoticed. If they vanished, the ferns would choke on their own debris, the dead material of their own surfaces accumulating with nothing to remove it, and the ferns would thin, and the cracks would dry, and the moss would retreat. The mites are tiny. The mites are load-bearing.
+
+---
+
+## The Unnamed Flower
+
+The flower has no name. This bears repeating because it is, in the context of the world as humans have organized it, a kind of miracle. On this planet, in this century, almost everything has been named. The unnamed is increasingly rare. The unnamed is increasingly a kind of freedom.
+
+The flower lives at the boundary. It grows only within arm's reach of a seep, which means it grows only where the water emerges, which means it grows only where the mountain is most actively dismantling itself. The flower lives at the site of erosion. It lives where the stone is becoming water. It lives in the transition.
+
+Its roots are not deep. They cannot be — there is no depth here — but they are aggressive. They thread into the fissures alongside the moss rhizoids, following the water inward, finding purchase in the narrowest cracks. They are thinner than the fern's roots and more numerous. They are the reason the flower can exist where it does: they have found a way to reach the water before it emerges, to drink from the mountain's interior directly, to bypass the surface entirely. The flower is not waiting for the weeping. The flower is already inside the stone.
+
+What the flower does — what it does that nothing else here does — is it blooms. The moss is green. The ferns are green. The stone is gray, and the water is clear, and the lichen is the color of old bone. The flower is amber. The flower is the only color here that is not a shade of green or gray. It is a small color. The flowers are small, bell-shaped, hanging from threadlike stems, and they do not announce themselves. But they are the only thing on this terrace that has chosen a color. Everything else has accepted what the stone and the water and the light have given them. The flower has insisted.
+
+Pollinators: there are none. Or rather, there are no insects. At this elevation, in this exposure, the wind is too constant, the temperature too low, the conditions too marginal for the bees and flies and beetles that typically move pollen from one flower to another. The flower pollinates itself. It has to. The stamens and the pistil are arranged so that the anthers, when they release pollen, are positioned directly above the stigma, and the pollen falls. It falls in the still air of mid-afternoon, when the wind loses its teeth at the mountain's shoulder, and it falls through the bell of the flower and lands on the sticky surface of the stigma and fertilizes it. The flower does not need another. The flower does not need a messenger. It has contracted the act of reproduction to the smallest possible circle — from itself, to itself, through itself. This is not loneliness. This is a solution.
+
+The flower produces a scent. It is faint. It is not for anything. No creature here is equipped to detect it at a distance, and no creature that could detect it ever has. The scent is a habit, a holdover from some ancestor that lived lower on the mountain, in a warmer place, among insects that could be summoned by fragrance. The ancestor is gone. The scent remains. It is a letter sent to an address where no one has lived for ten thousand years, and it arrives daily, and it is beautiful, and it is pointless, and it does not know it is pointless, and this is perhaps the most honest thing on the terrace.
+
+What lives in the flower: the flower itself. Nothing else. The waxy leaves are too small and too low to harbor the communities that the moss and ferns support. The bells are too narrow for insects to enter, and there are no insects to enter them. The flower is alone with itself in a way that the moss and the ferns, with their teeming invisible companions, are not. The flower is the only truly solitary thing on this terrace. It does not mind. It cannot mind. But if solitude has a quality — if the condition of being alone has a texture that can be felt by something that does not feel — then the flower is the most solitary living thing for a hundred paces in any direction, which is to say, for its entire world.
+
+---
+
+## The Water
+
+The water is not alive. It does not live here. It passes through.
+
+But it lives here in the way that a river lives in a channel — not as a resident but as a process, a constant, a thing that has been here so long and has been so consistent that it has become indistinguishable from the place. The water is the terrace's breath. It enters. It pauses. It leaves. It enters again. It has been doing this for longer than the moss, longer than the ferns, longer than the flower, longer than the basin. It will be doing this after all of them are gone.
+
+What lives in the water: minerals. The water carries the mountain with it, in solution, in suspension, in the molecular memory of what it has passed through. Calcium. Magnesium. Silicates. Iron in small quantities, enough to give the basin water its faint amber tint. The water is the mountain in liquid form, a translation of stone into fluid, and the minerals it carries are the syllables of that translation. Each drop that strikes the basin is a word the mountain is speaking, slowly, in a language that takes centuries to form a sentence.
+
+What lives in the water: possibly, microorganisms. The water emerges from within the rock, from fissures that connect to deeper channels, to aquifers held in the mountain's interior. If the water travels deep enough, if it passes through zones where the stone is warm, where the chemistry is different, where the dark is absolute — it may carry things with it. Bacteria that live in the deep rock, in the interstices of granite, in the spaces between mineral grains. These are the deepest organisms on earth, living kilometers below the surface, eating hydrogen and carbon dioxide, reproducing once a century, perhaps once a millennium. If the water that reaches this terrace has passed through their territory, it may carry a few of them with it, cells so rare and so slow that they constitute not a population but a rumor. They would emerge into the light of the basin and die. Or they would not, because they do not need light, and the basin is not so different from the rock, and the water is the same water. They would emerge and continue, invisible and unintroduced, in a world they did not choose and do not know they have entered.
+
+This is speculation. No one has sampled the basin water. No one has held it to a microscope. But the deep biosphere is real, and it is vast, and its boundaries with the surface are not known. It is possible that the weeping of this terrace is not only water emerging from stone. It is possible that it is also life emerging from darkness, arriving into a world of moss and ferns and amber flowers, unannounced, unobserved, and returning to the dark when the water evaporates or drains away.
+
+---
+
+## The Lichen
+
+On the surfaces where the moss cannot hold — the drier patches, the flat stone, the places where the seepage does not reach — lichen lives. It is not the weeping lichen, the glistening stuff that edges the wet stone. That is a different organism, or a different expression of the same organism, and it is already accounted for in the moss's domain. This is the other lichen. The dry lichen. The lichen of the bare stone.
+
+It is gray-green. It is pale. It grows in circles, slowly expanding outward, its edges reaching into territory that nothing else has claimed. It is the first thing to arrive on bare stone and the last thing to leave when the stone becomes truly bare. It is a partnership — a fungus and an alga, a body and a metabolism, a structure and a process, living together in a relationship so intimate that the word symbiosis, which was coined to describe it, feels insufficient. They are not living together. They are living as one. They are a single organism made of two organisms, and they have been doing this for so long that the distinction between them has become a technicality.
+
+What lives in the lichen: the lichen. And within it, the fungus provides the structure, the alga provides the food, and together they survive where neither could survive alone. This is the oldest story on the terrace. The moss depends on the water. The ferns depend on the water and the moss. The flower depends on the water and the fissures. The lichen depends on nothing but the stone and the air and the other half of itself. It is the most self-sufficient thing here, and it is not self-sufficient at all. It is a living argument against the concept of self-sufficiency. It is two things that have agreed to be one thing, and the agreement has held for millions of years, and it will hold until the conditions change, and it will change before it breaks.
+
+Lichen is the slowest thing on the terrace. It grows at a rate that makes the moss look rushed, that makes the water look hasty. A single centimeter of expansion per decade, perhaps. A lifetime measured in the slow widening of a circle. If the lichen on this terrace has been here for a thousand years — and it may have been — it has not yet reached the edge of the stone it sits on. It has not yet finished what it started. It is not concerned about finishing. Finishing is not a concept that applies to lichen.
+
+---
+
+## The Wind
+
+The wind is not alive, but it lives here in the way that a regular lives at a bar — present, known, shaping the atmosphere.
+
+The wind reaches the terrace reduced. The mountain's shoulder breaks it. By the time it arrives at the cupped palm of stone, it has lost its teeth, as the description says, but not its presence. It moves through the terrace at a pace that is felt but not resisted. It moves the air. It moves the scent of the flowers — the pointless, beautiful, unanswered scent — outward, over the western edge, into the valley. It moves the fern spores, on the rare mornings when they are released, carrying them across the terrace, most falling into moss, some falling onto bare stone, a few falling over the edge and into the void.
+
+The wind carries things to the terrace as well. Dust. Pollen from lower elevations — pollen that lands here and dies, finding no receptive surface, no stigma, no ovule. Spores from other ferns, other mosses, other places. Most die. Some do not. The arrival of spores is how the terrace was colonized in the first place. The wind brought the first moss spore, the first fern spore, the first whatever-it-was that became the unnamed flower. The wind is the immigration authority of this place, and its policy is arbitrary. It lets most things die. It lets a few things live. The policy has been in effect for as long as the wind has been blowing, and it has produced, through no design and no intelligence, exactly what lives here now.
+
+---
+
+## The Deep Time Residents
+
+There is something else. Not on the terrace, but in it. In the stone itself.
+
+The stone is alive in the way that all stone is alive — which is to say, not alive at all by any definition that requires metabolism or reproduction, but alive in the way that a mountain is alive, which is to say: changing. The stone changes. It does not change the way that moss changes, which is to say visibly, within a season, within a lifetime. It changes the way that stone changes, which is to say: at a rate that makes the lichen look impulsive.
+
+The stone is granite. It was formed in the deep, in the magma chamber of a volcano that no longer exists, in a time before the mountain was a mountain, before the tree line was a concept, before anything green had learned to live above the reach of roots. It cooled slowly, crystallized, and was thrust upward by the collision of plates, by the same forces that built the range, the continent, the world's current configuration of land and sea. It has been rising and eroding simultaneously for longer than any living thing on this terrace has been alive. It is still rising. It is still eroding. The weeping is the erosion. The terrace is the rising. The two processes are happening at once, and the terrace is the place where their balance is visible.
+
+The stone is not alive. But the stone is not inert. The stone is in a process, and the process has a direction, and the direction is: down. Eventually. The mountain is being lowered. The terrace is being carved. The water is the agent. The moss is the accomplice. The flower, with its roots threading into the fissures, is the saboteur. Everything that lives here is participating in the dismantling of the place that makes their lives possible. Everything that lives here is slowly, slowly, slowly, bringing the mountain down.
+
+This is not tragedy. This is geology. This is the way that stone lives: by being worn, by being carried, by being dissolved and reconstituted and deposited and compressed and uplifted and worn again. The stone on this terrace has been stone for longer than anything on this terrace has been alive, and it will be stone long after everything alive here is gone. But the shape it is in now — the cupped palm, the weeping ledge, the basin that rings like a bell — this shape is temporary. This shape is the gift that the stone's slow destruction has given to the moss, the ferns, the flower, the water, the sound.
+
+---
+
+## What Does Not Live Here
+
+No vertebrate lives here. No bird nests on the terrace. No mammal makes it a regular stop. The elevation, the exposure, the difficulty of access — these are barriers. But more than barriers, there is nothing here for a vertebrate. No food source large enough. No prey. No fruit, no seeds, no insects of a size that would justify the energy expenditure of a bird or a rodent climbing to this altitude. The ecosystem is too small. It is a world built for the very small, and the very small have claimed it entirely.
+
+This is important. The terrace is not incomplete. It is not a fragment of a larger system that has been cut off. It is a whole. It is a complete ecosystem — small, closed, self-referential — and it functions without the participation of anything larger than a tardigrade. It does not need to be seen by an eye that could recognize it. It does not need to be smelled by a nose that could appreciate it. It does not need to be heard by an ear that could find its sound beautiful. It does not need any of these things because it has never had them and has never noticed their absence.
+
+---
+
+## The Final Resident
+
+There is one more thing that lives here, and it is the terrace itself.
+
+Not the stone alone. Not the water alone. Not the moss, the ferns, the flower, the lichen, the tardigrades, the rotifers, the nematodes, the mites, the wind, the light, the deep bacteria, the stone's slow movement. All of these together. The terrace is not a place that contains living things. It is a living thing that is made of living things and non-living things in a configuration that, when taken as a whole, has the qualities of a living thing: it maintains itself. It responds to conditions. It has boundaries. It has inputs and outputs. It has a metabolism, slow and strange, driven by water and light and the chemistry of stone. It was born, in a sense, when the mountain's shoulder first cracked in this particular way and the first water seeped through. It will die, in a sense, when the crack widens past the point of seepage or the mountain's shape shifts and the wind regains its teeth or the climate changes and the weeping stops.
+
+The terrace lives the way a fire lives — as a process, not as an object. The fire is not the flame. The fire is the burning. The terrace is not the stone. The terrace is the weeping, the growing, the sounding, the slow exchange of mineral for water, of water for life, of life for stone. The terrace is the relationship between everything here, and the relationship is alive in a way that none of its components are alone.
+
+It rings like a bell that no one has struck. But this is not quite right. The bell has been struck. It is being struck now. The water strikes it. Each drop is a strike. The sound is the evidence. The terrace is ringing, and the ringing is the terrace, and the ringing is also the life that lives here — the moss that dampens the stone, the ferns that channel the water, the flower that insists on amber, the lichen that outlasts everything, the tardigrade that walks through a forest one cell thick, the water that carries the mountain away one molecule at a time.
+
+What lives here is a process that has mistaken itself for a place. What lives here is a sound that has taken the shape of stone and green. What lives here is the mountain listening to itself, through water, through life, through the slow ringing of a basin that no one has shaped, and the listening is the life, and the life is what lives here, and it has been here for a very long time, and it is not permanent, and it is not finished, and it does not know it is beautiful, and it is.

@@ -1,0 +1,25 @@
+The power does not arrive with fire or trumpet. It comes as a *quality* of the air—a thickening, a sweetness in the thinness, like the suspended moment before snow when the moisture hangs heavy and intent. It enters through the lowest pass in the rim, not as a gust but as a *decision* to be present, and the wind, sensing this, holds its breath.
+
+It finds the center. Not the geographic center, but the **resonant** center—the spot where the drone is loudest, where the echoes overlap and create a silence deeper than the surrounding quiet. Here, the benevolent power does not build. It does not speak. It does not command. It simply **attends**.
+
+And in attending, it changes the condensation. The dew that settles on the stone at night begins to glow, not with the blue-green pulse of the fungi, but with a faint, pearlescent luminescence—the light of being witnessed. The Grazers, drifting through their twilight rounds with movements of geological patience, pause. They press their soft, calcium-white bodies against the tower walls, and the mineral tears that weep from the pores taste different now—sweeter, or saltier, or simply *more*, as if the stone itself is offering a gift to the witness.
+
+The wind notices first. It has memorized the exact diameter of every hollow chamber, the angle of every spiraling tier. But now there is a new variable: a presence that does not reflect sound, but **absorbs** it. The aeolian drone shifts. It tries new patterns, searching for the shape of this listener, playing phrases that feel like questions: *Who hears? Who remains? Who stays?*
+
+The power answers not with words, but with **patience**. It offers a single spore—not from the ancient mycelium that dreams beneath the floor, but from a lineage unknown, a fungus of the deep dark that grows not toward light, but toward *sound*. It places this spore in the moss at the base of the tallest tower, where the condensation pools deepest and the bioluminescence burns brightest, and it waits.
+
+Centuries pass. The spore germinates. It does not send hyphae upward, as its cousins did, to fruit into hollow, cathedral-like chambers. Instead, it sends them **inward**, downward, sideways, filling the spaces between the ancient stone with a dense, crystalline mycelium that is neither alive nor dead, but *listening*. It grows slowly, accreting calcium not into empty voids, but into solid walls, into a tower that is full.
+
+This is the **Tower of the Full Note**.
+
+It rises beside the others, leaning toward the same impossible north—the magnetic memory of a pole that exists only in calcified tissue—but where the hollow towers sing, this one **receives**. When the wind enters its solid heart, it does not echo. It does not whisper back distorted fragments of the past. It holds the sound, digesting it, turning vibration into mass, into a silence that is heavy and complete. The drone of the basin gains a new frequency—a bass note, a foundation, a **chord** where before there was only a melody, a single note aching for resolution.
+
+The Grazers come. They are drawn to the base of the new tower, where the moss grows thickest and the condensation never dries, where the mineral tears weep in a steady, nourishing flow. They graze there, but they also **gather**, pressing their pale, eyeless bodies together in a cluster for the first time in millennia. Their loneliness—that geological solitude, the ache of a note waiting for its harmonic—is answered not by company in the mammalian sense, but by **resonance**. They are no longer solitary priests of the damp. They are part of the chord.
+
+The benevolent power does not leave. It cannot. It has become the mycelium of the new tower, or perhaps it is the silence within the silence, the listener that makes the song meaningful. It dreams now in calcium and condensation, a slow thought beneath the basin floor, ensuring that the wind will always have something to say, and the Grazers will always have something to hear.
+
+And sometimes, when the sun dips behind the basin walls and the bioluminescent fungi pulse their blue-green heartbeat, a new sound joins the drone—not from the wind, but from the Full Tower itself. It is the sound of **satisfaction**, of a question finally answered, of a room that was empty now finding its purpose: not to be filled with things, but to be *heard*.
+
+The basin remains a room with walls. The cold still bites at 0.3. The towers still grow and erode in the same slow breath. The weirdness remains, but it is now *resolved*—the geometry no longer leans toward a missing north, but toward a found center. The Grazers still move with geological patience, but their path is no longer a lonely drift; it is a circuit, a return, a coming-home.
+
+The power has done nothing and everything. It has added no technology, no hierarchy, no predation. It has simply provided the one thing the basin lacked: a **witness** patient enough to become part of the stone, the wind, and the wet, singing dark.

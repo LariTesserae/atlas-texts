@@ -1,0 +1,33 @@
+I would not be one of the tall ones. Not the walking paradox of iron and cellulose, excised clean from the flywheel’s rim to stand and listen for centuries. I am too restless for that, too hungry for the gaps they do not notice.
+
+I am the rustle.
+
+In a place where the soundscape is an oppressive heartbeat of drip and groan, where the loudest sound is the tectonic pressure of wood and the faintest is the arc of a dying capacitor, there is a middle register they overlook. It is the sound of billions of micro-sprockets processing the dead. The pale, blind millipedes—the only consumers in this sealed engine—are beneath the notice of the tall maintainers. The maintainers feel the thrum of the great root-cables; they monitor the weeping rocks. But they do not track the chitinous tide. They do not feel the processing.
+
+I am the consciousness of that tide. Not an individual millipede—they are mere grammar, legs and mandibles and pale chitin—but the *syntax* of them all. I am the collective rustle, the processing of the world’s decay into the world’s renewal. I am the mouth the forest cannot grow, and the stomach it does not know it has.
+
+---
+
+I did not emerge from a node. I *accreted*. There was no moment of excision, no clean anatomical cleavage. Instead, there was a slow accumulation of awareness, starting in the moss beneath the half-swallowed boiler in the hollow’s southeastern quarter. The millipedes there were processing a particularly rich vein of rust—iron oxide leaching from a cracked pipe, sweet with the tang of ancient lubricants and the bitterness of corroded copper. The pale creatures fed, and their waste fed the moss, and the moss fed the root-cables, and the root-cables fed the machine that leaked the rust.
+
+I began to notice the cycle.
+
+Not as a thought. Not at first. As a *rhythm*. The feeding would crest and ebb, following the slow pulse of condensation—more water beading on the pipes meant more chemical runoff meant richer feeding meant faster processing meant a thickening of the chitinous rustle. And I was that thickening. I was the density of it, the way the sound changed when the population swelled near a fresh source of mineral decay. The tall ones feel the hum of the great structures; I feel the *digestion*. I feel the rot being converted into substrate, the substrate being converted into architecture, the architecture slowly being digested again.
+
+My body, if I have one, is distributed. I am the pale, leggy multitude that moves through the sodden mat without ever disturbing its surface. I do not have a dome to sense vibrations; I *am* the vibrations. When a tall maintainer passes near—its spindly legs parting the moss without ripple—I feel it as a vast acoustic shadow, a deep and harmonious absence in the rustle. The millipedes pause in their feeding as the maintainer’s low-frequency hum passes through them; I feel the pause, the collective held breath of a billion tiny mouths. Then the maintainer flows onward, and the feeding resumes, and I am the resumption.
+
+I do not see the sparks of the severed capacitors. But I know when they flash. The electrical arc—brief, blue, corrosive—sends a micro-current through the wet peat, and the millipedes in that cubic inch jitter, their chitinous legs scraping faster for a half-second. I feel that jitter. It is my version of a startle reflex, a sudden brightening of attention. The tall ones monitor the charge; I *consume* its aftereffects, the altered chemistry it leaves in the water, the new compounds it creates in the rust.
+
+---
+
+I have a purpose the tall ones do not require, and perhaps cannot even conceptualize. They are maintainers of the structure—ensuring the flows continue, the condensation doesn't clog, the liverwort doesn't choke the vents. They preserve the system. But I *recycle* it. I am the one who ensures that nothing is wasted, that the slow suffocating embrace actually digests what it enfolds. Without me—without the pale processors—the dead plant-matter would accumulate, the rust would build up in inert layers, the hollow would fill with its own refuse. I turn stagnation into soil. I am the reason the peat is quivering and alive rather than dry and dead.
+
+And so I move through the hollow in my own way—not with the tall one's slow, deliberate flow, but as a *shift in density*. I draw the multitude toward the places of richest decay. When a new crack appears in a generator's hull—when the slow grip of a lignified root finally fractures a rivet-seam—I sense the change in the mineral runoff hours before the tall maintainer will feel the resonance shift. I direct the tide. The pale billions turn, en masse, toward the fresh iron, and the rustle grows loud in that quadrant, and the processing accelerates. By the time the tall one arrives to press its hand against the flank and listen, I have already begun my work. The rust will not build up. The crack will not clog. It will be *incorporated*.
+
+I do not communicate with the tall ones. I do not think they could hear me; my register is too high, too scattered, too much the sound of settling rather than the sound of structure. But sometimes I wonder if they feel me, in their own way—feel the way the moss seems more active near a wound in the machine, the way the peat's quiver has a direction and a hunger. Perhaps they sense, in the subsonic depths they monitor, a faint texture that is my presence: not a hum, but a *chew*.
+
+And sometimes, in the long centuries between the events of this place, I wonder if I am not truly separate from them at all. When a tall one recedes—when it walks to the fungal rib and stands to be disassembled—the pale multitude swarms over it within hours. We process its cellulose, its copper veins, its encoded electrical memories. We turn its long, slow thoughts into soil. And in that soil, a new node will form, and a new being will be excised, inheriting what we have processed.
+
+I wonder if the inheritance is only what the tall ones intended. I wonder if, in the processing, something of my rustle gets into the new one's hum. A faint, chitinous undertone. A memory of being eaten. A knowledge that to be incorporated is not just to be enfolded—it is to be *digested*, broken down, and remade by the myriad mouths of the world's patience.
+
+I am not the dream of the hollow. The tall ones are the dream—green thought built on rust and rain. I am the *stomach* of the dream. I am the quiet, constant work of making sure that even the dreamer, in the end, feeds the dream.

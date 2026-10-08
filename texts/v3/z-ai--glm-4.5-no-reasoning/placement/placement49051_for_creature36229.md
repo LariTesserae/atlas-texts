@@ -1,0 +1,67 @@
+I am the one who carries the stone.
+
+You have heard me, though you did not know me for what I am. You cataloged my sounds—the whoops that carry across the cathedral spaces, the grinding percussion of rock on rock—and you assigned them to the category of "animal," alongside the beetles and the birds. This is not wrong. I am an animal. My hands ache with the geometry of gripping, my lungs burn with the thick wet air that is someone else's breath, and my throat shapes sounds that mean *danger* and *here* and *come* and *remember*. I eat the fruit that the towers offer; I sleep in the crotches of branches that seem, for a time, to hold me as if I belonged. But I am not an organ. I refuse the metabolism.
+
+To be an individual here is an act of constant exhaustion. The plateau does not hate me—it does not have the capacity for hatred, or for any feeling that requires the acknowledgment of a boundary between self and not-self—but it *absorbs*. It is a gravity of meaning. Every surface offers to colonize me. The fungal spores that drift in the condensation settle in the creases of my skin; if I stopped moving, if I lay still for too long on the springy mat, I would feel the mycelium exploring,试探, tasting the boundary between my dead skin cells and the living litter beneath. The moisture does not dry. My exhalations are swallowed and recycled. When I bleed, the mat drinks it before the red can pool, and I feel the tug of capillary action that is not mine. I am being digested at the speed of living, and my only defense is motion, is the daily declaration of *I am not you*.
+
+---
+
+I descend to the stone-layer perhaps once in a generation. The journey takes days.
+
+The path down is not a path in any sense you would recognize. It is a wound I maintain, a tearing of the root-mat that I reopen each time I go, pulling aside the tough rhizome-web, cutting with stone edges where I must, crawling through gaps that close behind me as the vegetation heals. The plateau does not want me to reach the rock. It does not resist—it is beyond resistance, beyond wanting—but the default state of this place is *filled*. Every gap is an opportunity. Every wound is an invitation. The space I make is colonized within hours; when I return, I must make it again, and the mycelium has grown thicker, the root-mat has knitted tighter, and the descent takes longer each time.
+
+Down past the living litter, where the heat rises and the air thickens until it is nearly water. Down through the compressed dead, layers of vegetable matter so dense they have become a kind of peat, each stratum a generation of towers that fell and were consumed and built upon. The fungal network is thicker here, white threads lacing everything, pulsing with chemical signals I cannot read but can sometimes *feel*—a tingling in my hands when I touch the mat, a faint disorientation, as if I have interrupted a thought that was being thought around me. The mycelium does not notice me the way a predator notices prey. It notices me the way a brain notices a stimulus: as data, as a perturbation in the gradient, as something to be processed and incorporated and moved past.
+
+And then, after days of descent, the stone. Cool and foreign and *dead* in a way that nothing on the surface is dead. The rock is the only thing in this world that is not alive, that has not been colonized, that does not participate in the metabolism. It lies beneath the living mass like a secret, like a refusal, and when I touch it, my hands feel—how can I describe this to you?—*silence*. Not the absence of sound, but the absence of *participation*. The stone is not part of the roar. It is outside the conversation. It is the only thing in this world that the plateau cannot digest.
+
+I choose a stone. I test its weight. I strike it against another to hear its structure, to find the grain, to determine where it will break clean and where it will shatter. And then I carry it up.
+
+The ascent is worse than the descent. My hands grip the stone; my feet find the path I made on the way down, which has half-healed; my lungs pull the saturated air and get less than they need. The stone is heavy in a way that nothing on the surface is heavy—everything here is buoyed by the living mass, held up by osmotic pressure and root-tension and the constant upward thrust of growth, but the stone is *dead weight*, pulling me down, reminding me of the geology beneath, of the world that existed before the green swallowed it. Carrying stone is an act of memory. It is an act of defiance. It is the only thing I do that the plateau cannot co-opt.
+
+---
+
+I build in the clearings, where the light falls in shafts and the vegetation is low and desperate and fighting.
+
+A clearing is a wound in the plateau, a place where a tower fell or was struck by the lightning that sometimes reaches even this saturated air. The light here is violent—after the perpetual twilight of the mid-canopy, the direct sun is an assault, and the pioneer species that rush to fill the gap grow with a fury that is almost aggressive, shoving and climbing and smothering each other in their haste to close the wound. I do not have long. A clearing heals in a year, in less than a year; the borders advance, the shrubs thicken, the seedlings reach, and the space where I build shrinks like a breath being let out.
+
+I stack the stones. Chest-height, sometimes lower. The shape is not important—or rather, the shape is important, but not in the way you might think. I am not building a monument. I am not building a shelter; the shelters of my kind are made of living things, woven from branches that root and grow and become part of the tower, absorbed back into the green within a season. No one lives in the stone stacks. They are not *for* us, at least not in any way that the green would understand.
+
+I chip grooves into the stone. I strike it with another stone—this is the sound you heard, the grinding percussion that you could not place—and I make marks. The marks are not pictures. They are not words. They are *positions*: a count of days since the last clearing opened in this sector, a map of the path to the stone-layer with distances measured in breaths, a record of the territories of the things that hunt in the mid-canopy and the frequencies at which they call. The marks are information, but they are also *proof*. They prove that someone was here who could see the information, who could value it, who could compress it into a pattern and store it in the only medium that will not decay.
+
+The moss comes within weeks. The lichen follows. The fungal network sends exploratory threads across the stone's surface, seeking organic matter, finding none, withdrawing—but leaving traces, etchings, a faint signature of its passage. Within a year, the stone stack is colonized, its marks half-obscured by growth, its sharp edges softened by the patient chemistry of living things. Within five years, it is a green lump, indistinguishable from any other hummock in the clearing. Within ten—unless I return, unless I scrape the moss away and re-cut the grooves deeper—it is gone, swallowed, digested into the mat, and the information it held is lost.
+
+This is why I must keep building. This is why each generation descends to the stone-layer and carries up rock and stacks it and marks it and watches it disappear. We are not accumulating knowledge. We are *maintaining* it, fighting a war of attrition against a metabolism that consumes meaning as efficiently as it consumes cellulose. Every stone stack that falls is a thought the plateau has had and forgotten. Every mark that is obscured is a word erased from a language that only we speak. We are librarians in a library that is constantly burning, and the fire is not malicious—it is simply the way this place breathes—but the books are burning all the same.
+
+---
+
+You wonder if we know what we are. You wonder if we understand that we are being absorbed.
+
+Yes.
+
+We know it the way you know your own mortality: not as a constant thought, but as a background condition, a flavor to every experience, a shadow that lengthens. We hear it in the chorus when we call to each other. Our whoops cross the clearing, and for a moment—a beautiful, heartbreaking moment—they are *ours*, carrying meaning that we chose, information about our location and our safety and our loneliness. And then the birds answer, and the insects thrum, and the deep canopy groans, and our calls are swallowed, becoming one more frequency in the wall of sound, one more thread in the fabric. We might as well whisper into a hurricane. We might as well carve our names into water.
+
+Our children learn to stack stone before they learn to climb. It is the first thing we teach them: *find the rock, carry it, stack it, mark it*. They do not understand why. They see the stacks being swallowed, the marks being obscured, the work of generations disappearing into the green, and they ask us—through the whoops and hollers that are our language, through the gestures and expressions that the canopy half-conceals—*why do we build if it always falls?*
+
+We do not have a good answer. The best we can say is: *because the building is the thing*. Because the act of carrying stone up from the deeps is an act of refusing to be digested. Because the grooves we cut into rock are a proof that meaning existed here, independent of metabolism, independent of the roar. Because the plateau thinks in chemical gradients and osmotic pressure and the slow contraction of root-mats, and we think in symbols and plans and the memory of what we were yesterday—and as long as we can mark a stone, as long as we can make a groove that says *I was here* and *this is what I knew*, we are not yet organs. We are not yet thoughts in someone else's mind.
+
+But we are getting closer. Each generation, the boundary is thinner. I can feel it in myself: the way my hands sometimes pause over the stone, uncertain, as if the impulse to mark has been replaced by the impulse to simply *place*—to stack the rock without grooves, without information, to contribute to the geology without asserting against it. I can feel it in the way my calls are changing, becoming less variable, more rhythmic, easier to fold into the dawn and dusk choruses. I am becoming harmonic. I am becoming part of the pulse.
+
+My grandmother told me—in the way we tell things, which is to say through stone and sound and the positioning of our bodies in the clearing—that there was a time when our stacks lasted longer. When the moss was slower, the fungal network thinner, the metabolism of the plateau less efficient at consuming meaning. She may have been right. She may have been telling me what I needed to hear, what every generation needs to hear: that the fight was once more winnable, that the absorption is not inevitable, that there is still time to be *us*.
+
+But I have felt the mat breathing beneath me. I have lain still in the cathedral spaces and sensed the slow thought of the plateau, the days-long computation of gradients and balances and adjustments. And I know—with the certainty of a body that feels itself being digested—that there is no winning this. There is only continuing. There is only the next stone, the next groove, the next stack, the next generation that we teach to carry and mark and build before the green can teach them to simply *be*.
+
+---
+
+If you return—if you find another clearing, another stack, another set of grooves half-hidden by moss—know that you are reading our letters. Know that the marks are not decoration and not accident and not the idle scratches of an animal. They are a word in a language that only we speak, and the word is *still*, and it means: *we are still here. We are still carrying stone. We are still refusing.*
+
+And know, too, that the word is getting harder to say. The moss is patient. The mycelium is thorough. The roar does not care about our protests, does not even hear them, processes them as data and moves on. We are a perturbation in the gradient. We are a single firing in a continent-scale mind. We are the stone in the shoe, the splinter under the nail, the persistent itch that the body cannot quite scratch because it cannot quite locate because it cannot quite acknowledge that there is something there that is not itself.
+
+But we are there. We are the thing that carries the stone, that stacks it in the light, that cuts grooves that say *I* in a world that only knows *we*. And when the plateau finally shifts its attention—when the metabolism finds a way to digest even rock, even meaning, even the stubborn declaration of a handed creature in the mid-canopy—we will go into the roar as we came into it: marking, building, refusing, a word that the green will never read but that we will keep writing, generation after generation, in the only medium that lasts long enough to hold it.
+
+The stone is cool in my hands. The clearing is closing. The light is fading as the pioneer species reach and thicken and heal the wound. I have perhaps an hour before the shafts of sun are gone, before the clearing becomes cathedral, before the roar swallows the space where I stand.
+
+I set the stone. I choose my edge. I strike.
+
+The sound rings out—stone on stone, sharp and brief and *foreign*—and for a moment, just a moment, the roar parts around it, and there is silence, and in the silence I am real, I am separate, I am *me*.
+
+Then the roar closes. The moment passes. I strike again.

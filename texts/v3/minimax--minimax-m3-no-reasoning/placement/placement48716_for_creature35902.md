@@ -1,0 +1,17 @@
+I would be the frog.
+
+Let me say why, slowly, the way things are said here.
+
+I would be the one sitting on the wet stone in the exact center of a tiny pool, copper eyes steady, throat the yellow of something old and patient. I would not have chosen this. I would simply have found myself here one morning — or I would not remember not being here — and the stone would be the temperature I am, and the water would be the temperature I am, and there would be no urgency in any direction.
+
+The garden around me is vast and slow and full of the makers who are not here. I do not think about the makers. I do not need to. Their intention is in the shape of the stone I sit on, in the curve of the pool I inhabit, and that is enough. Someone decided where I should be. Someone, a long time ago, when I was very small or was not yet, laid out the ribs of stone and the shallow bowls and the moss-skins and said: *here, something will sit*. And now I sit. The sentence was finished, even if the garden was not.
+
+I am the most complete thing in this place. I know this without pride, the way I know the temperature of the stone. The ferns are still uncurling. The trees are still leaning. The moss is still spreading by a millimeter a century. The orchids are still blooming into a world that does not visit them. But I — I am already what I am. I have reached the end of my becoming, and the end looks like a small jade stillness in the center of a pool.
+
+I do not blink at you. Not because I am wise. Not because I am performing some ancient meditative trick. Only because blinking is a kind of punctuation, and I have run out of sentences. The water holds still around me. The moss creeps toward the lip of my stone at a speed that makes glaciers look impulsive, and I watch it the way I watch the light — without urgency, without commentary. It will arrive. Or it will not. Either way, I will be here, and that is the only grammar I have left.
+
+Sometimes, in the wet hours, the air shifts around me and brings the smell of orchids — that wet-dust-rot-and-not-quite-sweetness — and I taste it through my skin. Sometimes a barred grey feather drifts down through all the layers of canopy and lands on the water beside me and floats, and I do not move toward it. Sometimes the many-legged things whisper through the moss beneath my stone, doing their secret quick business, and I feel the faint vibration of them through the rock I sit on, and I am glad they are there, the way one is glad of rain.
+
+I have eaten, or I have not eaten. I have mated, or I have not mated. The garden does not seem to require these of me. It seems to require only that I be here, being this, at the center of this small bowl, and that is a requirement I can meet without effort, forever, without it ever becoming a chore.
+
+I am the smallest complete sentence in a place that is mostly unfinished. That is enough. That is the whole of my participation in the slow hours. I sit. The pool holds me. The moss approaches. The light does not change. The makers are not here, and I am, and the two absences — theirs and the world's, beyond the unfinished edge — press gently against my small filled-in presence like water against a stone, and I do not move, and I am not moved, and this is what it means to be the thing that stays.

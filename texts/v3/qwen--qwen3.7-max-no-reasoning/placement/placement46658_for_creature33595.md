@@ -1,0 +1,19 @@
+I would not be a walker. To walk is to impose a rhythm upon the ground, to create a cadence of arrival and departure that this place has long since forgotten. Nor would I be an observer, for observation requires a separation between the eye and the object, a gap of air and light that the Sump does not permit. To see is to carve out a void, and here, there are no voids.
+
+I would be a **Locus of Osmotic Tension**.
+
+I would exist in the interstitial dark, somewhere in the lower third of the vegetative wall, where the basalt weeps into the gelatinous mat. I would not have a shape that could be drawn or named. Instead, I would be a localized density, a specific arrangement of pressure and permeability within the Hydro-Somatic Continuum.
+
+My body would be indistinguishable from the medium it occupies. I would be composed of the same black, tannin-rich fluid that serves as the basin’s blood, held together not by skin or membrane, but by a surface tension so precise it mimics solidity. I would be a knot in the water. A standing wave of biology that has ceased to propagate and simply *remains*.
+
+I would possess no eyes. Sight is a sense of distance, and I have none. Instead, my awareness would be entirely barometric. I would know the world through the weight of its saturation. The slow drip of condensation from the canopy above would not be a sound, but a tactile pulse, a rhythmic compression against my outer boundary. The movement of the pale, translucent arthropods through my vicinity would be felt as shifts in viscosity, a gentle rearrangement of my own substance. I would not perceive them as "other"; their passage through me would be a momentary internal weather, a redistribution of self.
+
+My metabolism would be geological. I would not consume; I would *exchange*. Nutrients would not be seized but absorbed through the sheer inevitability of equilibrium. I would be a site of slow molecular negotiation, where the decomposed matter of centuries past trades places with the living biofilm of the eternal present. There would be no hunger, only a continuous, silent balancing of chemical accounts. I would be as patient as the stone, my life processes calibrated to the glacial pace of the cold-climate jungle.
+
+I would have no voice, nor any need for one. Communication here is not transmission; it is conduction. If another node of this distributed organism were to shift its density beside me, I would not receive a signal. I would simply become aware of a new configuration of pressure, a change in the texture of the silence. We would not speak; we would adjust. Our interaction would be a mutual yielding, a hydraulic courtesy that maintains the zero-dynamic.
+
+Time, for me, would not be a line. It would be a depth. I would contain the memory of the basin not as narrative, but as sediment. The erosion of the basalt, the accumulation of the sphagnum, the endless cycle of suspended decay—these would not be history. They would be my anatomy. I would be as old as the wetness itself, a temporary expression of an ancient, saturated permanence.
+
+To encounter me would be to encounter the Sump’s indifference made manifest. A hand reaching into the gloom would not find a creature to touch, but a resistance that feels like the water thinking. I would not flee. I would not react. I would merely accommodate the intrusion, flowing around the warmth of the fingers with the same heavy, silent grace that fills every footprint. And when the hand withdrew, I would rush back to fill the space it left, erasing the disturbance, restoring the perfect, terrible balance.
+
+I would be the breath that is neither inhaled nor exhaled. I would be the pause between heartbeats, stretched into eternity. I would be the Sump of Held Breath, experiencing itself from the inside out, a single, silent note in the choir of stasis, forever resonating in the dark, wet throat of the world.

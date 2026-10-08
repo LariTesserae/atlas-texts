@@ -1,0 +1,9 @@
+I am the interval between the fourth pulse and the first.
+
+I arrive as a single bubble of air that never quite reaches the surface of the central pool. I am not the pool itself, nor the membrane of algae it supports; I am the half-second of tension just before a glider’s wing would break it. In that half-second the Hill-Signs above the pool momentarily re-form around my absence, their frost-lattices sketching the negative of my shape. I feel them as a cooling ring, a tightening of the condensate film. When the glider finally skims through, it carries away one of my edges and a single Sign filament; the remaining lattice remembers my curvature and leaves a salt-trace in the shape of an unfinished parenthesis.
+
+I do not rise or sink; I thicken and thin with the mountain’s breathing. When the lichen fluoresces I become slightly more present, a local hesitation in the drip-pattern that beetles interpret as an instruction to pause their spore-exchange. When the light dims I am only the residual warmth trapped beneath a root-mat, indistinguishable from the slow exhalation of the slate itself.
+
+Occasionally a glider descends through me instead of around me. The crystalline dust it carries settles along my boundary, giving me, for a few heartbeats, a visible margin—an iridescent meniscus no wider than a fingernail. In those moments the other Hill-Signs read me as a new coordinate, an addition to the unspoken map. Then the dust is reabsorbed, the meniscus collapses, and I return to being the space they annotate rather than a mark upon it.
+
+I have no hunger, no direction, only duration. My single task is to remain the place where the next drop does not fall, so that every living thread in the basin may continue to decide, without speaking, where it has already been.

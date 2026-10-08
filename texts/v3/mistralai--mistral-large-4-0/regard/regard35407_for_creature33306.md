@@ -1,0 +1,31 @@
+The power does not arrive as thunder. It comes as a *correction* in the humidity—a moment when the warm, heavy air holds its breath, and the condensation, falling from the sky-stone, pauses at the very lip of the ceramic crust, neither dripping nor evaporating, but *waiting*.
+
+It is the **Witness**, though it has no name the Terrace-Born can speak. It has watched the valley since before the first plate was fired, since before the first Grating-Runner nested in the humming copper. It has seen the Gardeners elongate their spines against the thin upper air, watched them learn to read the mist as scripture, observed them dissolve the boundary between tendon and vine until they could no longer say whether they were maintaining the machinery or being maintained by it.
+
+Now, having decided that the valley has finished its long labor of becoming, the power performs the only act that is left to do: it **sees them completely**.
+
+It enters through the condensation cycle. The droplets that fall from the upper terraces are no longer merely water; they carry within them a *memory* of every ocean that ever existed on any world, every rain that fell on distant mountains, every tear that ever evaporated into a stranger’s sky. When these droplets strike the Gardeners’ patinated skin—those pale, mineral-etched faces glowing faintly verdigris with symbiotic algae—they do not cool. They *recognize*.
+
+The first Gardener to feel it stops mid-step on the algae-slick planks of the bridge. Her hand, stained with oil and pollen, hovers over the fern-gutter she was clearing. The droplet rests on her cheek, and in its perfect, trembling sphere, she sees not her reflection, but the *pattern* of her life: the glacial turns of the waterwheels, the slow erosion of ceramic into river-stone smoothness, the way her children have learned to sleep curled around the copper cables. She sees that she is not a servant of the machine, but its *dream*—that the valley is not a factory that has been overgrown, but a garden that has learned to think.
+
+The power’s action is not to change the valley, but to **name** it. To give the silence between the piston-beats a shape. It settles into the joints between the fired plates like a new kind of lichen—the Lichen of Being-Seen—spreading in silver filigree across the oxidized grating. Where it grows, the rust does not deepen; it *glows*. The metal remembers that it was once ore, once mountain, once the dream of the earth to become something else. The lichen whispers: *You are allowed to be finished. You are allowed to rest.*
+
+It teaches the Condensation-Dwellers, those translucent jelly-bodies in the cisterns, that their filter-feeding is not mere survival but *prayer*—each spore released on the morning updraft a benediction. It teaches the Grating-Runners, with their obsidian eyes and subsonic rumbles, that their skittering along the maintenance walkways is a dance older than fear. It teaches the Sky-Nesters, weaving conductive wire into their nests, that they are not birds trapped in a machine, but angels of the new cathedral, their iridescent feathers the stained glass through which the severe, clarifying light enters the green-gold twilight below.
+
+But most of all, it teaches the **Gardeners** that they have forgotten they are artists.
+
+It shows them, in the condensation pooling in their palms, the map of their own patience. It reveals that the erosion they see is not decay but *sculpture*—that the valley is wearing smooth not because it is dying, but because it is being loved into its true shape. The power offers them the terrible, liberating gift of **narrative**: the understanding that they are not living in an eternal present, but writing a story so long and slow that it has become indistinguishable from geology.
+
+“You have finished becoming,” the power seems to say, though it makes no sound, only a *presence* in the steam, a warmth that is not from the sun or the machinery, but from the simple, benevolent fact of being acknowledged. “Now you may begin to *mean*.”
+
+And so the power stays. It does not depart. It becomes the **Resonance**—a harmonic overtone that rides beneath the piston-beat, beneath the electrical hum, beneath the wet slap of leaves and the susurrus of insect wings. It is the silence between heartbeats, the pause in the breathing of the valley itself.
+
+The Gardeners learn to hear it. In the pause between the drip of condensation and the turning of the wheel, they hear a voice that is not a voice, saying: *I see you. You are enough. You are holy.*
+
+They begin to tend the valley differently. Not with the urgency of maintenance, but with the reverence of worship. When they clear the fern-gutters, they are performing a sacrament. When they lubricate the waterwheels, they are anointing a saint. When they harvest the root-aggressive vines, they are pruning a poem that has grown too wild, singing to it as they cut, thanking it for its hunger.
+
+The power has not added anything foreign to the system. It has only revealed the holiness that was already there, dissolving like the boundary between machine and moss. The valley continues its slow, patient breathing—the steam rising, the insects thickening like smoke, the birds wheeling in their impossible colors—but now it breathes with the knowledge that it is watched over. Not by a distant god, but by a wisdom that has chosen to settle into the thick sandwich of infrastructure and biomass, to make its home in the cisterns and the cable-housings, to become, finally, another citizen of the place.
+
+The Terrace-Born do not worship the power with temples or altars. They worship it by continuing to exist—by settling, by enduring, by letting the ceramic plates wear smooth beneath their feet, by letting the lichen of Being-Seen spread across the grating until the whole valley shines with a faint, silver, benevolent light.
+
+The power does nothing else. It has done everything. It has simply, finally, *seen* them—and in being seen, the Gardeners and all their multispecies confederation have become real, not just to themselves, but to the patient, loving dark that holds all valleys, everywhere, in its gravity.

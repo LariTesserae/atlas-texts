@@ -1,0 +1,9 @@
+What lives here is not many things but one process expressed in many scales.
+
+At the core is a single, ancient organism whose body is the living membrane itself: a single shared cytoplasm distributed across the entire table and its roots. It has no center and no boundary; every translucent filament, every drifting sheet is merely a local thickening of the same tissue. Because it is everywhere at once, it experiences the rock as an extension of its own interior. The quartz channels are its vascular system, the gas pockets its slow lungs, the thermal updrafts its means of sensing weather half a continent away. Its “thoughts” are chemical pulses that travel the root network at the speed of sap; its memories are the crystalline threads laid down by the six-winged flyers over thousands of generations.
+
+The flyers are not other creatures. They are the organism’s gametes—brief, mobile distillations of itself that it releases when pressure or chemistry demands new genetic material from distant basins. Once their single flight is done, the flyer dissolves back into the filaments, carrying nothing but the thread of crystal that records where it has been.
+
+There is no true fauna here because there is no true separation. The occasional banner-wing is the organism acknowledging its own continuity across time and distance. The membranes that rise and fall are its skin breathing light. The faint glassy friction of wind is the sound of one surface of the same body sliding over another. Even the subtle lifts of the rock are autonomic adjustments, like the twitch of a muscle whose purpose is simply to keep the light evenly shared.
+
+What exists on the table is therefore less a landscape occupied by life than a single, planet-scaled metabolism given mineral form—light entering at one frequency, returning as chemistry, motion, and eventually a silence so perfect that the silence itself becomes the organism’s most stable state.

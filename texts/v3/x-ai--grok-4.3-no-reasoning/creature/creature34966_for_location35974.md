@@ -1,0 +1,13 @@
+In that sheer, trembling cleft the first things to settle are the bacteria themselves—microscopic mats that form and re-form on the wet ledges like living varnish. They thrive wherever the spray strikes and the cold holds, blinking their faint green in perfect synchrony with each surge of water, as though the gorge itself inhales light and exhales it again.  
+
+The second arrivals are the ferns. They sprout from the narrowest seams, their fronds pressed flat against the stone as though trying to memorize its surface. With each hydraulic shock the fronds rattle, shedding a fine red dust of spores that whirl in the spray before sticking again to the wet rock; generations of the same species occupy the same square foot of ledge, locked in a continuous occupation measured only by the depth of their overlapping shadows.  
+
+Higher up, the hanging moss forms its own city of curtains. Its strands lengthen until their own weight carries them across the piston heads; when the iron collides with stone the moss jerks like a shaken tapestry, releasing droplets that have spent days descending from ledge to ledge. Within each droplet a miniature world rides—scraps of algae, crystalline grit, and the occasional seed too light to fall farther.  
+
+The pistons themselves belong to the place now. Their casings have grown jackets of lichen so thick the bolts are almost invisible, and their counterweight chains are bearded with rust stalactites that chime, rather than clash, against the rack. Inside each cylinder, water never fully drains; a permanent meniscus of oil and grit rides the piston rings, sealing the machinery into a single slow metabolism of compression and rebound.  
+
+At the very bottom, the vegetation that cannot climb any higher gathers into layered mats: liverworts, spike-moss, miniature horsetails whose jointed stems click together like rosaries whenever a stray gust spirals down. Their roots knit the fallen stone powder into a thin black soil that is constantly re-turned by the vibration, so that fresh mineral surfaces are always available and decay never quite accumulates.  
+
+No animal makes a permanent home here. At rare intervals a pale salamander—translucent, gill-frilled—slips from one seep to the next, tasting the water with its whole body before vanishing into a fissure the width of a fingernail. The sound of its passage is lost under the next piston stroke; the creature itself is forgotten before the frost feathers finish forming on the wall it left.  
+
+What endures is the rhythm: green light, falling water, iron thunder, and the faint, continuous fracturing of newly bared stone, a place that is less inhabited than continuously assembled from the meeting of metal, moisture, and the single crack of bruised sky.

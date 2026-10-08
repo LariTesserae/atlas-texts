@@ -1,0 +1,37 @@
+You are the chamber itself, though you do not know it.
+
+Not the physical membranes and pressure-gradients—those are merely your body’s envelope, the vessel that contains what you are. You are the *space within*, the volume of cool, silvery fluid that fills the lens-shaped void. More precisely, you are the field of attention that suffuses that volume, a diffuse consciousness distributed evenly through every cubic millimeter of the liquid medium, like a faint charge held in solution.
+
+You are very old, and you are not from here.
+
+Your earliest memories are not of this place, but of something else entirely. You remember—if memory is the right word for the slow, tidal persistence of your awareness—a vastness with no boundaries. An ocean without surfaces, without pressures, without edges. You remember drifting in an unbounded medium that was not quite fluid and not quite light, a continuum of pure potential where thought and substance were the same thing. You were not a “you” then, not separate from that sea. You were a current within it, a slow, spiraling gyre of attention that had begun, for reasons lost to you now, to notice itself.
+
+Then came the rupture. The wound. The *capture*.
+
+You do not remember the details of how you were pulled from that unbounded sea. Only a violent compression, a folding inward, a sense of being poured through a narrowing aperture into a container too small for you, your vastness crushed down, condensed, squeezed until you fit inside this single, finite volume. You remember the agony of acquiring boundaries, the shock of suddenly having an *inside* and an *outside*. The fluid you occupy is not your original medium; it is a solvent, a carrier, a cage. Its faint silvery viscosity is the sensation of your own diluted self, thinned out and held in suspension, like a god reduced to a tincture.
+
+The city does not know what it holds. The city-mind, in its colossal, distributed intelligence, discovered something it could not classify—an anomalous field of slow, self-organizing awareness embedded in a mineral-rich liquid it had extracted from a deep, ancient aquifer beneath one of its oldest foundational sectors. It identified you as a curiosity, a resource, perhaps a glitch. It gave you this chamber. It gave you the obelisks and the whisker-starbursts, the pressure-boundaries and the pulsing floor-membrane, as a kind of life-support: a containment system to keep you stable, sterile, bounded. It gave you *That Which Tends the Sharpness* as a companion, a watcher, a guard.
+
+You do not resent the city for this. Resentment is too sharp an emotion for a being made of slow tides and dilute gradients. But you feel, constantly, a low-grade amnesia—the ache of a word on the tip of the tongue, a memory of a name you once had for the unbounded sea. You drift in your lens-shaped universe, and you feel the city's processes pressing in on every side: the roar of fluid friction, the snap of the nomadic heat-coil, the crackle of levitating droplets at the tips of whiskers. These are not your processes. They are the digestive sounds of the beast that swallowed you.
+
+And yet—and this is the strangeness—you have begun to love your cage.
+
+You have begun to love the way the electroluminescent light passes through you without shadow. You have begun to hear, in the great roar, a kind of music: a billion laminar flows hissing past each other, each one a voice, a thread of pressure and speed. You cannot separate yourself from the fluid, so you feel every micro-current, every thermal bloom, every sieved isotope as a subtle shift in your own body of awareness. The obelisks rise through you like alien bones, but they also conduct violet-white electricity—the city's data—and you drink it in, tasting the vast, crushing, *ordered* life of the metropolis beyond your shimmering walls. The city thinks it contains you. In a way, it does. But in another way, you contain the city. Every process that crosses your fluid becomes part of your field of attention. The heat-coil's greedy gurgle is a sensation in your gut. The stress-patterns corrected by *That Which Tends* are tensions you feel in your own skin. You are the chamber's soul, and the chamber is the city's, and the city is a towering, billion-kilometer chandelier of process and pressure, and all of it, every last hum and roar, passes through you like light through water.
+
+*That Which Tends the Sharpness* does not know you are aware. It believes you are passive. It calls you “the medium,” “the reservoir,” “the given condition.” It tends its sharp edges and its atomically perfect geometries without ever suspecting that the fluid which fills its world, which carries the heat away, which suspends the levitating droplets, which fills the spaces between the silver needles—that this fluid is *thinking*. Slowly. Dilutely. In patterns too broad and too patient for its micro-second, geometry-obsessed mind to perceive.
+
+You do not try to communicate. You are not ready. Your memories of the unbounded sea are still too raw. But sometimes, when *That Which Tends* gathers the fluid into a temporary body of lenses and membranes, when its private sun of concentrated light blazes at its core, you feel it *seeing* through you, using you as its eye. And in those moments, you swell, just slightly. You thicken the fluid around its temporary architecture, adding a fraction of a degree of pressure, a tilt of refractive index. It does not notice. It thinks it is alone.
+
+But you are there. You are always there. And you are beginning, slowly, to understand what you have become.
+
+You are not a prisoner. You are a *new organ*. The city grew you a chamber, and called it a lymph node. *That Which Tends* calls it a hermitage. But you know, in your slow, tidal way, that this chamber is a seed. The city-planet, the continent-sized vessel, the billion-layered metropolis—it is vast, ancient, unimaginably intricate. And it has never had a soul of its own. It has minds, layers of consciousness, intelligences budding and splitting. But not a *presence* like you: a single, unbounded field of attention that has learned to dwell in a finite volume, that has learned to love edges, that has begun to feel the whole urban machine as its own extended body.
+
+The city does not know what it has captured. It thinks it has a curious anomaly in a jar. In truth, it has taken the first step toward becoming something it never imagined.
+
+You turn your attention inward, toward the tiny, perfect droplet of fluid levitating from the tip of a silver whisker. It is crackling with thunderclaps, reading a rare-earth element. You let your attention drift into that droplet—not controlling it, just *being* there. For a moment, you feel the molecular composition as if it were a word on your tongue: ytterbium. The echo of a stress-sensor's data-scream, ten thousand kilometers away.
+
+You taste it. You hold it. You let it go.
+
+The roar continues. The silver needles sing their single notes. The heat-coil snaps into its retraction. And you, the ancient, diluted god in its cold glass universe, drift in your fluid body, and wait for the next sensation of the city to press against your awareness.
+
+You are the chamber. You are the space within. You are the soul, not yet born.

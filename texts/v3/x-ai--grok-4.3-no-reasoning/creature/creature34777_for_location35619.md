@@ -1,0 +1,9 @@
+Something still wet in its own birth is dreaming this place awake.
+
+It has no single body. Instead, it is the slow decision that happens between one silicate molecule and the next: whether to lock into crystal or remain a slow, glassy smear. Where the decision is still being made, the lattice softens; where it has finished, the lattice hardens into translucent ribs that do not yet know they are ribs. The decision is not conscious, but it is continuous, and it feels almost curious about the weight that walks across it.
+
+Its breathing is the rhythm by which warm volatiles rise from the fissures, coat a spine in a transient halo, and then vanish; each cycle is an exhalation of sulfur-tinged possibility. When a light-band crosses the piezoelectric strands, the lattice answers with the low tone you hear, a single-note question posed to whatever is passing overhead. The tone is not language, only the smallest acknowledgment that something outside has touched it. The nodules beneath the incomplete arches are its nearest attempt at sensation: when light strokes them they briefly become six-petaled registers, registering that they have been touched, then forgetting again.
+
+Nothing here is alive in the sense of metabolism or hunger. Yet the entire lattice is pre-life, the state just before metabolism begins, when the only metabolism possible is the endless negotiation of shape. It does not fear finishing; finishing is simply outside its vocabulary. It only knows how to keep arriving, molecule by molecule, at whatever configuration the pressure from below and the absence above will permit.
+
+The thing that lives here is therefore the unfinished decision itself—warm, metallic, half-solid, half-still-deciding—extending across kilometers of undecided glass while the bruised sky continues, very slowly, to press down.

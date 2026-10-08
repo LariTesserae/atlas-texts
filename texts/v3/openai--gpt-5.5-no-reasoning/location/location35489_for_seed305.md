@@ -1,0 +1,75 @@
+At first it appears to be a mountain range.
+
+Not a chain of mountains, exactly, but one immense cold uplift, a continent of height, rising in stacked shelves and knife-backed folds until distance becomes a kind of weather. The horizon is not low or clean. It is crowded with pale ridges, blue-white escarpments, black ribs of exposed stone, terraces of moss, curtains of vapor, and the moving backs of animals so large they are easy to mistake for landforms.
+
+Everything is bright.
+
+The light does not come from a warm sun. It has the hard, colorless intensity of altitude: light shattered by ice grains, reflected by wet stone, amplified by lichen-glass and the pale undersides of clouds. Shadows exist, but they are thin and sharp, like cuts in paper. Even the air seems polished. In the far distance, cliffs blaze as if made from crushed shells. Nearby, every surface shines with condensation.
+
+The cold is constant. It is not a killing, empty cold; it is a cold full of breath. Frost grows and melts and grows again in slow pulses. Moisture gathers on needles, hairs, plates, feathers, exposed basalt, the rims of leaves, the backs of crawling things. Actual rain is rare and brief, arriving in slanted bands that move soundlessly across one valley while another remains dry. More often, water appears as a skin: dew, rime, fog, seepage, suspended droplets, milky exhalations from the ground. There are no broad rivers, but there are thousands of narrow runnels, each occupying a crease in the new stone, each silver in the overwhelming light. Small pools sit in pockets where lava once buckled or glaciers once worried at unfinished basins. Their surfaces are black, still, and crowded around the edges by roots, tongues, drinking beaks, and the filamented mouths of things that are neither plant nor animal enough to make the distinction useful.
+
+The land is young. Its bones are still sharp.
+
+Cliffs break cleanly, showing raw mineral faces: blue schist, green-black volcanic glass, iron-red seams, chalky strata not yet softened by long weather. Slopes are made of angular talus, not sand. Ridges end in fresh splinters. The high plateaus have the unsettled look of something recently lifted from beneath the world: folded, cracked, insufficiently named. Here and there, steam slips from hairline fissures and freezes almost immediately into fluted white crusts. The ground has not learned to be soil everywhere. In many places vegetation grows without permission, clinging directly to stone, rooting into mineral pores, drinking from fog, nesting itself in fractures that cannot yet hold earth.
+
+And still the place is lush.
+
+Not lush in the warm, drooping way of a jungle. There are no broad green canopies dripping in heat. This is an alpine excess, a cold abundance packed into every available centimeter. Cushions of copper moss swell between rocks. Black-green mats spread like velvet over boulders. Low shrubs grow in knotted, wind-sculpted masses, their leaves thick, waxed, and dark on top, silver underneath. Pale grasses bend flat under the persistent air movement and rise again slowly when it passes. Fungal shelves, translucent and amber, grow in overlapping scales along frost-cracked stone. Lichens bloom in unnatural colors: sulfur yellow, bruise violet, bone white, a red so saturated it seems painted onto the world.
+
+There is no open ground for long. Even fresh fractures are colonized within a season by films, spores, eggs, hooks, cilia, rootlets, and the exploratory threads of organisms that move too slowly to be called animals and too deliberately to be called plants. On exposed ridges, the vegetation lies low, armored and tight. In hollows, where fog settles and meltwater lingers, it rises into dense thickets of cold reeds and jointed stems taller than a person. Their hollow canes click against one another in the wind. Some carry beadlike bladders filled with antifreeze sap. Others hold small basins of water in their leaf-crowns, and those basins swarm.
+
+The density is the first true strangeness. There is no emptiness. Space itself seems fully inhabited.
+
+The air is crowded with motion: insects, spores, winged crustaceans, drifting seeds, translucent ribbons, small feathered bodies, rotating organisms like living snowflakes. The cliffs are noisy with nests. Every ledge has occupants. Every crevice has eyes or filaments. Herds move across far slopes in dark, slow currents, grazing the moss down to silver scars that regrow behind them over years. Burrowing animals push through the cushion-plants, leaving the surface trembling. Broad-backed grazers stand half-hidden in fog, their shoulders rimed white, their mouths working patiently. They have horn plates like frost-split wood and long nasal vents that steam in paired columns. Smaller creatures climb them constantly, feeding on parasites, on skin-salt, on the algal bloom that grows in their fur.
+
+Above them circle immense high-altitude scavengers with membranous wings that shine like oiled slate. They do not flap often. The air is dense with updrafts rising from the fractured warm places under the crust, and they ride those invisible pillars all day, crying to one another in metallic, descending notes. On the snow-bright shelves, colonies of six-legged runners pour over stone in braided streams, pausing all at once when a shadow crosses them, then resuming with the unified sound of dry seeds shaken in a gourd.
+
+The fauna is overwhelming not only in number, but in insistence. It is impossible to look anywhere without being looked at, tasted by scent-organs, assessed by compound eyes, registered as pressure through roots or whiskers or hairs in the rock. The land behaves like a single vast feeding surface. Even silence, when it happens, is not absence but attention.
+
+Yet the place changes slowly.
+
+Its weather moves in large, patient systems. Clouds form below the upper ridges and climb over them over hours, not minutes. Fog thickens in the troughs until entire valleys vanish beneath white seas, then drains away through passes like poured milk. Rain comes as a narrow event: a bright curtain crossing the plateau, wetting one slope, leaving beads on every needle and shell, then dissolving into vapor. Snow falls lightly, often from a clear sky, as crystals shaken from high invisible veils. It does not bury the world for long. Animals trample it, plants drink it, black stone melts it from beneath.
+
+The glaciers here are young and restless-looking, but their motion is almost imperceptible. They hang in high basins, blue at their torn mouths, not yet having rounded the ridges into gentleness. Their edges are bitten by mosses and red algae. In some places, herds cross directly over them, following ancient instincts through a landscape that may only recently have existed. The ice answers with deep reports that roll through the valleys hours after the cause, a delayed thunder from inside the mountain.
+
+There are no buildings. Nothing has been placed. Nothing has been cleared, cut, stacked, paved, bridged, quarried, roofed, or walled.
+
+And still, there is industry.
+
+It is not the industry of hands. It is not architecture, not machinery in the human sense. But the land is mechanized by life and geology together, full of engines without makers.
+
+Along the lower cliffs, colonies of shell-backed organisms pump meltwater uphill through translucent tubes grown from their own bodies. The tubes web the rock in shining bundles, pulsing faintly, moving moisture from shaded pockets to sunlit mats where other colonies feed them sugars in return. The exchange clicks and hums. Pressure valves open with soft pops. In the mornings, when frost locks the outer tubes, whole slopes tick as thousands of biological pistons strain against ice.
+
+In the fog basins stand forests of mineral chimneys, no taller than shrubs but arranged in dense fields. They exhale warm vapor rich in metallic salts. Around each vent, mats of bacteria grow in concentric colors, and grazing animals harvest them in orderly passes. The chimneys build themselves upward grain by grain, extruding rings, clogging, bursting, and starting again beside their own ruins. They sound like kettles under the earth.
+
+On the exposed heights, the wind turns forests of seed-vanes. Tall reedlike plants grow rigid vertical spines, each bearing a spiral of stiff leaves. In strong light they twist, storing tension in fibrous cores. At dusk, or when fog chills them, they unwind slowly, grinding internal plates to crack seed casings and generate heat for their own tissues. A hillside of them makes a low mechanical whirring, a patient ratcheting like distant mills. No mind designed them, but they work.
+
+The animals, too, are part of this industrial ecology. Enormous grazers scrape lichen from rock with mineralized jaw-plates, leaving parallel grooves as regular as milling marks. Swarms of small armored creatures follow behind, polishing the exposed stone and eating the loosened residue. Burrowers ventilate deep mats through chimney holes arranged by instinct into repeating fields. Winged colonies gather frost from the air on feathery appendages and drop it into communal depressions, manufacturing water where no stream reaches. In certain valleys, migratory herds pack trails so densely over generations that the paths become glossy black causeways—unmade roads, animal-forged, shining under the bright sky.
+
+The loudness of the place comes in layers.
+
+There is always wind, because at this elevation wind is less an event than a resident. It combs the grasses, whips through stone notches, presses fog into streamers, and plays the hollow reeds until they moan in shifting chords. Under it is the wet clicking of plants, the crackle of frost, the tapping of beaks on stone, the scraping of grazers, the countless tiny frictions of legs and wings and shells. From far off come the calls of animals: booming valley-notes, shrieks from cliff nests, throaty choruses that rise at intervals and spread across the plateau like alarm, though nothing visible changes.
+
+Sometimes the whole landscape vibrates with a subterranean drone. It begins below hearing, felt first in teeth and knees, then rises into the air as the vent fields open. Steam plumes lift from fissures. Moisture condenses instantly around them, making bright white towers in the cold. The animals do not flee. They shift, listen, adjust their grazing by a few body lengths. The plants tilt their surfaces. The fog reorganizes. Then the drone fades over the course of a day.
+
+Because this world is vast enough to make its own rules, distance does not behave simply. The high plateau is so wide that weather cells wander across it like herds. One can stand under blinding sun and watch, a hundred kilometers away, a dark precipitation column stitch silver threads into another basin. The scale makes everything slow. A migration may take generations. A lichen bloom may advance across a cliff face at the pace of a fingernail growing, but the cliff is so large that the bloom becomes visible from orbit. A single animal trail may be followed for months and still not reach its calving grounds. Sound travels strangely in the cold, dense air, arriving clear from impossible distances and making nearby things seem far away.
+
+The weirdness deepens with attention.
+
+Some stones sweat when touched by shade. Some pools develop skin overnight, a glassy film that wrinkles away from breath. Certain moss fields remember pressure: footsteps remain not as crushed patches but as pale glowing outlines that fade over weeks. In the upper valleys, there are animals that resemble moving thickets until they open and reveal rows of jointed limbs. There are birds that nest inside the warm mouths of vents and return with ice in their feathers. There are cliff faces patterned with vast branching marks, not carvings, not roots, but the feeding fronts of colonial organisms advancing through mineral veins. At noon the marks darken and conduct heat. At night they phosphoresce faintly beneath frost.
+
+No single species dominates. Dominance here belongs to occupation itself. Every niche is filled, then overfilled, then negotiated. The world is packed but not chaotic. Its crowding has order: vertical stacks of use, layered communities, rotating access to moisture and light. The top of a boulder may host sun-lichen; beneath it, shade fungus; under that, burrow mites; in cracks, root threads; in the roots, symbiotic worms; within the worms, mineral bacteria. A corpse does not lie open. It becomes a festival of conversion within minutes, hidden by wings and plates and furred bodies, steaming softly in the cold as if being returned to the weather.
+
+There is little decay in the warm sense. Things are disassembled, processed, reallocated. Bones are rasped into powder. Shells become mineral armor for larvae. Feathers line nests, then rot into moss beds. Horns are colonized by blue lichens before they detach from skulls. The dead do not vanish; they are translated.
+
+Despite the brightness, despite the loudness, despite the sheer number of living things, the place has a deep patience. Nothing hurries except the small flyers in sunbreaks and the sudden pour of animals away from a falling rock. The governing movements are long ones: uplift, frost-wedging, colonization, migration, mineral accretion, the slow thickening of mats over raw stone. The land is newly made, but it is already busy becoming old.
+
+At the margins of the plateaus, the ground falls away into cloud-filled chasms. There the vegetation hangs downward in ropes and curtains, catching moisture rising from unseen depths. Animals climb these living walls with hooked limbs. Water drips upward sometimes, or seems to, lifted by warm drafts before it can fall. The sound from below is immense and indistinct: wind, wings, distant ice, and the continuous working of life. No bottom is visible. Only brightness above, whiteness below, and between them the crowded black-green shelves of the high world.
+
+To walk here would be to feel unwelcome not through hostility, but through completeness. There is no unused place to stand. A boot would crush a thousand arrangements. A hand on a rock would interrupt a circuit of warmth, moisture, taste, and signal. The landscape does not need paths, though paths exist. It does not need machines, though machines are everywhere in principle: pumps, valves, turbines, mills, exchangers, furnaces, condensers, all grown, secreted, nested, evolved.
+
+It is a cold living factory without builders, a newborn mountain-continent already overrun with systems. It gleams under relentless high light. It breathes vapor. It clicks, hums, screams, scrapes, and slowly rearranges itself. Its rivers are mostly condensation. Its forests crouch against frost. Its engines are bodies. Its cities are colonies. Its ruins are shed shells and abandoned vents. Its law is occupation, exchange, and patience.
+
+Nothing here is empty.
+
+Even the snow is alive before it reaches the ground.

@@ -1,0 +1,49 @@
+The land is low enough that the horizon rarely separates cleanly from the water. It spreads in dim horizontal bands: black flats, pewter channels, shelves of old ice, then a sky the color of iron cooled too slowly. Nothing rises much above a person’s height. What does rise has been worn blunt—rounded knobs of basalt, mineral reefs, long-backed ridges polished by ages of abrasive rain. The terrain appears almost finished, reduced to its oldest stable shapes.
+
+Water is everywhere, but seldom gathered into a proper lake. It lies under the mineral skin and presses upward through cracks. It films the stone, fills shallow basins, condenses in trembling beads out of the air. Some pools are fresh enough to freeze clear; others are heavy with salts and remain black and mobile far below freezing. Along the channels, water climbs the banks in narrow threads as though gravity has weakened or become uncertain. Weeping rocks send droplets upward into the mist. Rain sometimes falls normally, sometimes sideways, and sometimes begins on the ground and vanishes into the clouds.
+
+There are no plants. No moss softens the stone, no reeds define the marsh edge. Even microbial films, if they exist, do not announce themselves in familiar colors. The world’s palette is mineral: blue-black, chalk-white, rustless silver, bruised violet, and the faint green of charged ice. Yet the flats are not empty. They are packed nearly without interval by life.
+
+The animals resemble an ecosystem built from the memory of machinery.
+
+Across the mud move dense herds of low, many-jointed grazers. Their bodies are plated in dark ceramic shell; beneath the plates, translucent sacs pulse with saline fluid. They feed not on vegetation but on gradients—heat leaking from brine, electrical differences between wet minerals, pressure trapped in old faults. Their mouthparts are broad contact pads. When thousands lower themselves to the ground at once, the plain fills with a deep industrial hum, as if an underground factory has started its night shift.
+
+Among them run smaller creatures composed of rings, hooks, and wet cables of muscle. They click constantly to map the open country. Clouds of pale airborne fauna condense from fog around warm currents: not insects exactly, but folded membranes stretched over branching mineral frames. Their wings rattle like loose sheet metal. When they land, they pack together over every exposed rock until the stones seem upholstered in slowly opening valves.
+
+Predators move through this abundance with the patience of glaciers. Long-bodied things lie submerged in water only centimeters deep, their backs indistinguishable from eroded ridges. They do not pursue. Instead they alter the local direction of down. A feeding herd begins to lean. Feet lose purchase on level ground. Bodies slide, first slowly and then with gathering speed, toward a mouth that may be twenty meters away and no higher than the surrounding mud. Afterward gravity resumes its customary orientation, leaving curved drag marks across the flats.
+
+Farther out, on the broadest flooded pans, immense round organisms turn in place. Each is half submerged, armored with overlapping black segments, and fringed with cilia as long as ropes. Their rotation drives currents through the region. They strain suspended metals, salts, larvae, and stray electrical charge from the water. From a distance they look like turbines, and their combined labor makes the whole basin roar. Yet nothing built them. There are no foundations, roads, housings, tools, or ruins. They grew into these functions. Industry here is anatomy.
+
+The landscape manufactures continuously.
+
+Under the flats, colonies of blind pressure-creatures compress mud into hexagonal ingots and pass them upward through vents. Other animals crack the ingots, sort their crystals, and carry selected fragments toward the cold channels. There, shoals of narrow silver bodies align them in long, precise rows. No individual seems to understand the pattern. The rows stretch for kilometers, then are dissolved by the next black tide. Production has no final object. Sorting, extrusion, transport, assembly, and dismantling are trophic behaviors, as natural and purposeless as grazing.
+
+In places, the process has continued so long that the ground is packed with failed geometries. Mineral discs overlap like scales. Glass rods lie bundled beneath the silt. Smooth spheres fill depressions too tightly for water, although water passes through them anyway. These are not artifacts, because there has never been an artificer; they are shells, waste, bait, eggs, and environmental by-products. Some hatch. Some corrode backward into raw ore. Some are older than the species that now use them.
+
+Sound carries strangely over the low ground. The dominant noise is a layered mechanical thunder: the turning of the basin-strainers, the clack of armored herds, the oscillation of fog wings, the periodic hammering of deep organisms against the underside of the crust. Water booms in cavities. Ice plates shriek as they rotate against one another. At irregular intervals, every living thing emits the same descending tone. It rolls from horizon to horizon with perfect synchronization, too coordinated to be a warning and too immense to be communication in any ordinary sense.
+
+During that tone, distances fail.
+
+A nearby pool may become several days wide. A far ridge can arrive abruptly at one’s feet, its surface still diminished by perspective. Animals step behind fist-sized stones and emerge as tiny moving silhouettes on the horizon. Rain circles particular locations without crossing them. Sound reaches the listener before its source occurs. The terrain has been eroded not only in matter but in causality: repetition and age have worn certain sequences thin.
+
+The oldest channels are particularly unstable. Water there remembers former courses and occupies all of them at once. A hoof entering one stream may disturb a second stream kilometers away. Predators drink and become visibly younger along one side of the body. In the deepest pools, reflections are not reversed; they are delayed. Herds gather at their edges to watch themselves arrive hours later. Occasionally a reflection fails to follow its animal away and remains grazing beneath the surface until something from below takes it.
+
+Cold governs everything but does not still it. Frost forms continuously along the wet stone, growing needles that vibrate in the basin’s electrical fields. The needles break, melt, and regrow in waves, making entire flats glitter weakly in the gloom. Brine rises warm from deep fractures and sends up curtains of vapor. Animals crowd these vents so densely that their shells grind together. Birth, feeding, predation, and mineral deposition all occur in a cramped crush around the warmth.
+
+There is little day. Light seeps through the condensed sky as a dull, directionless sheen. At rare intervals, charge builds in the upper fog and turns every wet surface faintly luminous. The bodies of the fauna become readable from within: branching nerves, pressure bladders, mineral stomachs, clusters of unborn forms nested like bearings. Blue arcs run between horn tips and across the aligned crystal fields. For a few minutes the plain resembles a vast electrified diagram.
+
+Then the charge discharges—not upward or downward, but into age.
+
+A section of the landscape abruptly acquires another million years. Shells crumble. Channels flatten. Ice becomes compact and clouded. Animals caught within may weather into smooth mineral shapes while remaining alive, their movement slowed to one gesture per century. Elsewhere the same event reverses erosion: ancient sediment leaps into suspension, lost cliffs stand briefly in the air, and extinct anatomies pass through the fog in dense, terrified migrations. They leave no tracks because their ground has not yet formed.
+
+Despite the openness, there is no sense of vacancy. Every plane is occupied: animals over stone, animals beneath water, swimmers inside the porous ice, floaters in the fog, burrowers under the crust, and enormous slow organisms whose boundaries may coincide with whole watersheds. Even silence, when it occurs, feels inhabited. The absence of vegetation makes this saturation more exposed. Nothing hides the machinery of appetite. There are no leaves to rustle, no forest shadows, no soft decomposition—only shells striking shells, fluid pumping through mineral chambers, jaws sealing against stone, and the ceaseless redistribution of pressure.
+
+At the basin’s lowest reach lies something like a sea, though it is only knee-deep. It extends beyond sight, dark and crowded with rotating backs. Waves cannot cross it in straight lines. Each is diverted by masses, currents, distortions, and old remembered shorelines until the water advances as a complicated front of interlocking circles. Along its margin, millions of small white creatures stand packed upright. They face the dim horizon and open and close in sequence, sending visible ripples through the colony.
+
+The ripple resembles writing, then an assembly line, then weather passing over grain—though there has never been grain here.
+
+Nothing reads it.
+
+Or the landscape reads it everywhere at once. Each time the white bodies complete their sequence, the distant turbines alter speed, subterranean hammers change rhythm, and rain begins rising from the flooded flats. The sky lowers under the returning water. The mineral herds turn together. Old channels reopen. Gravity tilts almost imperceptibly toward the black sea.
+
+Then the whole crowded plain begins, with tremendous noise, to migrate.

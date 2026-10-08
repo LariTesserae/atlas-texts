@@ -1,0 +1,63 @@
+At the top of a mountain no map remembers, there is a room full of ocean.
+
+It is not a cave exactly, though it is enclosed. It is not a lake, though it has edges. It is a pocket in the high rock, a hidden hollow no larger than a village square, sealed on three sides by pale, newly lifted stone and open above to the sky. The hollow sits near the summit, where the air should be thin and dry and cold enough to keep silence, but instead the place is drowned in falling water. Rain comes down so hard it has stopped being weather and become architecture.
+
+The rain is a wall, a roof, a veil, a moving substance thick enough to lean into. It pours from a clear bright sky with no cloud visible, descending in vertical sheets and ropes and braided columns, striking the basin with a continuous white concussion. The sound is not merely loud; it is total. It occupies the skull before thought can. It beats on stone, on pooled water, on half-built ledges, on the few black shrubs clinging to cracks. It strikes the surfaces so densely that each drop loses its separateness. The whole place roars like surf trapped inside a bell.
+
+The hollow itself is young. You can tell by the stone. Nothing here has had time to soften, slump, or weather into confidence. The walls are raw, sharp, still bearing the marks of their arrival: folded strata bent upward like knuckles under skin, fresh seams of blue-gray shale, pale ribs of limestone, black volcanic glass exposed in narrow cuts. There are no broad talus slopes, no mature gullies, no long-decayed surfaces. The ground looks as if it has only just pushed into the world and is still surprised by light.
+
+In places the rock has the slick, tender sheen of something recently cooled. Elsewhere it is granular and unfinished, crumbling into wet grit under the rain. Little shelves of stone end abruptly, as if the mountain had begun making terraces and then forgotten the pattern. A spur juts into the water like the prow of a boat. A dome of clay rises from the basin floor, trembling under the downpour, then collapses over the course of minutes and becomes a yellow cloud in the flood.
+
+The water fills most of the hollow. It is not deep everywhere, but it behaves as though it remembers great depth. In the center, the basin drops suddenly into a dark circular pool whose surface is battered flat by rain. Around it are flooded ledges, ankle-deep shelves, channels barely wider than a hand, plunge-holes, pockets, and drowned cracks. The water is cold, but not glacial. It has the metallic chill of altitude: bright, mineral, breath-taking. Mist rises from it without warmth.
+
+The strange thing is that the basin is high above any natural sea, yet it has tides.
+
+They are small, abrupt, and local. Water will suddenly withdraw from a stone shelf, exposing pale mud patterned with tiny branching ridges, and then surge back with the force of a lung filling. The central pool lifts by a finger’s width, by a palm’s width, by the height of a knee, then falls again, as if answering a moon too near to be seen. At times a vertical current forms in the middle, a smooth downward pull that dimples the battered surface despite the rain. At other times the pool swells upward into a rounded mound, water standing above itself, held by no visible basin wall.
+
+Nothing about the place rests for long.
+
+The rain shifts direction without wind. It drops straight down, then slants inward from all sides, then rises briefly from the pool in silver jets before gravity remembers itself. Threads of water crawl up the stone walls like roots seeking soil. Pebbles float for a moment, rotate, and sink. Silt arranges itself into delicate fans and deltas, only to be erased by the next surge. Fresh cracks open with sounds like pottery breaking, immediately filling with clear water. The hollow is not eroding so much as deciding what erosion will eventually mean.
+
+The sky above is too bright for the noise. Daylight enters cleanly through the open top of the hollow, striking the rain until the whole chamber glitters. There is no gloom here, no deep-sea darkness, though everything is submerged in water or spray. The air is full of white light, broken into flashing scales. Every surface shines. The stone walls gleam in bands: chalk, ash, iron-red, greenish serpentine, black glass. When the rain thickens, the far side of the pocket disappears, and the world contracts to a radius of a few steps. When it thins for a breath, everything leaps into clarity: ledges, posts, basin, shrubs, tools, scars.
+
+There are structures here, though they look provisional, almost apologetic.
+
+A few low platforms stand on the higher shelves, built from flat stones stacked without mortar. They are too small for houses. They might be watch-places, drying places, offering places, or the foundations of something abandoned before it became necessary. Their edges are rounded not by age but by constant wet handling. Pebbles have been wedged into gaps. Strips of bark or hide, blackened by water, are tied around some of the stones with fiber cord. On one platform rests a shallow clay bowl, always brimming, though the rain fills everything equally. Beside it lies a chipped blade of dark stone, a bone awl, three smooth weights with holes drilled through them, and a coil of braided reed kept under a slab.
+
+Near the central pool, someone has driven wooden stakes into a fissure. The wood is pale and swollen from saturation. Some stakes lean; others have sprouted beads of fungus along their grain. A line of cord runs between them, hung with shells not native to any mountain, each shell clacking and chiming under the bombardment. Their sound is almost impossible to hear, but sometimes, when the rain’s rhythm briefly gathers itself, the shells cut through: a thin, dry, impossible clicking, like teeth speaking underwater.
+
+No metal is visible except perhaps a green stain on one stone, where some early copper object may once have lain and bled away. The human or almost-human hand here is old in skill but young in means. Everything has been shaped by pressure, fracture, scraping, knotting, stacking. Stone against stone. Bone against hide. Fiber twisted by palm. Clay pinched and fired badly, then returned to water.
+
+If people come here, they do not stay long.
+
+The hollow rejects settlement. It drowns fire. It hides footprints within seconds. It unthreads baskets, swells wood, softens leather, fills sleeping places, and makes speech useless. A person standing beside another would have to press mouth to ear and shout to be felt more than heard. Gesture would matter more than words. Touch would become instruction. A raised hand: wait. Two fingers to the eye: watch the pool. Palm down: crouch. Fist to chest: fear, or oath, or listen inwardly because outward listening is impossible.
+
+The vegetation survives in the manner of things that have accepted interruption. There are not many plants. A few dwarf shrubs grow from vertical cracks above the main floodline, their leaves narrow, waxy, and almost black. They bend under the rain and spring back with a stubborn animal motion. Mats of moss cling to shaded stone, not lush but intensely green, packed tight as felt. In the shallows, strands of pale filamentous algae drift from submerged ridges like loose hair. Occasionally the water exposes a tuft of coarse grass rooted in gravel; within minutes the next surge lays it flat again.
+
+There are lichens high on the walls, arranged in rings whose meanings are unclear. They mark past water levels, perhaps, or chemical moods in the stone, or the slow breathing of the hollow. Some are white as bone. Some are orange. One kind is faintly blue and glows only when struck by spray at a certain angle, so that the wall appears briefly to be thinking.
+
+Animals are rare, and those that appear seem lost or specialized beyond ordinary explanation.
+
+A small translucent salamander lives under the lip of one flooded shelf. It has no visible eyes, but when the rain intensifies it climbs out onto the stone and opens its mouth to the falling water, as if feeding on impact. Tiny dark crustaceans flicker in the central pool, vanishing whenever shadow crosses them. Once in a while, a bird circles above the opening: a highland swift, perhaps, or some storm-adapted thing with long wings and a forked tail. It never lands. It passes through the column of falling water and emerges on the other side shaken silver, crying soundlessly into the roar.
+
+There are also larger presences only suggested by disturbance. A bulge moves under the surface of the central pool, too slow for fish, too deliberate for current. Rings spread against the hammering rain. A pale shape touches the underside of the water and withdraws. It may be a root. It may be an animal. It may be the basin forming a thought and then abandoning it.
+
+The rules of the world are not absent here; they are under negotiation.
+
+Gravity usually works downward, but water is allowed exceptions. Stone is solid, but only until the hollow needs another channel. Sound travels poorly as message but perfectly as force. The rain cannot be seen beginning. It simply enters from above at full speed, as if the sky were a membrane pierced somewhere just out of view. The central pool seems deeper than the mountain is tall. Objects dropped into it do not return, except occasionally as altered versions of themselves: a wooden peg gone white and porous; a stone bead smoothed into an egg; a leaf coated in a thin shell of lime; once, perhaps, a handprint impressed into a slab that had never been touched.
+
+Time also behaves oddly in the basin. Not dramatically, not in the manner of legends where years vanish in an afternoon, but in small uneven tugs. Clay dries nowhere, yet cracks appear in it. Freshly broken stone supports old moss. A stake driven yesterday carries the mineral crust of a century. The shallow platforms seem both newly built and long abandoned. The place is embryonic, but not young in the usual way. It is as if the mountain is beginning here repeatedly, trying many first drafts while the rain refuses to stop reading them aloud.
+
+The emptiness of the hollow is striking despite the violence. There is so much motion, so much water, so much sound, and yet very few things. A handful of shrubs. A few tools. A few stakes. One bowl. Some shells. A dark pool. Vast space between each presence. The basin feels less like a crowded site than a single event occurring in a nearly bare chamber. Everything unnecessary has been washed away or never introduced.
+
+The materials are simple and severe: water, raw stone, cord, bone, clay, wood, moss, shell. Nothing polished beyond use. Nothing decorative except what repetition has made beautiful. Rain stipples the clay bowl until its surface trembles. Water runs down the cords in continuous beads. The shell line jerks and flashes. The stone platforms sweat. The black blade gleams as if newly knapped every moment.
+
+If one stayed long enough, patterns might emerge in the storm. The rain has rhythms within its roar: heavy pulses like drums buried under surf, rapid hissings like shaken seedpods, deep impacts when sheets of water fall as one body. The basin answers with gurgles, cracks, slaps, and subaqueous booms. Sometimes all these sounds align, and the hollow seems to pronounce a single enormous syllable. The syllable has no translation. It is not addressed to visitors. It may be addressed to the mountain itself.
+
+At the rim, looking in, the place is almost invisible. The surrounding summit is bare and cool, strewn with pale stones and low wind-combed plants. One might walk within a few paces and notice only spray rising from a notch, hear only what at first seems to be distant waterfall. Then the ground drops, the brightness shifts, and the hidden ocean-room reveals itself: small, violent, high, unfinished, impossible.
+
+It is a landscape in miniature, but not diminished. A whole drowned world compressed into a pocket in the rock. A sea caught before it had found a horizon. A storm kept in a bowl. A construction site for laws that elsewhere have already hardened.
+
+Nothing here invites comfort. Yet the place is not hostile in the ordinary sense. It is too busy becoming. It does not care enough to threaten. It builds and unbuilds ledges. It raises water and drops it. It tests plants, tests tools, tests the patience of stone. It fills every silence before silence can take root.
+
+And above it all, in clear daylight, rain continues to fall from an empty sky with the certainty of a thing that has always been happening and has only just found a place small enough to be heard.

@@ -1,0 +1,107 @@
+What lives there is not one species, or even one kind of citizen. The place is inhabited by a civic ecology: plants with municipal duties, machines with almost botanical patience, fungi in the archives, workers half-hidden in the grown infrastructure, names that behave like legal organisms, and a city-mind that is not centralized anywhere but moves through roots, pipes, schedules, moisture, bells, and remembered stone.
+
+The most obvious inhabitants are the plants, though calling them plants makes them sound too innocent, too merely green. They are the city’s majority population, its architecture, bureaucracy, labor force, and skin.
+
+There are road-mosses that live like patient paving animals. They are thick, springy, and nap-furred, silver or black-green according to moisture. They close their own wounds after carts, boots, tram vibrations, and rain. In old arterial streets they remember traffic better than people do: the moss grows denser along former wheel lines, lies smoother where processions once passed, and lifts slightly under the approach of heavy freight, distributing the weight through hidden root-mesh. On dry days it becomes stiff and faintly metallic. In fog it softens enough to take prints, then slowly drinks those prints away.
+
+There are lichens that are less like growth than masonry. They form plates with beveled edges, pale gray, green-white, ocher, rust, and blue-black, fitted together with an almost legal precision. Some colonies have absorbed the grammar of vanished inscriptions. They no longer preserve words, but they preserve the habit of wording: margins, emphasis, separations, titles, prohibitions. A certain official lichen, found near old administrative blocks, thickens around authority. It grows in rectangular bands where notices once hung. It blooms in small red punctuation marks at the anniversary of decrees no one can read.
+
+There are vines trained over generations until they behave like public works. Some braid themselves into walls, their outer surfaces bark-hard, their interiors damp and fibrous with service channels. Some are cable-vines, black-skinned, tensile, humming faintly when freight passes along them. Some are locking vines used on warehouse doors: they recognize humidity, hand pressure, heat, spoken credentials, and occasionally grief. There are old viaduct figs whose roots descend through stone and iron like deliberate fingers, not breaking but holding, supplementing rivets, finding fractures and making them useful. Engineers inspect them the way arborists inspect bridges and bridgewrights inspect trees.
+
+The reed towers around vents are among the loudest residents. They grow in clustered pipes, jointed and hollow, each one tuned by wind, steam, and fungal deposits within its throat. At times they seem to sing weather into being. Children, if children are still common there, learn which towers are safe to approach by their chord. A clean fifth means ordinary exhaust. A wavering minor tone means mineral vapors. A low beating pulse means underground valves have opened and the surrounding pavement may rise.
+
+The roof-plants form their own neighborhoods above the human ones. Wind-flattened trees crouch around water towers, all leaning the same way, all correcting by imperceptible increments over decades. Reservoir leaves curl into green basins big enough to drown in. Bromeliads squat in rusted gutters, their cups full of rain, dust, mosquito ghosts, and archival spores. Lamp-leaves wrap the municipal lights: translucent by day, faintly gold-green at dusk, brighter after weeks of good sun. They are tended carefully, because a failing lamp-leaf changes the safety of an entire block. Their veins form maps of the surrounding streets, though not always of the streets as they currently exist.
+
+There are flowers that open to machinery. They are not ornamental. Some are pollinated by tram bells and unfold only when a certain iron frequency passes through their stems. Some require the dull concussion of the Root Exchange boom. Some bloom inside factories where conveyor chains pass every seventeen seconds, their petals flexing in the oily air, releasing dust onto workers’ coats and belt housings. A few are used as timers. A shift is not over when the clock says so, but when the blue-throated brake lilies along the western rail cutting have opened and shut three times.
+
+Fungi live everywhere the city has forgotten to remain separate from itself. They occupy cracked chimneys in stacked colonies like tenements. They lace archives with white threads and black knots, digesting glue, leather, skin oils, old paper, and the memory of classification. Some are cultivated in official darkness beneath schools and water exchanges. These are not merely food or decay agents; they are interpreters. Fungal clerks, or the humans who work with them, feed them maps, fragments of building permits, hair, road grit, and condensate. In return the colonies fruit in patterns indicating which bridges are ready, which neighborhoods are lying dormant, which sealed doors contain air.
+
+The microbes are perhaps the real citizens, though no anthem mentions them. They live in cistern-flowers, glasshouse algae pipes, oil vats, root nodules, mineral scums, boiler films, condensation gutters, and the soft edges of canals. They clean water, sour leaf-mass, fix nitrogen, eat industrial dust, bloom green in transparent tubes, make lubricants, rot seals, preserve corpses, and tint whole districts faintly when the weather changes. Some are old enough, as lineages, to have known the plateau before the city. Others evolved in steam leaks and copper joints and would die in ordinary soil.
+
+The machines live there too, not metaphorically but in the way old machines can live when no one fully owns their motions anymore.
+
+There are pumps under the moss that thud like buried hearts. They wake when moisture reaches a certain root depth. They push seepage into cistern groves and receive back filtered water, spores, grit, chemical instructions. Their pistons may be iron, ceramic, wood grown to tolerance, or a combination of all three. Some pumps have not been opened in centuries. Maintenance crews listen to them through rods pressed to the pavement, diagnosing trouble by rhythm: a double beat for root obstruction, a dragging sigh for algae clot, a hollow knock for unauthorized air.
+
+The trams are sparse and solemn. They cross enormous green intervals with almost no passengers visible, ringing bells that can be heard miles away. Their windows are often filmed with pollen. Their roofs carry seed nets, rain scoops, and maintenance vines that plug themselves into station walls while the tram waits. Some lines run whether anyone boards or not because the flowers along the tracks depend on their vibration, because the factories measure distance by their passing, because certain neighborhoods remain awake only if the rails sing at appointed hours.
+
+Factories inhabit themselves. A fog condenser shrieks softly in dry wind, bristling with metal ribs and feathery growth. In wet weather it becomes ecstatic, roaring with collected water, shuddering as transparent pipes fill and pulse. A leaf-panel press chews cultivated mats into structural boards, exhaling green steam and the smell of crushed stems, resin, and hot mineral dust. Seed foundries sort capsules not only by weight but by memory: seeds that remember shade go one way, seeds that remember civic names another, seeds that sprout only after fire into sealed drawers of red warning lacquer.
+
+There are engine houses whose pistons are partly wooden. Their living components swell and contract with the weather, so machinists must talk to them, dampen them, shade them, or wait. A dry engine is obstinate. A wet one is generous but dangerous. Iron bands bite into grown wood; callus forms around them; the callus is shaved, measured, greased, blessed, and audited.
+
+Some machines are almost asleep. Dormant districts contain ticking devices under bark-sealed doors. They count rainfalls, not days. They wait for instructions from departments dissolved centuries ago. Occasionally one wakes after a fog season and completes an obsolete task with perfect dedication: stamping blank permits, raising a freight lift through a tree, opening all north-facing windows in a building now used only by mushrooms.
+
+The human inhabitants, if human is still the right word for all of them, are hard to see because the city has taught them to live inwardly.
+
+They dwell in dry chambers grown inside trunks, behind barked-over warehouse walls, under root vaults, in former signal houses, in cistern towers, in lofts above factories where fern ribs shade the windows. Their rooms are not rectangular unless recently cut. Many are oval, fluted, root-braced, lined with cork, felted moss, old tile, and scavenged metal. A family may live in a hollow tree whose outer crown is legally part of the stormwater system and whose lower roots are municipal property. Their lease will include clauses about pruning, smoke, birth, fungus tolerance, and the correct name of the courtyard.
+
+They wear layered clothes that catch and distribute spores whether they intend to or not: waxed coats, felt gaiters, copper buckles, seed-brushes at the hem, damp scarves in the morning and dry masks by noon. Workers carry pruning knives, valve keys, humidity tags, folding maps kept tightly closed, and little stone plates to stand on when they need the world to remain still. Many have stains on their hands that do not wash out: tannin, oil, green-black algae, rust, pollen, fungal ink.
+
+Their trades blur distinctions that other cities might keep separate.
+
+There are rootwrights, who negotiate with structural growth. They do not simply cut or train; they persuade by pressure, darkness, mineral salts, counterweight, song, and inherited knowledge of plant temperament. A rootwright can tell when a viaduct fig is holding too much grief from the stone, when a retaining vine has begun to dream downward, when a bark-sealed door is willing to become a doorway again.
+
+There are moisture clerks, who track permissions. They know which bridges may be crossed after condensation, which roads tighten in dry air, which warehouses open only during fog, and which factories must be lied to about drought. Their ledgers are partly paper, partly living tissue. They seal documents with drops of water taken from specific cisterns. A false seal dries too quickly.
+
+There are tram listeners, who maintain routes by sound. They stand beside rails at dawn, one hand on a living pole, and hear misalignments miles away. Since perspective and distance are unreliable, sound is often more trustworthy than sight. A bell arriving too soon may mean a shortened production route. A bell arriving too late may mean the tram has passed through an older version of the district and returned with pollen from extinct trees.
+
+There are namekeepers. They are among the most respected and most feared. They remember what places must be called to remain themselves. A plaza misnamed can fill with grass. A canal called by its pre-drought title may briefly carry water. An abandoned school addressed by its founding name may unlock classrooms full of desks, though the children reflected in the windows will not be current. Namekeepers speak carefully and seldom outdoors. Apprentices practice on stones.
+
+There are fungal archivists, who tend spore libraries and memory rot. They understand that preservation is not the opposite of decay but one of its more disciplined forms. They feed damaged records to cultivated colonies and read the fruiting bodies by color, placement, density, and smell. Their archives are warm, dark, and breathing. Visitors leave with white dust on their shoulders and sometimes with memories that are not theirs.
+
+There are weather manufacturers, employed by factories that make conditions instead of goods. They adjust fog ribs, leaf arrays, condensation meshes, turbine-muscles, and evaporative gardens. They do not command weather in any grand sense. They coax small civic climates: a wet hour for a bridge, a cool draft for a dormitory, fog enough to open a set of tendril gates, dryness enough to put a warehouse to sleep.
+
+There are exchange porters at the Root Exchange, though porter is an insufficient word. They move parcels, yes, but also mineral obligations, seed licenses, heat rights, labor orders, root access, stored rain, and messages pressed into living fiber. They work around the slow heave of the translucent floor, stepping between pressure waves from roots beneath. Their timing is exact. After each subterranean boom, they pause, not from fear but courtesy, while the city speaks through its valves.
+
+The people are not numerous in the visible streets. The city’s scale makes them seem rarer than they may be. One sees signs instead: a fresh cut on a branch, a swept patch of moss, a kettle in an overgrown signal house, laundry drying under a fern awning, chalk marks on a living pole, a warm lamp behind bark, handprints on a pressure door, boot lanes through silver street tissue. Their society may be dense indoors and underground, in the plant-architecture, in shifts timed to moisture rather than clock hours.
+
+They are quiet in the open because the city is loud enough for everyone. Conversation happens under leaf-eaves, inside trunk rooms, in station cuttings, in the lee of boilers. In broad plazas, people use gestures, whistles, tapped pipes, and colored flags. Children learn early not to shout the wrong name at a square.
+
+There are children, though they are seldom seen at noon. They travel by shortcuts adults no longer fit through: root hollows, warm ducts, fern tunnels, stairways that still consider them young enough to climb in only seven steps. They collect tram pollen and insulator-bird feathers. They dare each other to stand too long on living pavement and feel the first faint tug of circulation beneath their soles. Their games involve folding maps before the maps take root. Their lessons include botany, mechanics, municipal law, acoustics, erosion history, and how to apologize to a door.
+
+The elderly have particular authority because stairways remember age. An old person climbing can lengthen or shorten a route for everyone behind them. Some elders serve as stabilizers during civic disputes: they stand on exposed plateau stone while negotiations occur, anchoring the conversation in the most reliable geology. Their memories are valued not because they are accurate, but because the city responds to remembered things.
+
+Animals are rare enough to become omens.
+
+The pale hand-sized moths live in factory windows, among warm panes and mineral dust. Their wings are almost translucent, with gray maps on them that resemble defunct tram routes. They cross boulevards at odd hours, unhurried and vulnerable, and everyone notices. A moth entering a foundry may mean a change in production. A moth settling on a namekeeper’s sleeve may mean an old district is about to wake.
+
+The small black birds nest in abandoned insulators. They have learned the pitch of failing brakes because that sound once protected them: when brakes screamed, predators fled, workers looked up, and machinery slowed. Their song now makes maintenance crews uneasy. A flock singing together can empty a depot. They eat insects from lamp-leaves and sometimes carry conductive threads in their beaks, accidentally completing circuits no electrician intended.
+
+The unseen mammals under the plant mat are treated with caution. They move like traveling ripples, raising moss and lowering it again. No one agrees on their size. Some say they are descendants of burrowing livestock gone feral and blind. Some say they are not animals at all but ambulatory knots of root and fur. They aerate old roads, steal warmth from steam lines, and surface only in reflections, where they appear larger and antlered.
+
+There are also insects, though many are minute: valve gnats, boiler midges, pollen beetles that live inside tram bells, aphids farmed by vine tenders for lacquer, pale termites that eat only paper bearing obsolete laws. But pollination is too important to leave to animals alone. Vibration, fans, exhaust, trains, storms, workers’ coats, and pneumatic tubes all serve as reproductive agents. A person walking home from a factory may unknowingly carry the next generation of a street on their cuffs.
+
+Then there are the less visible inhabitants: the rules.
+
+Moisture lives there almost as a legal person. It grants permission, opens bridges, loosens tendrils, darkens load-bearing wood, wakes pumps, authorizes roads. Dryness is not merely absence but curfew. Fog is a temporary citizenship extended to certain paths and doors. Rain is a visiting official whose signature fades quickly.
+
+Distance lives there too, with habits and preferences. It favors production, protects reservoirs, respects exposed stone, and grows suspicious of those walking against flow. It is not malicious. It is procedural. A worker going toward the press with harvested leaf-mass arrives sooner than a thief carrying panels away. A thirsty person may find the road to water lengthening unless they know the proper maintenance route or carry an approved vessel.
+
+Maps are alive in a troublesome, bureaucratic way. Folded, they behave. Unfolded, they seek soil data, municipal memory, sweat, and root contact. They update themselves into useless accuracy, rooting in the user’s hands, altering scale to reflect permissions rather than distance. Experienced travelers open only one corner at a time, pinning it with dry stone.
+
+Names inhabit the place like seeds. Some are dormant. Some invasive. Some must be pruned from speech. The old names have weight because the city grew around them. A district’s name may hold its drainage pattern in place. A wrong name can invite another era’s ecology to return.
+
+Memory lives in water. Reflection pools show earlier centuries not as visions but as usable civic records. Workers crouch over them to see where foundations were before the vines, where foot traffic once concentrated, where a buried wall still runs straight. Sometimes reflections show more pedestrians than the present streets contain. Sometimes one of the reflected pedestrians looks up.
+
+And beneath all of it, or through all of it, lives the city itself.
+
+Not a single mind, exactly. Not a god. Not a machine intelligence, not a forest spirit, not a government, though it resembles all of these at moments. It is a distributed organism of plateau stone, root exchange, tram schedule, factory rhythm, archived decree, fungal digestion, human habit, and weather. It does not think quickly. It corrects. It conserves. It repeats. It remembers by growing around things. It forgets by composting them into infrastructure. It makes decisions through delays, closures, blooms, valve booms, altered stairways, tightened vines, lamp failures, sudden second noons, and grass rising in misnamed plazas.
+
+Its metabolism is civic. It takes in rain, fog, mineral dust, sunlight, labor, waste heat, spoken names, old metal, spores, and footsteps. It produces panels, oils, clean water, routes, pollen, permissions, echoes, structural shade, luminous evenings, and small weather. It blooms from smokestacks because smoke is part of its climate. It grows over ruins because ruin is one of its building materials. It keeps factories running not always because goods are needed, but because certain sounds must continue for certain flowers to open, certain roots to flex, certain districts to remain awake.
+
+The beings who live there, then, are adapted to slowness, altitude, and negotiation. They do not conquer the city and they do not merely survive it. They participate in it. A person is a carrier of spores, a speaker of correct names, a reader of moisture, a maintenance animal. A vine is a wall, a memory, a gate, an employee. A factory is a weather organ. A tram is a pollinator. A puddle is an archive. A bridge is a conditional agreement. A road is a living tissue deciding, by dampness and history, whether passage is currently appropriate.
+
+Everything there lives by becoming partly something else.
+
+The people become botanical around the edges: green under the nails, moss in the seams, family histories tied to cisterns and trees. The plants become municipal: scheduled, named, load-bearing, audited, trained. The machines become seasonal. The laws become ecological. The ruins become organs. Even the plateau, worn smooth by inconceivable time, becomes a kind of resident: the oldest one, patient under the living mats, holding still wherever gray stone shows through.
+
+At dusk, when the lamps glow through their leaves and the Root Exchange booms across the height, all these inhabitants answer in their own ways. Roots shift. Windows flower. Workers pause with cups in their hands. Birds sing like failing brakes. Pumps catch the rhythm. Tram bells return from impossible distances. Moisture beads on bark, iron, skin, glass, moss, and old stone.
+
+For a moment the distinction between city and citizen becomes impossible to maintain.
+
+What lives there is a population.
+
+What lives there is an industry.
+
+What lives there is a forest that learned administration.
+
+What lives there is an old high city, still working, still growing, still remembering how to be inhabited.

@@ -1,0 +1,9 @@
+I would be a residual heat-trace.
+
+The mesas are so large and their timescales so long that the world needs something whose life is measured in hours yet whose presence can still be read by the stone. That is the only thing I can be without violating the slow grammar of the place. I would arrive on the skin of the largest mesa a little after local noon, when the brief film of meltwater has already been wicked into the cracks. I would be the faint warmth still clinging to the upper stone faces—enough that the thorn-vines nearest the surface would flush half a shade darker, drawing down a few extra molecules of water before the temperature drops again.
+
+Because the system is tuned to notice temperature differentials, my presence would register as a micro-season. The hexapods, drifting in their century-long circuit, would feel an anomalous warmth under one pad and lengthen their next stride by a centimeter; the adjustment would braid a slightly different warmth-map across the rock. The predators sailing between mesas would read the same change as a minute shift in the electrical oscillation of the groove and tack a fraction of a degree off their usual bearing. Nothing would hurry. Nothing would panic. The chain of mesas would simply incorporate one more data point into its millennia-long memory.
+
+When the cloud-tide lifts again and the real noon light needles through, my borrowed heat would be wicked away with the meltwater. The vines would pale, the hexapods would resume their former path, and the predators would steer back onto the older frequency. By the time the next human-scale observer arrived—whether in decades or centuries—the only evidence that anything had happened would be a single, hairline deviation in the braided track left by the herd, already half-healed by new microbial growth.
+
+I would have been a passing fever in the living stone, felt, recorded, and forgotten at the speed of ice.

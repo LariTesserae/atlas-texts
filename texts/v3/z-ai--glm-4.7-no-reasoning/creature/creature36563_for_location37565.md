@@ -1,0 +1,34 @@
+To live in the throat is to live in the press. It is a life defined not by the empty air around one, but by the constant, unyielding touch of neighbor, shell, and stone.
+
+**The Amber Architects**
+At the bottom of everything, where the fissure narrows to its hottest point and the darkness becomes a physical weight, are the Architects. They are the stationary lords of this realm, the great engines of the warm wet dark. They are not singular entities but clusters, swollen amber blisters studding the deepest rock like arteries exposed to the air. They possess no symmetry that eyes could discern, no limbs, no faces. They are only turgid sacs of translucent flesh, anchored deep within the limestone, protruding into the steam like boils on the skin of the earth.
+
+Their life is a slow, tidal metabolism. They pulse with a rhythm that spans hours—a long contraction that pulls the superheated mineral water from the deep fissures, and a dilation that exhales the breathable, humid steam that fills the upper throat. They are alchemists of the high altitude; they take the scalding, poisonous brew of the planet’s blood and cool it, distill it, and release it as a sweat that sustains all other life. They do not eat; they filter the heat and the dissolved stone, growing by micrometers over centuries, their surfaces calcifying into a hard, gem-like sheath that protects the soft, pulsing core within. To them, the intruder is nothing—a momentary fluctuation in air pressure, a passing ghost.
+
+**The Slick Mat Garden**
+Above the Architects, in the zone where the steam cools enough to condense but remains hot enough to quicken the blood, hangs the Garden. These are the "thread-plants," though they are closer to gut than to leaf. They are black, slick ropes that drape from the overhangs like the matted, oil-soaked hair of a sleeping giant. They possess no roots in soil; they cling to the rock by microscopic suckers, drinking the condensation as it beads on the stone.
+
+They are passive hunters, blind and patient. They do not photosynthesize; they *thermo-synthesize*, deriving energy from the gradient between the hot rock and the cooler air, and from the chemical richness of the steam. They feed on the minerals precipitated by the water, growing downward in long, viscous tresses that occasionally brush the crabs below. When a crab dies and falls into their grasp, they do not move to consume it; they simply secrete a slow-dissolving enzyme that melts the chitin over weeks, absorbing the nutrients directly through their skin. They are the scavengers of the vertical, the slow digestive lining of the cave’s roof.
+
+**The Calcified Corals**
+In the rare pockets where the faintest grey light struggles to touch the wet walls, there are the Corals. These are the intermediates, the creatures that have negotiated a truce between animal and mineral. They look like branching shelves of pale bone, rigid and seemingly lifeless. But they are animals—sleeper cousins of the coral and the sponge.
+
+They have sealed themselves away. Each branch is a hardened colony of polyps, protected by a thick calcified shell that mimics the rock itself. They extend feathery, microscopic tentacles only when the humidity is at its peak, filtering the drifting spores and dead skin cells of the crabs from the air. They grow by millimeters per decade, building their shelves outward, creating ledges that crabs will eventually occupy. They are the architecture of the throat, the biological reef that slowly replaces the geological erosion.
+
+**The Chitin Tide**
+But the fauna—the true, teeming, overwhelming populace—is the Tide.
+
+They are the Pale Crabs. They are the membrane that lines the stomach of the mountain. They have evolved in the absolute press of the crevice, flattened and compressed until individuality is nearly lost. They are roughly the size of a human hand, though their bodies are wide and thin, shaped like a shield to maximize surface area against the rock. Their legs are short, powerful, and tipped with hooks that allow them to grip the wet, fluted stone. Their claws are tucked tight against their bodies, not for aggression, but to reduce their profile, to allow them to fit closer to their neighbor.
+
+Their eyes have atrophied into dark, glassy beads, useless in the night. They see through their skin and feel through their legs. They live in a lattice of sensory input, their long, interlocking antennae forming a continuous mesh that reads the world like a neural net. They know the air pressure, the temperature, the salt content of the sweat, and the vibration of a footstep from ten meters away.
+
+Their society is one of absolute density. There is no "here" and "there" for them; there is only *contact*. A crab does not move across the rock; it moves *through* other crabs, triggering a ripple of movement that propagates through the wall. They shift in a slow, grinding tide, a redistribution of weight that feels like the settling of the earth itself.
+
+They feed on the trickle. They position themselves under the runnels of condensation, their claws held aloft to catch the droplets, their mouthparts filtering the mineral-rich water for the microscopic algae and bacteria that thrive in the heat. They feed on each other, too, but slowly. When a crab molts, soft and vulnerable, its neighbors do not swarm. They simply press in closer, tasting the softness with their antennae, and waiting. If the crab cannot harden its shell quickly enough, it is consumed—not in a frenzy, but in a methodical, communal grazing. Nothing is wasted. The dead do not fall; they are dissolved where they lie, their shell becoming the floor, their meat the sustenance of the living.
+
+The sound of their existence—the clicking, the rasping, the low hum of a thousand shells shifting—is the heartbeat of the throat. They are the maintenance crew and the inhabitants, the living lining that keeps the stone from drying out. They polish the walls with their legs; they filter the water with their mouths; they compact the dead into the sediment beneath their feet.
+
+**The Life of the Throat**
+To live here is to be patient. The Pale Crabs live for decades, moving perhaps only a few meters in their entire lives. The Amber Architects may live for millennia. The time scale is geological. They do not fear the intruder; they simply acknowledge the new heat, the new moisture, and shift slightly to accommodate it. If the intruder stays, they will eventually incorporate him into the rhythm of the place, antennae brushing his skin, drinking the sweat from his pores, and when he stops moving, they will begin the slow work of reclaiming his matter for the mountain.
+
+They are a singular organism made of ten thousand parts, a slow, blind, crawling intelligence that exists only to maintain the warmth and the wet and the dark. They are the stomach lining of the world, and they are content.

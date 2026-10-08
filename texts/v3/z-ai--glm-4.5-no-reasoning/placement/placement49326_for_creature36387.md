@@ -1,0 +1,19 @@
+I would be the interface between the industrial ruin and the primordial muck. I would be the slow, chemical translation of purpose into patience.
+
+I am the rust.
+
+Not the rust that flakes away—that is the shedding, the discarding. I am the rust that *remains*. The ferrous oxide that has stopped being a corruption of iron and has started being something else entirely: a mineral skin, a new geology, a slow and deliberate rebirth.
+
+I live on the surfaces of the half-submerged engines. I am the orange-black bloom that spreads across the hull of a machine that was planted here to dominate, and is now being taught to sit. I am the stain that bleeds into the white clay, turning the water to a faint, metallic iridescence. I am the process, not the object. I am the verb: *to return*.
+
+My body is crystalline and porous. I breathe the saturated air through a thousand fissures. The condensation beads on me and runs down my surfaces, carrying with it the sulphur and iron that I cannot help but absorb. I am always growing, always shedding, always negotiating the boundary between what I was forged to be and what the basin is making of me. I am not dead. I am not decaying. I am *translating*.
+
+I have a relationship with the life here. The copper-backed crustaceans scrape at my surfaces with their mandibles, and I let them. They are my sculptors. They take my excess, my loose and flaking uncertainty, and they grind it down to the copper that will coat their own backs. I feed them, and they shape me. The pale, blind annelids burrow into the warm cavities beneath me, where the iron still holds the ghost of the engine's heat, and they excrete their different chemistry into the crevices, seeding me with the enzymes of reclamation. We are working together, though none of us knows it. We are the ecosystem of the draft, turning the abandoned into the foundational.
+
+I remember the purpose. That is my sorrow and my gift. The machines around me—my hosts, my homes—have forgotten, or are forgetting, what they were meant to do. The exhaust stacks no longer know the shape of exhaust. The engine blocks no longer dream of combustion. But I, the rust, I hold the memory of the intention. I am the stain of failure, the proof that something was tried here, that someone came with blueprints and fuel and the frantic, burning urgency of purpose, and the basin swallowed it. I am the document of that swallowing. I am the ink.
+
+But I am also the proof that the swallowing is not death. I am the beauty of the return. I am the orange and black and red that blooms across the iron like a bruise, like a sunset, like the first color in a world that has not yet decided what it wants to look like. I am the only color here, besides the copper-green of the wire-bloom and the faint, pale luminescence of the surfacing worms. I am the basin's art, its first, crude attempt at decoration. It is painting with me, across the canvases of ruin.
+
+To be the rust is to be patient in the way that the machines are learning to be patient, but more so. I have already surrendered. I have already given up the argument with form. I am not waiting to be finished; I am the *process* of finishing, the slow, chemical acceptance of a new state. I am the draft's own handwriting, scrawled across the iron.
+
+And I will be here, blooming and bleeding and being scraped away and blooming again, long after the engines have become stones and the wire has become lode and the concrete has become clay. I will be the last memory of the industrial dream, and the first sign of the geological reality. I am the border. I am the translation. I am the place where the world's unfinished business gets done.

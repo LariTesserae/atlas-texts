@@ -1,0 +1,11 @@
+Beneath an unyielding ceiling of dark water that presses the horizon down into shadow, a wide, level plain of fine mineral silt lies motionless under its own weight. The silt is pale as bone dust and so finely graded that it accepts no footprint; each grain sits exactly where the last slow settling left it. Because nothing stirs the floor and no current scours it, the plain has no slopes, no channels, no ripples—only an endless, level hush.
+
+From that silt rise scattered pillars of dense, glassy salt, each one a meter or so across and twice as tall. They stand at irregular intervals, sometimes only a few body-lengths apart, sometimes farther, so the emptiness between them feels deliberate rather than accidental. Their surfaces are slick, translucent where light grazes them, and inside each column run thin filaments of darker mineral that branch like fossil lightning—frozen records of evaporation that happened once and then stopped forever.
+
+Between the pillars, the water is utterly still; temperature is low enough that a human breath would ghost white if there were anyone left to exhale. No bubbles rise. No particulate drifts. Suspended motes, if any exist, hang exactly where they are, neither rising nor settling.
+
+Above the plain, the great body of water itself functions as both sky and roof. It is not featureless; at this depth the pressure compresses everything into muted blues that fade, meter by meter, into near-black. Far overhead, the faintest lattice of light filters down—enough for shapes to be distinguishable, not enough for shadows to move.
+
+The only sound is the patient tick of dissolved minerals precipitating onto the pillars—an almost sub-audible patina of growth that never speeds up and never pauses. No pumps labor, no turbines turn, yet the water remembers motion: within each translucent column the crystalline lattice conducts faint electrical potentials left by ancient currents now absent. Those potentials keep the salt columns rigid, their molecular bonds aligned as though an industrial template once stamped them into permanence and then switched itself off.
+
+No living tissue interrupts this equilibrium. The silt contains no worms, the water no plankton, the salt no endolithic microbes. Only the mineral structures and the constant water remain, each unchanged because nothing any longer arrives to change them.

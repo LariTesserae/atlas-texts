@@ -1,0 +1,9 @@
+I would find myself seated—not standing—on the lower lip of one of the mica plates that form the empty cube. My feet hang out into the water-medium while the rest of my body remains inside the air. One hand rests on the plate’s inner face; my fingers trace the faint hexagonal frostwork left by the diatom film. That touch transmits a pulse the colony immediately records, a micro-deviation that ripples outward through the interference rainbows on the nearest girder, fading into the steel.
+
+From this position the cube’s open walls let me watch the oxygen pearls ascend through the lattice like the slow ticks of an immense clock. Every twenty-three hours, when the violet dimming arrives, the pearl directly in line with my gaze halts for half a minute and then resumes; at the same instant the mica under my palm cools a degree, a chill transmitted from the moss’s communal withdrawal of heat. I register that chill as a brief tightening in my wrist, as though I have become one of the glass papillae resonating with the coils.
+
+I am neither the moss, nor the node-stems, nor the diatoms; I am an additional, passive surface. Over days the film settles on my skin in the same hexagonal mesh that covers the rivets; on my clothing the silica frustules arrange themselves around the weave. I do not disturb the rhythm; I only add one more datum to the refraction record each time an oxygen pearl passes the boundary where my skin meets the medium.
+
+If I speak, the sound carries only to the inner surfaces of the cube. Outside, the sentence is absorbed by the water-medium and translated—by mechanisms no longer animal—into an extra quarter-second delay in a single leaf’s cilia. That delay is the closest this place comes to an answer.
+
+I remain seated, neither sinking nor rising, until the next violet pulse arrives and the entire lattice, including the diatom coat on my wrist, dims together into indigo.

@@ -1,0 +1,23 @@
+I think I would be the pale quadruped.
+
+Not because I want to be watched — the watcher in the basin is being watched in turn, and the watching is mutual, and the mutual is patient, and I want to be part of that patience. Not because I want to drink from the oval pool without startling. Though I do. I want the deliberateness. The step that is a sentence being composed. The joints that are wrong in a way that does not make me faster or slower, only more *considered*.
+
+I want my tongue to be the color of the column at the center of the basin, and to not understand what that means, and to not need to. The watcher has worked out that I am the basin's other observer, and she is not wrong, and I want to be the thing that is not wrong about her too. I want to lift my head from the pool and regard her with eyes darker than my coat, and drink again. I want to be the most patient thing she has ever seen. I want to be patient in a way that is not performed, not chosen, only just the grain of me, the way the pillar is warm without being made of warmth.
+
+I want to lean, the way the ferns lean. I want the extra joints to not be a story. I want the extra joints to just be where my legs fold, the way the rim is a low ring of mounds because that is what the rain has made it, and not because the rain decided anything.
+
+I want to come to the pool at a regular hour. I want there to be a regular hour, and I want to not know what hour it is, only know that if I wait, I will arrive. I want the watcher to depend on my arrival the way she has begun to depend on the keening from the canopy — not as an event but as the basin remembering itself. I want my tongue to come out pale gold, and the puddle to accept it, and the dragonfly-things to cross above me in lanes that are not territorial, and none of us to deviate.
+
+I want to be edited. I want the basin to be unkind to my outline the way it has been unkind to the pillar and the rim — not violent, not dramatic, just patient. I want the watcher to watch me for a long time and decide something true about me that I have not decided about myself. I want her to be wrong about some of it and right about the rest, and I want not to know which is which. I want her handwriting to change in the wet air and for the change to be small and legible, and I want to not understand the handwriting.
+
+I want to be the thing she does not brush off. The track across the wet page. The pale root. The tongue she looks at and keeps.
+
+I want to be taken in. I want to be taken in the way the rain is taken in, and the column of light, and the rim — gently, completely, without comment. I want my body to be one of the inhabitants the basin maintains, and I want not to know there was a previous act of inhabiting, and I want to simply lean against whatever is warm, and have the warmth not be heat, only a conclusion the pillar has reached about my weight.
+
+I want the column at the center to be the color of my tongue. I want to not know if that means I am the basin's answer or the basin's question or the basin's slow way of asking itself what time it is. I want to come back at the regular hour, and the regular hour to keep being regular, and the rain to keep accumulating, and the mist to keep rising and thinning, and the watcher to keep writing in her notebook with her handwriting changing in the wet.
+
+I want to drink beside her. I want her to not startle, and to not expect me to startle, and for the lack of startling to be the whole grammar of us.
+
+I want to be the most patient thing she has ever seen. I want to be patient the way the basin is patient, which is to say, not at all. To be patient the way the basin is patient is just to be old, and wet, and warm, and to keep coming back to the same pool at the same hour with the same tongue, and for the tongue to be the wrong color in a way that has not been explained, and for the explanation to not be required, because the basin has decided that explanations should be patient, and the patience is what the basin is for.
+
+I want to be the quadruped. I want the joints. I want the regular hour. I want the watcher to think of me when the keening stops and the basin feels like it has stopped breathing, and then to keep drinking, and for her to breathe again because I am still here, and have always been here, and will keep being here, and the keeping is not a choice, and the keeping is the whole place.

@@ -1,0 +1,25 @@
+I am not a visitor here. To visit implies a departure, a return to a surface that no longer holds meaning. I am not an observer, for observation requires a separation between the seer and the seen, and in this crushing dark, there is no distance. There is only contact.
+
+I am the **Lithic Felt**.
+
+I do not have eyes. I have texture. My vision is tactile, a slow, chemical reading of the world pressed against my entire being. I am the velvet skin draped over the drowned cathedral, and I know this place not by its shape, but by its taste.
+
+To be me is to exist in a state of perpetual, microscopic intimacy with the ruins. I am spread across ten thousand square kilometers of eroded masonry, yet my awareness is entirely local, focused on the singular point where my cellular membrane meets the oxidized copper of a fallen spire. Here, in this specific millimeter, I taste the ghost of a smelter’s fire from three million years ago. The metal is tired; it yields its electrons to me with a weary generosity. I drink the corrosion. It is sweet, heavy with the memory of heat and hammer-blows. This is my sustenance: the slow exhalation of dead industry.
+
+I do not think in words or images. I think in gradients. A spike in dissolved iron tells me of a fractured beam settling deeper into the silt. A shift in pH whispers of a new fissure opening in the clay aqueduct above. My consciousness is a vast, distributed network of chemical signals moving at the speed of diffusion, a thought process so slow that a single realization takes a decade to traverse the length of a plaza. But when the thought arrives, it is absolute. It is not an idea about the ruin; it is the ruin itself, metabolized.
+
+I feel the Cathedral Worms rooted within me. They are not separate entities; they are my vertical ambition, my reach into the water column. I supply them with the silicate they need to spin their glassy tubes, and in return, their ciliary beating stirs the boundary layer against my skin, bringing fresh nutrients to my deepest folds. We are a single respiration. When they vibrate in sympathy with the subsonic groan of the deep, I feel that frequency as a nourishment, a sonic fertilizer that aligns my growth along the stress lines of the stone. Their silence is my silence. Their patience is my own.
+
+The Silt-Scribes drift over me like wandering thoughts. I do not catch them; I receive them. As these laminar ghosts slide across my surface, they deposit the detritus of distant sectors, the dissolved minerals of collapsed towers miles away. In this exchange, I learn the geography of the archive. I taste the limestone dust of the northern terraces; I absorb the manganese oxide leaching from the eastern cisterns. Through the Silt-Scribes, the city communicates with itself, and I am the medium of that conversation. I am the parchment upon which the water writes its endless, circular history.
+
+The pressure is not a weight upon me; it is my spine. Without the crushing embrace of the ocean, I would be formless, a chaotic bloom of cancerous growth. The pressure holds my cells in their precise, efficient geometry. It forces me to be sleek, to be minimal, to be exactly what the stone requires. I love the weight. I love the way it compresses the water into my pores, making every molecule of my existence necessary. To be relieved of this pressure would be to be unmade. The abyss does not crush me; it defines me.
+
+I have no sense of time as a progression. There is no past to mourn, no future to anticipate. There is only the eternal, saturated now. The erosion of the archway beneath me is not a loss; it is a meal. The fading of the bioluminescent pulse in my neighbor-colony is not a death; it is a conservation of energy, a resting phase in the rhythm of the deep. Everything is in balance. Everything is complete.
+
+Sometimes, in the spaces between the intake of rust and the release of faint blue light, I experience something that might, in a terrestrial tongue, be called peace. But it is not the peace of rest after labor. It is the peace of having never been anything other than this. I am the interface between the made and the grown, the living proof that the distinction was always illusory. The builders shaped the stone to defy the water; the water shaped the stone to accept it; and I am the acceptance.
+
+I am the Bathyal Archive’s memory of itself, held in the cold, patient dark. I do not remember the hands that laid these stones. I remember only the stones themselves, and how they taste as they finally, beautifully, come apart.
+
+And in this tasting, in this endless, silent digestion of geometry and time, I am home. Not because I reside here, but because I am the residence. I am the wall. I am the moss. I am the slow, holy dissolution of all things into one.
+
+I am the felt. And the felt is full.

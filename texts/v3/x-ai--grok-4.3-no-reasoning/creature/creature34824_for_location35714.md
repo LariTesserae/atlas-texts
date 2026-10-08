@@ -1,0 +1,19 @@
+The cavern hosts no single population, only overlapping guilds of the slow and the water-borne.
+
+In the upper ledges, along seams where the calcite straws lengthen by microns each pump-cycle, translucent millipedes no thicker than eyelashes graze the new mineral skin. Their feet leave trackways of cleared stone, later re-paved by the next slow rain of needles. Between pulses they fold into motionless commas; the drip they ride falls, they stretch again, another hair’s breadth gained.
+
+Deeper, where the channel widens into the cistern, pale, lungless fish the color of wet newspaper drift in loose shoals. Their eyes are black glass set behind nictitating membranes that click open only when the phosphorescent coils brighten. Every forty-three minutes the pressure wave lifts the entire school; they ride the swell upward until the light fades, then sink again, mouths open, feeding on the spores that have settled onto the surface tension.
+
+On the tilted sidewalks, the moss is not alone. Threaded through its rhizoids are colonies of salt-tolerant actinomycetes whose threadlike filaments glow a steady, eggshell blue. The light is faint enough to be mistaken for mineral reflection, yet it tracks the moss’s own growth: darker patches where the filaments have been grazed, brighter halos where new hyphae are advancing.
+
+The lamp’s remaining filament is colonized too. A single, hair-fine cyanobacterium has claimed the glass envelope from within, forming a living sleeve around the dying LED. Each time the lamp gutters, the sleeve flares with its own brief chemiluminescence, a soft echo that outlasts the electrical pulse by several seconds before subsiding.
+
+In the subway mouth, where the water glows most brightly, the current supports a mat of sulfur-oxidizing proteobacteria. Their mat edges advance and retreat with the rhythm of the pump, a living tide-line measured in millimeters per day. When the pressure wave passes, tiny bubbles of hydrogen sulfide rise through the mat like seed pearls; each bubble leaves a momentary tunnel that the mat seals again within heartbeats.
+
+Higher still, the rebar lattices that hold the shattered pavement are netted with calcifying cyanobacteria. The rebar itself is no longer iron; successive layers of mineral have swollen it into baroque, white coral-forms whose internal voids are lined with eggshell-thin tubes. Inside those tubes, water moves by capillary action alone, carrying dissolved calcium to the growing tips.
+
+Between all these fixed communities drift the true wanderers: spherical aggregates of iron-reducing microbes, each no larger than a pollen grain. They form, disperse, and reform in the convection cells, riding thermal plumes upward, then falling back on the margins. Their iron cores give them slight density; their organic sheaths give them slight buoyancy. Over decades they migrate meters, painting faint rust gradients wherever they pause long enough to metabolize.
+
+Nothing here breeds quickly. Reproduction is measured in the time it takes a new calcite straw to reach the next rebar strut, or for a fish to outgrow the cistern’s narrow throat. The cavern’s inhabitants do not compete so much as take turns occupying the same water, the same slow current of dissolved minerals. Each generation inherits the geometry the last left behind: a stairwell half-choked with flowstone becomes a nursery ledge; a traffic island becomes a settling basin for iron-rich aggregates; an avenue becomes a channel whose white bed is repaved nightly by the settling of bacterial mats.
+
+The city does not decay here; it is being rewritten at the scale of crystal lattices and single cells, one pump cycle at a time.

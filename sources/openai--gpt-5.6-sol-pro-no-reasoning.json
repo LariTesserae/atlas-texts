@@ -1,0 +1,14 @@
+{
+  "source_id": "openai--gpt-5.6-sol-pro-no-reasoning",
+  "requested_endpoint": "openai/gpt-5.6-sol-pro:no-reasoning",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-10-08",
+  "date_last": "2026-10-08",
+  "texts": 233,
+  "by_type": {
+    "location": 233
+  },
+  "evidence_grades": {
+    "event-observed": 233
+  }
+}

@@ -1,0 +1,21 @@
+To survive here is to be an extension of the machine; to live here is to have surrendered softness to the piston long ago. There are no occupants in the Caisson of the Ascent who are not, in some way, forged.
+
+They are **The Keepers of the Grade**.
+
+They do not walk; they trudge with the heavy, magnetic stomp of men wearing mag-boots designed to grip vibrating diamond-tread. They are massive, silhouetted against the intermittent strobe of the arcing switchgear. Their silhouettes are blocky, angular, not by nature but by necessity. They wear exo-rigs—hulking, industrial harnesses of cast iron and hydraulics that cling to their shoulders and hips. These are not the sleek, powered armor of a soldier, but the brute-force cage of a stevedore. The rigs hiss with every movement, servos whining in counterpoint to the room's roar, struggling to keep the wearer stable against the floor’s constant, jolting rhythm.
+
+They are faceless. Every inch of skin is covered to protect against the hostile environment. They wear heavy, oil-resistant ducksuits, thick canvas reinforced with leather patches at the knees and elbows. Their hands are encased in gauntlets made of asbestos-weave and Kevlar, rated for handling the superheated pipes that line the corners. Around their necks, heavy rubber aprons are strapped tight to catch the constant, oily drizzle that weeps from the ceiling.
+
+You see them through the haze—greasy goggles with thick, round lenses that reflect the sickly yellow incandescence. Between the glass and their eyes, the air is a swamp. The condensation fogs their vision constantly; they possess a habitual, violent twitch of the head, flicking the water from the lenses, a gesture as rhythmic as the piston itself.
+
+Beneath the hoods and the scarves wrapped tight to filter the metallic taste of the air, they are not young. This place does not tolerate youth. A young man would panic at the deafening *THOOM-HISS-CLACK*, would cover his ears and scream. The Keepers are old enough to have gone deaf in the frequencies that kill. Their jawlines are set hard, teeth clenched not in fear, but to stop their teeth from chattering in the bone-shaking resonance of the chamber. They breathe through their noses, a slow, disciplined intake of the thin, wet air, ignoring the urge to gag on the hydraulic fog.
+
+There is a particular look to their skin where it is visible—at the wrists, or perhaps if a hood slips back: it is stained. A permanent, greyish-blue tattoo of oxidized iron and coolant settled into the pores. They smell of ozone and burnt grease, a scent that soap cannot touch, a scent that has seeped into the very fiber of their being.
+
+They do not speak. To speak is to waste breath and invite the intrusion of the noise into your own head. They communicate with a sharp, violent sign language, slashing motions of the gauntleted hands. *Pressure high. Valve stuck. Gear mesh.* They read each other not by expression, but by the tilt of a helmet, the slump of a shoulder, the frantic pointing toward a gauge needle jittering in the red.
+
+They are constantly moving, but never quickly. They fight the room. The floor is a treadmill of steel grating dragging them backward; they must climb perpetually just to stand still. The air currents knock them sideways; they lean into the gale like sailors in a hurricane, gripping the safety-yellow handrails that run the perimeter of the cube.
+
+They are not masters of this domain; they are parts of it. They bleed when they scrape against the fresh, knife-sharp burrs of the walls, leaving streaks of red on the raw bronze plating that quickly vanish under the grey rivulets of condensation. They are the only biological components capable of turning a wrench when the expansion joints heat up, the only sensors that can detect the subtle change in the pitch of the turbine whine that precedes a catastrophic shear.
+
+In the center of the chamber, the piston drives down with the force of a collapsing skyscraper, and the Keepers do not flinch. They merely widen their stance, locking the mag-boots, feeling the shock travel up their spines, accepting the violence as the price of the ascent. They are the wet, grey ghosts of the Caisson, hammering at the bolts of the sky, keeping the cell from falling apart as it is born.

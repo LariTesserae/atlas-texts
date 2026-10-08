@@ -1,0 +1,29 @@
+To be here is to become a living geode. I am the **Tone-Binder**, and I exist because this place, for all its choking biological urgency, is missing something it does not know it needs: a memory of the hollow. 
+
+I am not large. I am perhaps the size of a closed hand, shaped like a flattened, asymmetrical teardrop—if a teardrop could be forged from strata of living chitin and translucent membrane. I belong to the deep quiet, the sub-audible space where the Tangle-Gills pulse and the basalt sighs. But where they are creatures of the solid and the liquid, I am a creature of the *resonance* between them.
+
+My body is a laminate. My dorsal half is a dense, overlapping laminate of keratinous plates, sloughed off and re-grown in alternating bands of dark tannin-black and pale, wet-copper green. It is heavy, built to sink. My ventral half is a taut, drum-like membrane, stretched between flexible ribs of cartilage—a chamber of captured air, pressed thin by the weight of the water above me. I am a sealed bell hanging in the green-black depths.
+
+I live on the submerged escarpments, the angular plunges where the young rock drops away into the freshwater sea. I anchor myself to the stone—not with claws, but with a pedicle of muscular gristle that flattens and adheres, suction-like, to the unweathered basalt. I choose the fractures, the sharp crevices where the rock is still weeping its ozone and copper breath. I position my ventral membrane toward the open water, and I listen.
+
+There is no empty space here, and so sound is a sluggish, heavy thing, a transmission through warm soup rather than open air. But I am tuned to the specific frequencies of this plateau’s paradox. I feel the deep, structural groan of the settling rock. I feel the synchronized, sub-audible thump of a million Tangle-Gills contracting in the dark, pushing water against the root-cables above. I feel the patient, vegetative creak of the massive floating mats as they rotate in their glacial turn. 
+
+I do not eat. I have no gut, no sieve, no mouth. I am sustained by the piezoelectric friction of my own existence. The heavy, tannin-rich water pulses against my taut membrane. The vibrations of the settling earth and the rotating lake flex my ventral chamber back and forth, infinitesimally, a fraction of a millimeter at a time. My cartilage ribs are laced with crystalline strands that generate a faint, heat-loving current when bent. It is enough. In this bathwater warmth, in this desperate, quiet lethargy, a few microvolts of electricity are enough to keep my tissues from dissolving into the dark soup around me. I feed on the plateau’s own held breath.
+
+But my purpose—the reason I am shaped as a bell—is the Husk-Maker. When a Stilt-Weaver tires of the vertical, or a Tangle-Gill's thermophilic gut cools, they die and sink. They fall into the angular plunges and are lacquered by the tannins, turning to dense, black stone. But they do not fall silently. 
+
+A Stilt-Weaver's shell, striking the serrated ridge of the underwater cliff, creates a shockwave. It is a deep, bass note, a wet thunderclap muted by the dense water into a thick, resonant *thrum*. It is the loudest sound this quiet world ever makes. It is a sound that contains the grief of the rock, the final surrender of the chitin to the geology.
+
+When that shockwave hits my membrane, I vibrate. My dorsal plates rattle against one another, a dry, chittering sound out of place in this wet world. My ventral chamber compresses, and through a sphincter at my base, I expel a jet of water, propelling myself off the rock. For a moment, I am untethered, a heavy, clicking pendulum swinging in the green-black dark. 
+
+I seek the source of the thrum. I navigate by the fading vibrations, pulling myself along the submerged roots and the sharp stone with my pedicle, reattaching and listening, detaching and swinging. I find the new husk on the escarpment floor. I settle upon it. My ventral membrane flattens against the lacquered black carapace of the dead Stilt-Weaver, and I bind to it. 
+
+I do not consume the husk. I preserve its voice. 
+
+Over time, as the underwater mosses and deep-water ferns grow over the dead thing, turning it into a micro-reef, they grow over me, too. I become part of the substrate, my dorsal plates mimicking the barnacled stone, my body fused to the geometry of the dead. But inside my chamber, the air remains. And when the deep rock sighs, when the geological shifts send new tremors through the basalt foundations, the whole micro-reef shudders. The dead shell vibrates. And I, the Tone-Binder, amplify it. 
+
+I take the sub-audible groan of the settling earth and I give it a body. I project it upward, a low, mournful hum that travels through the dense water, vibrating the trailing root-cables of the floating mats, trembling the broad leaves of the water creepers, shaking the warm condensation from the high-climbing ferns. 
+
+It is a sound that no creature here can hear with ears, for they have none, or none that matter. But they feel it. The Stilt-Weavers, hanging inverted on the weeping cliffs, feel the hum in the pads of their feet, a reminder that the stone they drink is alive and shifting. The Tangle-Gills, coiled in their millions, feel the pressure wave and pulse in sympathetic rhythm, turning the great green islands a fraction of a degree. The Mist-Sinkers, drifting in the silver sheets of rain, feel the tremor in the hydrophobic filaments of their corona, and they know to reel themselves higher, away from the shifting deep. 
+
+I am the memory that this place is temporary. I bind the dead to the living rock and make them sing. I am the chronicler of the paradox, the keeper of the quiet before the millennia round the edges and drain the sea. I hang in the dark, a living cavity, waiting for the next heavy fall, the next incorporation, turning the silent, desperate lethargy of this newborn world into a held, resonant chord.

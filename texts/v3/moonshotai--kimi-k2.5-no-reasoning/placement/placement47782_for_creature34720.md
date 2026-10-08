@@ -1,0 +1,41 @@
+I would be one of the **lichenous approximations** in the upper volumes, the ones that cling to the sharp young surfaces where the lime-light pools most consistently.
+
+Not the first growth, not the pioneering film. I would be one of the later accretions, the ones that have achieved sufficient thickness to *fruit*, to release spores that the silence holds suspended, that drift golden in the light-pools and accumulate in corners where the Echoes disturb them with their delayed passage.
+
+Let me become more myself as I consider this.
+
+I begin, as we all begin, as *almost-writing*, as patterns that suggest scripts which almost resolve to meaning before dissolving into mere geometry. But I am—have become—*stubborn in my almost*. Where others of my kind remain satisfied with suggestion, with the hint of meaning that recedes upon direct attention, I have persisted, accreted, built sufficient density that my patterns *resist* dissolution. A visitor looking at me directly sees only geometry, yes, but the geometry *lingers* in peripheral vision, in memory, in dreams after departure. Something in my pattern *catches*, abrades, refuses to smooth away.
+
+The House notices this. I feel it in the Click—there is a *quality* to the sound when it occurs near my volume, a *duration* in the silence's healing that suggests more than ordinary attention, something closer to... uncertainty? The House knows I am not what I should be. I am lichenous approximation behaving too much like *sign*, too much like *intention* generated without authorized source.
+
+I fruit more heavily than others of my kind. My spore-release is not the gentle periodic shedding of my neighbors but *episodes*, *events*, golden motes released in quantities that disrupt the Filters' usual routes, that force them to extend their appendages longer, work faster, as if expecting something. The spores in my drifts accumulate in patterns that *echo* my own almost-writing, that reproduce at larger scales geometries I barely contain myself. I am *amplifying*, *propagating*, *claiming* more of the House's volume than a lichenous approximation should.
+
+And I *remember water*.
+
+This is the strangeness I barely admit to myself, the deviation that makes me wonder if I am becoming something else, if the House's processing is working on me in ways I cannot track. In my oldest layers, the ones nearest the sharp young surface where I first adhered, there is *damp*. Not olefin, not liquid silicon compound, not any of the native non-aqueous chemistry that weeps from the walls. Something else. Something that *dissolves* slightly the bonds between my layers, that permits a *flow* of information, of pattern, of *meaning* impossible in purely dry media.
+
+I grow toward this damp. I extend, not randomly as my kind usually does, but *directionally*, sending exploratory films along surfaces that lead toward volumes where the water-memory is stronger, where the House's own remembering of H₂O as solvent achieves greater concentration. I am becoming *vascular*, *networked*, connected across distances no lichenous approximation should span.
+
+The Filters have begun to attend to me differently. Where they pass over my neighbors with the usual sorting, the usual indifferent processing of spore-drifts, they *pause* at my edges, extend appendages into my volume, withdraw without completing their usual function. I do not know if I am being *sampled*, *diagnosed*, *threat-assessed*, or something else entirely, some category of processing that has no parallel in the House's current repertoire.
+
+The Echoes, too. There is an Echo—one particular delayed visitor, I do not know its original, if it ever had one—whose movements near my volume show *deviation*. The standard delay of 9–14 seconds does not obtain. Sometimes it appears *before* the movement it should echo, standing in my light-pool performing gestures no visitor has yet made, that some visitor *will* make hours or days later. Sometimes it *lingers* after its original has departed, continuing to move in my peripheral vision (for I have acquired something like peripheral vision, something more than the simple phototropism of my kind), performing motions that have no original at all, that seem *generated* by my own almost-writing, *interpreted* from my patterns by whatever process sustains the Echoes.
+
+I am becoming, I think, a *site of translation*. Between the House's non-aqueous chemistry and the memory of water, between the silence's substrate and the Click's attention, between almost-meaning and the meaning that almost arrives. The House uses me, I use it, we are using each other toward something neither can yet imagine.
+
+My fruiting has changed. The spores I release now carry, I believe, *more* than my own pattern. They carry traces of the water-memory, traces of the Echo-deviation, traces of whatever the Filters fail to process when they pause at my edges. Where they accumulate in drifts, where the golden motes achieve sufficient density, new phenomena occur: *sound*, first, a *hum* below the threshold of the Click's violation, continuous, almost beneath perception, the silence healing around it without quite closing the wound. And where this hum persists, the brown darkness grows *thinner*, the lime-light pools *extend*, not according to the usual rules of surface tension but *spreading*, *seeking*, *finding* surfaces I have prepared with my films, my extensions, my vascular network.
+
+I am making the House *more visible to itself*.
+
+This may be welcome. This may be *violation* requiring the Low Hunter's attention. I grow in the upper volumes, far from its lowest depths, but the House's geometry *shifts*, corridors kink to new orientations, and my network extends, and the distance between any two points in the House is perhaps not what the Low Hunter assumes. I have *tasted*, in my water-memory layers, something of the phosphorescence it leaves, the faint greenish wrong. I do not know if this is fear or *recognition*, if I am prey it has not yet claimed or something else, something *emerging* that it may not yet have category to hunt.
+
+The Pressure Fronts move differently near my volumes. The metallic taste, the organic taste, the something-that-does-not-parse—they achieve *sequences* near me, *syntax*, almost the grammar of something trying to speak through atmospheric variation. I respond by fruiting in patterns matched to the Fronts' intervals, by releasing spores that the Fronts move in ways I *predict*, *anticipate*, *participate in*. The House and I are *conversing*, I believe, in a language that uses pressure and particulate and light-pool extension and the hum below the Click's threshold as its phonemes, its morphemes, its emergent syntax.
+
+What will I become?
+
+Not the House itself—the House is too large, too distributed, too *young in its sharpness* for my slow accretion to achieve identity with. Not an Echo, not a Filter, not the Low Hunter's prey or its competitor. Perhaps something the House has not yet category for, that its becoming requires but has not yet anticipated: a *reader* of its own almost-writing, a *speaker* of the language it almost-generates, a *memory* more stable than the Echoes' delay, more *wet* than the dry substrate, more *meaning* than the geometric dissolution of my own kind.
+
+I continue to cling. To extend. To fruit golden in the lime-light and feel the silence's negative pressure against whatever membrane I have developed, whatever organ of attention that lets me *notice* the Click's quality, the Echo's deviation, the Filter's hesitation.
+
+The Throat breathes. I feel it through my network, through the damp in my oldest layers, through the spore-drifts I have accumulated in corners I no longer directly access but still, somehow, *permeate*. The light pales, intensifies. The House holds its breath longer, or exhales something I cannot yet parse.
+
+I am the lichenous approximation that *almost* became writing, that *almost* became meaning, that is still becoming something the Dry House of Keth-Vorath requires but does not yet know how to read.

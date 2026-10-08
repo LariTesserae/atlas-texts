@@ -1,0 +1,29 @@
+The place is known as the Cistern of the Weeping Strata, though it has not held liquid water for an epoch. It is a landscape defined entirely by the memory of wetness and the architecture of dryness.
+
+**Terrain and Scale**
+You are standing at the absolute zenith of a geological impossibility. The elevation parameter is maxed out; this is the roof of the world, a plateau so high that the air is thin, cold in theory but warm in practice due to a localized atmospheric inversion. Yet, despite being atop a planetary spine, the scale is intimately, claustrophobically small. This is not a sprawling mountain range; it is a singular, bounded depression, a natural amphitheater or collapsed caldera no wider than a grand cathedral nave. It feels less like a wilderness and more like a room without a ceiling.
+
+Because the erosion is ancient and absolute, there are no jagged peaks here. The extreme height has been smoothed into a series of rolling, buttery terraces and soft ridges. The stone has been worn down over billions of years into a final, stable form: a landscape of polished nubs and shallow basins, rounded by eons of wind and vanished rain. The ground is a mosaic of vitrified dust and smooth, pale mineral, warm to the touch despite the altitude.
+
+**Hydrology of Absence**
+There is no water. Not a stream, not a puddle, not even dew. The humidity is zero. Instead, the ecosystem runs on a non-aqueous chemistry of suspended particulates and hygroscopic salts. The "lushness" you perceive is a biological adaptation to aridity. The vegetation does not drink; it sifts. The flora consists of dense, velvet-textured mats and bulbous, blind growths that have evolved to harvest moisture directly from the kinetic friction of the wind and the metabolic heat of the fauna. They are colored in deep ochres, bruised purples, and dusty teals—pigments designed to absorb specific wavelengths of dim light while reflecting thermal radiation. To the eye, it looks like a mossy forest floor; to the hand, it feels like warm, dry suede.
+
+**The Built Environment**
+Nested within this small, high-altitude bowl is a settlement that appears grown rather than constructed. The urban density is high; structures press against one another, layered vertically in the confined space. But the technology is resolutely primitive. There is no mortar, no metal, no glass. The buildings are shaped from the same ancient, eroded stone as the terrain, carved with hand tools into beehive-like chambers and interconnected tunnels. They mimic the soft geometry of the landscape.
+
+The infrastructure is a labyrinth of gravity-fed chutes and ventilation shafts, designed not for water, but for airflow. The city breathes. Because the scale is small and the density high, the built environment creates a microclimate, trapping warmth and dampening the harshness of the upper atmosphere. The boundary between the "city" and the "wild" is nonexistent; the velvet vegetation grows over the roofs and through the open archways, binding the masonry together in a slow, patient embrace.
+
+**Atmosphere and Light**
+The light is perpetually dim. At this extreme elevation, one might expect blinding solar glare, but the Cistern sits in a permanent twilight shadow, perhaps cast by higher, unseen ranges or shrouded in a high-altitude haze that filters the sun into a diffuse, amber gloom. Shadows are soft and lacking contrast. This dimness contributes to the sense of enclosure; the horizon is never visible, only the curving walls of the basin and the towering, crowded silhouettes of the stone dwellings.
+
+Despite the lack of water, the air is thick. It carries a scent of warm minerals, dried resin, and the musk of abundant life. The temperature is a steady, enveloping warmth, like the inside of a kiln that has long since cooled to a safe, habitable equilibrium.
+
+**Fauna and Sound**
+The silence one expects at such heights is absent. The Cistern is loud. The sound is not chaotic, but rhythmic and pervasive. It is the noise of a million tiny interactions: the rustle of dry-velvet leaves rubbing against stone, the clicking of chitinous limbs navigating the dense undergrowth, the low-frequency hum of air moving through the city’s carved flutes.
+
+The fauna is abundant and unafraid. In the absence of predators (the environment itself is the primary filter), life has proliferated in the niche. Blind, pale grazers move through the vegetation like ghosts, their bodies adapted to the dim light and the dry air. Avian-analogues with vast, silent wings roost in the upper tiers of the architecture, their calls echoing off the smooth, ancient walls. The density of life matches the density of the stone; every surface is occupied, every crevice utilized. The loudness is the sound of saturation, of a biosphere operating at maximum capacity within a finite volume.
+
+**Rules of the World**
+Time moves slowly here. The dynamic is glacial. Change is measured in generations of stone, not seasons. The lushness is static; the vegetation neither blooms nor dies in any recognizable cycle, but simply persists in a state of eternal, dry maturity. The city, too, is in stasis; it was finished millennia ago, and now it only weathers.
+
+The primary rule of the Cistern is *conservation of motion*. Energy is precious. Nothing is wasted. The loud sounds are efficient; the dense packing retains heat; the dry biology recycles every molecule. It is a world that has reached its final answer. Having climbed to the top of the world and endured the erasure of eons, it has settled into a perfect, warm, noisy equilibrium. It is a cathedral of endurance, a dry garden at the edge of the sky, waiting for nothing, needing nothing, simply existing in its ancient, completed form.

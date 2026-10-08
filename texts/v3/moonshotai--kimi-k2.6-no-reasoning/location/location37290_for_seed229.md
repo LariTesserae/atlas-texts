@@ -1,0 +1,57 @@
+The place has no water, yet it is lush. This is the first contradiction you must hold, and it does not resolve easily—it *lingers*, like a half-remembered pain.
+
+---
+
+They call it **the Lung**, though no one remembers who "they" were, or if the name came before the place or grew out of it like the lung-trees themselves. A single valley, perhaps three hundred paces at its widest, cupped in high stone fingers that reach up toward a sky that is not sky but *ceiling*—a permanent lid of bruise-purple cloud that never breaks, never rains, never moves in patterns that suggest weather as you know it. The elevation is high, yes, but not mountain-high. *Throat-high.* You have climbed to enter a body. The stone walls are wind-worn in ways that suggest millennia of the same motion, the same abrasion, patterns like fingerprints rubbed smooth by endless touching.
+
+And it is warm here. The warmth comes from *below*, not above. The floor of the Lung vents heat in rhythmic pulses—every seven minutes, a breath of sulfur-thick air rises from pores in the cracked mineral crust, and the lung-trees *respond*. They are not trees. They are colonial organisms, something between fungus and feather and the gill-fans of deep vent creatures, each one rooted in those thermal pores, each one rising thirty, forty, sometimes sixty feet in fluted columns that branch and rebranch into membranes so thin they are translucent. The membranes are the color of arterial blood inside, of old bronze outside, and they *flutter*. Constantly. The heat makes them flutter. The whole valley breathes.
+
+No water. The lung-trees do not want it. Their chemistry runs on hydrogen sulfide, on methane trapped in the stone, on strange sulfur-based metabolisms that would poison anything you recognize as life. Yet lush—so lush. The density is sparse only in the sense that each lung-tree claims its thermal pore, and the pores are scattered, irregular, sometimes clustered in twos and threes like gossiping old women, sometimes isolated in gaps of bare stone wide enough to build a house in. Between them: emptiness. The mineral crust, "established," weathered into patterns like dried mud or cracked glaze, warm enough to sting your palm, bearing only the faint marks of whatever built here before—depressions that might have been foundations, a single wall of stacked vents-stone half-collapsed, the occasional artifact: a tool of carved bone, a bowl that held something not food, a figure with too many joints in its limbs.
+
+Primitive technology. The builders were here, are gone, left only these _faint marks_. But the *fauna* remains. Abundant. Loud.
+
+---
+
+This is where the weirdness concentrates, where it *competes* with the dynamic turbulence and you cannot tell which is cause, which effect.
+
+The animals are not animals. They are *processes* made visible, temporary organizations of the Lung's strange chemistry. The most common—if common has meaning in a place where individuals dissolve and reform—are called **flickermen** in the old marks, though they are not men and do not flicker so much as *phase*. Each one begins at a thermal vent, coalescing from the sulfur-laden breath: first a smear in the air like heat-haze, then a defined shape, something between a manta and a centipede, flat-bodied, dozens of leg-fans that beat the air in frequencies you feel in your teeth. They are loud. Everything here is loud. The lung-trees' fluttering is a constant low roar like standing in a river in flood. The flickermen add voices—not calls, exactly, but the sound of their phasing, a crackle-pop-cascade like lightning striking repeatedly into wet wood, and beneath it something almost like *speech*, almost like *intonation*, numbers of them joining into choruses that rise and fall without pattern, without purpose you can name.
+
+They live brief lives. Minutes, sometimes. They launch from their birth-vents, they fly in turbulent spirals through the Lung, they avoid the lung-tree membranes with apparent *delight*, dodging, dancing, their crackle-voices rising to shrieks when three or four converge in the gaps between trees and some exchange occurs—matter? information? possibility?—and then they dissipate. Fall apart. Become smear again. Some last longer, hours, even days, growing larger, more complex, accumulating something that looks like *memory* in their phasing patterns, returning again and again to the same vents, the same tree-gaps, until they too dissolve and the matter that was them sinks back into the stone to be reborn, perhaps, as something else.
+
+Other fauna. **Stone-gnats**, the marks call them, though they are to gnats as hurricanes are to breath. They are the eroders, the agents of the "established" balance, though their eroding is *eating* and their eating is *change*. Swarms of mineral-dust held in electromagnetic coherence, they descend on anything that does not belong in the Lung's chemistry—you, if you stay too long in one place; your tools; your bones when you die—and they buzz. The sound is geological. It is the grinding of continents, compressed into a wasp's angry whine made orchestra. They do not touch the lung-trees. They do not touch the flickermen. They are part of the system, the dynamic, the turbulent balance that holds this impossible place in its million-year shape.
+
+And **vent-whales**. Rare. Vast. They form only at the largest thermal clusters, where a dozen pores vent together in synchronized rhythm. They are the closest thing to permanent life here, lasting weeks, months, once reportedly years—a floating island of coherent chemistry, shaped something like the lung-trees but *mobile*, drifting through the Lung on the heat-currents, feeding on the dissipating bodies of flickermen, on the mineral crust's surface chemistry, on *stranger things* that phase in from the cloud-ceiling, from outside, from wherever the Lung breathes from. They sing. That is the loudest sound. The vent-whale song is infrasonic, felt in the sternum, in the bones of the inner ear, in the fluid of the spine. It has been described as *lonely*, as *searching*, as *mathematical*. The old marks suggest the builders tried to sing back. Tried to build structures—those single scattered buildings, those partial remains—to resonate with the vent-whales, to *communicate*. The marks do not say if they succeeded.
+
+---
+
+The light. Dim. The cloud-ceiling glows faintly from within, some phosphorescence of its own substance, enough to see by, never enough to cast sharp shadow. The lung-tree membranes *luminesce* at their edges, arterial-red, a network of faint glow that maps the valley's breathing in slow pulses. The flickermen are bright when they phase in, fading to ochre as they age. The vent-whales shine at their cores with something like starlight trapped in sulfur crystal. You could read, if you had a book, if books survived here, if the stone-gnats did not find the paper. You could build, and the builders did, those faint marks, those scattered structures: a platform of vent-stone slabs balanced on a natural arch, perhaps for observation, perhaps for ritual, perhaps for something neither word contains; a carved channel in the crust, leading from a large vent to nowhere, the channel's edges worn smooth by flickermen passage; a single standing figure, the too-many-jointed one, twice human height, its material *unmarked* by stone-gnats, its face—if face—turned always toward the ceiling, the cloud, the dim glow, the *outside*.
+
+Primitive technology, yes. Bone tools. Carved stone. No metal—the sulfur would eat it, the heat would warp it, the stone-gnats would find it *interesting* in the way they find all foreign things interesting. But there is something in the carvings, the channel, the figure, that suggests the builders were not merely surviving. They were *participating*. In the dynamic. The chaos. The anthill-energy, the bazaar, the constant creation and destruction that is the Lung's only constant.
+
+---
+
+Rules of the world. You begin to understand them as you stay, if you stay, if the stone-gnats do not take you, if a vent-whale does not sing too close and stop your heart, if the flickermen do not phase through you in their dancing and leave you *changed*, marked with patterns in your skin that glow faintly in the dark and never heal.
+
+The Lung has no water. Life here does not need it. The lushness is *different*, based on different promises, different chemistry, a different contract with entropy.
+
+The sparse density is *functional*. Each lung-tree needs its vent. Each flickerman needs space to phase, to dance, to dissipate. Too close, and they merge, become something else, something brief and vast and *hungry* that the stone-gnats must work days to unmake. The emptiness between is not absence. It is *possibility*, held in reserve.
+
+The scattered built structures—they are not artifacts of habitation, not really. They are *markers*. Attempts to hold pattern against the turbulence. The builders knew, perhaps, that permanent settlement was impossible. They passed through. They sang. They built what they could and let the stone-gnats take what they could not maintain, and what remained became part of the Lung's established balance, its weathered equilibrium, its long-existing in-its-own-state.
+
+And the turbulence, the dynamic, the chaos that should break all this down—*it sustains it*. The constant creation and destruction of flickermen, the venting rhythm, the phasing light and crackle-song and whale-song and the flutter-roar of gill-trees in hot mineral wind: this is not the Lung despite the chaos. This is the Lung *because* of it. The chaos is the order. The turbulence is the breath.
+
+---
+
+You stand in the single gap where no vent has ever opened, the one place of true emptiness, cathedral-scale, grove-or-room scale, a boundary-marked space where the old marks suggest the builders came to *listen*. The stone-gnats avoid it. The flickermen dance around it, never through. Even the vent-whales, when they pass,他们的歌声 changes, becomes harmonic, becomes almost *respectful*.
+
+In this gap, the loudness becomes—does not diminish, but *organizes*. You hear the valley as organism. The seven-minute venting rhythm as heartbeat. The lung-tree flutter as respiration. The flickermen crackle as neural firing, as thought, as dream. The vent-whale song as something deeper, something slower, the Lung's own version of memory, of identity, of *self* spread across mineral and sulfur and phasing temporary life.
+
+There is no water here. There is no water. And yet it is lush, warm, high, established, small and sparse and scattered with primitive marks, dimly lit and loudly singing, abundantly populated, strange beyond easy naming, turbulent with life that is not life, chaotic with order that is not your order.
+
+The Lung breathes. The Lung has always breathed. The Lung will breathe when you are gone, when your bones are marked and taken, when the too-many-jointed figure turns its face to find another sky.
+
+You breathe with it, sulfur-warm, mineral-strange, loud with voices you cannot translate, and you are, for this moment, part of its lushness, its sparsity, its impossible held contradiction, its *self*.
+
+The vent pulses. Seven minutes. A new flickerman phases in. Somewhere, a vent-whale begins to sing.
+
+The Lung.

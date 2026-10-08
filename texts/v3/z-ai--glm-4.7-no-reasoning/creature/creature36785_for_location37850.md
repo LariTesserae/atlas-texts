@@ -1,0 +1,17 @@
+The water here is heavy, a tepid and viscous suspension that presses against the skin like a weighted blanket. It is not the clean, cold brine of the open ocean; this is a thick, mineral-rich broth, warm enough to encourage a sluggish metabolism, yet devoid of comfort.
+
+This is a submerged pocket, a hollowed-out cavern of the crust that feels less like a geological feature and more like the interior of a massive, rusted lung. The light here is negligible, a bruised purple twilight that struggles to penetrate the murk. Illumination comes only from the erratic, dying pulse of discharge lamps bolted to the high ceilings and the pale, sickly glow of overheating metal.
+
+The environment is "urban" only in the sense of its complexity and organization. It is a city of machinery, a vertical shantytown of industrial infrastructure suspended in the dark. Massive gantries, rusted catwalks, and spherical pressure habitats hang in the void like the hives of iron bees. Yet, despite the intricate construction, the space is shockingly empty. The scale is deceptive—a hidden, claustrophobic intimacy that feels infinitely larger due to the sheer distance between structures. You can drift for minutes in the open water, kicking lazily through the brine, without encountering a solid surface, while the geometric silhouettes of distant machinery retreat into the gloom.
+
+There is no green here. Vegetation is non-existent, a sterile kingdom of mineral and alloy. The surfaces are weathered and established, covered in a thick, fuzzy blanket of grey silt and rust that looks like decayed skin. The metal is pitted, eaten away by centuries of chemical reaction, yet the structural integrity remains terrifyingly intact.
+
+Life is rare. Occasionally, a translucent, blind crustacean the size of a dinner plate scuttles over a rivet, indifferent to the surroundings. It is a scavenger in a machine that has no use for flesh.
+
+The defining characteristic of this place is the noise. It is deafening. The water acts as a perfect conductor for the industrial thrum, transforming the fluid into a physical force that vibrates against the chest cavity. Massive pistons hammer somewhere deep within the superstructure, throwing shockwaves through the liquid. Gears the size of townhouses grind against one another with a screeching, wailing torque that drowns out thought.
+
+The dynamic nature of the environment is turbulent and chaotic. The station is alive in a way that biology never achieved. Walls shift; massive plates of steel slide shut and open with the speed of a striking predator, altering the currents and crushing the water in hydraulic pulses. Thermal vents, the engines of this submerged factory, belch jets of superheated water that boil the surrounding brine, creating violent, localized vortices.
+
+The technology is industrial, raw and unpolished. It is a place of smelting and stamping, of energy generation on a massive scale. There is a slight weirdness to the autonomy of it all—a "Ghost Rig" effect. The machines run themselves. There are no operators, no maintenance crews, only the rhythmic, deafening choreography of pistons and fans, operating in a state of perfect, turbulent balance in the dark.
+
+To be here is to be a speck of dust floating inside the wristwatch of a titan, watching the gears spin endlessly in the warm, silent deep.

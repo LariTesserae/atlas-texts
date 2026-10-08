@@ -1,0 +1,11 @@
+What lives here is the continent itself.
+
+It is not a container for life so much as life that has achieved continental scale—an organism whose tissues are measured in hundreds of meters of depth rather than centimeters, whose circadian rhythm is the tidal rise and fall of its own surface, whose metabolism is measured in the slow migration of mineral veins through living cellulose and the perpetual circulation of three phases of water.
+
+This living land breathes with a single pair of lungs whose diaphragm is the entire surface, inhaling mist and exhaling terpenes every few minutes. Its blood is the pressurized, super-cooled aquifer that jets skyward whenever a stem is wounded, then rejoins the endless drizzle. Its nervous system is the network of piezoelectric cellulose that converts the thunder of water and snapping xylem into actual electricity—slow biological lightning that rewires the solar panels of its own leaves even as you watch.
+
+The granite at its core is not bedrock but an ever-renewing skeleton, continually clad in thin obsidian glass that the roots dissolve and redeposit. The nacreous spore layer kilometers overhead is not sky but a living cornea that filters radiation and returns it as bruise-violet light—enough to drive photosynthesis, never enough to cast shadows.
+
+Nothing here is still because stillness would be death. The entire structure is in constant peristalsis: galleries dilating like heart valves, pressure waves racing across the leaf canopy as autonomic weather fronts, protein turbines spinning in every cell wall to transmute the continent's own roar into sugar. The sugar rises in glimmering vesicles until it bursts into new mist, completing a closed loop where sound becomes chemistry becomes light becomes motion becomes sound again.
+
+What lives here has no name because it has not finished becoming. It is still deciding its shape, still inventing its own rules moment by moment, a geophysiology so vast and integrated that the distinction between organism and environment has ceased to be meaningful. To walk upon it is to be inhaled and exhaled by something that has no lungs, only the whole of itself.

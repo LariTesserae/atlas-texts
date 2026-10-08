@@ -1,0 +1,43 @@
+You do not prepare for this place as you would for a dive on Earth. This is not the ocean; it is an ocean wearing the skin of a machine. To step into that water is to enter the circulatory system of something built, something young and hungry and loud. An ordinary human—traveling between worlds, yes, but still merely flesh and bone and fragile ego—must become a creature of pressure, of silence, and of geometry.
+
+**First, the Vessel of Your Flesh**
+
+Your skin must not touch that water. Not because it is caustic—though the ozone and metal would burn your membranes, and the microscopic flakes of industrial precipitate would scour your lungs like sandpaper—but because the weight of it will crush you. This is deep. The description speaks of continental distances, of a surface that may be a ceiling of artificial luminosity, of a depth where the blue-white light is diffuse and eternal. You need a suit that does not merely resist pressure but *negotiates* it. A hard-shell exoskeleton, perhaps, or a flexible membrane rated for abyssal trenches and beyond. The water presses with "mineral weight"—dense, sharp, clean. Your suit must be ceramic-plated at the joints, reinforced at the fingertips, because the terrain below is not earth but freshly machined alloy and compressed stone, edges that "catch the illumination like knife-blades." You will snag. You will cut. Wear something that laughs at lacerations.
+
+Thermal regulation is not optional. The chill here is "steady," a seep into metal and flesh alike. Pack active heating elements woven through the suit’s lining, battery packs that can sustain twelve hours of warmth against a cold that never relents. Hypothermia will find you in the thermal shadows between the artificial vents, in the stratified layers where warm plumes rise and cold water settles. Dress for winter in a world that has no sun, only lamps.
+
+**The Silence You Must Carry**
+
+The sound will kill you if you are unprepared. It is described as "overwhelming," a "physical pressure against the ears," the white-noise of planetary plumbing—the groan of turbines, the hammer of pistons, the rush of fluid through pipes "the diameter of canyons." You cannot simply put in earplugs. You need active acoustic dampening, a helmet that generates counter-frequencies, or perhaps bone-conduction communication that bypasses the ear entirely. You will need to hear the fauna—the clicking of the crustacean shells, the whine of the eel-predators—but you must be able to *choose* when the machinery speaks. Carry a recording device, but keep your nervous system isolated from the roar. Prolonged exposure to that cacophony will fray your mind; the silence of the suit’s interior must be a sanctuary you can retreat into, a pocket of stillness against the grinding breath of the world.
+
+**Breathing the Machine**
+
+Do not breathe the water. It tastes of ozone and metal, and it is thick with "drifting particulate of industrial output"—microscopic metal flakes, chemical precipitate, the detritus of engines. You need a closed-circuit rebreather, a scrubber that can handle industrial solvents and heavy metals, not just carbon dioxide. Your air supply must be self-contained; the "biofilm" on the walls and the engineered kelp may produce oxygen, but they are alien, and their byproducts are unknown. Bring redundant tanks. The distance between structures is vast—"islands in a sea of liquid space"—and you may be swimming for days between the factory complexes. Plan your gas like you are planning a spacewalk, because in this hollow cathedral, you are just as isolated.
+
+**Movement Through the Void**
+
+Swimming is futile. You could swim for days in a straight line and encounter nothing but water. You need propulsion. A manta-wing suit, perhaps, or an underwater scooter with a range measured in kilometers. But more importantly, you need a navigation system that can map the "veins" of pipeline, the angular ridges of the synthetic terrain, the thermal highways that the fauna use to travel. The light is constant, "neither brightening nor dimming," a perpetual noon that offers no shadows for orientation. You will become lost in the blue-white haze. Carry sonar. Carry a tether—a thin, high-tensile filament of carbon-fiber that you can follow back to your entry point, because the emptiness is profound, a "cathedral of negative space," and it will swallow your sense of direction.
+
+Magnetic boots might serve you well on the metal outcrops and the alloyed stone, but beware: the structures are "young," freshly laid, with "scars of recent excavation." There may be loose debris, sharp ceramic shards waiting to slice. Move with the care of someone walking through a fresh construction site that happens to be at the bottom of the sea.
+
+**The Fauna and the Machine**
+
+Life here is abundant but alien. The silver, scale-armored fish move in synchronized spirals—they are beautiful, but they are also food, and where there is food, there are predators. The eel-like creatures are "long and segmented," patrolling the pipeline shadows. They are likely territorial. The crustaceans are "the size of dogs," their shells clicking against metal, scraping bacterial mats. They may not attack, but they are large, and they are armored. The massive filter-feeders, translucent and bell-shaped, drift near outflows—stay clear of the intake grates, for the machines "draw water through massive intake grates" with force, and you do not want to become part of the planetary filtration system.
+
+Carry a deterrent, but make it sonic. The fauna here is attuned to vibration and the "exhaust of engines." A pulse of ultrasound might scatter the fish, confuse the predators. Chemical deterrents may fail in this engineered soup. Better yet, carry a cloaking device—something that mimics the thermal signature of the machinery, or the silver flash of the fish schools. Blend in. You are the intruder in a closed loop of industry and biology.
+
+**The Psychology of Eternal Noon**
+
+There is no night here. The light is "normal and even as daylight," filtered through fathoms of liquid, constant. Your circadian rhythm will fracture. Bring a sleep mask that blocks all light, or a helmet with an internal display that simulates darkness. You will need eight hours of artificial night to keep your mind from unraveling in that perpetual blue-white glow.
+
+Prepare for the hollowness. This is a place of "profound emptiness," a vast volume filled with cold, luminous water and the echo of machinery. It is not claustrophobic—it is the opposite, an agoraphobia of liquid space. You will feel the weight of all that water above you, even if the surface is a ceiling of lamps, even if the depth is impossible to measure. You will hear the world breathing around you—the "rhythmic pulsing of the pumps," the "endless, grinding turnover of water"—and you will feel small. Meditate on this. Accept it. The world is young, sharp, and synthetic; you are soft, temporary, and brief. Make peace with the geometry.
+
+**Logistics of the Deep**
+
+Map the "islands." The factory complexes, the pumping stations—these are your oases, your waypoints. But they are dangerous. "Engines thrum deep within their housings," and the water is expelled "with force." Stay clear of outflows; the thermal shock and the current could tear you from your moorings. The pipelines stretch across the floor like veins; they may be safe to follow, but they are also "unweathered," freshly laid, and may shift or rupture.
+
+Carry cutting tools. Not for defense, but for rescue. If your tether snags on a knife-blade edge of ceramic, you must be able to free yourself. Carry a beacon—a strobe that can cut through the particulate haze, a homing signal for any rescue team, or for your own return journey.
+
+And finally, carry a journal. Waterproof, obviously, or digital and pressure-sealed. Because this place is "freshly made," and you are witnessing the birth of a world that is not natural but built—a planetary-scale foundation poured and machined to hold an ocean. You will want to remember the taste of the metal in the water, the sound of the crustaceans clicking like rain, the way the light never changes. You are visiting a machine that has learned to be an ocean. Treat it with the reverence you would give a cathedral, and the caution you would give a factory floor.
+
+When you descend, remember: you are not swimming. You are being processed.

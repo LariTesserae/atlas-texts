@@ -1,0 +1,58 @@
+What lives there is not one creature, but a whole patience of bodies shaped by cold, distance, and the reluctance of sound.
+
+The plateau’s inhabitants are animals of lowered profiles and conserved gestures. They do not waste height, heat, voice, or motion. They are built as if the land has pressed its palm over them for generations and taught them to survive by becoming broad, quiet, mineral-colored, difficult to startle, difficult to see.
+
+The most numerous are the grazers: long-backed, thick-coated animals with narrow legs and low skulls, neither quite deer nor goat nor antelope, though containing memories of all three. Their coats hang in layered mats, dark at the roots and pale with frost at the tips, so that from a distance they seem less like furred bodies than moving weather stains on stone. Their heads are wedge-shaped, their lips hard and precise. They scrape lichens from basalt with black chisel teeth, lift crusts of frozen moss with the sides of their muzzles, and stand for long periods breathing over a patch of ground before deciding whether it is worth the effort to feed.
+
+Their eyes are set wide and slightly high, amber or greenish in the dim light, made for reading movement across huge distances. They do not bunch into panicked flocks. Instead they arrange themselves over valleys and saddles in loose, breathing geometries. A mother may be several hundred paces from another, and yet still be part of the same herd. Their social life is spacious. They know one another by gait, steam, horn-angle, the rhythm of scraping. Calves learn early not to cry unless pinned or taken. Their first lessons are the locations of warmth: the lee side of stone, the black gravel bowls, the hollows where bodies gather, the faintly heated soil above geothermal seams.
+
+They migrate not in seasons alone, but in response to subtler cues: a taste in the frost, a pressure in the air, a change in the mineral wetness of a basin, the appearance of certain pale films on pools. Their routes are old enough to have become shallow architecture. They do not merely cross the plateau; they write it, slowly, with hooves.
+
+Among them move the larger watchers. These are heavier, solitary or paired animals, shaggy to the point of shapelessness, with shoulders like fallen boulders and faces mostly hidden behind hair rimed white. Their horns or antlers grow irregularly, not in elegant symmetry but in practical, battered extensions: one side forked and polished, the other broken, regrown, twisted by old injury and mineral deficiency. They stand on dark ridges and watch the valleys for hours. Sometimes they descend to graze, sometimes to challenge, sometimes only to occupy a place where the wind brings information.
+
+They are not predators, exactly, though smaller animals avoid their feet and tempers. They are keepers of position, animals of dominance and memory. During storms the grazers orient around them without appearing to. During breeding seasons their contests are nearly silent: a slow approach, steam from nostrils, the brief terrible knocking of horn against horn, then stillness again. The defeated animal withdraws without ceremony and may stand alone for days, snow accumulating along its spine.
+
+There are burrowers beneath the gravel crust. They are small, blunt, warm, and almost never fully seen. Their tunnels make delicate subsidence lines across the ground, as if the stone were covered in erased writing. They live where frost, geothermal seepage, and old carcass chemistry create enough underground softness for roots, fungi, larvae, and stored moss. Their fur is dense and ash-colored; their claws are pale and curved; their ears are nearly absent. They communicate by tapping the tunnel walls with jaw or forepaw, sending dry signals through gravel. To surface is dangerous, so they do it briefly, often in fog or under the shadow of herds, gathering shed hair, lichen flakes, dung fragments, seeds, beetles, the softened edges of bone.
+
+In the black pools live pale amphibious creatures that seem almost unfinished by light. They are slick-backed and broad-mouthed, with skin the color of old fat, milk quartz, or the underside of fungus. Their eyes are circular and lidless, opening flush with the water surface before the rest of them rises. Some have external frills like drowned moss. Some pull themselves between pools during rain-mist on short, deliberate limbs, leaving belly marks in mineral silt. They feed on microbial mats, insect larvae, drowned burrowers, and the slow organic rain from animals that come to drink. In winter they sink into mud warmed faintly from below and become almost indistinguishable from stones wrapped in skin.
+
+There are birds that have given up the sky because the ground is more reliable. Dense, soot-feathered, long-legged, and heavy-breasted, they walk the mineral flats with heads dipping like tools. Their wings remain, but mostly as shields against wind and as displays during courtship: brief dark openings lined with pale bars or metallic blue-black spots. Their calls are almost below hearing, soft clicks, throat-pulses, and exhaled notes felt more than heard when one is close enough. They pick beetles from carcass seams, seeds from brittle grasses, salt from dried pools, parasites from the sleeping edges of herds. In fog they become startlingly numerous, materializing and vanishing like scraps of burned cloth.
+
+The scavengers are fox-sized, but not foxes. They have low bodies, narrow faces, and pale reflective eyes set in dark masks of fur. Their tails are short and thick, useful more for warmth than signaling. They move with an economical trot, never bounding unless forced, and seem to appear first as suspicion, then as shape. They are patient enough to wait beside a dying grazer for a day and cautious enough not to approach until the breath has changed. Their jaws are strong for their size. Their teeth can open frozen hide given time. They cache pieces of carcass in gravel and return months later by scent through frost. Around vent fields, some grow stained yellow or rust-red from mineral vapor.
+
+Above them all are the immense gliders.
+
+They are called birds only because the air holds them and they possess wings. Their bodies are long, narrow, and dark, with heads drawn forward like spearpoints and tails extended for balance. Their wings are rigid most of the time, vast vanes built for the plateau’s slow invisible machinery: thermal seams, cliff-lift, pressure changes above basins, the faint exhalations of warm fissures. They may pass for hours without a wingbeat. Their shadows move over herds as softly as weather reconsidering itself.
+
+When they descend, the whole plateau seems to know before anything has happened. The grazers draw closer. Calves drift inward. The large watchers turn their heads. Ground birds flatten. The glider folds the sky carefully, not plunging but selecting. Its feet are long, taloned, and shockingly pale. Its beak is not hooked in a simple raptor’s curve but deep and bladed, able to open hide, crack young bone, tear frozen tissue. It does not scream. It has no need. A hunt may take an hour from first shadow to strike. If it misses, the land absorbs the failure. If it succeeds, there is brief motion, a contained collapse, then the return of quiet.
+
+There are insects too, though they reveal themselves only in intervals. Beetles with blue-black shells gather under carcasses where warmth persists. Wingless flies creep in fur. Midges bloom above sweating amphitheater walls for three dim days and vanish. Pale worms work the margins of geothermal damp. Under ice-filmed pools, microbial mats thicken into dark velvet and feed everything by degrees. Lichen, fungus, bacteria, beetle, bird, grazer, glider: the food web is slow but not poor. It simply refuses extravagance.
+
+The creatures here share certain virtues because the plateau permits no others.
+
+They are quiet. Even the predators are quiet. Voice is used for close meanings: calf to mother, mate to mate, warning at the last possible instant. Sound does not travel well and costs warmth. A bellow becomes vapor and disappears. A cry advertises weakness. So they speak with spacing, posture, breath, scent, movement along known lines.
+
+They are colored like geology. Ash, iron, frost, lichen-black, mineral white, rust-red, basalt brown. Brightness exists only in hidden places: the orange seam inside a bird’s mouth, the green shine of a grazer’s eye, the blue-black polish of a beetle shell, the auroral reflection sliding briefly along a horn.
+
+They endure rather than resist. During long cold they stand with rumps to the weather and let ice accumulate. During fog they slow. During scarcity they enter a kind of walking austerity, feeding without urgency, sleeping in shallow depressions, drawing on fat stored in hidden layers along the ribs and shoulders. Birth happens in gravel bowls, against warm flanks, with the herd arranged like a low wall around the new steam of life. Death happens in the open and is not concealed. The dead remain visible for years, then become places: beetle-house, bird-perch, lichen-garden, mineral stain.
+
+What lives there is also the plateau itself made animate.
+
+Its animals have taken on its industrial strangeness without becoming mechanical. They are not metallic, not artificial, not the products of any hand. Yet they participate in an enormous factory of cold conversion. Lichen turns stone and mist into tissue. Grazers turn lichen into heat and migration. Predators turn movement into stillness. Scavengers turn stillness into dispersal. Bones alter basins. Basins feed moss. Moss gathers frost. Frost becomes water. Water vanishes underground and returns as vapor from fissures. Everything is processed, but nothing is designed.
+
+The ruling creature of the place may be the herd, not any individual species. The herd is a slow intelligence spread across valleys. It remembers without a single mind. It knows where frost loosens first, where pools poison after long drought, where vent-fields warm the ground but soften crust dangerously, where calves can be born out of the wind. Its memory is held in elders, paths, hooves, scents, bones, and the hesitations of mothers at certain passes. When it moves at night under aurora, it resembles a thought the land is having about survival.
+
+And beneath that is another life, quieter still: the life of hidden water and mineral warmth. The burrows around geothermal seams, the pale pool-creatures, the mats beneath ice, the insects waking in carcass heat—these are the plateau’s secret organs. From above the country looks nearly barren. Up close it is full of mouths, pores, tunnels, films, eggs, spores, sleeping hearts.
+
+So whoever lives there is not a people of houses or fires, but a population of endurance.
+
+Low grazers spread across distances like weather.
+Horned watchers stand on ridges with frost in their coats.
+Pale things open their eyes in black water.
+Burrowers write under the gravel.
+Soot-feathered birds walk more than fly.
+Great silent gliders stitch the upper air.
+Scavengers wait at the edge of breath.
+Beetles, fungi, lichen, and microbial velvet perform the slow work beneath notice.
+
+They belong to a world where abundance has learned restraint, where hunger is ceremonial, where warmth is brief and therefore sacred, and where even the smallest drop of water falling from stone is answered by a mouth adapted to receive it.

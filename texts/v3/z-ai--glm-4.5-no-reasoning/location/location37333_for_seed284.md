@@ -1,0 +1,36 @@
+You enter through a pressure hatch that sweats frost. The seal closes behind you with a sound like a bone being set—quiet, definitive, final. You are now inside the Spire Throat.
+
+This is not a landscape of horizons. At extreme elevation, where the outside world is a lethal vacuum of cold and thin air, space becomes vertical and interior. The Spire Throat is a pocket metropolis embedded within the peak of a newly thrust mountain—a geological needle of basalt and obsidian that punched through the crust mere centuries ago, its features still razor-sharp, its fractures still widening. There is no sky here, only the distant ceiling of the shaft above, lost in dim haze, and the abyssal drop below, threaded with catwalks.
+
+**Terrain and Materials**
+The ground underfoot is not earth. There is no soil, no water, no rain. This is a dry mineral world, sealed and pressurized. The floors are cast plates of volcanic glass—slag from the bore-holes that created this place—fitted together with industrial precision. The walls are the living rock of the mountain itself: dark, ferrous, streaked with veins of copper and sulfur. Everything is hard. Everything edges. The youth of the formation means nothing has been rounded or worn smooth; corners catch the light—or would, if there were more light.
+
+**Atmosphere and Light**
+The air is cool and carries the taste of ozone and heated metal. It is pumped in from massive intakes higher up the spire, processed, circulated. Ventilation ducts rib the walls like arteries, and from them comes the only breath this place has.
+
+Light is scarce. The biolume of the fauna provides a sickly, shifting illumination, but the backbone of visibility comes from the industrial works. Gas-discharge lamps—flickering orange sodium and harsh white mercury—are strung along catwalks and clamped to pipes. They cast long, overlapping shadows that jump with every vibration. The deeper you look into the recesses between machinery and rock, the darker it gets. There are places here that have not seen light since the rock was cut.
+
+**Density and Construction**
+This is a place of near-touching. The density is crushing—not of people, but of infrastructure. Steam pipes, cable runs, pneumatic tubes, catwalks, ladders, gantries, pressure vessels, and machine floors are layered in three dimensions, bolted to the rock, suspended into the shaft, interleaved with walkways barely wide enough for one. You can reach out and touch the wall on one side and a humming turbine housing on the other. The built environment is settlement-scale—tens of thousands live here—but there are no streets, no plazas, no parks. Only corridors, shafts, landings, and the constant machinery that makes survival possible.
+
+There is no water. The coolant that hisses through the radiators is a non-aqueous fluoride salt, toxic and transparent. Humidity is near zero. Your lips crack within minutes. Static builds on every surface; you learn to ground yourself before touching metal, or the arc will sting.
+
+**The Fauna**
+The most striking presence is not human. The fauna here is abundant, and it is *insectoid*—but only loosely. These are the Hearth-Roaches, and they are the true residents of the Spire Throat.
+
+They are not vermin. They are infrastructure.
+
+Ranging from the size of a thumbnail to the size of a dog, their carapaces are made of chitin reinforced with absorbed copper and iron from the rock—metallic, jointed, clicking. They have no eyes. They navigate by vibration and by sensing the electromagnetic fields of the machinery. In the dim light, you see them as glints of oily iridescence, as clusters of moving shadow, as the occasional large one sitting motionless on a warm pipe, its leg joints like rivets.
+
+They eat the fungal mats that grow in the coolant seeps—not plants, but simple, dark organisms that bloom in the cracks where the salt leaks. In turn, the roaches are harvested: their shells are stripped for shim stock and electrical shielding; their fluid is an industrial lubricant; their meat, processed, is the primary protein source. There are roach-farms here—dark, humid chambers where the fungal mats are cultivated and the populations are managed. But mostly, the roaches are simply *everywhere*, crawling on the pipes, nesting in the switchgear, swarming in the under-levels where the heat exchangers radiate warmth. They are a constant, moving texture on every surface, a rustling, clicking substrate to all other activity.
+
+**Sound**
+For all the machinery and all the life, it is mostly quiet. The thick rock swallows sound. The pumps throb in a low frequency you feel in your chest more than hear. The roaches click and rustle like dry leaves. Voices are kept low—there is an unspoken rule that one does not shout in the Spire Throat, both because sound carries unpredictably in the shafts and because there is a pervasive, superstitious sense that the rock is *listening*. The loudest sound is the wind outside—the eternal, hurricane-force gale that screams against the spire's outer walls. You hear it only as a low, constant moan, felt through the stone.
+
+**Turbulence**
+Despite the quiet, this place is *turbulent*. It changes constantly. The rock is still settling. New fractures open weekly; crews scramble to seal them before pressure is lost. The machinery runs hard and runs hot; breakdowns are continuous, and the sound of welding, of riveting, of repair is the under-rhythm of every hour. The roach populations boom and crash with the coolant leaks and the fungal blooms; sometimes a section will be swarming, the walls alive with movement, and a day later, empty and clicking with shed carapaces. Air flows reverse without warning. Ladders are rerouted. Catwalks are decommissioned and new ones bolted in place. There is no stable configuration. The Spire Throat is a living mechanism in the most stressful sense—every part stressed, every part adjusting, every part close to failure and close to invention.
+
+**The Feel**
+To stand on a gantry in the Spire Throat is to stand inside a lung made of metal and stone. You feel the pump-stroke. You feel the heat of the pipes on one side, the cold of the rock on the other. You see the roaches—always the roaches—moving with purpose in the dark. You smell the sulfur, the ozone, the metallic tang of the salt coolant, the dusty fungal musk. You look up and see the shaft vanishing into dimness, catwalks crossing and recrossing like the strokes of a mad architect's pen, lights receding into a point that might be the top or might be infinity. You look down and see the same, inverted, the machinery and the life and the work descending into a dark that hums.
+
+This is a city that is also a machine that is also a mine that is also a nest. It has no outside. It has no water. It has no peace. But it has warmth, and pressure, and the endless, busy, clicking life of the roaches, and the endless, busy, roaring life of the engines, and somewhere in the tangle of it all, the people who keep it all running, who live in the roar and the dim and the crush, who know no other world, and who call this home.

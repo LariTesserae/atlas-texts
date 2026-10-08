@@ -1,0 +1,25 @@
+It is a room, though not built by hands. It is a hollow the size of a small cathedral nave, buried deep within the aggregate body of the world. The walls here are not worn smooth by the patience of millennia; they are jagged, embryonic. The stone is raw—black glass and sharp gray basalt—still bearing the scars of its violent separation from the earth. It feels like a geode that has only just cracked open, revealing a interior that is not yet sure if it wants to exist.
+
+The light is the first thing that denies the logic of depth. It is blinding, an aggressive, noon-day brilliance that floods this subterranean pocket with a clarity that hurts the eyes. There is no sun above, no discernable source, only a relentless, pervasive whiteness that seems to emanate from the moisture in the air itself. Every jagged pinnacle of raw rock, every crystal shard sticking out of the wall, throws a shadow that is razor-sharp and absolute.
+
+The air is cool and damp, tasting of iron and ozone. The dampness isn't a flood; it is an intermittent weeping. The rock sweats. Condensation slicks the walls in thick, slow-moving sheets that gather in the shallow depressions of the floor. These pockets of water are scattered and isolated, like droplets on a windshield, separated by wide, dry stretches of gravel and dust.
+
+Vegetation is scarce, a hesitant afterthought. There are no forests here, only singular, stubborn outliers. A cluster of translucent, fern-like fronds claws out of a fissure in the floor, their leaves pale and brittle. A single, gnarled tree with bark like polished iron stands in the center of the hollow, but it is stunted, no taller than a man, its branches twisted into impossible geometries that hurt the mind to trace. The green is muted, struggling against the overwhelming brightness.
+
+But where the plants fail, the life of the hollow overwhelms.
+
+The fauna is abundant in a way that suggests a biological glitch, a population explosion contained within a jar. The ground does not crunch with gravel; it shifts with the movement of tiny, hard-shelled bodies. Insects—beetles with carapaces of mirror-bright chrome, roaches with too many legs that move in a rippling syncopation—carpet the dry spaces. They are not skittish; they are lethargic, heavy with their own numbers.
+
+Larger things drift through the humid air. Flattened, ray-like creatures with the texture of wet velvet glide silently between the rock spires, undulating in the bright, sourceless light. They ignore the walls, passing partially through the sharp stone as if the boundary between solid biological matter and raw mineral geology was merely a suggestion.
+
+This is the center of the weirdness here: the breakdown of reality. The erosion score is low because the laws of friction and entropy have not fully taken hold. The world is "under construction," and the blueprints are conflicting.
+
+A beetle walks over a sharp edge of obsidian. As its leg moves, the stone ripples like water, the jagged edge softening into mud then snapping back to crystal a moment later. The geometry of the space is unstable. If you look into the corner of the room where two walls meet the ceiling, the angles sometimes sum to more than 180 degrees, creating a sense of vertigo, of the space being larger on the inside than the outside, or perhaps folding in on itself. The heavy light seems to solidify the air, making the atmosphere feel thick, like swimming in warm gelatin.
+
+Scattered amidst the biological chaos are the "built" elements—or what remains of them. They are scattered, faint marks. A spiral staircase carved into the wall leads nowhere, ending abruptly in mid-air ten feet up. Blocks of stone, perfectly square and smoothed, lie half-buried in the gravel, looking like ruins from a civilization that hasn't happened yet. They sit there, inert, while the velvet rays drift through them, phasing in and out of existence.
+
+There is a profound silence, despite the teeming life. The insects move without clicking; the wings of the rays make no sound. It is a quiet of heavy concentration, the hush of a library or a laboratory. The only sound is a low, thrumming vibration that you feel in your teeth rather than hear with your ears—the sound of the reality engine idling, struggling to render this pocket world correctly.
+
+The dynamic is active but sluggish. The water on the walls defies gravity, occasionally creeping upward to form floating spheres that hang suspended for minutes before bursting. The beetles gather in swirling patterns for no reason, their collective mind flashing with colors that exist just outside the visible spectrum, signaling to one another in a frantic, invisible language.
+
+It is a vivarium of raw creation. A bright, wet, terrifyingly busy microcosm where the edges of things are still dissolving, where life crowds into the corners of a geology that hasn't decided if it's hard or soft, and where the light is so strong it renders the shadows blacker than the void outside.

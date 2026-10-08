@@ -1,0 +1,17 @@
+What lives here does not move.
+
+It keeps to the seams in the basin floor: low colonies of wax-skinned leaves, gray-green beneath their coating of dust. Each colony is less an individual plant than a household descended in place. Its oldest roots have thickened deep inside the clay, following cool fractures no wider than a hair. New growth appears at the margins by imperceptible degrees, while the center dries into a mesh of pale fibers. A patch may take generations to cross the width of a hand.
+
+These plants preserve rather than spend. By day their leaves seal themselves against the heat; by night they admit what little the air offers. Bitter salts gather in their tissues. Beneath the surface, their roots hold minute stores of moisture and starch, enough to outlast years in which nothing favorable happens. Their rigid stalks bear closed husks like tiny clenched fists. Only under an exact conjunction of expansion and contraction do the seams part. The seeds fall close, lodging in the same ancestral fissure. Nearly all remain dormant. A few wait so long that the plant above them dies and becomes part of the dust before they wake.
+
+On shaded stone lives something slower still: thin orange crusts that seem like stains until examined closely. They occupy shallow pores in the rock and draw sustenance from traces—night condensation, mineral salts, particles carried in by the weakest wind. Their growth is measurable chiefly by comparison with the stone beneath them. A colony may spread while an escarpment loses its edge, the two alterations proceeding at nearly the same pace.
+
+Nothing grazes these lives or pollinates them. Nothing shelters beneath their leaves. There are no burrows, shells, droppings, bones, webs, or shed skins. Reproduction depends on heat, fracture, gravity, and rare contact with moving air. Death, too, is solitary. Tissue dries without being eaten; stalks split lengthwise; roots become threads and then powder. The basin’s living matter returns to the ground without passing through another body.
+
+Yet the hollow is not empty. Its inhabitants are simply too patient to announce themselves. They do not cross the open clay. They do not seek one another. Each crack is a small province, each mat an ancient lineage confined to the few inches of earth it can endure. Their scale of action belongs almost to the rocks: sealing, waiting, thickening, dividing.
+
+If anything else lives there, it lives below notice—in the roots, in the mineral crust, in films inside the deepest fissures—without sound or visible appetite. No creature lifts its head in the darkness. No eyes answer an observer’s gaze.
+
+The apparent chipped shard near the center remains outside this quiet order. Nothing now living could have shaped or carried it. It may be only stone, opened by heat along an unusually purposeful fracture. If a hand once held it, that hand belonged to a visitation so remote that the basin has absorbed every other sign. The present inhabitants offer no testimony. They close over no ruins and reclaim no path.
+
+They persist where they began, requiring almost nothing: a little retained warmth, a trace of vapor, salts drawn grain by grain from the earth. In the moonless hollow, they are less like occupants than continuations of the place—stone becoming crust, dust becoming fiber, a fissure holding life so quietly that life and endurance are nearly the same thing.

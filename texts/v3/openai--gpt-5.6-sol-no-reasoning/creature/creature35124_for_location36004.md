@@ -1,0 +1,81 @@
+The people of the plateau call themselves the **Aru**, a word that can mean *those who remain*, *those who are held*, or *those whose place has not finished happening*. They live in small households scattered across root-islands, rock shelves, and the firmer margins of reed country. To gather too many people in one place is considered both unhealthy and geometrically unwise. Paths become unreliable around crowds. Reflections accumulate errors. Doorways begin opening onto rooms they were not built to serve.
+
+An Aru village is therefore seldom more than a handful of steep-roofed houses connected by raised walks. Its true extent is social rather than visible: several distant settlements, a seasonal fishing platform, a pavilion where messages are left, and perhaps an old grove considered kin. A family may regard people three days away as immediate neighbors if the calls of their reed birds pass cleanly between them.
+
+They are patient people, though not passive. Life on the plateau rewards close attention and punishes haste less with injury than with misplacement. Children learn early that the shortest route is not always the quickest, that blue path-lights must never be followed, and that an object reflected incorrectly in lake water should not be touched until its reflection returns beneath it. They are taught to listen through their feet for the pulse of frogs, approaching storms, and the almost subliminal operation of the buried mechanisms.
+
+Most Aru are tall and broad-footed, adaptations encouraged by generations of wading and causeway travel. Their skin is kept glossy with aromatic oils that discourage biting insects and certain adhesive spores. Hair is usually braided close, with polished mineral beads whose faint clicking helps companions locate one another in mist. Their clothing is light: layered reed cloth, bark fiber, and translucent membranes shed by enormous marsh insects. During rain they wear shoulder capes made from overlapping leaves sewn while still alive. These continue to drink water and remain green for months.
+
+Every settlement has at least one **keeper of measures**. The title suggests a surveyor, but the keeper records discrepancies rather than fixed dimensions. They note where a path required eighty-seven steps yesterday and ninety today; where echoes arrived too soon; where a lake’s reflected shore showed a tree that has not yet grown. Their tools are cords, water clocks, resonant stones, marked staffs, and bowls whose paired surfaces should produce identical images. None is wholly reliable, which is precisely why several are used together.
+
+Keepers do not attempt to correct the plateau. Their work is to recognize its habits.
+
+They say every place possesses three conditions: where it lies, when it faces, and how firmly it is attached. A house may remain where it lies while briefly facing a season from two hundred years ago. A pavilion may be attached weakly enough that a view through its oval can exert pressure on the present. A blue-lit path leads somewhere real, but somewhere insufficiently attached for a traveler to depend upon returning.
+
+The oldest keepers maintain charts on cured sheets of pale inner bark. These resemble maps only from a distance. Up close they are layered records of rainfall, bird relays, tower flashes, lake displacements, vanished paths, and the movements of the slow things beneath the marsh. Important locations are not indicated by coordinates but by relationships: *the shelf reached while three frog pulses follow one tower flash*; *the grove whose eastern reflection persists after sunset*; *the house downstream in water, but upstream in sound*.
+
+No Aru claims to have built the towers. They call them **the Uprights**, and distinguish them from the pavilions, arches, panels, and fragments, collectively known as **the Courtesy**. The name does not imply benevolence. It reflects the belief that the ancient makers altered the world carefully enough for other lives to continue inside the alteration.
+
+Offerings left beside the dense ovals are acts of reciprocity. Fruit acknowledges that the plateau feeds its inhabitants. Salt acknowledges the lowlands and the sea, places most Aru never see. Polished stone acknowledges duration. If an offering disappears, no one assumes a god has taken it. It may have gone to another century, another pavilion, or simply to a neighboring shelf by a route too folded to observe. Sometimes different objects return: unfamiliar seeds, an obsolete knife, a bowl containing rainwater during drought. Such things are accepted cautiously and never sold.
+
+The Aru have little organized religion. Their ceremonies are practical forms of courtesy extended to forces whose intentions cannot be known. Before crossing an oval, a person states their name, destination, and the season they believe it to be. Before moving a fragment of pearl material, they apologize to the location from which it is taken and prepare the place where it is expected to reappear. During storms they sing lists of nearby landmarks, not to calm themselves but to remind those landmarks of their mutual arrangement.
+
+Their dead are not buried. Soil shifts too slowly, and deep water has uncertain relations with descent. Bodies are placed in woven cradles high in the joined crowns, where insects, orchids, fungi, and six-limbed tree dwellers dismantle them. The cleaned bones are recovered years later, green with accumulated mineral, and set into the low levees that hold water around the village gardens. Thus the dead become part of the structures that keep the country wet.
+
+Aru speech is rich in tenses and poor in absolutes. They distinguish between events that have certainly ended, events no longer visible, events still audible, and events that may recur because a place remembers them. One does not say that a pavilion *is empty*, but that it *contains no one from the presently shared weather*. A missing traveler is spoken of differently depending on whether their footprints, reflection, or voice remain.
+
+Songs are correspondingly slow. Some are performed across reed valleys by multiple settlements. Each household contributes a phrase when the carried note reaches it, so a single verse can take hours to complete. The singers rarely hear the whole composition. Completion belongs to the valley.
+
+Their relations with animals are neither sentimental nor sharply divided into wild and domestic. Bright cleaning birds roost freely in houses and strip parasites from people as readily as from grazers. Certain frogs are encouraged beneath walkways because their pulses reveal changes in pressure and attachment. Small translucent snails from epiphyte cups are kept in paired glass vessels; when one colony withdraws into its shells, its distant counterpart often does the same, providing warning of storms across the basin.
+
+The marsh grazers are followed, harvested, and occasionally guided, but not owned. Their seasonal paths keep water channels open. Aru herders walk among them carrying hooked poles and packets of mineral paste, treating split hooves and removing strangling vines. In exchange, they take shed hair, dung for gardens, and milk from individuals accustomed to human touch. Killing a grazer is permitted, but only after a long following. The pale cats are granted the same privilege. A herd weakened by the exclusion of predators is considered as endangered as one hunted too heavily.
+
+The six-limbed canopy animals—called **clatterhands** for their stone-like warning calls—are closer to rivals. They raid cistern gardens, steal polished objects, and sometimes unfasten roof lashings during storms. Yet they also detect unstable groves before humans do. When an entire troop abandons a crownway, the Aru avoid it, even if the trees appear sound. Some villages maintain exchange branches where fruit is left in return for whatever the clatterhands bring: shells, tower fragments that cannot be moved by people, bones from inaccessible nests, or objects lost years earlier.
+
+The great hidden beings beneath the marsh are called **Under-Reeds**. No one knows whether they are animals, colonial roots, or mobile parts of the buried machinery. Their routes turn toward the Uprights, and they seem to arrive shortly before major adjustments. The Aru do not excavate them. When a ridge of mud approaches a settlement, houses are emptied and walkways lifted aside. The passage may take a month. Afterward the disturbed soil produces unusually vigorous reeds and pearl-colored fungi.
+
+Some keepers believe the Under-Reeds maintain the towers from below. Others say the towers are merely the rigid organs of a single organism spread throughout the plateau, with pavilions as sensory pits and the dense ovals as pores. The most unsettling evidence is that injured Under-Reeds appear to alter distance nearby. One old account describes hunters driving a stake into a moving ridge; for the next thirteen years, their village could be seen from every lake on the plateau but reached from none.
+
+The Aru do not repeat this experiment.
+
+They hunt with traps, patience, and ecological knowledge. Chase weapons are of little use where distance can soften unexpectedly. Nets are more common than bows. Fishers place long woven fences in shallow lakes and manipulate the displaced reflections with polished screens, turning the ribbon predators’ own technique against them. Hunters of marsh fowl wear bark-patterned mantles and remain still for entire afternoons. Time spent waiting is not regarded as wasted. Many tools are designed to continue working unattended: rain-driven looms, drip-fed gardens, traps that close only after a specific sequence of animal calls.
+
+Metal is scarce. What arrives from the lowlands corrodes rapidly unless stored beside scavenged panels. Stone, bone, hardwood, shell, and woven materials predominate. Aru craftsmanship favors repairable structures with flexible joints. Rigid things fare badly during storms, when proximity and load can alter without warning. Houses bend, float slightly on root foundations, and are tethered in several directions—not merely to resist wind, but to preserve agreement about where they belong.
+
+The temperature-regulating panels are the most valued remnants of the Courtesy. They are never cut, since cutting is impossible, and rarely traded. A panel may form one wall of a sleeping room, an incubator for premature infants, or a cool cabinet for medicines. The Aru say the panels do not heat or cool anything. They persuade enclosed spaces to remember a more suitable temperature.
+
+Children are raised collectively within each village cluster. Their first independent task is usually to tend an epiphyte cup: clearing excess larvae, returning stranded fish to the marsh, and learning that even a vessel high in a tree participates in waters below. At adolescence, they undertake a **day of three returns**. The young person leaves alone at dawn, visits a known pavilion or lake marker, and attempts to come home by three different routes. Success is not measured by speed. They must describe what remained consistent, what differed, and which route seemed most willing to be traveled.
+
+Those who return with identical accounts are often judged inattentive.
+
+A few Aru become **edge walkers**, specialists who travel along the hanging swamps near the rim. They harvest medicinal orchids, maintain signal platforms, and watch the broad-bodied gliders. Edge walkers are among the only inhabitants who regularly see the lowlands, though distance makes them appear less like a neighboring world than a landscape viewed through deep water.
+
+The gliders fascinate them. Each animal bears a unique pattern of scars and pale veins across its folded sails. Individuals dropped into the cloud have been recorded returning from clear sky older, younger, newly injured, or carrying seeds found nowhere on the plateau. Edge walkers mark them with mineral dyes, though the marks do not always remain on the same animal. One famous glider returned bearing a woven reed band made in a style not used for six generations.
+
+Trade with the lowlands is limited by the cliff and by the plateau’s uncertain altitude. On rare stable days, goods are lowered in broad baskets beside selected waterfalls. Medicinal resins, living orchids, reflective fish scales, and self-cooling panel fragments that have willingly detached are exchanged for salt, iron, ceramics, and stories. Lowlanders sometimes attempt the ascent. Most turn back below the cloud belt. Those who reach the rim often find that far more or far less time has passed than expected.
+
+The Aru welcome visitors politely but do not encourage permanent settlement. Outsiders tend to treat anomalies as either miracles or resources. Both attitudes are dangerous. The plateau is not hostile to investigation, the keepers say, but it responds poorly to insistence.
+
+There are other inhabitants who may once have been human.
+
+Figures are occasionally seen inside pavilions that show earlier versions of the plateau. They wear unfamiliar garments and move with the deliberate gestures of people working around delicate equipment. Some seem to notice observers. A few lift their hands in greeting. One appears repeatedly: a narrow person with a dark band covering the eyes, present in views separated by thousands of years. They have been seen drawing diagrams, tending the oval, and once standing in open marsh where no pavilion exists in the present.
+
+The Aru call these figures **the Before-Folk**, though keepers caution that “before” may be only the direction from which they are easiest to see. Whether they constructed the Uprights, maintained them, or merely inherited them is unknown.
+
+There are also reports of **Unattached** people along blue-lit paths. They look like ordinary travelers seen through heavy rain. Their clothes may be archaic or not yet recognizable. They often call to those on safe paths, asking simple questions: the name of a lake, the date of a storm, whether a particular village still stands. They must not be approached. This is not because they are malicious, but because conversation can establish a relationship, and relationships are one of the ways locations become attached.
+
+An Unattached person who learns enough about the present may arrive in it.
+
+When that happens, something presently here may be displaced to make room.
+
+The daily concerns of the Aru are nevertheless ordinary. Roofs leak. Children quarrel. Grazers break garden fences. Stored grain molds. People fall in love with partners from inconveniently distant settlements. Keepers disagree over measurements and accuse one another of favoring elegant explanations over accurate ones. Songs are forgotten halfway across valleys. Offerings attract beetles. A family may spend weeks repairing a causeway only to discover that the marsh now prefers another route.
+
+Their humor is dry and often concerns impossible navigation. A common joke tells of a traveler who asks how far away a village is and receives the answer, “Two hours if it is raining, three generations if you carry metal.” Another proverb says, “Never argue with your reflection near deep water. It has chosen the easier side.”
+
+At sunset, households gather beneath their eaves. Food is steamed in leaf packets over mineral-warm water: fish, reed hearts, frog eggs, marsh tubers, sour fruit, and fungi cultivated on old timber. Elders recite changes observed that day. Children tap rhythms against walkway rails and wait for distant frogs to answer. Someone checks the markers beside the nearest path.
+
+When an Upright flashes, conversation pauses.
+
+Droplets rise. The lake surface tightens. Birds shift their feet along the roof beam. For an instant every inhabitant feels a minute correction pass through the soles of the feet, as if the country has remembered its weight.
+
+Then bowls are passed again. The insects resume at their altered pitch. Beyond the last house, something immense continues beneath the reeds toward the tower, and the Aru—attentive, courteous, and unastonished—continue living in the warm high world that has not yet decided to fall.

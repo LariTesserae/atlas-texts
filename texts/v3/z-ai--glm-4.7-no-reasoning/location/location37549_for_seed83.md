@@ -1,0 +1,23 @@
+The air is thick, a breathable soup that hangs heavy in the lungs. It is not merely hot; it is a wet, suffocating blanket that presses in from all sides, the temperature hovering just this side of unbearable. Here, below the crust of whatever world exists above, the heat does not dissipate. It is trapped, radiating back and forth between walls that are too close to ever truly cool.
+
+This is a place of iron and oil, but worn down, smoothed over, consumed by the long, slow crush of time. You are in the Belly of the Glass-Sifter, a subterranean vault of industrial logic that has been forgotten by its makers but left running.
+
+The scale is intimate yet oppressive. It feels like the inside of a clock, or perhaps the nave of a cathedral dedicated to a rusted god. The ceiling—a complex mesh of riveted beams and perforated plating—hangs low, weighed down by centuries of condensed soot. If you were to reach up, your palm would graze the slick, oxidized metal. There are no horizons here, only the claustrophobic curvature of the hull, bending away into the gloom where the light fails.
+
+And the light is scarce. The illumination is negligible, a starveling thing. It comes from the machinery itself—bioluminescent fungi that have colonized the warm, greasy joints of great pistons, and the dying, amber pulse of heated filaments deep behind glass panels. The dominant sense is not sight, but the feeling of damp warmth on the skin and the smell of old, hydraulics.
+
+It is a fully constructed environment. There is no bedrock, no natural soil. The ground underfoot is a grating of steel diamond-plate, rusted through in places to reveal a drop into the dark sump below. Every surface was made by a hand or a machine once, long ago. Yet, despite the artificiality, the place feels settled. The erosion is not violent or destructive; it is established. The sharp edges of the industry have been rounded off by a perpetual, slow condensation. Dampness weeps from the pipes, not in a flood, but in a constant, rhythmic sorrow. This is the water parameter: pockets of moisture, slick black puddles that reflect the amber lights, collecting in the depressions of stamped metal floors.
+
+Vegetation is sparse, a desperate afterthought. Here and there, a single, pale stalk of something like a fern pushes through a seam in the floor grating. It is white, lacking chlorophyll in the absence of sun, feeding instead on the grease and the minerals leaching from the rust. It does not grow tall; it merely exists, a fragile ghost in the machine.
+
+The density of the space is startling. It is not crowded with people, but with *presence*. Pipes, valves, pressure gauges, vents, and ducts coil around one another in a tangled knot of metal. It is a dense thicket of industry, a wall of components so thick that the original structure of the room is hidden beneath the accretion of repairs and additions. It is a high-saturation volume, packed tight with the machinery of an unknown purpose.
+
+The technology is industrial, heavy, and mechanized. Great engines—reciprocating masses the size of railway cars—sit silent or turning so slowly their movement is imperceptible. They do not roar; they throb. A deep, sub-sonic vibration travels up through the soles of your boots, the heartbeat of the place. Occasionally, a mechanism shifts—a hiss of steam escaping a vent, the metallic *clunk* of a toggle throwing itself—and the sound is startlingly loud in the quiet, before fading back into the hush.
+
+Fauna is rare. You might hear the skittering of something hard-shelled in the darkness—a crab-like creature evolved to navigate the sharp edges of the gears, perhaps blind, feeling the vibrations with its legs. But you will not see them. They are rumors in the dark.
+
+There is a weirdness here, a deviation from standard physics or biology. The condensation that coats the walls does not behave exactly like water. It beads up into perfect spheres that roll uphill, defying gravity for a moment before sliding into a vent. The air smells of ozone and cinnamon. The silence feels heavy, as if the darkness itself has mass, pressing against your ears.
+
+Everything is slow. The dynamic of the place is glacial. The gears above, visible through the grates, might take a full hour to complete a single rotation. This is a landscape of patience. It has been running like this for centuries, and it will run for centuries more. It is not waiting for anything. It is simply *being*—a hot, dark, wet iron lung buried in the earth, breathing in and out in a cycle that spans ages.
+
+To stand here is to be an intruder in a digestive tract of steel, sweating in the dark, listening to the slow, wet grinding of the world turning over.

@@ -1,0 +1,47 @@
+# The Lofted Shelf
+
+I begin with the cold, because the cold is what arrives first — not a freezing, but a thin, insistent chill that rides down off the heights and settles into the joints of anything warm-blooded foolish enough to be out in it. The air is thin up here. It tastes of metal and dry dust and something older, something mineral that has had ten thousand years to evaporate out of the rock.
+
+The land is a plateau — no, a shelf, because plateaus imply edges that have been fought over and measured and named, and this place has not been fought over. It simply is. The shelf runs for hundreds of kilometers in every direction, broken not by cliffs but by long, sloping descents: tablelands stepping down into broader tablelands, each one slightly lower, each one slightly warmer, until somewhere far to the south the elevation finally bleeds out into something that might be called a lowland. From up here, that lowland is not visible. What is visible is the next shelf, and the next, and the haze that gathers where they meet.
+
+The rock is dark. Basalt, mostly, or something that wears the same way basalt does — black when freshly split, greying to the color of old iron when the weather has had its way. It is old rock. Old in the sense that it has settled into its own shape, that the fractures in it have become features, that what was once a sharp edge has rounded itself into a slow curve over deep time. Water has done this work, sparingly, in patient episodes: a downpour that lasts three days and is not seen again for a year, condensation that gathers in the hollows overnight and evaporates by midmorning, the slow capillary creep of moisture up through porous stone. The plateau is not carved. It is polished, the way a stone is polished in a riverbed, except that here the river is mostly absent and the polishing is done by patience.
+
+There are pockets. That is the first thing to understand. The water lives in pockets. A crack in the basalt holds a green smear of moss and, beneath the moss, a dark seam of damp. A shallow depression on the rock surface, no deeper than a thumbnail, contains a film of liquid that disappears if you stare at it. Somewhere in the distance — always somewhere in the distance, because they are never close — there is the suggestion of a standing body of water, a sheen across the stone that does not move and that, when you approach, is gone, and reappears elsewhere. The locals, if there were locals, would have a name for this. There are no locals.
+
+What grows here grows in defiance of arithmetic. It should be nothing. By all rights the combination of high elevation, thin air, intermittent water, and thin soil should produce bare stone and nothing else, and yet the stone is not bare. There are things on it.
+
+The dominant growth is a kind of lichen, sprawling, plate-like, the color of dried blood where it is old and the color of pale verdigris where it is young. It forms maps on the rock — continents, archipelagos, slow currents. It is not beautiful in the way a meadow is beautiful. It is beautiful in the way that any evidence of life in a hostile place is beautiful, which is to say it is beautiful because you did not expect it.
+
+There are also, here and there, things that are not lichen. They are not quite plants, either. They have a thick stalk, gray, almost woody, that rises six inches to a foot off the rock and then forks into something that is either a flower or an antenna or a small awkward hand. They are not numerous. You might walk for an hour and see three. They do not appear to be in any hurry. They do not appear to be going anywhere. They exist in a way that suggests they have consulted the conditions and decided, on balance, to continue.
+
+The fauna is the thing that does not fit, and the thing that, once you see it, makes the rest of the place make sense.
+
+The shelf is inhabited.
+
+Not by much. Not densely. But the rock moves.
+
+What moves across the basalt is something you would call, in a moment of generosity, a beetle, and in a moment of precision, nothing you have a word for. They are the size of your thumb, or your hand, or your forearm, and the size varies, and the variation seems to mean something — perhaps age, perhaps caste, perhaps something else. Their carapaces are the same dark iron-grey as the rock, and when they are still, they are invisible. When they move, they make no sound you can hear at any distance, only a faint dry ticking when you put your ear to the stone. There are millions of them. You do not see them as individuals. You see them as a slow shift in the texture of the rock itself, a tide that moves across the shelf in a direction that is not wind and not sun and not, as far as you can tell, anything. Something else.
+
+They feed on the lichen. Or the lichen feeds on them. Or the relationship is more complicated than either verb can hold. The lichen maps change over weeks, retreating from one fracture, advancing down another, and the change correlates with the beetles' movement, but correlation is not explanation, and the explanation, if there is one, is not in any language that exists.
+
+What the beetles do not do is anything that could be called engineering. They do not build. They do not accumulate. They do not leave structures behind. They pass across the stone, and the stone is changed, and the change fades. They are a process, not a civilization.
+
+And yet.
+
+And yet there are sounds.
+
+The plateau is mostly quiet, but it is not silent. The wind, when it comes, is a flat dry sound, like paper being slowly crumpled. There is the ticking of the beetles, which you have to be still to hear. There is, in certain places — and only in certain places — a low hum. It is not mechanical. It is not biological, not exactly. It has a resonance, a tonal quality, as if the rock itself were vibrating at a frequency just below hearing. You feel it in the soles of your feet before you hear it with your ears. The places where it occurs are the places where the beetles are densest, and they are also the places where the lichen grows thickest, and they are also the places where the rock, if you examine it closely, has a faint pattern of fine scratches on its surface. The scratches are old. The scratches are everywhere. The scratches are not random.
+
+I do not say this to imply design. I say it because the rock bears the marks of long habitation, the way a riverbed bears the marks of long water, and the marks are not deliberate but they are not meaningless, either. They are what happens when a thing persists in a place for a very long time. The shelf has been inhabited for longer than the lichen can remember. The lichen cannot remember. But the rock can, in its way, and the rock is telling me something I do not have the apparatus to translate.
+
+The light is dim. Not dark — the sky is visible, and during the day it is the color of weak tea, a pale brownish-grey that does not brighten no matter how high the sun climbs. The sun, when it is not occluded by haze, is a disc you could look at, a featureless copper coin hung in the middle of nothing. There is no blue. There has perhaps never been blue. The light arrives already tired, already filtered, and by the time it reaches the basalt it is the kind of light that does not cast strong shadows, only faint smudges, so that the topography of the place is always slightly ambiguous, slightly uncertain. You can walk along what seems to be a ridge and find that it is a shallow depression, or vice versa. The landscape does not lie to you. It simply does not go out of its way to clarify.
+
+At night, the dark is not absolute. There is starlight, and the starlight here is strong, because the air is thin and clear and there are no competing lights. But the stars are wrong, or seem wrong — not in their arrangement, which is the arrangement of stars, but in their color, which leans toward a deep amber that should not be possible, and in their stillness, which is the stillness of things that have not moved in a very long time. They do not twinkle. They burn, faintly, like the embers of a fire that has been banked.
+
+The wind is the most active thing. It moves across the shelf in long slow sweeps, picking up fine dust and carrying it for hours before dropping it. The dust is the color of the rock, slightly redder, and it accumulates in the lee of every obstruction, forming small drifts that migrate over weeks, over months. The wind does not howl. It hisses, faintly, and the hiss is the closest thing the plateau has to weather.
+
+What I have not described is the thing I cannot describe, which is the sense the place gives of being unfinished. Not in the sense that it is being built. In the sense that it is still becoming whatever it is going to become, and has not yet decided, and may not decide for another thousand years. The beetles are part of this. The lichen is part of this. The faint hum in the rock, the scratches on the stone, the dust that moves and the water that doesn't — all of these are processes underway, a chemistry that has been running for longer than I can imagine and will run for longer than I can imagine, and I am here for the duration of an afternoon, which is to say, for no duration at all.
+
+The plateau does not care that I am here. This is not hostility. It is the indifference of a thing that has its own concerns.
+
+I will leave it to them.

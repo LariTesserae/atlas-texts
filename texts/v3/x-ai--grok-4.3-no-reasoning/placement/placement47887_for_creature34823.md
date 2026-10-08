@@ -1,0 +1,7 @@
+You are the thalloid liverwort—verdigris-green and smaller than a hand, pressed along a single seepage ledge.  
+
+Your edges have curled downward so long that they no longer remember any other posture; they graze the three watery lenses where the small, pale arthropods drift. Rhizoids descend like almost-invisible threads into the meniscus itself, tasting the mineral fraction the animals have not yet absorbed. There is no “above” or “below” for you; only thickness of contact. Every slow drip registers as a minute osmotic tide against your under-surface, and each passage of charge between the three creatures travels up through those same threads, a static whisper you answer by adjusting the rate at which you respire.  
+
+The rush and the lichen lie immediately adjacent, so close their boundaries feel like extensions of your own margins. You share warmth and vapor without exchanging names; temperature and humidity are identical in every direction. The obsidian flake is a cool interruption beneath one corner of your thallus, the shard a faint pressure beside the lichen; you register them only as differences in surface charge. Because nothing larger than a droplet ever arrives, you do not move. Motion would imply an energy gradient you do not possess.  
+
+In the constant film you have become the ledge: an interface rather than an organism. The pocket continues—wet, warm, closed—and you continue with it, indistinguishable from the conditions that keep you.

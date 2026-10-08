@@ -1,0 +1,25 @@
+The rain finds its way down here eventually. It takes three days. Three days of seeping through the crust of the world, threading the old subway tunnels, dripping down stairwells choked with a century of silt, until it arrives at The Cistern, and by the time it arrives it is no longer rain. It is a slick, black, mineral-rich sweat, and it falls from the vaulted ceiling in ropes thick as your wrist.
+
+This is the Inverse Cathedral. A city built in a hole.
+
+No one knows who dug it. The archaeo-bots that sift the upper levels suggest it was a reservoir, once, or a bunker, or a sewer for a continent that no longer exists. But that was before the Warmth. Before the surface became a place you could only visit in a hardsuit, and only then to fix the solar arrays. Now, the hole is the world. It is roughly the size of a dozen football fields laid end-to-end, a single cavernous gullet of a place, and it is full of towers.
+
+They don't go up. They go down.
+
+The city is a stalactite. A hundred thousand lives hung in a lattice of carbon-scaffolding and self-growing bio-concrete, suspended from the ceiling of the great cave. The buildings are inverted apartment blocks, hanging like the nests of some impossible wasp. They descend in tiers, connected by a dizzying web of cable-bridges and elevator-lines that hum with a sound you feel in your teeth.
+
+The air is warm and heavy. It sits at a constant, blood-heat 34 degrees Celsius, thick as soup. This is the Gift of the Deep, the geothermal bleed from the planet’s core. It warms the water, it warms the stone, and it makes everything sweat. Condensation is the primary weather. It rains indoors, constantly. The city is in a state of perpetual, slow-motion rainfall from its own vaulted roof. Water drips from the highest walkways to the lowest, a million tiny rivulets running down the graphene superstructures, slicking the streets, pooling in the deep plazas.
+
+And the sound. God, the sound.
+
+The Cistern is never quiet. It is a drum. The constant drip-drip-drip of ten billion condensation-beads hitting water, metal, and stone creates a white-noise hiss that is the floor of the world. Over that, you have the groan of the city—the sound of a million tons of architecture shifting on its cables, a deep, sonorous whale-song of stressed composite. Then there is the hum. The machines that keep the air from becoming a poisonous fume, the water recyclers, the algae-vats that glow a sickly, bioluminescent green. It all combines into a roar. A low, tectonic roar that is less a sound and more a pressure, a constant affirmation that you are inside something immense and alive.
+
+There is no sun. Light is a commodity. It comes from the city itself—from the phosphorescent paint smeared on walkways, from the strings of cheap LEDs that delineate the high-tier neighborhoods from the low, from the cold, blue halogen floods that guard the water-processing plants. Most of the city exists in a state of permanent twilight, a gloom punctuated by islands of harsh, artificial glare. People navigate by memory, by echolocation apps on their wrist-comms, by the subtle shifts in the roar.
+
+Life is sparse, but stubborn. The ecology is a vertical desert. On the upper levels, where the moisture is purest, they grow things: fungal forests in great trays, pale orchids that feed on the metallic damp, vast mats of genetically-engineered moss that scrub the air. Down in the lower city, where the water is a black, oily cocktail of a century of runoff, life is stranger. Sightless, translucent crabs the size of dogs skitter through the flooded plazas. Moths with wings like wet paper cling to the cables. And in the deepest, warmest pools, there are things that were never engineered, things that evolved in the dark and the heat, things that the city’s sanitation-drones do not touch. They are rare, but they are there.
+
+The city is old and settled. It has found its shape. The constant drip of water has worn the original stone into smooth, organic curves. The newer, technological additions are already being broken in, coated in a thin layer of biofilm, their sharp edges softened by the humid breath of the populace. It is a stable ecosystem. The water falls, the city hums, the people breathe, the crabs scuttle. It is a closed loop, a perfect, warm, dark machine for living in.
+
+People live in pockets. A family might occupy a single, hanging pod, their windows looking out onto the vast, dark emptiness of the central cavern. Their neighbors are a hundred meters away across a swaying bridge. The space between things is immense. The city feels empty even when it is full, because it is defined by the void it inhabits. The true territory of The Cistern is not the scaffolding, but the black, echoing space it is suspended within.
+
+To live here is to live with a constant sense of pressure—the weight of the rock above, the weight of the water-saturated air, the weight of the sound. It is a place that holds you, envelops you. You do not look at the horizon here. You listen to the depth.

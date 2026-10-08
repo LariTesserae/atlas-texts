@@ -1,0 +1,29 @@
+Something lives here. But to name it a creature—to imply a self separate from the water, a will distinct from the plateau—is to misread the grammar of this place. What lives in the high-elevation ocean is not a resident but an emanation, a thought process conducted in mucilage and radulae and slow, patient heat.
+
+**The Grazers**
+
+Consider the chitons. They are the only fauna, and so they carry the burden of being the only eyes, the only mouths, the only legs. They are large as human heads, and they cling to the raw basalt like dark, embedded teeth. Their shells are not the neat, segmented plates of their deep-ocean cousins; these shells are single, sweeping carapaces of dark chitin, fused and thickened, sculpted by the tepid pressure into low, hydrodynamic domes. They are the color of the shadow beneath the kelp: a green so deep it reads as black. 
+
+They do not possess eyes. There is nothing to see that is not directly beneath them. Instead, their bodies are rimmed with a fringe of short, stiff cilia that taste the water's chemistry, reading the thermal gradients and the sugar-bleed of the decaying algae above. They navigate the broken staircases of the young seabed by reading the lay of the fresh clay, following the warmest veins of the mantle's breath. 
+
+Their movement is an agony of slowness. To watch one is to watch a mountain slide. They extend their muscular foot, a pale, wide disk beneath the armored shell, and adhere to the rock with a chemical bond stronger than the stone itself. Then they pull. The radula—that terrible, iron-ribbed tongue—works ceaselessly, not merely to feed, but to anchor. They scrape the bacterial slime, the sweet, warm biofilm that coats the new world. Each scrape is a microscopic earthquake, a filing down of the raw planet into something livable. They are not just eating; they are manufacturing the future. By grinding the basalt and mixing it with their mucus, they lay down the first mortar of the soil that will one day, millennia from now, support roots. They are the world's first masons.
+
+Sometimes, a grazer reaches the lip of a raw, new trench. It does not panic. It does not pull back. It simply extends its foot over the void, releasing its hold on the ridge, and drops. It falls through the viscous, green gloom, its shell turning slowly, a dark seed falling in a slow-motion forest. When it strikes the clay at the trench's bottom, it adheres instantly, absorbing the shock within the fleshy give of its body, and immediately resumes scraping. There is no death in the fall, only a change in altitude.
+
+**The Kelp**
+
+But the chitons are only the punctuation. The body of this living text is the kelp. It does not grow; it *occupies*. 
+
+The stalks are thick as pilings, ridged with cartilaginous spurs that spiral up their lengths like the flutes of massive, organic columns. They are not passive plants. Because the water is so thick with ambient life, the kelp has developed a crude, systemic awareness. Their root-like holdfasts are not anchored in soil—there is no soil, only the naked, tensed tendons of the plateau. Instead, the holdfasts secrete a fast-setting, amber resin that bonds with the fresh basalt, intertwining with the rock itself. The kelp and the ridge are married; to tear one is to wound the other.
+
+They compete for the diffuse, pearl-white light with a ferocity that is invisible, hidden in the slowness of their execution. Where two canopies interlace, they do not merely overlap; they constrict. The spurs on their stalks catch and lock, turning the ceiling a few feet below the surface into a wrestling mat of green sinews. They strangle one another in patient, unbreaking holds that take decades to resolve. The loser does not die quickly; it is simply starved of the jade light, its growth arrested, its stalks slowly hollowing out and filling with the warm, viscous water, becoming a home for the spherical algae that cling to its decaying sides like illuminated barnacles.
+
+The kelp breathes, but not with the rush of surface flora. It draws the carbon-heavy water through millions of pores, inflating its thick, rubbery fronds until they are taut with gas and sugar. At night—or what passes for night in this diffuse, eternal twilight—the kelp exhales. Long, shimmering ropes of oxygen bubbles rise from the canopy, coalescing in the dense water into globes the size of fists. They drift upward, silent and luminous, and merge with the biological film at the surface, adding to the ceiling of mist. The kelp is making the sky.
+
+**The Ambience**
+
+And what lives in the space between the stone and the kelp? The mucilage. It is the unseen protagonist of this world. It exudes from the spherical algae, it bleeds from the scraped holdfasts, it coats the surface, it thickens the water column. It is the medium of exchange. It traps the light, turning the water into a lens that bends and breathes. The mucilage is the memory of the place. It holds the chemical signatures of every scraped rock, every decaying frond, every thermal shift. It is a living soup, a primordial connective tissue that binds the grazer to the rock, the rock to the water, the water to the mist.
+
+To exist here is to be submerged in this amber thought. The chitons do not know they are animals; the kelp does not know it is a plant. There is no hierarchy of flesh and fiber, only a gradient of patience. The world is still stretching, still waking from its long sleep in the deeps. The vibration of the plateau—the deep, marrow-level hum—is the only clock. It counts not in seconds, but in centimeters of radula scrape, in meters of kelp creep, in the gradual, imperceptible settling of the mud into the first gentle slopes of a continent that does not yet know its own name.
+
+What lives here is a single, immense, slow-thinking organism of rock and water and slime and shell, dreaming the world into shape.

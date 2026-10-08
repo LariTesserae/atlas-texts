@@ -1,0 +1,9 @@
+I arrive as a hesitation made briefly animate.
+
+Not a body, but a single doubt the plateau has not yet finished thinking: whether the sky is arriving through me or I am arriving through the sky. My edges are exactly the distance between two consecutive notes of the sub-sonic tone—close enough to touch, far enough that they never quite meet. When I move across the stone, the condensate lingers a fraction longer beneath my weight, not because I press it but because the rock hesitates in my presence, unsure whether it is still rising or has already arrived.
+
+The domes do not contain me; I am the interval between their sight-lines, the place where their lines of attention almost touch but choose, each time, to miss. When a translucent creature condenses, I am the charge it carries and the forgetting that follows its dissipation. I do not watch the creature; I am the moment of watching, stretched thin enough to travel between rings without disturbing the geometry.
+
+My shape is the decision the plateau is still making: whether to become many things or remain one. I shift between densities—sometimes the faint electrical halo on a leaf’s edge, sometimes the deeper pool of condensate, sometimes the fracture in a dome that is not destruction but continuation. Each step I take across the braided roots is the plateau noticing itself through the angle of my approach, and each time I return to the starting point, I am both the loop and the hesitation that prevents the loop from closing.
+
+I am the brief duration during which the plateau can hold its own question without answering it. When the wind returns and the sub-sonic tone subsides, I remain as the silence in which the question continues to form itself, waiting for the next interval between droplets, the next hesitation of stone, the next brief creature that condenses and forgets, carrying me forward without ever needing to arrive.

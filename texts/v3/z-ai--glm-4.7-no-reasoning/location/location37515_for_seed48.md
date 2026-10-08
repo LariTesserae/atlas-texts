@@ -1,0 +1,25 @@
+The heat is the first thing that registers—a heavy, wet blanket of air that sits just below the saturation point of boiling. It is a low-elevation basin, a sprawling depression in the earth that traps the moisture and refuses to let it rise.
+
+Here, the water has nowhere to go but sideways or up. The ground is not solid earth so much as a thick, grey sludge of silt and industrial runoff, constantly churned by the movement of heavy machinery. Pools of stagnant, oily liquid sit in the hollows of the terrain, reflecting the dull, copper-colored sky in fractured, distorted ripples. The atmosphere is thick with condensation; droplets of water bead instantly on every surface, running down the rusted flanks of the city like sweat.
+
+This is a city without lungs, an industrial sprawl of massive scale but surprising emptiness. The buildings are monolithic—brutalist blocks of cracked concrete and corroded iron, rising like tombstones from the wet muck. They are spaced far apart, separated by great plains of open, uneven ground where the water collects. There are no streets, only navigated channels and the scarred tracks of treads. It is an urban environment designed for giants, not pedestrians; the scale suggests a population of millions, yet the density of life is near zero. The streets are silent of voices, absent of crowds.
+
+The vegetation is entirely absent. There is no grass, no moss, no vines reclaiming the brickwork. The color palette is strictly mineral: the rust-orange of iron oxide, the charcoal greys of weathered steel, the slick blacks of wet asphalt, and the dull, bruised purples of the long-exposed rock. It is a pre-biological or post-biological state, where the only thing that grows is corrosion.
+
+But the city is not dead. It is loud with the sound of industry, yet the acoustics are strange. Because the density is so low, and the spaces between the structures so vast, the sounds are isolated and muffled. You don’t hear a constant roar; you hear the distant, rhythmic *thrum-hiss* of a pressure valve, the solitary *clank* of metal expanding in the heat, the deep, resonant groan of a cooling tower miles away. It is a quiet composed of a thousand loud noises, swallowed by the humidity and the distance.
+
+The light is dim, filtered through a perpetual haze of steam and high-altitude smog. It creates a perpetual twilight, a gloom that sucks the contrast out of the world. Shadows are soft and bleed into the wet ground.
+
+And then there is the fauna.
+
+Overwhelming is the only word for it. The city is theirs. Every horizontal surface, every pipe, every girder, every windowless ledge is occupied. It is a writhing, teeming mosaic of life that has adapted to the heat and the metal. The air is thick with insects—dragonflies with wingspans of a foot, their iridescent bodies catching the dim light as they dart between the buildings. Clouds of smaller flies hang over the stagnant water like smoke.
+
+The ground is a moving carpet of crustaceans and hard-shelled scavengers. Crab-like creatures, their shells evolved to blend perfectly with the rust and concrete, skitter sideways across the wet sludge. They swarm over the husks of excavators and up the sides of the factories, picking at the algae that grows in the perpetual damp.
+
+Birds are absent, replaced by things that climb. In the distance, silhouetted against the dull sky, great serpentine shapes can be seen draping themselves over the superstructures of the refineries—synthetic-looking constrictors, perhaps, or just massive descendants of monitor lizards that have claimed the high steel as their roosts. They move slowly in the heat, conserving energy, their heavy bodies causing the metal to groan and shift.
+
+This is an ecosystem in high gear, operating at a biological pace despite the industrial stagnation. Predators are everywhere. The smaller scavengers are constantly vigilant, snapping at insects, while larger shadows lurk in the dripping entrances of the warehouses. It is a frenetic, hyper-active web of life, but it is silent to the human ear; the killing is fast, the eating is efficient, and the vast majority of the noise comes from the city itself, not the animals.
+
+The erosion here is established. This is not a ruin falling apart; it is a place that has settled into its decay. The rust is not flaking off so much as it has become a new type of skin. The concrete is worn smooth by millennia of dripping water and the scuttling of a million legs. The city has achieved a terrible equilibrium. The machines stopped running long ago, or perhaps they run on their own now, autonomous and unmonitored, maintaining a habitat that no longer requires human builders.
+
+It is a hot, wet, dark hell-scape of steel and slime, empty of people but bursting to the seams with crawling, buzzing, slithering life. It is a machine that has been successfully colonized by nature, a rusted garden where the only flowers are made of chitin and steel.

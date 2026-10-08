@@ -1,0 +1,41 @@
+The basin is inhabited by creatures of schedule.
+
+Nothing living there mistakes the chamber for a river or lake. Its currents begin on command, its seasons last hours, and its floods announce themselves with blue lamps and the clapping of valves. The animals have shaped their lives around machinery so old and constant that it serves them as weather, terrain, and law.
+
+Silver minnows live highest, near the narrow inflow ducts. They are quick, nervous fish whose scales catch the service lamps in brief metallic flashes. Most of the time they are invisible in the upper dimness; then a pump changes pitch or drifting larvae enter on the current, and the whole school appears at once. They turn with such precision that they resemble a single torn sheet of foil. Warm cable conduits provide their grazing grounds. There they pick at translucent growths and snap up whatever the filters have failed to stop. At the first hard knock of an engaging piston, they compress into tight formations and face the flow.
+
+Below them, pale carp move across the floor. They are thick-bodied, deliberate, and dusted to the color of old plaster. Their mouths work constantly against the sediment, sorting edible matter from rust, ash, mortar, and glass grit. Behind each fish lie two wavering furrows, soon softened by the return current. During quiet hours they spread throughout the chamber, nosing around inspection covers and the edges of sunken rails. During the purge they gather beside the moving banks of silt, feeding on worms, larvae, and small crustaceans uncovered by the artificial flood. Their persistence lends them an almost workmanlike air. They do not resist the machinery, but exploit every disturbance it causes.
+
+Small eels occupy the structure itself. They inhabit bolt holes, broken conduits, severed pipes, and the dark gaps behind patch plates. Only their heads may be visible: narrow, pale faces held motionless in the current. They know the sequence of vibrations preceding the purge and vanish before the floor vents open. Some holes contain one eel for years, until the animal grows too large and abandons it for a wider pipe. Empty holes are quickly claimed by younger occupants.
+
+Freshwater shrimp live under the grilles and along the sheltered sides of brackets. Their bodies are nearly transparent, revealing dark threads of food within them, while their eyes appear as two precise black points. In gentle water they spread across the metal in crowds, picking at films too fine for fish. When the pumps accelerate, they fold themselves into seams and cling there. A few are always swept loose. These tumble through the amber light with their legs drawn close, recover against some downstream obstruction, and immediately begin feeding again.
+
+Snails cross the walls more slowly than any mechanical cycle. Iron deposits blacken their shells and make them resemble moving bolt heads. They graze algae from lamp cages, faded safety stripes, pitch seams, and the mineral crust around the leaking pipe. During the yearly shutdown, when vibration no longer shakes them loose, they venture onto panels normally too exposed to cross. Their trails make clear lines through the thin coatings of silt.
+
+The old catfish dominate the basin without truly ruling it. There are only several, and each is known—at least to maintenance crews—by its scars and habits. One has a split left barbel. Another bears a pale crescent along its back where it once survived contact with an automatic rake. The largest is blunt-headed and broad through the body, nearly indistinguishable from the floor when resting.
+
+They shelter beneath the central manifold, where the flow divides around heavy supports. Each follows a familiar circuit: out from the manifold, past the western lamp, along the lower rail, across the shining pump grilles, and back through the shadow of the intake housings. Smaller fish rise before them. Shrimp scatter or are swallowed. Their whiskers sweep over plates and drain covers, reading vibration and scent from surfaces polished almost featureless by water.
+
+Even the catfish submit to the pumps. A valve reversal can catch one broadside and shove it several body lengths through the chamber. It rights itself without panic, settles near the floor, and resumes its route as though the interruption were no stranger than wind.
+
+The basin’s plant life is sparse and localized. Algae sheath the warm lamp cages. Waterweed grows in short, battered streamers where sediment has gathered in cracks. Around the mineral leak is a mosslike colony of unusual green-gray growth, fed by chemistry found nowhere else in the room. These patches are less a landscape than a scattering of small pastures. Minnows graze them; shrimp comb them; snails leave narrow paths across them. Most nourishment, however, arrives from beyond the pressure doors and intake ducts: plankton, insect larvae, organic dust, and scraps carried down from the inhabited levels.
+
+There are smaller lives as well, less visible but more numerous. Worms thread the compacted residue under old access panels. Larvae cling inside ceramic channels. Films of bacteria coat every wetted surface, digesting the minute contributions of the districts above. Tiny organisms flourish in the warmth of cable housings and in the chemical gradients around corroding fasteners. The basin’s larger inhabitants ultimately depend on this hidden population and on the constant import of waste through the waterworks.
+
+Together they form a community organized not by daylight but by operation.
+
+In the settling hours, the carp spread out, the shrimp emerge, the snails cross open metal, and the eels lean from their holes. When the plant’s working shift begins, everyone takes station. Minnows align beneath the ducts. Shrimp move behind grille ribs. Carp descend into the lee of rails. Eels withdraw. Catfish settle behind the manifold’s supports.
+
+When the warning lamps pulse blue, the change is immediate. The fish do not understand the signal as people do, but generations of survival have attached that color to vibration, pressure, and danger. The basin empties upward as floor vents open. Then sediment rolls through the room, grilles roar, and the automatic rakes descend like blind metal predators that neither feed nor pursue.
+
+Eleven minutes later, life returns to the floor.
+
+The yearly silence troubles the inhabitants more than the ordinary violence. Without the pumps, familiar pressure vanishes. Minnows lose their station in the upper flow and drift apart. Carp pause over the sediment as if waiting for instruction. Catfish leave the manifold cautiously, their barbels extended. Shrimp clicks, feeding noises, and the minute rasp of snail mouths become audible in the still water. Gas bubbles peel from the ceiling and rise only a few centimeters before finding another coffer in which to collect.
+
+Humans enter then, armored in diving gear and trailing light. To the animals they are rare, cumbersome intrusions—large but uncertain, bright but slow, stirring silt with every movement. The fish give them room. The eels disappear. The old catfish retreat only as far as necessary and watch from beneath the manifold while gloved hands examine sensors, patches, grilles, and brittle metal.
+
+When the pumps start again, the divers leave and the chamber resumes its deeper identity.
+
+Its inhabitants are not wild in the sense of living beyond human works. They live wholly inside those works, among engineered currents and inherited repairs. Their reefs are manifolds. Their caves are bolt holes. Their floodplain is a floor of iron plates, and their weather is made by turbines behind the walls.
+
+Yet they are not merely trapped there. They feed, shelter, compete, reproduce, age, and learn the recurring sequence of the machine. The basin belongs to neither machinery nor nature alone. It is inhabited by life that has made a habitat from function—creatures for whom the endless industrial hum is not an intrusion into the world, but the sound the world has always made.

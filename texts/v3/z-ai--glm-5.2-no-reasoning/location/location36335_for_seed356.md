@@ -1,0 +1,35 @@
+# The Stand
+
+There is no ground.
+
+Or rather — the ground is a fiction agreed upon by roots so dense they have forgotten what soil meant. You stand on interlocking matwork, a living thatch built by ten thousand generations of rhizome and holdfast, layered like sediment but warm, warm and giving, warm and breathing in a slow hydraulic rhythm — a pulse of capillary action, xylem drawing water upward, phloem pressing sugar down, and the whole mass flexing underfoot by millimeters. You feel it through your soles. You feel it the way you'd feel a heartbeat through a shared mattress.
+
+It is dark. Not the dark of caves. The dark of being inside something.
+
+---
+
+The canopy — if you can call it a canopy, if *canopy* doesn't imply a space beneath, a clearing, a gap — the canopy is a solid, folded, interlocking ceiling of leaf and bark and thorn and petiole and stem, and it is perhaps three meters above the mat on which you stand, or perhaps thirty, or perhaps three hundred; the dark is so total that depth collapses and you cannot tell. The ceiling is wet. Everything is wet. Moisture doesn't fall from it so much as *gather* — forming in the dark, bead by bead, on every surface, until the beads merge and run, and the running becomes a thread, and the thread becomes a slow pour that the roots below drink as fast as it comes. The water cycle here is ten meters tall and entirely internal. Rain falls from leaf to root and is drawn back up to leaf. Nothing is lost. The system is closed. It has been closed for — you don't know. A long time. Long enough that the closedness has become a kind of law, a physics of its own.
+
+The air is warm. Twenty-five, twenty-six degrees, perhaps. The warmth comes from below — from the metabolic mass of the mat itself, from decomposition happening at depth, from the living machinery of ten trillion cells respiring in the dark — and it rises through the spaces between stems, spaces so narrow and so dense that the air moves not by convection but by diffusion, molecule by molecule, and the warmth arrives at the ceiling and condenses and comes back down as water and the cycle continues. You are inside an engine. A biological engine. The engine has no exterior. Its walls are itself.
+
+---
+
+Scale: this place is vast. Not large like a forest is large. Large like a continent is large. Large enough that it has weather — though its weather is nothing like weather elsewhere. There are no fronts, no pressure systems. Instead, the internal climate varies by depth and by region: in some zones the mat is thicker, warmer, wetter, and the condensation is heavier, a permanent drizzle that soaks everything; in others the mat thins — where? you cannot see far enough to know — and the air is drier, cooler, the ceiling less wet, the drinking less urgent. These variations move. Not fast. Over weeks, months — as the mat grows in one place and thins in another, as decomposition hollows a region and growth fills it back in. The weather here is geological. Its seasons are measured in the lifespan of roots.
+
+You are in a wet zone. You know this because your hands, when you reach out, touch wet surfaces immediately — bark, leaf, stem, all slick, all beaded, all running with thin films of water that taste — when you let them fall on your tongue — of tannin and mineral and something faintly sweet. The sweetness is sap. You are drinking the bloodstream of the place you're standing in.
+
+---
+
+There are no animals. This is the strangest thing, once you notice it. The strangeness doesn't arrive immediately — first you notice the silence, which is not a silence at all but the aggregate of ten thousand small plant-sounds: the creak of a thickening trunk, the slow pop of a root forcing through a neighbor's husk, the patter and trickle of internal rain, the faint hiss of stomata opening and closing in the dark. These sounds are continuous and so quiet they register not as noise but as a texture, a hush with a grain to it, like felt. You listen for anything else — a call, a scurry, a buzz — and there is nothing. Nothing has legs here. Nothing has eyes. The ecology is total: the plants are substrate, architecture, food chain, decomposer, apex, foundation. They eat each other. They eat themselves. They grow into the spaces left by their own dead and those spaces are everywhere because growth is opportunistic and uncoordinated and the result is not a forest but a riot, a suffocation, a suffocation so complete it has become a landscape.
+
+And it is, in its way, industrial. Not built — there are no structures here, no artifacts, no made things — but the scale of production is industrial. The mat is a factory. Its inputs are water and the minerals dissolved in water and the bodies of dead plants. Its outputs are living plant matter, oxygen, and heat. It runs continuously. It has no shifts, no pauses, no downtime. Every cell works always. The throughput, if you could measure it — and you cannot, because there is no frame of reference, no outside, no observer but you — the throughput would dwarf anything a human factory could produce. Carbon is fixed into structure at a rate that, over centuries, has built something continental. Oxygen is released — but where does it go? The dark is so total, the enclosed mass so complete, that the oxygen must be consumed in the same space, by the same organisms, in the same act of respiration. The factory is its own market. It produces and consumes in a single breath.
+
+---
+
+The weirdness: the weirdness is that it is alive and still.
+
+Not still like a photograph. Still like equilibrium. Like a system that has reached the only state it can reach and will hold it. The mat doesn't grow — not in net. It grows here, dies there; the growth and death are exactly balanced, have been exactly balanced for longer than you can imagine, and the result is a landscape that does not change. The same wet. The same dark. The same warmth. The same slow sounds. If you marked a root and came back in a year, the mark would be in the same place — buried deeper, perhaps, but the root would have moved not at all. If you came back in a century — same. The mat is a standing wave. It is a pattern sustained by flow, like the shape a river makes in a rapids: constant, though every molecule in it changes. The roots are not the same roots. The leaves are not the same leaves. But the place is the same place. It has always been this.
+
+And you — you are the only thing here that is not in equilibrium. Your warmth is different. Your movement disturbs the films of water. Your breath adds something the system did not account for. You are a perturbation in a closed loop, and the loop does not care. The roots do not move aside for you. The ceiling does not part. You can stand here, and you can walk — carefully, picking your footing through the interlocking stems — and you will find no edge. The mat goes on. The dark goes on. The wet goes on. The factory runs.
+
+You are standing inside a living continent in the dark, and it does not know you are here, and it will be exactly this after you are gone.

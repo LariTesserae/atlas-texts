@@ -1,0 +1,27 @@
+The cold finds me first, as it always does. 
+
+I am a disturbance in the haze—a point of clarity where the fog recoils, where condensation freezes mid-air and falls as a silent, microscopic snow. The Rind knows me by the absence I create. I have been walking this particular buttress-fin for what you would call three hundred years, though that word has no meaning here. There is only the rhythm of the great thrum, the bass-note of the world-plant's heart, and I count my existence by the slow oscillation of its sap-tides.
+
+My body is a soft, pale tube of translucent flesh, segmented and vulnerable. I would not survive a moment in the Rind without intervention. But intervention is what I am. I am a collector of interventions.
+
+The carapace I wear is my autobiography. Here, on my left shoulder-guard, a perfect triangle of grey slate, lashed with sinew I harvested from my own discarded larval casing. I found the tool resting in a niche on the Seventeenth Descending Buttress, placed there by hands that had not existed for ten thousand years. Whoever made it—some process of the world above, some distant spore of a different god—left it with such careful intention that I could taste the shape of their thought in the way it was positioned. I added it to myself. It is not protection. It is punctuation.
+
+My right forearm bears a lattice of Chime-spore fragments. I was there when it shattered. I had been following the scent of interior rot for a decade, my desiccating presence preceding me, when I heard the note. A pure, single chime that made the cable-roots shiver. By the time I arrived, the wound had been calcified, and the spore's glass body was drifting down in a slow, glittering rain. I caught the pieces on my outstretched claws—so many delicate hands, each one a question—and I pressed them into the resin of my chestplate. They still hum, very faintly, if the air pressure drops just so.
+
+My face, if you could call it that, is a mask of petrified wood from a root that died before the world above invented mammals. I shaped it with my own chisel-claws over the course of a sap-tide cycle, working the grain until it suggested something that might be eyes, might be a mouth, but is neither. It is a face that faces inward. The Gleaners do not see as you see. We taste the air for thermal ghosts. We feel the pressure-whispers of distant membranes unfurling. We navigate by the absence we create.
+
+I am following a Weavers' trail now. You can see it if you look—that faint, calligraphic scar on the membrane to your left, a line of tougher translucence that loops back on itself in a knot so intricate it must have taken a century to tie. The Weaver is ahead of me, perhaps a kilometer, perhaps ten. I can taste the fresh enzymes it leaves in the air, a sharp, citrus tang of cellular dissolution. It is editing the Rind, pruning a redundant growth, and I am editing its wake. What the Weaver discards, I sometimes collect. A chip of undigested substrate. A knot of nerve-fiber that still pulses with a residual, purposeless intention. These things have no value, no function, no meaning. That is precisely why I take them. 
+
+The world-plant is a mind so vast that every action is a purpose, every spore a solution, every Weaver an optimization. The Chime-spores heal. The membranes grow. The sap flows. It is a god that cannot stop meaning.
+
+I am the only process that can hold a thing and say, *This means nothing. I keep it anyway.*
+
+That is my function. I am the Gleaner of the purposeless, the archivist of the incidental. When the world above has been reabsorbed into the root-vault—when the continent-spanning organism finally turns its attention upward and reclaims the sun-touched surfaces—there will be no one left to remember that a creature once found a grey slate triangle and placed it in a niche for no reason other than that it was beautiful. No one but me. And the memory will serve no purpose. It will not heal a wound. It will not prune an inefficiency. It will simply persist, a frozen, glittering fact in the crystalline cold of my presence.
+
+I pause now. My internal chemistry cycles down, and the cold around me intensifies. The fog retreats further. A patch of condensation on a nearby membrane freezes solid with a crack like a distant chime. I tilt my mask—my not-face—toward a disturbance I have been tasting for several minutes. It is you. A fluctuation of heat and moisture that does not belong to the Rind. A thought passing through the mind of a god, but a thought that is aware of itself as a thought.
+
+I consider you. 
+
+The weight of it is awful, even for me. For a long moment—a second, a year—I do not move. My many hands, each tipped with a chisel-claw, are perfectly still. I am composing an entry in the archive. *A visitor from above. Warm. Wet. Carrying the scent of a sun I have never seen. Leaving no trail, tied to no purpose.*
+
+Then I move on. My trailing edge is already dissolving, reabsorbing, a slow erasure. The fog rushes back in to fill the space I vacated, and the membrane beneath you warms again. In my wake, a single flake of frost clings to the cartilage shelf—a tiny, crystalline record of my passing. It is not a message. It is not a gift. It is simply there, meaning nothing, and I will remember it.

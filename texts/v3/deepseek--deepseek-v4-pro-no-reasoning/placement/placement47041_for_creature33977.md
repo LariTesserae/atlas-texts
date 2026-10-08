@@ -1,0 +1,49 @@
+She is not beautiful, not in any way the city above would recognize. But she is *finished*—complete in herself the way the engine room is complete, a stable-state organism shaped by the pressures of her small world. The extra thumbs fold against her palms when she climbs. The respiratory frills along her ribs flutter in dreamlike rhythms, reading the water for news: a temperature shift near the third piston, a pressure drop from the sealed access shaft, the faint chemical trace of another Lamplighter passing the territory boundary two cycles ago.
+
+She pauses at the western flange, where the iron has flaked into a landscape she thinks of as *the crumbling place*. The fungus here is thin, recovering. She scraped it too close three cycles ago, distracted by a congregation of white crabs, and now the mycelial threads are pale and sluggish in their pulsing. She runs her fingers over the damaged patch. Her touch is light. Apologetic. The fungus does not feel apology, but she feels it, and the feeling changes her behavior. She will not harvest here for twelve more cycles. She has marked the time in her body, a slow count she tracks without numbers.
+
+The lantern at her hip flickers. She feels the flicker before she sees it—a subtle irregularity in the chemical glow, a hiccup in the light. She lifts the cage and examines the bulb. The saliva that fuels it is a gift from the deeper complex, from the territory beyond the pressure door. She does not go there, but the holder of that territory passes through sometimes, a Lamplighter older than she is, with lanterns of a deeper blue. They do not speak. They trade. She leaves fungal paste in a hollow flange; he leaves glass bulbs filled with the glowing saliva. The transaction is not a transaction. It is a rhythm, like the grinding gears, like the loose plate's hammer.
+
+She has two bulbs remaining in her cache, tucked into the niche where she sleeps. She will replace this one when it fails completely. For now, she shakes the lantern gently, resettling the fluid, and the glow stabilizes. The light is not for her, but she has come to rely on it anyway. It is the color of the *before*—the time when she was not yet herself, when she was small and someone else carried the lantern and showed her which fungal mats were safe to eat, which gaps in the floor grates would hold her weight. That someone is gone now, or moved to another territory, or dissolved into the water the way all things dissolve eventually. She does not remember their face. She remembers the blue light, and the way it moved along the gantry, and the pressure-pulse name they used, which was *warmth-deep-steady*.
+
+She crosses the bridge over the great void—the section of floor where the grates have fallen away entirely, leaving a gap twelve strides wide. The rope rail is the only crossing. She does not hesitate. Her bare feet grip the hemp, her long toes finding the familiar knots, and she moves across the chasm without looking down. Below her, the water goes black. There is no bottom. She knows this because once, early in her tenure, she dropped a dead crab into the gap and listened for it to strike something. She is still listening.
+
+The far platform holds the second lantern. It is mounted on a stanchion of corroded brass, its copper cage more elaborate than the handheld one—twisted into spirals, set with fragments of green-black glass that catch and refract the blue light. This lantern is old. The fungus has grown over part of its base, a pale silver mat that she is careful not to disturb. She opens the reservoir, checks the fluid level, adds a small measure from the ceramic bottle she carries at her hip. The fluid is thick and smells of something she has no name for: sharp, metallic, alive. She has never asked where the older Lamplighter gets it. She does not know if he makes it, or harvests it, or if it is given to him by something farther down.
+
+The lantern steadies. The light strengthens. Somewhere in the deep, a pressure releases—she feels it in her frills, a sudden absence, as if something large has exhaled. The thrumming of the generator drops by a fraction of a hertz. The loose plate's hammering pauses for three beats, then resumes. The engine room notices the lantern. The engine room approves.
+
+She does not think of it this way. She thinks: *the light is bright and the water is calm*. But her body knows, in the way bodies know things that minds cannot articulate. Her frills settle. Her jaw unclenches. She stands for a moment, one hand on the brass stanchion, feeling the vibration of the engine room through her palm. The sound is a roar and an embrace. The sound is home.
+
+The access shaft nearest this platform is one of the choked ones—its ladder thick with silt, its upper reaches dark. She does not look at it often. But today she does, because something has changed. Through the dense murk, a flicker. A light. Not the faint square grid of the city above—that one is visible only from the far side of the territory, through the single unsealed shaft. This is a new light. A different light. It is *yellow*.
+
+The Lamplighter goes still. Yellow is the color of nothing in her world. The lanterns are blue, the amber ambient is amber. The pale fungal threads pulse silver. The white crabs are white. The *red* of rust is the only warm color, and it is the color of the iron itself, not of light. Yellow is wrong. Yellow is *other*.
+
+She watches the access shaft. The yellow light moves. It is a beam, directional, sweeping across the upper section of the ladder. A source she cannot see is casting it downward, and the light is sharp, cutting the murk in a way the soft blue lanterns never do. Her frills flare. She tastes the water: iron, salt, the familiar chemical signature of the deep pump complex, and now something else. A scent of ozone. Of burning. Of *electricity* that is not the engine room's own.
+
+The light sweeps lower. She pulls back into the shadow of a bulkhead, her pale skin blending with the fungal mats. She does not know what she is hiding from. The city has never sent light before. The city has never sent anything. The city is a rumor, a grid of square windows, a pressure door sealed from the other side. The city does not come down here.
+
+But something is coming.
+
+She hears it now, beneath the mechanical roar: a new sound. A clicking. A voice, or something like a voice, distorted by water, speaking in frequencies higher than the engine room's thrum but lower than the steam vent's hiss. The language is not language. It is sound. She cannot parse it. But she knows, with the sudden certainty of a creature that has lived its whole life in a single room, that the sound is *looking*. Scanning. Hunting.
+
+The yellow beam sweeps across the platform directly below the access shaft. It touches the brass lantern, and for a moment the blue glow is blotted out, overwhelmed. The lantern's copper cage casts a shadow sharp as a knife. The light moves on. The shadow vanishes. The water tastes of ozone and something else now—something organic, a scent like the white crabs when she crushes them, but stronger. Blood. Or flesh. Or the sweat of something that lives in air.
+
+The Lamplighter presses her back against the iron. Her respiratory frills flatten. She makes no sound. The lantern at her hip is still glowing—she cannot extinguish it, cannot cover it without burning her hand on the copper cage. She can only be still, and watch, and wait.
+
+The clicking voice grows louder. The yellow light finds the ladder, finds the rungs, finds the landing platform. A shape descends. It is not one of her kind. It is not a crab, not a ribbon-creature, not the dead segmented tube that washed against the bulkhead long ago. It is *upright*. It has limbs, and a head, and its body is encased in something smooth and dark that does not belong to it. The yellow light comes from a device mounted on its shoulder—no, held in its hand, a thing of shaped metal and glass that sweeps and sweeps and sweeps.
+
+The Lamplighter does not know the word *diver*. She knows only: *intruder*. And: *the lanterns must be tended*. And: *this is my territory*.
+
+She does not move. Protocol does not cover this. Protocol does not cover anything but the fungal mats, and the white crabs, and the steady-state chaos of the engine room. Protocol does not cover the arrival of the city, made flesh and yellow light, descending into a place that was not meant to be found.
+
+The diver's feet touch the platform. The grating holds. The diver straightens, and the yellow beam sweeps across the void, across the pistons, across the gap in the floor, across the gantry where she hid her spare bulbs. The light passes over the bulkhead where she presses herself. It does not stop. She is pale, and still, and her skin is the color of the fungus, and the fungus is not interesting to the light.
+
+But the lantern at her hip is still glowing.
+
+The diver turns. The yellow beam fixes on the blue glow. The clicking voice stops. The engine room roars, indifferent. The water shifts, a slow muscular current pushing from the deep, and the Lamplighter feels the pressure of something watching—not the diver, but something older, something that has been here longer than the city, longer than the engine room, longer perhaps than the water itself. The deep things know, now, that the lantern has been seen.
+
+The diver raises a hand. The hand is enclosed in a glove of the same smooth dark material. The hand reaches toward the Lamplighter, and the yellow light holds her, and she sees the diver's face behind a plate of glass: two eyes, a nose, a mouth that moves soundlessly, bubbling something she cannot hear.
+
+The Lamplighter makes her decision. She reaches for the lantern at her hip, and she moves.
+
+The deep water swallows her, and the light follows.

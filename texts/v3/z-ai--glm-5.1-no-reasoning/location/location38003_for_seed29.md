@@ -1,0 +1,47 @@
+You enter through a wound in the rock, a fissure barely wide enough for shoulders to pass, and step into a world that should not exist. The descent is immediate—a vertical duct carved by pressures older than memory, dropping you into the body of the mountain. The heat finds you before your boots touch the first ledge: a pressing, muscular heat, dense as cloth, wrapping around your skin with the weight of a hand. Not the dry scorch of a desert, but something deeper, geologic, a heat that rises from below as if the earth's own blood were simmering just yards beneath your feet.
+
+---
+
+The chamber is small. That is the first disorientation. Everything about the sound and pressure suggests cavernous scale—a cathedral, a mine shaft plunging to the planet's core—but the space itself would fit within a generous living room. The ceiling presses low, a rough dome of dark basalt streaked with mineral veins that catch what little light exists and give back nothing. The walls close in on three sides; the fourth opens into a vertical shaft, the same one you descended, though from here it looks less like an exit and more like a throat. The floor is uneven, buckled, still forming—you can see where the stone has bubbled up in ridges and bubbles that haven't yet cooled into their final shapes. The geology is embryonic. This place is being born.
+
+And yet it is full. Impossible, impossible fullness. Every cubic inch of air carries weight. The density is not merely physical, though the atmosphere itself feels thickened, loaded with mineral dust and chemical exhales that coat the tongue with a metallic film. The fullness is present. The chamber is occupied.
+
+---
+
+The light: almost none. What illumination exists comes from two sources, both grudging. The first is heat itself—the stone at the far end of the chamber glows a dull and sullen red, not with fire but with temperature, as if the rock has been heated past the point of endurance and is now revealing its anguish through color. It is the red of a closing eye, of a coal turning its face away. The second source is biological—but not as you know it.
+
+They hang from the ceiling. They cluster along the walls in thick vertical columns, shouldering against each other for purchase on the warming stone. They mass in the corners where the heat concentrates, pressed together in writhing carpets that rise and fall with shared respiration. They are chitinous, multi-legged, heat-drinking, and they are the only living things in this place. The fauna.
+
+You have interrupted them. Or perhaps they have been waiting for you—there is no way to know if their stillness before your arrival was habitual or performative. Now they move, and the sound is catastrophic. Thousands of hard bodies shifting against each other, tapping carapace against carapace, producing a rattling hiss that fills the chamber's tight dimensions and amplifies off the low ceiling until it becomes a physical pressure, a wall of noise that you feel in your sternum. There is no room between them. No gaps. The surfaces of the chamber are entirely clad in living material, a second skin of heat-fed organisms that have evolved to metabolize thermal energy directly from emerging stone.
+
+They are not aggressive. You learn this in the first minute, when the nearest column shifts to accommodate your presence rather than consume it, making a hollow for your body in its mass. They simply exist. They are packed here because here is where the heat is concentrated, and heat is their food, their water, their world. They press together because separation means cooling, and cooling means death. The density of their bodies is a survival strategy—an organismal huddle against the cold of the upper world they never see.
+
+---
+
+Look closer at one individual—not that you can see much in this dimness, but the shapes resolve slowly if you let your eyes adjust past the urge to flinch. They are roughly the size of a human hand, flattened, oval, with legs tucked beneath them like resting cockroaches. Their shells are dark—not black but a deep burgundy, almost purple, the color of old blood heated to visibility. Along their flanks, ridged spiracles pulse in rhythm, breathing the mineral-laden air, filtering out the sulfides and metallic particulates that would kill any air-breather from the surface. They do not drink. There is no water here, has never been water here. Their bodies synthesize what they need from the stone's exhalations and the heat that never ceases.
+
+They are ancient. Not as individuals—each one probably lives only a few years, molting its shell as it grows, leaving the discarded carapaces to crunch underfoot in layers that coat the chamber floor like crude insulation—but as a species. They were here before the mountain finished rising. They fed on the warmth of magma cooling into basalt. They have persisted through eras when the surface was uninhabitable, sealed in their pocket of heat and pressure, untouched and unchanging. They are the only inhabitants of this place, and they fill it completely.
+
+---
+
+The sound again: you cannot escape it. Even when you press your hands over your ears, the vibration carries through the stone, through the floor, through the very air that you share with them. The rattle of their movement is layered beneath a lower sound, almost subsonic, which you feel rather than hear. This is the mountain itself, still forming. Somewhere far below, rock is folding against rock under pressures that would reduce steel to paper. The chamber shudders with a slow, tectonic patience. The wall you lean against is warm and growing warmer. A fresh extrusion of stone bulges from the ceiling, dark and glistening, not yet cooled—not yet solid. In a thousand years it will be a stalactite. Right now it is a protrusion, a symptom, a geological afterthought still oozing into shape.
+
+The creatures have already colonized it. A fine layer of burgundy shells covers its surface, legs gripping the half-hardened stone, drinking the heat directly from its birth. They cluster thickest where the rock is newest. They are eating the mountain's growth.
+
+---
+
+And here is the strangest thing, the thing that takes longest to recognize because it contradicts everything your body tells you about where you are: the chamber is not natural. You can see it if you look past the creatures, past the heat-shimmer, past the darkness—to the shape of the walls themselves. The shaft you descended is too regular. The angles of the dome overhead follow a geometry that basalt does not choose on its own. The vent at the chamber's apex, where the worst of the heat escapes in a slow volcanic breath, is precisely circular, bored with a deliberation that erosion never achieves.
+
+Someone made this place. Not the creatures—they are opportunists, colonizers, moving into a void that was prepared for them. But the chamber itself, this pocket carved into the mountain's heart, was engineered. The tools are gone. The builders are gone. What remains is the architecture: a thermal collection point, a heat-harvest, designed to funnel geothermal energy into a space where it could be... what? Stored? Used? The creatures are incidental. They found this pocket and filled it, as life fills any niche that offers sustenance. But the niche was cut by deliberate hands, industrial hands, and then abandoned.
+
+When? The stonework has been softened by millennia of heat and pressure. The edges have blurred. If there were once pipes or conduits, they have been absorbed back into the mountain, swallowed by the same geological processes that continue to shape the chamber. Only the bones of the design persist—the regularity, the angles, the sense of purpose beneath the layers of organic encrustation and fresh-spilling rock.
+
+---
+
+The creatures pay you no attention. You are not heat. You are not stone. You are irrelevant to their existence, a temporary obstruction that will either leave or cool and become surface to colonize. They flow around your boots, your legs, your back where you press against the wall. Their shells click and whisper. The sound has become a texture now, something your mind has begun to process as silence—the way a city-dweller stops hearing traffic. Beneath it, the mountain breathes. The new rock extrudes another inch. Somewhere in the mass of burgundy bodies, a carapace splits and is shed, and the soft creature beneath it unfolds, pale and new, to find its place in the huddle.
+
+You could stay. The heat is oppressive but survivable. The air is thick but breathable. The creatures are harmless. You could sit here in the dark, in the press of living shells, in the continuous sound, and let the gradual processes work on you as they work on everything else. The mountain is in no hurry. The creatures have no schedule. The heat will not diminish.
+
+But you were not made for this pocket, and eventually the cold of your blood will become obvious to the things that seek only warmth. You find the shaft by feel, the vertical throat that leads back to a world with sky and distance and room to breathe. You climb. Behind you, the creatures close the gap you left, filling the space with their bodies, resuming their patient consumption of the earth's deep fire.
+
+The chamber continues its long birth. The mountain exhales. The burgundy tide rises and falls.

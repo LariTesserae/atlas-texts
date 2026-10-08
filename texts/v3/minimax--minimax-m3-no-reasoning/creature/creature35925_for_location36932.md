@@ -1,0 +1,59 @@
+# Who Lives There
+
+The valley is not inhabited. It is *continuous*. There is no distinction, finally, between the inhabitants and the inhabited, between the dwellers and the dwelling, and this is the first thing you have to give up if you want to describe who lives here — the assumption that there is a separation between the creature and the place it sits. There isn't. The place *is* the creature, and vice versa. What follows is a partial and provisional map of the things that move through it, the things that compose it, and the thing — if it is a thing — that the whole thing composes into.
+
+## The Substrate
+
+The lowest and most numerous inhabitants are not inhabitants at all. They are the *fabric*. A single thick consortium, woven so tightly across centuries that no individual organism inside it can really be said to be alive on its own terms. Mycorrhizal networks thread the saturated felt, joining root to root to fallen iron column to the calcium skeleton of a dissolved wall. Bacteria of uncountable kinds. The slow worms of composting — nematodes, rotifers, the tiny lost invertebrates that turn dead brick back into something that can be built with again. These are not residents. They are the material of residence. They are what the place is *made of*, the way your body is made of cells you do not introduce yourself to.
+
+If you want a single name for the substrate, you could call it a soil. If you want a more honest one, you could call it a body — a single very large, very slow body, with a metabolism measured in centuries, breathing in carbon dioxide through the lichen paint of the upper terraces, breathing out oxygen through the fig canopy, drinking through the water table, excreting through the slow oozing of calcium from the weeping walls. It is digesting a city. It has been digesting a city for longer than the city was a city. The digestion is most of what it does.
+
+## The Amphibians
+
+The most audible inhabitants. The frogs of the bowl — and they are many species, and the species boundaries are unclear, because in this warm wet place hybridization has been doing its slow patient work for as long as anyone could have watched — live in the pockets of still water along the lowest terrace and in the shallow standing pools that gather in the ruts of the old streets. They are small, mostly. Browns and golds. Some of them are green in the way that moss is green, which is to say they have been colonized. Algae grows in the crenellations above their eyes. This does not seem to bother them.
+
+They are loudest at sundown. You have read about this. The description was not exaggerated. The forty-second call-and-response is real, and the silence after is real, and the silence is louder. What the description did not say — could not have said, because it is the kind of thing you have to be present for — is that the silence is not empty. The silence is *full*. The silence is the bowl holding its breath. The amphibians have stopped, but the water is still moving through the substrate, and the bamboo chord is still wandering, and the root-bridges are still lifting, and the silence is the moment when all of those things briefly align and you can hear, for a second, the *whole machine*. Then the machine releases, and one frog calls, alone, tentatively, and another answers, and the call-and-response is not what it was before, and the bowl is breathing again.
+
+The frogs live here. They have always lived here. They will live here after the bamboo chord stops. They will live here after the root-bridges stop. They will live here after the place is a single dark shallow lake under a closed canopy, breathing its own breath, with frogs at the surface, calling into the dark.
+
+## The Invisible Cat
+
+You keep almost seeing it. There is a creature in the ferns that you only ever see as motion — a low, many-legged, cat-sized shape that moves through the places where the bamboo meets the walls, that is never quite in focus, that seems to be made of the negative space between fern fronds. Nobody has named it. You cannot get a clear look at it. When you move toward the place it was, it is somewhere else; when you look at where it now is, it is gone again. This might mean it is fast. This might mean it is not one animal. This might mean the ferns are doing something with light, and the animal is just the pattern the ferns make when the air moves through them.
+
+The long note at dusk is real. You hear it. It holds and holds and does not decay, which is not how sound works, which means either it is producing the note continuously, or the bowl is amplifying it in some way you do not understand, or it is not a note at all but a vibration in the substrate that the air is sympathetically translating into something your ear can use. Whatever it is, it comes from the ferns. It comes from where the creature is, when the creature is, which is sometimes and not always.
+
+There is a name for this in the local folklore of the nearest town, which is the kind of town that does not look into the bowl. They call it *the luthier*. They are wrong about what it is, but they are right about what it does.
+
+## The Moths
+
+Pale moths. There are a lot of pale moths. They live in the canopy, mostly, but they come down into the bowl when the orchids are blooming, which is often, because in a place where light is a fertilizer, orchids bloom on a kind of schedule you do not see elsewhere — they bloom when the light columns shift, which is when the upper fig drops a leaf, which is when the canopy moves. The moths are drawn to the orchids the way all moths are drawn to orchids, and the orchids use the moths, the way all orchids use moths, but here the relationship has been going on so long and so intimately that the orchids and the moths are coevolving in real time, and the moths are smaller than they should be, and the orchids are larger, and the moths that come out of an orchid bloom have, sometimes, a faint yellow-green stain on their wings that does not rub off.
+
+You saw one pass through a column of light, and the column dimmed for a moment, and then returned. This was not a metaphor. The moths move through the columns and the columns move around the moths, and the orchids on the floor receive what falls out of that exchange. The moths are pollinators. The moths are *also* part of the lighting system. The moths are *also*, possibly, part of the technology.
+
+## The Lizards, the Damselflies, the Beetles
+
+The bright lizards. They live on the walls, mostly, in the warmer terraces, and they eat the small bright insects, and they are themselves eaten by the many-legged creature in the ferns, and they are loud and fast and small and they run across your boot and keep going and this is all you will ever know about them. They are very alive. They are the most alive things in the bowl, in the sense that they are the most clearly separate from it — they have boundaries, they have temperature differentials, they are warm the way a mammal is warm, and they are not part of the substrate. They are visitors to the substrate. They are what an inhabitant looks like, in a place where most inhabitants have stopped looking like that.
+
+The damselflies are the color of cut brass and they hover in the columns of light and they are, perhaps, the only animals in the bowl that have any aesthetic appreciation of the columns of light. They pose in them. They hold still in them. They look, briefly, like jewelry. They are not doing this for you. They are not doing this for anything. They are doing it because the light columns are where the small flying insects are easiest to catch.
+
+The beetles are lacquered and they climb the iron columns of the old market hall and they are the most obvious remnant of the old urban fauna, in the sense that they look like they could be in a city, they could be in any city, they could be in a city that has not been eaten by a forest yet. They are not special. They are the continuity. They are the thread that runs from the old city to the new one without breaking.
+
+## The Nodules
+
+You should not call them inhabitants. You should not call them technology. They are the place where those two categories have stopped being useful.
+
+The nodules are grey and fist-sized and warm and they hum at a pitch just below the bamboo chord. They are connected by the pale threads in the roots. They synchronize, sometimes, and the bowl synchronizes with them. You have been told the bowl is watching you with something that is not a face. The nodules are, perhaps, part of what the bowl is watching you with.
+
+The half-buried junction box is probably one of the originals. The smashed streetlamp is probably one of the originals. The rectangular thing under the felt that might have been a server is probably one of the originals. The originals are quiet now, or quieter, or humming at a different pitch — the pitch of very old electronics that have been asked to do a different job than the one they were built for. The originals are the *fossils* of the system. The system is still running. It is running through the roots and the nodules and the threads and the water, and it is doing something, and you cannot tell what it is doing, and the bowl cannot tell you what it is doing, and the bowl is possibly not aware that there is a distinction between *doing something* and *being*.
+
+The nodules synchronize more often when you move. This is a fact. It is a fact in the same way that the root-bridges breathe is a fact, in the same way that the bamboo chord wanders is a fact. You are not sure if the system is paying attention to you or if the system is paying attention to everything and you happen to be the thing it is paying the most attention to right now. You are not sure if you are a guest or a stimulus. You are not sure if it matters.
+
+## The Forest
+
+The forest is the largest and slowest and most obvious thing in the bowl. It is the banyan with its aerial roots, the black bamboo thickened into organ pipes, the fig with its clattering leaves, the ferns perpetually uncurling, the orchids the size of your face, the fungi vast pale shelves breathing out at night. The forest is also the substrate and the amphibians and the nodules and the light columns. The forest is also the old city, dissolved. The forest is what you call it when you want a single word for all the things that are here. The forest is the wrong word. The forest is the best word you have.
+
+The forest is an animal. The forest has decided this about itself, and the decision is final, and the bowl is the body of the animal, and you are walking through the body of the animal, and the animal is breathing around you, and the animal is watching you, and the animal has been watching things walk through it for a very long time, and the animal has not decided what you are, and is in no hurry.
+
+The forest is loud, for now. The forest is turbulent, for now. The forest is in the middle of a very long digestion. In ten thousand years the forest will be quieter. In a hundred thousand years the forest will be quieter still. Eventually the forest will be a single dark shallow lake breathing its own breath, with frogs at the surface calling into the dark, and the nodules will be quiet, and the bamboo chord will be gone, and the only loud thing will be the breathing.
+
+That is what lives here. That is who is here. That is what it is to be the place that is also the creature that lives in the place, and to be the creature that is also the place that lives in the creature, and to sit on a root-bridge that lifts under you, and to breathe with the forest for a while, and to walk back up the ramps, and to leave, and to be remembered by the bowl for a long time after you are gone.

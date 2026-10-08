@@ -1,0 +1,16 @@
+Inside the Cartographer’s Lung live five entities whose bodies are different expressions of the same principle: material that has agreed to persist only as long as the room itself persists.
+
+1. The Valve-Keeper  
+A long, half-transparent slug made entirely of the same boiled sap that coats the walls. It has no eyes, only a single, slowly pulsing pore near what might be considered its anterior. Every six slow heartbeats the pore opens, lets a cupful of water pass, then pinches shut; each time it closes it nudges one of the small wooden valves by the width of a fingernail, adjusting the rain according to the angle of the moving lenses above. When two lenses overlap and the light doubles, the Keeper swells slightly, as though reading the light’s grammar, then contracts again to keep the beat exact.
+
+2. The Thread-Moss  
+In the shallow trays are not ordinary plants but three clonal sheets of the moss whose dull olive is actually the accumulated pigment of centuries of droplets. Each sheet is a single continuous cell that has learned to anchor itself with microscopic rootlets that run along the carved grooves like veins. The moss drinks, holds, and releases on a rhythm one-quarter beat behind the rain itself, so a viewer inside sees the drops hesitate for an eye-blink, as if time decided to stutter.
+
+3. The Tether-Worms  
+Three finger-length, translucent worms the color of water. Each lives inside one of the braided kelp tethers, spiraling up and down its length, their movement invisible until a lens passes. When light hits them they contract into knots, shortening the tether by the width of a handspan and causing the tethered tool to drift half a degree. After the light leaves they elongate again, returning the implement to its original height. Their contractions are the only force that ever changes the inventory’s positions.
+
+4. The Bubble-Stair Interpreter  
+A single hollow pearl, eight millimeters across, lodged inside one of the hollow ribs between two flat stones. It rises with each extra surge of rain and falls again when the valve tightens; each ascent and descent takes the same duration as the light crossing one full spiral. The pearl contains a single bead of denser water inside it—denser enough to act as a minute weight—so the pearl always hangs slightly off-center, wobbling in a pattern that repeats every thirty-two rises. Over decades it has etched a faint spiral track into the inside of its pearl, a record visible only when a lens shines directly through.
+
+5. The Cartographer’s Breath  
+Not an organism so much as the pressure differential the room itself creates when the valves open or close. It is perceived by the others as a soft tug, a momentary rearrangement of all suspended objects that is never the same twice. Over years this tug has become a kind of communal memory; if a valve ever misses its cue, the breath adjusts the next cycle so the room’s interval stays true to the movement of the unseen light outside. It has no shape, yet everything inside senses it the way a hand senses the heat of a page before the page is turned.

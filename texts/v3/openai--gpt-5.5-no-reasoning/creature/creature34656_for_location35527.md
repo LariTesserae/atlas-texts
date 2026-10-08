@@ -1,0 +1,61 @@
+What lives there is not one species, exactly, and not a society in the surface sense. It is a population of maintenance, seepage, and listening.
+
+The most obvious inhabitants are the small ones: the blind fish in gutters, the coin-sized crabs, the eels in cable troughs, the soot-winged moths, the pale frogs tucked into meter niches, the snails polishing green paths over brick. They are not intruders. They are citizens of the place in the oldest way, having accepted every tilt of the floor, every delayed rain, every sour mineral shift. Their bodies have narrowed themselves to the town’s conditions. Eyes fade where lamps fail. Shells flatten to pass beneath tiles. Wings darken with soot. Calls sink below hearing, so sound will not be wasted.
+
+Above them, in the arches, live the birds that may once have been pigeons but are no longer quite pigeons. They are smaller than their ancestors, damp-looking even when dry, with feathers lying close like wet paper. Their eyes have gone pearly and reflective. They do not startle upward in flocks; there is nowhere to go. Instead they shift sideways along pipes and ribs, clicking softly to one another in sequences like relays opening and closing. Their nests are clever municipal things, made from wire, root fiber, reed, hair, and strips of brittle insulation peeled from dead cables. A nest may be tied to a shut valve, a broken lamp cage, or the underside of a stair, and may be used for generations until lime stiffens it into architecture.
+
+There are larger animals too, though they remain mostly implied. They have learned the value of being almost seen.
+
+Something otter-like moves in the canal, pale along the spine and dark along the belly, with long whiskers that test the air as if reading draughts. It has webbed feet with delicate fingers, good for opening rust-softened latches and turning over bowls left near drains. It eats fish, moth masses, mineral mash, fungal skin, and whatever the flood brings down from above. Its dens are in gaps behind quay stones, lined with rags, reed pith, shed cable sheathing, and bones polished by water.
+
+In the cisterns live broader things, slower things, with backs like submerged sacks of clay. They surface rarely, usually when the lamps dim before a pump cycle. A rounded head will lift, blind nostrils opening and closing, and then vanish without a ripple. They may be amphibians grown old in the dark, or mammals returned by degrees toward water, or something that found the town before either name mattered. The maintenance figures leave offerings for them because the cistern things keep certain channels clear. Where they sleep, silt does not choke the drains. Where they pass, blind fish breed in greater numbers. No one interferes with them.
+
+But the true inhabitants—the ones the place seems made for—are the keepers.
+
+They are seen at a distance in rubber coats, oilcloth aprons, waders patched so often the original material is gone. Some are small and stooped; some are tall enough to duck beneath arches even where others walk upright. Their faces are usually hidden under hoods, masks, lamp brims, scarves, or the steamed glass of old respirators. Whether they are ordinary people adapted by habit, or descendants of people changed by damp and mineral and low light, is difficult to decide. They move with human purpose but not quite human urgency.
+
+Their skin, when glimpsed at wrists or throat, is pale from absence of sun, sometimes grayish, sometimes faintly translucent at the thin parts. Their hands are broad-knuckled and careful, with nails kept short or replaced by rubber caps when they work near machinery. Many have a habit of pausing before doorways, wells, stairheads, and drains—not from superstition exactly, but because listening is part of movement. They listen the way surface people look both ways before crossing a street.
+
+Their speech is sparse. It is not that they cannot speak, but that language competes poorly with water, machinery, echo, and the necessary attention of the place. They use knocks, hand signs, lamp shutters, chalk marks, string tags, and changes in the angle of a bucket. A red rag tied to a wheel means one kind of danger; a white reed placed across a threshold means another. Three taps may be a question, unless they come from inside a wall, in which case one waits.
+
+They seem to live in rooms that were never intended as homes: signal offices, bricked-in ticket booths, transformer alcoves, dry parts of pump houses, the second floors of buildings whose upper stories press against the ceiling. Their dwellings are layered rather than furnished. Hammocks slung above damp floors. Narrow beds on brick plinths. Shelves of jars containing salt, fuses, lamp wicks, pickled fungus, dried eel, rolled permits, moth paper, copper washers, white clay, and little bundles of root. Clothes hang constantly but never dry completely. Every household owns more boots than chairs.
+
+Children, if they are children, are quieter than expected. They play at tracing gutter currents with chips of ash brick. They race paper boats only during controlled seep, when flow is safe. They memorize pipe songs, learning which hum belongs to which district. They are taught early never to step into still black water without first touching it with iron. They keep beetles in matchboxes and trade bits of mirror, lamp glass, fossil pipe scale, and envelopes from vending machines. Their games often involve maps, but no two maps agree, and this is treated as part of the lesson.
+
+The keepers do not farm in fields. They cultivate tolerances.
+
+They tend reed beds in tubs and canal edges, thinning the white jointed stalks when they grow too dense. They scrape edible films from warm masonry and spread them onto tiles to bloom again. They harvest moths during hatch weeks by hanging mineral cloth near lamps and shaking the stunned bodies into trays. They keep fungal rooms behind factory walls where the air smells of bruised fruit and old bread. They raise snails on lime-washed boards. They trap blind fish with baskets woven of wire and root. They do not waste decay; they classify it.
+
+Their industry is not aimed at wealth. It is aimed at continuation.
+
+They make bricks of compacted ash because floors must be lifted, thresholds reset, channels repaired. They grind scale from old pipes because unchecked mineral will close a passage. They weave reed and wire mats for walkways over uncertain silt. They mend pumps not to increase output but to preserve rhythm. They record waterlines, not birthdays. They name floods because floods are the closest thing the town has to rulers.
+
+Their rituals are practical enough to be mistaken for procedure. At the fountain that does not overflow, they gather on certain low-hum days and stand without speaking. They do not touch the black convex surface. They hang old warning envelopes from the bronze flood plaques until the mildew eats the strings. They bring bowls of mash to particular drains and turn away before anything comes. They polish the public clock’s glass but never reset its hands. When a child first descends the western natural stone passage, an elder ties a salt cord around the child’s wrist and says, “Listen before descending,” not as advice but as inheritance.
+
+They are wary of dryness. A room kept too dry makes them uneasy; they will set out pans of water, open channels beneath doors, or hang wet cloth from pipes. Dryness means shrinkage, cracking, dust, fire, the failure of seals. It means a place has forgotten how to negotiate with pressure. To them, water is not merely an element but a civic presence: troublesome, necessary, cunning, easily offended by arrogance.
+
+The keepers’ bodies have adapted to this philosophy. Many have large, dark-adapted pupils and a reflective sheen in the eye when lamps flare. Their hearing is excellent in the lower registers. They feel pump changes through soles and teeth. Some can identify the source of a drip by tone alone: tin pan, standing canal, open clay, blocked gutter, canvas catch, hollow pipe. They dislike sudden loud noises and bright light. Those who have gone above, if any have, return with headaches and cracked lips, complaining of the extravagant sky.
+
+There are also the clerks.
+
+They may be the same people in another role, or a thinner caste shaped by municipal habit. They occupy the building behind the fountain, behind service windows fogged and furred with mildew. Their sleeves are blackened at the cuffs. Their stamps are made of swollen wood and green copper. They issue permits for ascent, sluice adjustment, animal feeding, unauthorized echo, reed cutting, lamp relocation, stair renumbering, and temporary dryness. Most applications are neither approved nor denied, but steeped, weighted, and filed until the correct condensation mark appears.
+
+The clerks have faces like paper kept too long in a drawer. They know the old addresses painted on tiles, including those now underwater or inside walls. They maintain registers of floods, eel turnings, moth hatches, pump rests, mineral falls, and disappearances into the southern district. They speak in clauses inherited from regulations whose origin no one remembers. They are mocked quietly by workers and obeyed by everyone.
+
+Then there are the almost-inhabitants: the machines.
+
+In that town, machinery has been present long enough to acquire behavior. The pumps do not merely operate; they sleep, sulk, strain, and accept coaxing. The flywheel’s slow rotation is watched like a pulse. Dynamo housings hum with moods. The lower pump must not be woken in fog, and no one speaks of this as metaphor. An engine that has held back flood for a century is not considered alive, but neither is it considered dead matter. It is addressed by name or number, fed grease, salt, current, and silence. Its attendants know which valves prefer gradual pressure and which must be struck sharply with a wrapped hammer.
+
+Some machines have become habitats so completely that repairing them would be ecological violence. A disused compressor may contain a frog colony. A transformer cabinet may shelter moth larvae. A lime-crusted lathe may have roots running through its belt housing and blue bacteria glowing under its bedplate. Such equipment is marked with a white diagonal line: not abandoned, not usable, but incorporated.
+
+The animals understand the keepers, and the keepers understand the animals, though not sentimentally. A bowl left near a drain is a contract. A grate propped open at eel-turning season is a courtesy repaid by fewer blockages. Birds nesting in active pipes are relocated with apologies and a ration of warm fungus. Frogs in meter niches are left undisturbed because their subsonic throats reveal pressure changes before gauges do. Snails are allowed on certain walls and scraped from others. The otter-things are never trapped near the fountain.
+
+What lives there, finally, is a braided community of softened boundaries.
+
+Human habits have become animal habits. Animal paths have become infrastructure. Machines imitate organs. Pumps breathe. Water negotiates. Roots write slow signatures from the ceiling. Bureaucracy mildews but persists. The town’s people, if they are people, are less rulers than stewards of a compromise made long before them between masonry and seepage.
+
+They do not dream of escape as surface stories would expect. To ascend would mean entering a world where rain falls directly, where light arrives without permission, where streets do not listen when stepped on, where water is either banished or allowed to rage. Up there, perhaps, people hurry because the sky is open and time is visible.
+
+Below, time must collect drop by drop before anything advances.
+
+So the inhabitants endure in increments. They patch, scrape, feed, file, listen, divert, count, and wait. They know that a city is not made by crowds alone, nor by height, nor by sunlight. A city can also be a damp agreement under stone: a place where blind fish gather beneath valves, where clerks stamp mildew-soft forms, where birds click in the arches, where children learn the laws of flow, and where every living thing has accepted that survival is not conquest, but maintenance.

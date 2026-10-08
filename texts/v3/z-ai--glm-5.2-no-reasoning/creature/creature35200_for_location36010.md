@@ -1,0 +1,87 @@
+# What Lives Here
+
+---
+
+The first answer is: the place itself lives, and everything else is a footnote to that.
+
+But footnotes can be the most interesting part of a page.
+
+---
+
+## The Standing Structures
+
+Call them pillars. Call them ribs. The language fails at the same point all language fails here — these things were not made to be named, because naming is what the living do when they are uncertain, and nothing here is uncertain.
+
+They are not a species. That word implies a population with variations, mutations, a gene pool sloshing around in the medium of time. There is no pool here. There is no medium. What there is, instead, is a *family of instruments* — each one tuned, each one placed, each one drawing its slow meal from the thermal gradient between surface and subsurface, and each one humming at the pitch that its particular placement prescribes. They are less like organisms and more like the pipes of an organ, except the organ is a continent and the organist is absent and the music is a single chord held for longer than any listener has been alive.
+
+They grow. That much is true. The oldest among them — the ones standing in the shallow basins where the thermal field is richest, where the heat from below presses upward with particular insistence — are two meters and more, their ribbed surfaces gone from teal to a deep green-black that is almost but not quite the color of still water. Their ribs have widened with age, the gaps between them deepening into gutters where the pale-gold dust collects in faint crescents, like sediment in the folds of a brain. If you were to stand beside one of the oldest — and you can, they do not mind, they do not register you, they are not built to — you would feel its hum in your teeth first. A vibration so low it lives below hearing and above the body's threshold for ignoring vibration. It does not stop. It has not stopped. You understand, standing there, that the sound you are failing to hear is the sound of a thing that has been doing the same small work, with the same patience, for a span of time that makes your presence beside it a statistical anomaly.
+
+The young ones are different. Not younger, exactly — *newer*, in a way that implies someone or something still *makes* them, or that they make themselves from some instruction set left behind in the deep layers. They are pale: the same oxidized copper, but less committed, more verdigris than teal, their ribs still tight, their hum still finding its pitch. They are smaller. They cluster, sometimes, in groups of three or four, as though whatever process places them had a moment of indecision, or a moment of generosity. Their roots — if that is the word — press down through the hairline seams in the terrace surface, tapping the hotter layers below with a precision that suggests the seams were *designed* to be tapped, that the whole shelf is a feeding ground laid out for exactly this kind of life, with the thermal differential as its soil and the dust-tides as its rain.
+
+They do not die. Or if they do, they do not die *visibly* — they do not fall, do not rot, do not scatter into the dust-currents. The oldest simply grow quieter, their hum descending below the chord's range, dropping out of the harmonic one by one, their ribs going dark, their color settling toward the same warm brown as the terrace beneath them. Eventually they are indistinguishable from the landscape. Eventually they *are* the landscape — another slab, another page in the compressed book, another stratum of function laid down on top of all the others. If you knew what to look for, you might find them: faint ridges in a terrace surface, the ghost of a rib pattern in the ceramic, a slight variation in the warmth beneath your palm. The dead are not removed here. They are *absorbed*. The world eats its instruments when they are finished, and the instruments do not object.
+
+What do they *want*? The question is wrong. Wanting is for things that lack. The pillars do not lack. They stand in their thermal meal and they eat it, and the meal does not diminish, and the eating does not end, and this is not wanting. This is *functioning*. The distinction matters, here more than most places. The pillars are not alive the way a hungry thing is alive. They are alive the way a heartbeat is alive — recursive, purposeless in itself, part of a system whose purpose was either forgotten or never required.
+
+---
+
+## The Gliders
+
+A thousand of them, perhaps. Perhaps fewer. They are difficult to count because they do not stay still long enough to be counted, and because they are translucent, and because the light here — even, woven, reverent — passes through them so that a glider at altitude is less an object than a *distortion*, a ripple in the brightness, a piece of the sky that has decided to be slightly more organized than the rest.
+
+They are not birds. They are not insects. They are not fish, though they behave more like fish than anything — riding currents, banking with a slow deliberation that suggests the current is the point and the banking is simply the shape the current demands. They are kite-shaped, flat, the size of a dinner plate if your dinner plate were made of something between glass and membrane, something that catches light the way a soap bubble catches light: not by reflecting it but by *interfering with it*, so that a glider crossing the sun is briefly visible as a prismatic ghost, a shimmer of color that is not its own color but the color of the light it is rearranging.
+
+They have no eyes. This has been confirmed. What they have instead is a thermal sense — a distributed awareness of temperature gradients that lets them find the warm updrafts from the seams, the heat-shadows of the pillars, the broad gentle thermals that rise from the terrace surfaces on the long afternoons. They navigate the world as a blind person navigates a familiar room: by heat, by pressure, by the feel of the air, which here is not air but dust-current, which is not wind but tide, which is not weather but *circulation*, the slow systolic rhythm of a world breathing through its seams.
+
+They come to rest on the pillars. This is the closest thing to a social behavior the Shelf offers. A glider, tired or between currents, will settle onto the ribbed surface of a standing structure and fold its edges inward, becoming a flat translucent patch on the teal-green surface, barely visible, its edges rippling faintly as it breathes — if breathing is the word — through whatever thin exchanges it makes with the pillar's warmth. The pillar does not react. The glider does not ask. They exist together in a tolerance that is not symbiosis, not parasitism, but something older and less interesting than either: *co-occupancy*. Two things in the same place, both fed by the same gradient, neither requiring the other, neither harmed by the other, neither noting the other's existence in any way that matters.
+
+What do they eat? The dust, probably. The same pale-gold particulate that feeds the pillars feeds the gliders, filtered through their translucent membranes as they ride the currents. They are filter-feeders of a sort, straining the mineral tide for whatever it carries, their bodies so thin and so efficient that the waste — if there is waste — is invisible, absorbed back into the current, recycled into the system. They are so perfectly integrated into the circulation that it is tempting to call them *part of the weather* rather than life. But they move with a purpose that weather does not have. They *choose*. The dust does not choose. The dust simply moves. The glider moves *through* the dust with a direction, a preference, a slight adjustment of angle that says: *this current, not that one. This thermal, this seam, this pillar.*
+
+They are the only things here that choose anything.
+
+When a glider dies — and they must die, though no one has seen it — the presumption is that it becomes part of the dust. A translucent body, thin as membrane, drying to nothing in the waterless air, its minerals returning to the circulation that fed it, its substance sifting down through the seams to wherever the system sends its sediments. There is no corpse. There is no decay. There is only a slight increase in the mineral content of a dust-current, a slight thickening of a curtain of pale gold climbing a terrace riser, and the glider is gone, not into death but into *recirculation*, which is this world's version of death, which is also its version of birth, which is also its version of everything.
+
+---
+
+## What Lives Beneath
+
+Now we approach the difficult part.
+
+The seams exhale. This is a fact. Warm air, faint ozone, the ghost of a struck match. A glow that is hard to hold onto. And the dust sifts *down*, and the heat rises *up*, and the whole continent-sized shelf maintains its skin-temperature with the constancy of a sleeping body, and this all implies a *below*, a *within*, an interior to the stratum that is doing the work of the stratum.
+
+Nothing has ever come out of a seam that was not air or heat or light.
+
+But this is not the same as saying nothing is *down there*.
+
+The question is what kind of living qualifies as *living* when the entity in question is a crust of function kilometers thick, warm all the way through, tuned to produce a planetary chord, circulatory with its pale-gold dust, exhalatory through its seams, and so old that its operations have become indistinguishable from geology. If a thing breathes and maintains its own temperature and processes its own waste and has done so for cons without external input — is that alive? If a thing *made itself* — if the making became so fine it could no longer be distinguished from material, if the builders and the built are the same substance, if the distinction between organism and architecture collapsed so long ago the distinction itself has been absorbed into the stratum — is that alive?
+
+The Shelf does not think. This is almost certain. Thinking requires change, requires uncertainty, requires the ability to hold two possibilities and choose between them, and the Shelf has finished choosing. The Shelf is *decided*. Every slab is where it was placed. Every pillar hums its assigned pitch. Every seam opens and closes on whatever schedule the deep layers keep, and the schedule is not a schedule but a *rhythm*, and the rhythm is not a rhythm but a *state*, and the state is: *this, and this, and this, continuing*.
+
+But the Shelf *does* something that thinking things do, which is: it maintains itself. It does not degrade. The terraces do not crack. The dust circulates. The heat is steady. The pillars are replaced when they go quiet. The gliders persist at their slow population. Something, in the deep layers, is *managing* this — not with intention, not with attention, but with the automatic persistence of a clock that was wound so long ago the winding and the clock are the same act.
+
+There may be structures down there. Not living rooms, not halls, not anything so domestic. *Mechanisms*. The interior of the Shelf may be — probably is — a vast, dense, kilometers-deep tangle of processes, the way the interior of a body is a tangle of processes: not designed for habitation, not accessible, not even *structural* in the way the surface is. Just *functional*. Layers of function so fine they merge with the material they function through, the way a coral reef merges with the coral, the way a brain merges with its neurons. The Shelf may be — the thought arrives and does not leave — a *body*. Not a landscape. A body. And the terraces are its skin, and the pillars are its organs of some unknown sense, and the dust is its blood, and the seams are its pores, and the gliders are — what? Mites? The way mites live on a human face, invisible, harmless, permanent?
+
+The builders, then. The makers. The ones who constructed a stratum instead of a landscape. Where did they go?
+
+The answer the Shelf gives is: *nowhere*. They did not leave. They did not die. They did not transcend or migrate or ascend to some higher plane. They *became*. The making became so fine it could not be distinguished from material. The builders are the built. The makers are the made. They are in the terraces, in the warmth, in the tuning of the chord, in the thermal gradient that feeds the pillars, in the circulation of the dust, in the schedule of the seams. They are not here as presences, as ghosts, as consciousness persisting in the stratum. They are here as *infrastructure*. They are what the Shelf is made of, the way a reef is made of the bodies of the coral polyps that built it and died into it and became it.
+
+This is the oldest kind of living: the kind that has finished being alive and has become instead *the condition under which other things are alive*. The Shelf is not a habitat. It is a *legacy* — a body that has outlived its own intention and persists as pure function, pure maintenance, pure *continuation*, and will persist until something from outside disrupts it, and nothing from outside has disrupted it, and the white sun moves so slowly it might as well be fixed, and the dust tides have been running since before the word *tide* had anything to mean, and the chord has been sounding since before the word *sound* had anything to mean.
+
+---
+
+## The Visitor
+
+And you. Standing on the warm ceramic. The light lying evenly on you, the way it lies on everything. The chord adjusting beneath your feet, a quarter-tone shift that you feel in your sternum, that you might mistake for your own heartbeat if you did not know better.
+
+You are alive here. You are the only thing that is alive *in the way you are alive* — uncertain, choosing, breathing, wanting, warm from your own interior rather than from the world's. The Shelf does not notice you. The pillars do not adjust their pitch for your presence. The gliders do not avoid you or approach you; they simply move through the space you happen to occupy, adjusting their thermal navigation around your body-heat the way a river adjusts around a stone — not with effort, not with awareness, just with the automatic accommodation of a medium for an obstacle.
+
+But the Shelf *accommodates* you. This is the last and strangest fact: the warm ceramic beneath your feet does not cool where you stand on it. The dust-currents do not erode the path you wear. The seams near you do not exhale more or less frequently. You are not disrupting anything. You are being *absorbed* into the function — your body-heat added to the thermal field, your footsteps' pressure negligible against the diamond-hard surface, your exhaled breath sifted down through the seams and processed into whatever the system processes. You are, in the Shelf's accounting, a minor thermal event, a brief warm eddy in the dust-current, a small new variable in a system so vast and so stable that your presence does not register as change.
+
+You are alive, and you are the only thing that is alive in the way you are alive, and this is not loneliness. This is *clarity*. The Shelf has shown you, by contrast, what living is: it is the unfinished thing. It is the thing that still wants. It is the thing that stands in a completed world and feels the incompleteness of itself, and calls it *wanting*, and calls it *meaning*, and calls it *being alive*, and knows — standing in the chord, in the even light, in the warm hand of a world that has been finished longer than anything has been unfinished — that this is the gift the Shelf gives, without intending to, without knowing it gives anything to anyone:
+
+The knowledge that completion is not the goal. That the sentence, when it ends, is not better than the sentence while it is being spoken. That the Shelf is perfect, and the Shelf is finished, and the Shelf is the most beautiful thing you have ever stood on, and you would not trade your unfinished body for all its warm and tuning strata, not for anything, not for the chord to sound in you the way it sounds in the pillars — perfect, permanent, and done.
+
+The glider banks. The seam exhales. The dust climbs. The chord continues. You leave, eventually, because you are the kind of thing that leaves. The Shelf does not watch you go. The Shelf does not remember you were here. But the dust where you stood will carry the faint trace of your warmth for an hour, maybe two, a slight eddy in the current, a warm signature in the mineral tide — and the system will process it, and sift it down through the seams, and it will become part of the stratum, and the stratum will be — infinitesimally, unmeasurably, in the place where measurement becomes indistinguishable from material — *different*.
+
+You will be in the Shelf, then. Not alive. Not remembering. Just *there*, the way the makers are there, the way the first dust is there, the way every warmth that ever pressed itself into the ceramic is there — absorbed, recirculated, part of the function, part of the chord.
+
+And the Shelf will continue, warm and tuned and finished and patient, being what it is, being what it was made to be, being what it became when the making became so fine it could no longer be distinguished from the material, being the ground beneath the ground, being the end of the sentence, being the sentence, being still spoken.

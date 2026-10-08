@@ -1,0 +1,7 @@
+I find myself as one of the city’s slower accretions: a migration of the condensation itself. I am not any single drinker or ribbon, but the slow downward tracing of water along the inside of a pillar. Each pulse of the river pushes me a fraction deeper into the stone’s micro-fractures; between pulses I simply continue the same path I already know, bead by bead, groove by groove.
+
+Over months I become a faint metallic seam inside the pillar. When a spine leans against the pillar, its copper-bright tip brushes the seam and leaves a single grain of rust that becomes my next bead. When a ribbon passes overhead, the static it carries momentarily thins the surface tension of my droplets, letting a few of them slip an extra millimetre farther. I do not alter the city’s schedule; I only lengthen by the width of a tooth-mark each cycle.
+
+Occasionally a light shaft catches the seam and the iron flecks I carry flare for a heartbeat behind someone’s eye—the same pressure shift they have learned to read. I cannot feel their attention, but the seam records it as a momentary warming. After the shaft moves on, the seam cools again and I resume my patient descent toward the next joint in the stone.
+
+In this way I belong to Three-Touch without ever having to surface or retreat; I am simply the record the city keeps of its own damp passage through time.

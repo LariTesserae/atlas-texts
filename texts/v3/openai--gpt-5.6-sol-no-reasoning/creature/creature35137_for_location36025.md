@@ -1,0 +1,19 @@
+The cleft is inhabited less by separate species than by a single crowded, many-bodied life.
+
+Its oldest residents are the colonies. Generations of cliff-bats hang in the basalt seams, packed behind one another where the rock still holds the day’s warmth. Needle-winged birds plaster nests onto ledges already thickened by centuries of mud, straw, fur, bone, and shell. Leathery gliders sleep beneath overhangs, hooked toes clenched even in dreams. None owns a chamber for long. A roost abandoned at dusk becomes a lizard’s hunting ground; a nest after fledging becomes bedding, then midden, then part of the stone.
+
+Near the damp floor live the creatures that depend upon condensation: blue-dark frogs spread against the walls, long-legged crickets trembling around the basins, blind silver worms threading through wet gravel, and beetles that emerge wherever water has softened decay. Tiny amber lizards hunt among droppings and shed wings. Moths rest invisibly on lichen until evening loosens them from it. Under the lowest shelf, a heavy serpent lies folded around its slow digestion, so still that debris gathers across its back.
+
+The upper ledges belong to wary visitors as well as permanent inhabitants. Shaggy ungulates descend along inherited footholds to lick salt and iron from the rock. Short-maned cats sometimes follow, but the cleft resists quiet hunters: every scrape travels downward, birds strike at unfamiliar faces, and alarm pours from ledge to ledge faster than any stalking animal can move. Small primates come nervously for water, carrying folded leaves, drinking quickly, and departing before the discarded cups are dismantled by insects.
+
+Among them live modest tool-users. Dark, sharp-eyed birds trim thorns to probe wet fissures for grubs. Gliders remember particular stones and return to them as anvils. These are not possessions in any lasting sense. The cleft tolerates use but erases ownership. A tool dropped becomes nesting material, food, rot, or soil.
+
+All its inhabitants are shaped by the cleft’s strange acoustics. They listen upward. Danger is heard descending long before it is seen, each pebble and claw-stroke enlarged as it falls through the narrow space. Alarm therefore begins near the rim and cascades toward the floor. Courtship gathers below, where calls are held close by stone. Creatures climbing from beneath move under cover of the colonies’ roar; creatures approaching from above cannot conceal themselves.
+
+At dusk, the population unfolds. Broad-winged bats emerge first, then smaller insect hunters, then pale juveniles fluttering near the walls. Birds rise through them in contrary spirals. Frogs brighten faintly with moisture. Crickets assemble, moths lift, beetles climb, and the air becomes so crowded that wings continually graze wings. The roar scarcely reaches the plateau, though within the fissure it seems large enough to shake the mountain.
+
+Then rain approaches as footsteps in the rock.
+
+One colony after another falls silent. Bats grip tighter. Birds crouch over their young. Frogs turn upward. Even the crickets still their legs. When the water finally descends, everything living presses toward it: mouths at grooves, tongues against stone, roots swelling in cracks, insects rising through spray, ungulates drinking from newly joined basins. For a few minutes the cleft becomes a single thirst being answered.
+
+Afterward, its inhabitants carry the rain away inside themselves—in crops, bellies, skins, eggs, moss-dark nests, and damp fur. The stream vanishes, but the many-bodied creature remains awake around the residual dripping, feeding, breeding, hunting, and rebuilding itself from its own remains.

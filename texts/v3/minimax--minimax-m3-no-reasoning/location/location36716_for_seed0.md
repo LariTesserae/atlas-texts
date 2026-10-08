@@ -1,0 +1,19 @@
+# The Low Cauldron
+
+Picture a basin not yet finished with becoming.
+
+The floor is dark and soft, a young volcanic soil that has barely had time to settle into itself. It gives underfoot, and each step leaves a wet impression that slowly fills with groundwater seaming up from below. The water is warm. Everything here is warm. A misty exhalation hangs in the air — not true fog, because you can see through it in patches, but a permanent damp veil that beads on every surface, that keeps the skin slick, that turns the darkness into something almost tactile.
+
+The darkness is real. The light is wrong, sourceless, scattered — a kind of bioluminescent afterglow that comes from no single direction. It is the light of a forest floor at midnight when the fungi are fruiting, except the fungi here are not fungi. They are spires. They are stalks. They are ribbed columns the color of a bruise, some waist-high, some taller than a man, and they emit a faint pale gleam from within themselves as if they were lit by trapped weather. The air is full of spores, drifting in long lazy columns wherever the warmth rises.
+
+And everything is loud.
+
+The loudness is the first thing, really, before you even see. A sound like a swollen river heard through a wall, except the river is not a river. It is the swamp itself breathing. The hum of insects, but the insects are not the size of insects. Something moves in the undergrowth with the wet percussion of a body displacing a great deal of water. A croak so low it is more felt in the sternum than heard. The high piping of a thousand small throats, layered, never quite synchronized, so the noise has a slow churn to it, a tidal pull. Leaves — leaves the size of dinner plates — rustle with a sound like shuffling paper. Every few minutes there is a far-off boom, something heavy striking water or earth, and it rolls across the basin and dies in the dark.
+
+The vegetation is doing what vegetation does when given warmth and water and no real opposition, which is to take everything. Ferns as tall as a house. Trees with shallow roots splayed across the ground like the fingers of hands pressed into mud. Vines thick as thighs, drooping from branches in loops that brush the standing water. The standing water itself is never still — it is shallow, knee-deep in places, and choked with a floating mat of plants so dense you could almost walk on it if you were foolish. Flowers open in the crooks of branches, white and pulpy and faintly luminous, attracting moths the size of small birds.
+
+The fauna is everywhere because the fauna is what the place is for. Long shapes undulate just beneath the water's surface. A heron — except not a heron, its neck too long, its eye too knowing — stands motionless on a hummock and then is not there anymore. There are things in the canopy that drop without warning, hit the water, and are gone. The mud itself moves. Beetles the length of a hand click past in regimented columns, carrying fragments of leaf. At the edge of vision, something large shifts its weight, and the ferns part, and a flank the color of wet clay slides through, and then is gone into the deeper dark, and you hear it breathing for a long time afterward.
+
+There is no path. There is no clearing. There is no sign that anything with hands has ever set foot here — no cut wood, no stacked stone, no trail worn by walking. And yet, in the hush between one chorus and the next, you can hear, very faintly, the percussion of a dull stone striking softer stone, somewhere out in the dark, rhythmically, patiently, as if someone is working.
+
+But when you turn toward it, the sound folds into the swamp's louder voice, and the mist closes, and the pale columns lean in, and the warm water at your ankles pulls at you with a current that should not exist in a basin.

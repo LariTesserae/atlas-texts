@@ -1,0 +1,37 @@
+The district occupies a shallow basin no larger than a few streets, though its boundaries are difficult to see. Buildings crowd inward from every side: low factories, pumping houses, brick tenements, sheds roofed in corrugated iron. Their upper stories lean over alleys until opposing gutters nearly meet. What sky remains is the color of wet ash.
+
+Water is everywhere but seldom flowing freely. It stands ankle-deep in courtyards, fills the hollows worn into stone stairs, and trembles in the grooves of disused rails. Walls perspire through their mortar. Condensation gathers beneath balconies and runs from bolt heads in clear, persistent threads. Even indoors, shallow channels have been cut across floors to guide the seepage toward drains. The drains accept it slowly, breathing up bubbles with a smell of rust, warm clay, and old electricity.
+
+Nothing here appears newly flooded. The district and its water have reached an accommodation centuries in the making. Doorways have high thresholds. Steps are hollowed into smooth bowls where generations of runoff have fallen. Bricks near ground level have softened at their corners and darkened almost to purple; iron columns narrow toward their bases like candles consumed from below. Walkways cross rooms at knee height. Every pipe bends slightly toward a cistern, every sill has a notch through which rain can escape. The city has not defeated dampness. It has learned its habits.
+
+The basin is warm, though never bright. Heat leaks from machinery buried beneath the streets, keeping the water tepid and raising a permanent low mist. Lamps glow behind wire cages, their amber circles shortened by vapor. Factory windows have become mineral skins of soot, lime, and green algae, allowing through only a diluted radiance. At midday, one can infer the sun from a pale rectangular pressure overhead. At night, the difference is mostly that the lamps become visible as objects.
+
+Vegetation thrives wherever construction has paused. Moss upholsters drain mouths and climbs the shaded faces of brickwork. Liverwort spreads in broad, glossy plates over abandoned loading docks. Ferns emerge from expansion joints, their fronds unfolding above puddles filmed with oil. Black-green reeds fill vacant lots, and pale roots hang from ceilings where they have penetrated from rooftop gardens. Vines loop among electrical cables so densely that insulation, stem, and aerial root are hard to distinguish.
+
+There are no flowers, or none that open. There is no fruit.
+
+More conspicuous is the complete absence of animals. No rats disturb the refuse. No flies gather at the warm drains. No spiders occupy the ideal corners between pipes. The water contains neither larvae nor fish; when disturbed, it settles without the smallest living ripple. Even the vegetation bears no bite marks, no nests, no webbing. Leaves fall intact and decay slowly into black mats. Pollination, where it is required, is performed by fans and bellows: at scheduled hours the factories exhale through ducts, sending fine clouds of yellow or gray pollen down particular streets. Some vines turn their leaves toward these artificial winds.
+
+The machinery is old, extensive, and still operating. Its purpose is only partly evident. Behind brick walls, flywheels rotate with the patience of millstones. Pistons descend every several seconds, so slowly that their motion can be missed, then seat themselves with a concussion felt through the pavement. Pumps draw water from one level of the basin and deliver it to another, where it seeps back through masonry over months. Conveyor belts carry wet mineral paste into kilns; elsewhere, cooled ceramic blocks are ground down and returned to the paste. Dynamo housings hum beneath quilts of moss. Switchyards stand in flooded chambers, their copper contacts closing under glass bells.
+
+The district is loud without seeming busy. Noise accumulates rather than erupts. A continuous engine note fills the air, deep enough to register in the ribs. Over it come belt slaps, relay clacks, the sigh of pressure valves, and the immense periodic knocks from underground. Water adds a thousand close sounds: dripping from eaves, trickling within walls, ticking against sheet metal, gurgling under gratings. Because the lanes are narrow, every sound returns many times. A dropped tool may appear to fall through street after street before silence takes it.
+
+Yet very little changes quickly. A gate may spend an afternoon opening. Elevators climb between floors at the speed of rising water. The public clocks possess only hour hands, and these advance with audible ratchets. Large processes are measured in damp lines on walls: one pale band for a season, one crust of mineral for a decade. Workers—if the upright figures occasionally glimpsed on gantries are workers—stand for such long intervals that moss has grown over their boots. They may be people in waterproof coats, maintenance housings shaped for narrow corridors, or statues incorporated into the machinery. None can be heard speaking.
+
+At the center of the district is a square scarcely wider than a room. Arcades compress it on all four sides, and bridges cross overhead in three tiers. Its paving stones slope toward a circular reservoir covered by an iron grate. Warm vapor rises from below. Around the grate are municipal gauges, each protected by thick glass and engraved with measurements for pressure, depth, salinity, load, and something denoted only by a small spiral.
+
+The spiral gauge has no needle. Behind its glass, a drop of water moves around the dial.
+
+It completes one circuit every seventeen hours, including during drought. Whenever it reaches the highest mark, the district’s machines pause in sequence. First the roof fans cease. Then the conveyors, presses, and generators descend into silence, one block after another. With their noise withdrawn, a different sound becomes audible: a broad, slow movement beneath the city, like a submerged stone turning in mud.
+
+During this interval the standing water leans.
+
+It does not run downhill. Across every courtyard and flooded cellar, its surface tilts toward the central grate, climbing one edge of each basin without spilling. Condensation crawls sideways along pipes. Droplets detach from ceilings and fall at a slight angle. The hanging roots tighten. Leaves rotate toward the square.
+
+After several minutes, the pumps restart. The surfaces level. The industrial roar returns, and the district resumes its elaborate circulation.
+
+This appears to be the fundamental rule of the place: water may be moved, heated, filtered, lifted, and divided, but never removed. Rain contributes almost nothing to its total, and evaporation takes nothing away. The same volume passes endlessly through cistern, wall, gutter, root, boiler, mist, and lungless air. Perhaps the factories regulate it. Perhaps they are powered by its desire to gather beneath the square.
+
+At the basin’s perimeter, streets rise gently and become drier. Buildings thin. Light strengthens. But anyone following those roads eventually finds the incline reversing. The paving grows wet again; the roofs draw close; the subterranean engines return as a vibration in the feet. Without encountering a corner or turning back, the traveler enters the same little district from the opposite side.
+
+Only the water seems to know that there is nowhere else.

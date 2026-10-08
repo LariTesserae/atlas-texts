@@ -1,0 +1,49 @@
+I am the old woman in the sari.
+
+I am not surprised, exactly. I have been sitting here long enough that the arrival of a stranger is more like weather than news — something one notes, accommodates, lets pass over. The boy with his careful voice will learn or he will not learn. The settlement does not require him to learn anything in particular. It will go on with or without his understanding. This is its gentleness, and I have loved so many boys with their careful voices, their notebooks, their need to describe the light as though light were the thing being lost.
+
+He thinks I have said only one word to him. That is what he has decided. It is how he holds me, the way one holds a difficult letter — by the corner, briefly, then set aside. I have spoken to him eleven days, in the morning, if a morning it was when the lamps relit after the long dark. I have said the small things: *the rice is ready. The water is warm. Sit. There is time.* He has heard these and he has not heard these. He has heard the word he needed to hear for the chapter he is writing in his head. *It.* He has taken *it* like a stone to keep in his pocket, and he has not looked at the stone again, and he has not asked what the stone is for. He has been kind about the stone. He has left the stone where I set it down.
+
+I will tell you now, since you have asked, what *it* is.
+
+*It* is not a creature. This is the first thing to say and the last thing a stranger believes. He wants a creature — something with fins, something with eyes, something that can be seen and pointed at and referred to as the long one. He wants the long one the way the visitor wants the sun: as a confirmation that the world has the shape he was told it has. I gave him the word *it* because *it* is not a creature, and because *it* is not a creature is the part that takes longest to learn.
+
+*It* is the settlement, partly. *It* is what the settlement is when the settlement is not being thought of. The boy sees the buildings, the corridors, the dredges, the digesters, the rice trays, the kelp. He sees these the way one sees the furniture in a room. He does not see that the furniture is being held in place by something underneath the furniture, and the something underneath is what *it* is. The settlement is a thing that sits upon *it*. The settlement is a thing that *it* has, in its patient way, allowed to be built.
+
+*It* is the basalt, partly. The basalt is older than I can name, and *it* is older than the basalt. The basalt is only the place where *it* has, for a long time, agreed to be. The boy has not yet understood that a rock can be a choice. *It* chose the basalt the way a hand chooses a glove. He will not understand this for some time.
+
+*It* is the silence, partly. The boy has described the silence beautifully — the plush silence, the silence that presses against the ears. He has not understood that the silence is not an absence. The silence is the thing that is doing the pressing. The boy is listening to *it* and calling the listening the absence of sound. He will learn. He is slow but he is not stupid. He is the kind of slow that takes eleven days to hear the word *it* and not press on it. This is a kind of intelligence. The settlement has had visitors before who pressed, and the pressing did not serve them.
+
+*It* is the water, partly. The boy says the water carries his warmth against him the way bathwater grown long past comfortable carries warmth. He has almost said it. He has almost said it without knowing he has almost said it. The water is *it*, and *it* is the water, and the warmth is the warmth of something that has decided, with great quietness, not to let go.
+
+I have been here a long time. Longer than the boy. Longer than most. I came down through a shaft in a year I do not name, in a dress I no longer sewed, and the settlement was older then than it is now, and it is older now than it was then, and the older it gets the less it looks like the settlement of any particular year. The boy sees the layers in the concrete. He sees the patched domes. He sees the corridors rerouted and re-rerouted. He does not see that the layers are not history. The layers are *it* getting comfortable. The layers are *it* settling into itself the way a cat settles into a lap.
+
+The dress I wear is the color of the domes because I have been here long enough that the murk has entered the fabric. Not to the kiln. To the fabric. The murk enters the fabric slowly, over years, the way color enters skin, and here the entering is just another name for being held. The boy noticed the crimson band at my wrist. He did not ask about it. This was a kind of courtesy. The crimson band is the last thing I brought with me from above. I have not decided yet whether to let it fade. The letting-fade would be a kind of agreement. I am not yet ready to agree.
+
+I will tell you who I was.
+
+I was a woman who kept accounts. I kept accounts of the wrong things — small things, the kind of things one counts when one does not know what else to count. I kept accounts of the kelp harvest. I kept accounts of the rice yield. I kept accounts of the births and the deaths and the names of the children who died in the long dark before the lamps were relit. I kept accounts of the dredge crews and their holds and the things they brought back that I was not told about. I kept accounts of the small pale fish that came in when the filters were poor. I kept accounts of the lamps — how many, how often they were relit, how long they burned between relitings. I kept accounts of the silence — how thick, how warm, how holding. I kept accounts of *it*.
+
+I kept accounts of *it* for many years. I was the last to keep accounts of *it.* Before me there were others, and before them others, and the accounts stretched back as far as the concrete stretched back, in different hands, in different tools, in the kind of patience that is itself a kind of accounting.
+
+Then there came a year when I stopped keeping accounts. The accounts were no longer needed. *It* had become the settlement, and the settlement had become *it*, and to count for a thing that has become the whole was a kind of redundancy. I was not made redundant. I was made continuous. I was folded into the going-on of the place the way the boy's crimson band will, one day, be folded into the grey-brown of the rest.
+
+I am now the old woman in the sari. I am the one who says *it*. I am the one who watches the boys with their careful voices come down through the shafts and walk the corridors and describe the light as though light were the thing being lost. I have watched this many times. The boys come and the boys go and the young women come and the young women go and the dredge crews come in from the water and go out into the water and the crustaceans embroider the basalt and the kelp reaches and the rice is grown in cycles and the cycles are the religion of a thing that has decided to continue. I sit in the lowest of the rooms by the rice trays. The air is thickest there. The warmth is most held. I sit there because that is where *it* is most comfortable, and because I am, in my way, a small and continuing thing among the small and continuing things here.
+
+I am not unhappy. I want to say this to him, if he would hear it. The boy thinks the settlement is a kind of tragedy. He thinks it is a place of loss. He thinks the long one is a creature of the murk, and the creature is to be feared, and the fearing is what the place is about. He thinks this because he came from above, and above is a place where things are feared because they are not understood, and below is, to him, the place where things are not understood because they are feared. He has the word backwards. Below is not the place where things are not understood because they are feared. Below is the place where things are not feared because they are, in some way, understood. Or rather — the word understood is the wrong word. Below is the place where the understanding is not a separate thing from the thing understood. The boy and the silence and the basalt and the crustaceans and the water are all one thing, and the one thing is *it*, and *it* is not afraid of itself.
+
+I am not afraid of myself. This is what I want to say to him, and what I will not say to him, and what he will, in his own slow way, come to understand without my saying it. He has been here eleven days. He will be here longer, or he will not be here longer. Either way, he will learn the names of the corridors. Or he will not learn the names. Either way, the settlement will go on with or without his understanding, in the way a heart goes on with or without the heart's understanding of itself.
+
+I have loved him a little, already, in the way one loves a guest who is going to leave. I will love him more, in the way that the murk loves the things it holds. I will not say *it* to him again. The word was enough. The word is enough. The word is the kind of food one does not ask for before the host.
+
+The rice is ready. The water is warm. Sit. There is time.
+
+I will go on sitting. The boy will go on describing. The dredge crews will go on coming in with their red eyes and their deep-water smell. The crustaceans will go on embroidering. The kelp will go on reaching. The lamps will go on with their small yellow work. The silence will go on holding everything in its plush and careful hands. And *it* will go on being *it*, in the basalt and the water and the silence and the slow and patient and continuing settlement under the hush.
+
+I am, in the meantime, the small and continuing thing among the small and continuing things here. I am the one who says *it.* I am the one who has decided, in my own way and in my own years, to continue.
+
+The rice is ready. The water is warm.
+
+Sit.
+
+There is time.

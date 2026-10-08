@@ -1,0 +1,23 @@
+The geography here is not old enough to be forgiving. It is a jagged, sprawling wound in the crust of the world, a high-altitude serration of stone that punches upward into the thin, freezing air.
+
+Because the elevation is immense (2.5/3), the horizon is not a line, but a curve that falls away beneath you, revealing a scale (3.0/3) that defies human comprehension. These are not mountains; they are the tectonic ribs of a planet-sized machine, freshly extruded (erosion 0.8/3). The edges of the cliffs are knife-sharp, the granite and basalt still bearing the smooth, glassy sheen of their violent birth, having never known the caress of a river or the grit of a sandstorm to round them off.
+
+It is aggressively cold (0.5/3). The air is so thin it feels like inhaling broken glass, a dry, piercing chill that sinks immediately to the bone. Yet, paradoxically, the world weeps. Water is everywhere (1.6/3), but it does not flow in rivers. Because the stone is still warm from the internal heat of the earth’s creation, and the air is freezing, the atmosphere exists in a state of perpetual conflict. Massive clouds of condensation roll off the peaks like steam from a kettle, instantly flashing into fog or freezing into rime.
+
+The "rain" here is vertical and motionless. As the warm, wet air rises from the deep fissures, it hits the freezing upper layer and turns instantly into pillars of ice mist. They stand like ghostly soldiers between the buildings, static and trembling. The surfaces are slick; weeping rocks are draped with long, hanging stalactites of clear ice that grow silently downward toward the void, dripping eternally but never flooding.
+
+There is no soil, only rock and the tenacious grip of metallic flora (vegetation 1.6/3). The "lushness" here is a misinterpretation of biology by a human eye. The vegetation is not green and soft; it is silver and serrated. Vast forests of conductive ferns and aluminum-tipped mosses carpet the vertical faces of the cliffs. They drink the condensation and conduct the planet’s magnetic field, glowing with a faint, thrumming bioluminescence that mimics the sodium-orange of streetlamps. They grow in tight, geometric spirals, fed by the chemically rich runoff that seeps from the fresh fractures in the stone.
+
+And then there is the city (built 1.5/3, tech 2.5/3).
+
+It rises from the backs of the plateaus like a rusted infection on the skin of the gods. It is industrial, heavy, and limitless. Gigantic gantries and the skeletal remains of mega-structures stretch for thousands of miles, connected by suspension bridges that hang like piano wires across canyons miles deep. The architecture is brutalist and recursive—factories built upon factories, smokestacks piercing the cloud layer, their bases lost in the mist.
+
+It is a place of profound emptiness (density 0.3/3). For all its vast construction, there is no one here. The city is fully powered, fully operational, and entirely devoid of life (fauna 0.1/3). The buildings are dark, their windows staring out like vacant eyes, reflecting the grey, normal-quality light (light 1.8/3) that filters weakly through the smog.
+
+The atmosphere is defined by a sound (sound 2.4/3) that never ceases, a deep, infrasonic thrum that vibrates in the teeth and the marrow. It is the sound of the Machines—massive planetary engines deep within the crust, or perhaps the turbines of the city itself. Because the air is so thin and the space so vast, the sound travels without distortion, a constant, roaring drone that suggests a sleeping giant is breathing just beneath the floor.
+
+The physics of the place feel wrong (weirdness 2.2/3). Gravity seems to pull slightly sideways here, or perhaps the sheer scale of the vertical drops distorts the perception of up and down. In the distance, mega-elevators the size of city blocks move slowly up and down invisible tethers, moving cargo that never arrives, to destinations that do not exist.
+
+Time here is a flat circle (dynamic 0.4/3). Nothing changes. The ice drips, but the icicles never lengthen; the steam rises, but the clouds never disperse. The pistons of the distant factories pump in a rhythm so slow it takes hours to complete a single cycle, yet they never complete it. It is a frozen equilibrium. The rust on the girders is the precise shade of oxidized red it was a thousand years ago, and will be a thousand years hence. It is a world caught in the nanosecond between the moment of creation and the moment of decay, held in suspension by a technological strictness that forbids entropy.
+
+It is a vast, freezing, deafening cathedral of industry, lush with metallic life and weeping stone, standing forever at the precipice of a change that will never come.

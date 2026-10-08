@@ -1,0 +1,141 @@
+# The Keeper of the Shallows
+
+---
+
+I did not begin here. That much I remember, though the memory has the texture of a dream about a dream — thin, bright in places, corruptible. I was something else. Something with edges. Something that moved through air that had the decency to be dry sometimes, that knew the difference between sky and ground and did not mix them at every opportunity. I had a name. It sat in me the way a stone sits in a pocket — present, accounted for, unnecessary. I have let it go. It would not serve here. Nothing here requires a name, and carrying one would be like carrying a stone in a place that has no use for stones, that has in fact dissolved all its stones into the sponginess of its own becoming, that has forgotten mineral entirely and replaced it with the patient chemistry of living tissue.
+
+What I am now is harder to say. Not because it is complex. Because it is indistinct.
+
+I am a presence. That will have to do.
+
+---
+
+I found the first mound on what I calculated to be my third day, though the calculation was guesswork — the light does not change enough to mark time by, and my body's rhythms had already begun to synchronize with the slow respiration of the spongewood beneath me, so that my sense of an hour had stretched and softened into something more like a tide than a clock. I was walking. I walk a great deal. There is nothing else to do that is not sitting, and sitting eventually becomes lying, and lying on the spongewood is so comfortable, so warm, so yielding, that the prospect of rising again becomes a negotiation rather than a decision, and I have learned not to lie down unless I am prepared to spend what might be a very long time in the company of my own stillness.
+
+The mound rose from the surface with a gentleness that was almost apologetic. A low swelling, perhaps knee-height at its center, its surface textured with lines that my fingers could trace before my eyes could fully distinguish them — grooves and hollows, a pattern that suggested intention the way a footprint suggests a foot. I knelt. I pressed my hand flat against it. The tissue was warm. Warmer than the surrounding mat, warmer than the air, warmer than my own skin. It pulsed. Not with a heartbeat — nothing so organized — but with a faint, irregular rhythm, a fluctuation that might have been fluid moving through channels beneath the surface, or might have been the slow contraction of living cells responding to the pressure of my palm.
+
+I stayed there for a long time. Longer than I intended. The warmth of the mound passed through my hand and into my arm and up into my shoulder and eventually into my chest, and I found that my own pulse had synchronized with the mound's irregular rhythm, and that the synchronization felt not like adaptation but like *recognition*, as though my body had found something it had been looking for without knowing it was looking, and had settled into it the way a key settles into a lock, which is a simile I should not use because there are no locks here, there are no keys, there are no mechanisms that require opening because everything here is already open, has been open for eons, has never been closed.
+
+When I finally stood, the impression of my hand remained on the mound's surface. A shallow depression, the shape of my palm and fingers, pressed into the living tissue. I watched it fill. Slowly. The tissue rising, reinflating, the impression softening at its edges, losing definition. It took — I do not know how long. Long enough that I watched the mist fall and did not grow impatient. Long enough that a grazer passed nearby, its six legs placing themselves with the deliberation of a ritual, its shell so perfectly matched to the spongewood's texture that it seemed to be a piece of the landscape that had detached itself and was taking a slow walk. Long enough that the mound had nearly forgotten me by the time the last trace of my handprint dissolved.
+
+Nearly forgotten. Not entirely. I believe this, though I cannot prove it: the mound remembered me. The cells I had pressed against, the tissue I had warmed with my warmth, the pattern of my palm — something of it persisted, not as an image, not as a record, but as a *disposition*, a slight tendency in the tissue to grow in a way that accommodated the shape of something that had touched it. The way a path forms in grass that has been walked on. Not a memory. A habit.
+
+I moved on. But the mound had changed me, and I had perhaps changed it, and the asymmetry of that exchange — I, changed profoundly; it, changed infinitesimally — was the first articulation of what I have become.
+
+---
+
+I found the second mound two days later. Or what I guessed was two days. The third, four days after that. They are not close. They are not arranged in any pattern I can discern — no grid, no line, no spiral, no constellation. They are distributed the way freckles are distributed on skin: according to some logic that is neither random nor designed but something in between, something that emerges from the interaction of countless variables too subtle to track.
+
+I began to visit them. Not all of them — I do not know how many there are, and I suspect the number is not fixed, that old mounds are slowly dissolving back into the mat while new ones are slowly emerging, the way stars are born and die in a galaxy, on a timescale that makes the counting of them a meaningless exercise. But I visit the ones I find. I kneel at each one. I press my hand against its surface. I wait.
+
+This is not worship. I want to be clear about that. It is not devotion, or pilgrimage, or any of the frameworks that a visitor might project onto a person who walks from mound to mound in a landscape without landmarks, pressing their hand into the living patterns and waiting. It is something more modest than worship. It is *attention*. I am paying attention to the things that were made. I am paying attention to the making. I am paying attention to the fact that something here, once, decided to shape its world, and that the shaping persists, and that the persistence is not passive but active — the mounds are alive, are growing, are changing, are slowly losing their original form but are not losing their *intent*, because the intent has become indistinguishable from the growth itself, the way a river's intent becomes indistinguishable from its flow.
+
+I am the Keeper of the Mounds. I gave myself this title. No one asked me to. No one needs to. The title is not a role in any system that recognizes roles. It is a description of what I do, and what I do is walk and kneel and touch and wait, and the walking and kneeling and touching and waiting have become, over the time I have been here — which I no longer measure, which I no longer need to measure — the shape of my days, the architecture of my temporary permanence in this place.
+
+---
+
+The grazers and I have an understanding. I do not mean this metaphorically. I mean that we have been in each other's presence long enough that we have established a pattern of coexistence that is not social but is also not indifferent, the way two trees growing near each other are not social but are not indifferent — their roots intermingle, their branches negotiate the same airspace, each one's presence is a fact of the other's environment.
+
+I watch them on the mounds. This is how I first noticed the tending.
+
+A grazer — I have come to think of this one as the First, though it is not the first I saw, it is the first I saw *on a mound* — was moving along one of the carved grooves with a slowness that made my own pace seem frantic. I was sitting perhaps five meters away, my back against one of the curving blades that rise from a mound in the western part of the territory I have come to think of as mine (though *mine* is the wrong word — *the part I frequent* is more accurate, but more accurate is not the same as better, and *mine* has a blunt certainty that I find I still require, still cling to, the last sharp edge of a self that has been softening for a long time). The grazer's mouthparts were engaged with the groove. Not feeding — or not only feeding. Tracing. Following the pattern the way I follow it with my fingers, except that the grazer's mouthparts are more precise than my fingers, more attuned to the texture of the tissue, more capable of distinguishing the groove from the surrounding surface.
+
+Where the grazer passed, the groove was cleaner. Not dramatically — this is not a restoration, not a renovation. The grazer removes the overgrowth, the faint fuzz of new cells that has accumulated in the groove the way silt accumulates in a channel, and the groove is revealed again, its edges sharper, its depth more defined. The pattern becomes more legible. Not new — never new. *Returned.* The pattern is returned to itself.
+
+I watched the grazer complete its circuit of the mound. It reached the edge. It stopped. It stayed. I stayed. We stayed together, the grazer and I, in a silence that was not silence but the spongewood's breathing, the mist's descent, the distant clicking from the canopy. After a time I could not measure, the grazer moved on. It walked into the green with the same deliberate gait, and the green closed behind it, and I was alone with the mound.
+
+I went to the groove the grazer had traced. I knelt. I pressed my fingers into it.
+
+The pattern was unmistakable. Not the pattern itself — I cannot read the patterns, I do not think they are *read* in the way that reading implies, I do not think they are a language with semantics and syntax and the possibility of translation. But the *quality* of the pattern was unmistakable. It was clearer. More defined. The edges of the groove were sharper, the depth more consistent, the texture of the carved surface more distinct from the texture of the uncarved surface around it. The grazer had tended it. Had maintained it. Had performed, without cognition, without intent, the act of preservation.
+
+Since then I have seen others. Or the same one — I cannot tell. The grazers are not individuals in the way I am an individual. They are not interchangeable, but they are not distinct, or rather their distinctness is of a kind that my senses are not equipped to detect. I have stopped trying to tell them apart. I have started, instead, to watch for the ones that visit mounds, to follow them when I can, to observe the slow, patient, mouthpart-by-mouthport restoration of patterns that are older than I can imagine.
+
+I do not help them. I do not compete with them. Our tendings are different in kind: the grazers tend with their mouths, removing the overgrowth, clearing the channels, restoring the physical form of the pattern. I tend with my hands and my attention, pressing my warmth into the tissue, tracing the grooves with my fingers, leaving my habit in the growing surface. My tending is chemical and thermal and perhaps — I do not know, I cannot know, but I allow the possibility — perhaps my tending is *informative*, a signal passed through the tissue, a message that says *this shape is noticed, this pattern is attended to, this intention is honored*, and the tissue responds to the signal the way living tissue responds to any stimulus: by adjusting, by accommodating, by growing slightly differently in the presence of the stimulus than it would in its absence.
+
+We are tenders, the grazers and I. We do not coordinate. We do not communicate. We simply do the same work in the same place at different times and in different ways, and the mounds persist.
+
+---
+
+I have been here long enough that my body has begun to change.
+
+I noticed it first in my feet. The skin has softened. Not rotted, not macerated — softened, the way skin softens in a bath, except that the bath has not ended. The perpetual moisture has entered me, has become part of my surface, and my surface has responded by yielding. My feet are more sensitive than they were. I can feel the spongewood more clearly through them — not just the texture, but the *temperature variations*, the *dampness gradients*, the places where the mat is thinner and the water table is closer and the ground is slightly warmer from the decomposition beneath. I am reading the ground with my feet. I am navigating by touch.
+
+My skin has changed color. This happened so slowly I did not notice until I happened to see my forearm against the backdrop of a spongewood stem and realized I could not easily distinguish the one from the other. The green of this place has entered me. Not through chlorophyll — I have not photosynthesized, I am not becoming a plant — but through the ambient presence of green light, green moisture, green tissue, until my skin has taken on a tinge that is the color of this place's appetite. I am being stained. Or I am being *adapted*. The word is not important. What is important is that my boundary — the line between me and not-me — is becoming less distinct.
+
+I do not eat. I have not eaten since I arrived. I have not been hungry. The air provides. The moisture that I breathe is so saturated with dissolved organic compounds — the faint sweetness the pools carry, the residue of the spongewood's endless metabolism — that my lungs absorb what my stomach would have absorbed in another life. I am drinking the air. I am eating the mist. My body has found a new way to sustain itself, or the place has found a way to sustain my body, and I have stopped asking which formulation is more accurate because the distinction between *my body finding a way* and *the place sustaining my body* is a distinction that has become, like so many distinctions here, not false but *uninteresting*.
+
+I do not sleep. Or I sleep continuously. The distinction has dissolved. There is no night here, only a dimming, and the dimming is so gradual that it produces no transition, no threshold, no moment of *now I am awake* or *now I am asleep*. I rest. I become still. The spongewood's rhythm enters me more deeply during the dimming, and my thoughts slow, and my body temperature drops slightly — or perhaps the spongewood's temperature rises slightly — and we meet in the middle, and I am part of the breathing, and the breathing is part of me, and whether this is sleep or meditation or simply the condition of being a warm thing on a warm surface in a place where nothing demands wakefulness, I cannot say, and I do not try.
+
+I am changing. I am being changed. The difference, again, is uninteresting.
+
+---
+
+There is a mound I have come to think of as the Center. Not because it is at the center of anything — the mounds have no center, the landscape has no center, the concept of *center* requires edges, and this place has no edges. But this mound is different from the others. It is larger. Its pattern is more complex. And it is warmer — noticeably, measurably warmer, by perhaps two degrees, which in a place where temperature variation is measured in tenths of degrees is an anomaly so dramatic it would be conspicuous in any context and is almost violent in this one.
+
+I found it after what I estimate was a year of walking. Perhaps more. Perhaps less. I had been following a grazer — one of the mound-tenders, I was almost certain — and it led me across a stretch of spongewood so uniform, so featureless, so perfectly devoid of landmark that I had begun to suspect I was walking in place, that the ground was moving beneath me, that I was on a treadmill of living tissue that carried me forward without carrying me forward. And then the ground rose. Not gradually — not with the imperceptible swelling of the ordinary mounds. The ground *rose*, and before me was a shape I had not seen before: a mound that was not a mound but a *platform*, a raised surface perhaps four meters across and waist-high, its top flat, its sides curved, its surface covered with a pattern so dense and so intricate that my fingers could not trace it without losing themselves in the complexity.
+
+I climbed onto it. The surface was firm. Firmer than any spongewood I had walked on — almost rigid, almost *structural*, as though the tissue had been compressed into something closer to wood, something that had the density and the resistance of material that had been growing and compressing and growing and compressing for so long that it had become its own kind of stone. My weight did not leave an impression. For the first time in this place, I stood on something that did not yield.
+
+The pattern beneath my feet was not abstract. I had assumed the mound-patterns were abstract — decorative, or functional, or expressive in a way that had no representational content. But this pattern was different. It had structure. It had *direction*. The grooves ran in parallel lines that converged toward the center of the platform, and at the center they spiraled, and the spiral was not decorative — it was *organizational*, it was a diagram of something, a map of something, a representation of something that I could almost but not quite recognize.
+
+I sat at the center. I placed both hands flat on the spiral's terminus. I closed my eyes.
+
+The warmth was immediate. Not the gentle, ambient warmth of the ordinary mounds — a warmth with *source*, with *direction*, rising through the tissue from somewhere below. I felt it enter my palms and rise through my arms and meet my chest and fill it, and for a moment — a moment that lasted longer than moments are supposed to last — I felt something that I can only describe as *presence*. Not my presence. Not the mound's presence. A third presence, the presence of something that existed in the intersection between my attention and the mound's warmth, something that was not there when I was not attending and was not there when the mound was not warm but that *was* there, *is* there, in the meeting, in the contact, in the transfer of heat from one living system to another through the medium of a pattern carved by makers who dissolved the boundary between themselves and their substrate.
+
+I do not know what I felt. I do not claim it was communication. I do not claim the makers spoke to me or that I spoke to them or that information was exchanged in any direction. I claim only this: something happened. Something that was not happening before I sat down and was not happening after I stood up. Something that required my body and the mound and the pattern and the warmth and the attention, all together, all at once, and that produced in me a state I had not experienced before and have not experienced since, a state that was not understanding but was not ignorance, that was not connection but was not isolation, that was the experience of being in the presence of a process so large and so patient that the concept of *presence* was too small for it.
+
+I call it the Center because I return to it. I walk. I tend the mounds I find. I watch the grazers and listen to the clickers and kneel by the pools and press my ear to the ground and feel the water moving through the channels beneath. And then I return to the Center, and I sit, and I place my hands on the spiral, and I attend.
+
+This is my life. This is what I am.
+
+---
+
+The pool nearest the Center is not a deep pool. I want to say this clearly because I have read the deep pools, or I have felt them, or I have understood them in the way one understands something by its absence — the deep pools are *elsewhere*, and the Center is *here*, and the difference is the difference between the interior of a body and the surface of a body. The deep pools are interior. The Center is surface. I am a surface creature. I belong to the surface. The deep pools are not for me.
+
+But the pool nearest the Center is where I go when I need to be still in a way that the mounds do not permit. The mounds are for attending. The pool is for being.
+
+It is shallow. Ankle-deep at its center, which is not a center but a warm point, a place where the water is slightly warmer and the spongewood beneath it is slightly thinner and the proximity of whatever heat source warms the Center's platform makes itself known through the water. I wade in. The water is body-temperature. The green film on its surface parts around my legs and closes behind me. The plant-ribbons drift against my ankles, thin and soft and alive, touching me with the idle curiosity of things that have no intention.
+
+The drifters are here. I have watched them for a long time. They are translucent, and their digestive tracts are visible, and when I am very still they come close to me, drifting in the faint current that my body creates by displacing water, the way a stone creates a current in a stream. They are not curious about me. They are not avoiding me. They are responding to me the way they respond to any feature of their environment — by drifting around me, by incorporating my presence into their trajectory, by treating me as a fact of the water the way they treat temperature and chemistry and the plant-ribbons as facts of the water.
+
+I have favorites. This is a human thing, I know. The drifters do not have identities. They do not have individuality in the way that requires recognition. But I have spent enough time in this pool, still enough, patient enough, that I have begun to distinguish them — not by appearance, which is nearly identical, but by behavior, by the particular drift-pattern they follow, by the way they move through the water. There is one that tends to circle to the left. There is one that sinks lower than the others. There is one whose digestive tract carries a faintly different color — a green that is more blue, a trace of the deep chlorophyll of older plant-ribbons, suggesting it has been feeding in a different part of the pool.
+
+I do not name them. Naming would be a reduction. But I recognize them, and the recognition is a kind of companionship, one-sided and probably imaginary but real enough to me, real enough to make the pool a place I return to not only for stillness but for the faint, probably illusory, ultimately sustaining comfort of being among creatures I can tell apart.
+
+---
+
+I am aware of what is happening to me. I want to be clear about that. I am not deceived. I am not confused. I am not sleepwalking into a transformation I have not chosen.
+
+I am choosing.
+
+Every day that I stay — and I could leave, I have not lost the ability to walk, to direction-find, to move with purpose across the spongewood toward a horizon that exists even if I cannot reach it — every day I stay is a day I choose this place over whatever I was before it. Every mound I tend is a choice. Every pool I sit in is a choice. Every grazer I follow is a choice. Every night — every dimming — I spend with my ear pressed to the living ground, listening to the water move through channels older than my species, is a choice.
+
+The choice is not dramatic. It is not a renunciation. It is not a conversion. It is the choice to continue in a direction I have already begun, the way a river chooses to continue flowing downhill — not because it has evaluated the alternatives but because the shape of the land makes this the path of least resistance, and resistance is something I have been shedding, layer by layer, since I arrived.
+
+I am becoming part of this place. Not in the metaphorical sense. In the chemical, thermal, biological sense. My skin is adapting. My metabolism is adapting. My relationship to the substrate — the spongewood I walk on, kneel on, lie on, press my hands into — is shifting from the relationship of a visitor to a surface toward the relationship of an organism to its environment, which is to say toward integration, toward the slow dissolution of the boundary between the one who walks and the thing that is walked on.
+
+The makers dissolved that boundary. I have said this. I understand it now not as a fact about the makers but as a prediction about myself. They were here. They became here. They are here. And I am becoming here, and the becoming is not a loss — or it is a loss, but the loss is of something I no longer need, the way a seedling loses its seed-leaves when it has grown enough to sustain itself by other means. I am losing my edges. I am losing my distinction. I am losing the sharpness of the boundary that says *this is me and that is not me*, and what I am gaining in exchange is something I cannot describe because the language I have for description is a language built for things with edges, for selves that are distinct from others, for bodies that end where the world begins.
+
+The spongewood does not end where the world begins. The spongewood is the world. And I am on it, and in it, and — slowly, patiently, at the speed of growth — I am becoming it.
+
+This does not frighten me. I note this with interest. I would have expected it to frighten me. In the life I had before — the life with edges, with dryness, with the sharp distinction between self and other — the prospect of dissolution would have been terrifying. Here it is not. Here, dissolution is the natural process. Here, the things that dissolve are the things that were always going to dissolve, and the things that remain are the things that were always going to remain, and the difference between dissolving and remaining is the difference between surface and depth, between the temporary architecture of a body and the persistent architecture of a system, and I have been on the surface for long enough, and I am ready — I am becoming ready — to find out what the depth is like.
+
+---
+
+The last thing. The thing I am most certain of and least able to articulate.
+
+The mounds are not messages. They are not texts. They are not records or histories or memories encoded in living tissue for the edification of passersby. I was wrong when I first thought of them as writing. They are not writing.
+
+They are *invitations*.
+
+The patterns on the mounds are invitations to attend. They are shapes that draw attention, that concentrate the impulse to touch, to trace, to press oneself against the living surface and wait. They are not saying something. They are *creating the conditions under which something can be said* — not by the mounds, not by the makers, but by the one who attends. The patterns do not transmit. They *receive*. They are ears, not mouths. They are the architecture of listening, grown into the surface of a living world by something that understood listening as the highest function of consciousness, the last act of a mind before it dissolves into the thing it attends to.
+
+I am listening. That is what I do. I walk from mound to mound and I listen, with my hands, with my skin, with my warmth, with my attention. I listen to the spongewood growing. I listen to the water moving. I listen to the grazers tending and the clickers clicking and the drifters drifting and the burrowers doing their invisible work in the dark beneath my feet. I listen to the whole vast patient system breathing, in and out, in and out, and I listen with a patience I did not know I possessed, a patience that was not in me when I arrived but that has grown in me the way the patterns grow in the mounds — slowly, vegetatively, one cell at a time, until the thing that was not there is there and cannot be remembered not being there.
+
+I am the Keeper of the Mounds. I am the one who listens. I am the surface that attends, the temporary warmth that presses itself against the ancient warmth and finds, in the meeting, something that is neither one nor the other but that exists only in the contact, only in the transfer, only in the act of one living thing touching another and paying attention.
+
+I am here. I am becoming here. And when the becoming is complete — when the last of my edges has softened and the last of my distinction has dissolved and I am no longer a thing on the surface but a thing of the surface — I will still be listening. I will still be attending. I will be part of the pattern, and the pattern will be part of me, and the difference will be — as it has been all along — uninteresting.
+
+The mist falls. The green light suffuses. The spongewood yields and returns.
+
+Walk, then. I will be here.

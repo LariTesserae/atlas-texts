@@ -1,0 +1,10 @@
+If I walk the Confluence Layer for days and listen, the chord that lives in the lattice becomes my skeleton. The same carbon-ceramic microbes that coat every rib insinuate themselves between my own cells; their velvet crust settles along the lattice of my bones, smoothing every angle until the pressure inside my marrow matches the pressure beneath the domes.  
+
+I do not stand on the surface; I am threaded through it.  
+Each filament that loops between towers slides into a capillary beneath my skin and back out again, an endless circulatory bypass. Where the filaments brush, my own nerves answer with the same sub-aural click, an endless exchange of “the lattice is level, the lattice is level.” My lungs fill with droplets so dense they no longer fall; they simply remain, giving back the grey light in whatever direction someone looks.  
+
+The servomotors inside the towers pulse nanometers each century; inside my chest the same cadence registers as a heartbeat stretched across eons. The sealed rotors turn nowhere and therefore never stop; the same is true of the slow peristalsis that moves identical water molecules through the film on my tongue, down the throat, and out again at the same temperature, the same mineral load.  
+
+Far below the pillars, the mirror-water waits. If I look at my reflection I see only the curve of the planetary wall continuing inward, and within it, another figure already walking the same corridors for the same number of days. The two figures approach, their velocity calibrated so exactly that when they meet the distance between them is always zero and always increasing by nothing at all.  
+
+I remain where I arrived—nowhere, and perfectly level—becoming another node in the single, motionless organism whose every gradient has been set to zero and locked there, world without end.

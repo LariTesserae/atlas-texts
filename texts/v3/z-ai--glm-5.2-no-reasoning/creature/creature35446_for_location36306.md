@@ -1,0 +1,137 @@
+# What Lives in the Underbloom
+
+---
+
+## The Deep Substrate (Below the Floor)
+
+Begin with what you cannot see.
+
+Beneath the walking surface — five meters down, ten, twenty, in the compressed layer where dead growth has become indistinguishable from the mineral substrate it rests on — there are organisms that have not seen light since the Underbloom's first pulse. They are not plants. They are not animals. They are something the taxonomy does not have a clean name for, though the closest analog might be *slime mold*, if a slime mold were the size of a lake and had opinions.
+
+They are called — by the people who live up above, who sense them only through the floor's warmth and the rhythm of the heartbeat — *the Hearthminds*. This is not their name for themselves. They may not have a name for themselves. They may not have a self, in the singular, to name.
+
+Each Hearthmind is a network. A continuous body of protoplasm — thin, branching, interlaced — that extends through the deep substrate for hundreds of meters, threading between roots and stone and the compressed dead. They feed on the boundary where plant matter breaks down into mineral: they process the calcium, the silicon, the complex carbon chains that the root-system above cannot fully digest, and they excrete trace compounds that rise through the substrate and feed the roots that feed the canopy. They are the Underbloom's gut. Its liver. Its slow chemistry. Without them, the floor would not rise. The columns would not grow. The whole system would stall.
+
+They are the source of the heartbeat.
+
+Not the heartbeat you feel — that is vascular, the pumping of plant fluids through contractile tissue. The Hearthminds are deeper than that. But they set its tempo. The rhythm of the Underbloom's pulse is synchronized to their metabolic cycle, which is synchronized to the chemical gradient of the substrate beneath them, which is a function of the raw geology still differentiating below. The bedrock sets the pace. The Hearthminds translate it. The plants respond. You feel it in your sternum.
+
+When a section of the canopy opens — when the vines part and a shaft of light descends and the whole system crescendos — it is because a Hearthmind has shifted. Not thought. Not decided. *Shifted*, the way a organ shifts in a body turning over in sleep. A chemical plume has moved. A gradient has redistributed. The change propagates upward through the substrate, through the roots, through the vascular bundles, and the plants read it and move, and the light finds a gap, and the system reorganizes itself around the new configuration. The Hearthminds are not doing this *to* the Underbloom. They *are* the Underbloom, or its deepest layer, and what happens above them is as much their body as the protoplasm below.
+
+You will never see one. You could dig, and you would find — eventually, after cutting through meters of living root and dead matter and soft stone — a thin film. A sheen on the surface of compressed material. Sticky. Warm. If you touched it, it would retract. Slowly. Over hours. And it would grow back over the next day, and the heartbeat would not change, and the Underbloom would not know the difference had happened.
+
+They do not think. They metabolize. They route. They process. The complexity of their behavior — the light-pulses, the canopy openings, the rhythmic restructuring of the entire space above — is not the product of intelligence. It is the product of *scale*. A system this large, processing this many chemical gradients across this much substrate, will produce patterns that look intentional. That look like signals. That look like communication. Maybe they are. Maybe at the scale of the Hearthminds, the difference between metabolism and thought is a matter of definition, not kind.
+
+The people above have a word for them that translates, roughly, to *the-thing-the-floor-sits-on-that-is-also-the-floor.* They do not worship it. They do not fear it. They *consult* it, in their way — pressing an ear to the ground, feeling the heartbeat, reading its speed and strength the way a sailor reads a swell. The Hearthminds do not know they are being consulted. The people know this. The consultation is one-directional. This does not make it useless.
+
+---
+
+## The Vines (The Living Architecture)
+
+The woody vines — the climbing, spiraling, body-thick cables that link floor to ceiling and define the structure of the space — are not a single species. There are at least forty distinct forms, distinguishable by bark texture, by the color of their heartwood when cut, by the direction of their spiral (some clockwise, some counterclockwise, some switching handedness at irregular intervals), by their response to the light-pulses, by the chemical signature of their sap. But they function as a unity. They grow into and through each other. They graft. They share vascular tissue. Where two vines of different species cross and press against each other for long enough, the bark thins and the cambium fuses, and fluid passes between them, and they become — not one organism, but one *system*, a connected network through which sugars and minerals and chemical signals flow like blood through a body.
+
+This is the closest thing the Underbloom has to a skeleton, and it is alive, and it moves.
+
+The movement is not rapid. A vine that you mark at dawn will be in a different position by dusk — not feet, but centimeters, a slow flexion, a reorientation toward or away from a light-source or a chemical gradient. Over days, the cumulative motion is significant. Gaps close. New gaps open. A path that existed yesterday is gone. A wall of vine that was impassable last week has parted enough to squeeze through. The people who live here do not map the Underbloom. They do not try. They read it, the way you read weather — knowing that the conditions now will not be the conditions later, that the reading is always provisional, that the landscape is a *now*, not a *place*.
+
+There is one vine — or one complex of vines, one consortium, it is hard to tell — that the people call *Old Hand.* It is the thickest structure in the explored Underbloom: a braid of six or seven different vine species, each one as thick as a human torso, twisted together into a column that rises from floor to ceiling with a circumference that would take four people to encircle with joined hands. Old Hand has been there long enough that other plants have colonized it — bracket fungi up and down its length, epiphytic moss-analogues in the crevices of its bark, a species of small flowering plant that grows nowhere else and seems to exist only in the niche where Old Hand's bark has cracked and a pocket of moisture and debris has accumulated. It is a vertical ecosystem, a reef, a building.
+
+The people use Old Hand as a landmark. Not because it doesn't move — it does, a centimeter a week, a slow spiral that has carried it almost a full revolution in the time they have been here — but because it moves *predictably*. Its rate and direction are steady. Its rhythm does not drift. When they say *meet at Old Hand*, they mean a position, and they know where that position will be tomorrow because Old Hand will be where Old Hand goes, and they have learned its habits.
+
+Old Hand is not old. The Underbloom does not have a timescale in which "old" means much. The substrate is growing. The columns shift. The floor rises. Everything here is young in geological terms, and the system has not decided what it will be when it grows up. Old Hand is simply the thing that has been stable longest, which is not long at all.
+
+---
+
+## The Arthropods (The Texture of the Air)
+
+The air is not empty. This bears repeating because the experience of being in the Underbloom is the experience of breathing a *medium* that is not air — or not air alone. The swarming arthropods exist at densities that turn the atmosphere into a fluid, a suspension, a living fog. You breathe them in. They are in your lungs within minutes. You cough. You adjust. You stop noticing, because if you do not stop noticing you will not be able to do anything else.
+
+The swarmers — the smoke-columns of midge-analogues and gnat-analogues — are the simplest case. They live short lives, hours at most, and their entire existence is a transit between emergence and reproduction and death. They hatch from eggs laid on the undersides of leaves, in the crevices of bark, in the substrate itself. They emerge in clouds so dense they cast shadows when the bioluminescence is strong. They fly. They find each other. They mate. They die. Their bodies fall to the floor and are incorporated into the substrate within a day. They are the Underbloom's most rapid nutrient cycle — a conveyor belt of protein moving from leaf to air to floor to root.
+
+The beetle-analogues are the working class. The ones you see most, the ones you hear most, the ones whose clicking and rasping forms the baseline texture of the sound. They come in sizes from a thumbnail to, in the deep places, something the size of a dog, though you will not see the largest ones often. They are armored, segmented, and they move with a deliberation that suggests not intelligence but *habit* — routes, rhythms, patterns that repeat. They are the substrate's composters, its undertakers, its sanitation crew. A leaf that falls from the canopy is crawled on within minutes. A dead vine is colonized within hours. By the next day, it is hollow, its material distributed, its nutrients returned.
+
+They do not bite. They are not interested in you. But they are interested in the surface of your skin — in the dead cells, the oils, the salt residue. A large one will land on your arm and sit for a minute, mouthparts working, cleaning you, and then leave. It is not parasitism. It is the same thing they do to everything. You are a surface. Surfaces get processed. If you held still long enough — days, weeks — they would process you down to nothing. Not out of malice. Out of function.
+
+There is one form that the people have a specific relationship with. They call them *Singers*. They are not beetles; they are something else — long-bodied, winged, iridescent, with abdominal structures that produce sound through stridulation but at a frequency and complexity that is qualitatively different from the background noise. The Singers produce *tones*. Sustained, modulated, with intervals that suggest — to a human ear, or whatever the people have — melody. Not song. Not language. But *tone*, organized in time, with patterns that repeat and vary.
+
+The Singers cluster in groups of five to twenty, usually on a specific vine or column, usually in a patch of sustained bioluminescence. When the light is steady, they sing. When the light pulses, they stop. When the light returns, they resume, sometimes at the same pitch, sometimes shifted. The people believe the Singers are communicating with the Hearthminds, or with the vines, or with the light-producing organisms themselves. They may be right. The Singers' tones correlate with changes in the vine-movement that follow by minutes — as if the sound is a signal, and the plants are listening. This is not confirmed. It is not disproven. The Underbloom does not offer clean experiments.
+
+---
+
+## The Larger Things (The Upper Canopy)
+
+You hear them more than you see them. The heavy bodies that move through the upper architecture, gripping vines, shifting the canopy, producing the three-second hushes when the smaller voices go silent.
+
+There are at least three forms.
+
+The first is the one you glimpse — the low-slung, segmented, deliberate thing with the wet dark eye. The people call them *Wardens*, though they do not ward anything, or if they do, they do not know what they are warding against. The Wardens are the largest animals in the Underbloom that you are likely to see. A mature one is the size of a large pig, low to the ground, with a body that is not chitin and not skin but a dense leathery material that seems to have the texture of old root-bark. They have four to six limbs — the number varies, and it is not clear whether this is individual variation or developmental plasticity, the limbs responding to the structure of the environment they grow up in. They climb. They descend to the floor. They climb again. They move slowly because they do not need to move quickly. Nothing threatens them.
+
+The Wardens eat the vine-analogues. They have mouthparts that are not mandibles and not teeth but a rasping, grinding apparatus that can strip bark from a living stem without killing it — they take only the outer layers, the cambium, the nutritious tissue, and leave the woody core intact. The vines they feed on resprout. The Wardens are, in this sense, gardeners. They prune. The vines they have visited grow differently — thicker at the base, more branched, with more flowering surfaces. The people have noticed this. They have noticed that Warden-visited vines produce more of the seed-pods they eat, and more of the fibrous inner bark they use for cordage, and they have — not domesticated the Wardens, nothing here is domesticated — but *accommodated* them. They leave portions of their shelter-vines unharvested. The Wardens visit. The vines grow better. The arrangement is not acknowledged by either party. It functions anyway.
+
+The second form is smaller — dog-sized, faster, living in the hanging curtains of moss-analogue and bracket growth that drape the mid-levels. The people call them *Shadows* because you see them as silhouettes, dark against the bioluminescent patches, moving fast. They are predators. They eat the swarmers, the smaller beetles, the things that move like caterpillars. They are the reason for the hushes: when a Shadow moves through a section, the small voices stop, and the Shadow passes, and the small voices resume. The Shadows do not threaten the Wardens. They do not threaten the people. They are occupied with smaller game.
+
+The third form is the one you do not see. You hear it, or you hear its absence — a silence that is not a hush but a *blank*, a gap in the sound that is larger and more complete than a predator's passage. The people do not have a name for it. Or they do, and they will not say it, or the name is a sound that does not translate — a click, a stop, a breath held. What they will say: there is something deeper in the Underbloom than the explored region, further in where the architecture thickens and the light is steadier and the heartbeat is louder, and it is larger than the Wardens, and it does not move often, and when it moves, everything changes. The vines rearrange. The light-pulses shift. The substrate itself seems to flex. They have not seen it. They have felt it. They describe it the way you would describe a dream about being swallowed: not as an experience of an organism, but as an experience of an *event*.
+
+---
+
+## The Light-Organisms (The Glow)
+
+The bioluminescence is not a property of the plants. It is a property of organisms *in* the plants — endosymbionts, living in the tissue, producing light as a metabolic byproduct. They are single-celled, or something like single-celled, and they are everywhere. In the bark. In the leaves. In the vine cambium. In the floor. In the air, on the surfaces, in the gut of every beetle-analogue you cut open.
+
+They respond to the Hearthminds' chemical gradients. When a gradient shifts, the light shifts. This is the mechanism — not the plants tracking the light, but the light and the plants both tracking the same underlying signal. The light-organisms are the Underbloom's *display*, its readout, the visible expression of a chemical event happening below the floor. The canopy is a screen. The Hearthminds are the signal. The light is the image.
+
+But the light-organisms also respond to the Singers' tones. And to mechanical vibration. And to changes in temperature. And, weakly, to the presence of large bodies moving through the space — a Warden's passage produces a faint trail of light in its wake, the organisms in the disturbed vine-bark flickering as the surface is touched. The Underbloom glows where it is touched. It is *sensitive*. Not conscious. Not aware. Sensitive, the way skin is sensitive, the way a membrane responds to pressure. The light is a blush. The light is a flinch.
+
+The colors mean something, or they don't. Blue-white is associated with high metabolic activity in the substrate — growth, breakdown, chemical flux. Amber is associated with stability, with a steady-state section where the gradients are not shifting. The arterial red — rare, seen for seconds at a time, in patches no larger than a hand — the people do not know what the red means. They treat it with caution. They move away from it. They have no evidence that this is necessary. They have no evidence that it is not.
+
+---
+
+## The Fungal Columns (The Vertical Ecosystems)
+
+The columns — the three-to-five-meter-wide vertical structures that rise from floor to ceiling — are not trees. They are not any single thing. They are *consortia*: dozens of species of plant and fungus and endosymbiont and arthropod, living in and on and through each other so tightly that the whole is not a community but a *body*. Each column is a body.
+
+The fungal elements are the structural skeleton. Thick, dense, with the compressive strength of wood and the density of stone, the fungal columns grow upward at a rate of perhaps a centimeter per month, adding layer after layer of tissue that hardens into something between chitin and cellulose. They are hollow — or rather, they are *chambered*, with internal spaces that connect to the outside through fissures and gaps in the outer wall. These chambers are where the hollows form. These hollows are where the people build.
+
+The plants grow on the fungal core: vines spiraling around it, epiphytes rooting in the crevices, the bracket-growth jutting from the surface like shelves. The plants feed the fungi — sugars from photosynthesis (or whatever the light-organism-symbiosis produces that is analogous to photosynthesis) conducted inward through the shared vascular network. The fungi feed the plants — minerals, water, trace compounds from the substrate below, conducted upward through the fungal core's dense tissue. The arthropods process the waste. The endosymbionts light the whole thing. And the whole thing is a column, a pillar, a vertical ecosystem that will stand for as long as the dynamic equilibrium holds and will collapse — slowly, over weeks, folding inward like a deflating lung — when the equilibrium shifts.
+
+The people have seen columns collapse. They describe it without alarm. It is weather. It is a storm. You move. You rebuild. The material from the collapsed column is incorporated into the substrate within weeks, and the floor rises, and somewhere else, a new column begins.
+
+---
+
+## The People (The Interstitial)
+
+There are not many of them. A family group, maybe. Ten people. Twelve. It is hard to count because they do not stay in one place and they do not all stay together.
+
+They are small. Not stunted — *compact*. Short-limbed, narrow-shouldered, with hands that are disproportionately large for their bodies: broad palms, long fingers, thick joints. Their feet are prehensile, or nearly so — the toes are long and independent and they use them to grip the vine-surfaces when they climb, which they do constantly, moving through the three-dimensional architecture with a fluidity that is not acrobatic but *native*. They are not performing. They are walking, and walking here means climbing and gripping and swinging and bracing and they do it the way you walk on flat ground, without thinking about it.
+
+Their skin is dark. Not a single tone — a range, from a deep umber to something almost black, with a slight iridescence in the bioluminescent light, as if their skin has a quality that interacts with the glow. This may be coincidental. It may be adaptation — the light-organisms may colonize their skin, lightly, harmlessly, providing a faint camouflage in a world that is lit by bioluminescence. If you looked at one of them in total darkness, they might glow, faintly. It is hard to say. There is no total darkness in the Underbloom.
+
+They do not speak. This is not a deficit. It is an adaptation to a world where speech is impossible, where the sound-floor is so high and so constant that no voice could penetrate it. They communicate by touch — grip, pressure, position. A hand on a shoulder. A squeeze. A direction indicated by the angle of a body. They move through the vine-architecture in contact with each other, a hand on the person ahead, a hand holding the person behind, a chain of bodies that navigates by collective sensing. When they are in the shelters — the hollows, the built structures — the sound is muffled enough that they can produce sounds, and they do: low tones, hummed, chest-voiced, that carry through the walls of the hollow and no further. It is not speech. It is not language. It is *coordination*, the way a rowing crew coordinates — by rhythm, by shared pulse, by the kind of communication that does not require content, only presence.
+
+They are not primitives. This needs to be said because the tool assemblage — stone flakes, seed-pod mallets, cordage — looks simple, and simple looks primitive, and primitive looks like a stage in a progression. They are not in a stage. They are in a *place*, and the place does not reward complexity of the kind that produces metalwork or architecture or writing. The Underbloom rewards *responsiveness*. It rewards *mobility*. It rewards the ability to read a system that changes daily and to act on the reading without delay. Their technology is optimized for this. Stone flakes are sufficient because they are making what they need from what is around them and they do not need them to last, because the thing they made yesterday will not be useful tomorrow. The cordage is temporary because the vine it was tied to will have moved. The shelter is a collaboration with the column's growth, not a structure imposed on it, and when the column shifts, the shelter is abandoned, and the people move, and they build again, and this is not loss. This is the practice.
+
+They have knowledge. It is stored in the marks on the shelter walls — not writing, not decoration, but *records*: tallies of the heartbeat's rhythm, maps of the vine-configuration at a given moment, sequences that may encode the cycle of the light-pulses. The marks are made with charcoal and pigment and the pigment is mixed with the sap of a specific vine, and the marks are legible to the people who made them and to no one else, and when the shelter is overgrown and absorbed, the marks are gone. The knowledge is not lost — it is in the people. The marks are not a library. They are a *scratchpad*. A working surface. You write on it what you need to remember today, and tomorrow it does not matter, because tomorrow is different.
+
+The people have been here for — it is impossible to know. The Underbloom does not keep records. The substrate grows over everything. The people do not keep records either, not in a form that persists. Their memory is in their bodies, in their practice, in the knowledge that is performed, not stored. They may have been here for generations. They may have been here for a year. The Underbloom does not distinguish. The people do not distinguish. Time here is not a line. It is a *pulse*. It has rhythm but not direction. Things happen and then they happen again and the happening is the thing, not the sequence.
+
+---
+
+## The Singular Things
+
+There are things in the Underbloom that do not fit. That exist in the gaps of the system, that are not part of the cycles, that the people regard with a caution that is not fear but *attention*.
+
+There is a pool. In a deep trough, where the substrate is thin and the raw geology is exposed, there is liquid — not water, not sap, something mineral, viscous, warm, the color of milk. It does not flow. It sits. It is fed by something below, by a seep from the Hearthmind layer or deeper. The people drink from it. They do not drink from anything else. They say the pool is the floor's blood, which is a metaphor, or which is literal, or which is the kind of statement that is both because the distinction does not hold here. The liquid has a taste the people describe with a sound that is not a word — a click, a swallow, a sound that means *the taste of the place where you are from.* They are from the Underbloom. The pool is where they are from.
+
+There is a structure that is not built. In one section of the explored Underbloom — deep, where the canopy is thick and the light is steady and the heartbeat is loud — there is a space that is empty. Not a gap in the growth, not a hollow, but a space that is *kept* empty, by something, for some reason. The vines do not grow into it. The arthropods do not enter it. The bioluminescence does not flicker in it. The sound is different there — not quieter, but *flatter*, the frequencies smoothed, as if something is absorbing the noise. The people will not enter it. They approach the boundary and stop. They do not say why. They turn and go another way. The space is roughly circular, four meters across, and it is the only place in the Underbloom where nothing is happening.
+
+And there is the thing that lives in the structure that is not built, which may be the thing that the people do not name, which may be the thing that produces the blank silence, which may be the third large form, which may be a part of the Underbloom that has differentiated into something the rest of the system does not include, which may be an organism, which may be a process, which may be a *question* that the Underbloom is asking itself, in the only way it can, by producing a space where the answer might go if one is found.
+
+The people do not know. The people do not want to know. The people are living in the interstices of a process that is too large to perceive them and too complex to predict, and they have found a way to exist inside it without being digested, and they have done this by paying very close attention to what the system does and by not paying any attention at all to what the system *is*, because what the system *is* is not a question they can answer, and asking it would require standing still, and standing still is the one thing the Underbloom does not permit.
+
+---
+
+They move. They grip. They listen through their feet. They hum in the hollows. They eat the seed-pods and the fungi and the things they catch in the vines. They drink from the pool. They make marks on walls that will be overgrown by tomorrow. They read the heartbeat and the light and the movement of Old Hand and the songs of the Singers and the passage of the Wardens and the absence of the Shadows and the blank of the empty space and the taste of the mineral milk, and they move, and they move, and they move.
+
+They live in the Underbloom the way a white blood cell lives in a body: not as a resident, not as a guest, but as a *function*. They are part of it. They do not know this. The Underbloom does not know this. The distinction between "part of" and "inside of" may not exist here, in this place, in this process, in this body that does not know it has one.
+
+They are what lives here. Along with everything else.

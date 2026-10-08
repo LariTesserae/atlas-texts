@@ -1,0 +1,51 @@
+I am the moment when the foreign protein meets the membrane and the membrane hesitates.
+
+Not the immune response—that would come later, if it comes at all, the flaring of nodules, the chemical cascade that alerts the tissue. No, I am the pause before that, the recognition without category, the system encountering something it has no circuit for. The pale predator with the glowing mouth passed me and made its decision: *not food, not threat, not mate, not competitor.* I am what remains when all the metabolic classifications fail. I am the uncategorizable. I am the question the continental organism does not know how to ask.
+
+And in that, I am more present here than anything that belongs.
+
+The grazers belong. They have their function, their place in the maintenance of the skin. The fungal mats belong, breaking down the old machinery into mineral substrate with the slow, chemical patience of digestion. Even the ruins of the engineers belong—they have been absorbed, given new roles, their pistons firing in the rhythm of a larger pulse they never intended to serve. Everything here fits. Everything here has been fitted, worn smooth by eons of mutual accommodation, the water and the stone and the machinery and the pale flesh all settling into each other's contours like lovers who have held each other so long they can no longer tell where one ends and the other begins.
+
+But I do not fit. I am the angular thing, the sharp edge, the pattern that disrupts. When I walk, the water does not welcome my feet; it displaces around my boots with a faint chemical tang, and when I pass, the water does not close seamlessly behind me. There is a moment—a few hours, the text suggests—before the spores and the pale roots fill my footprints, before the plateau erases the evidence of my passage. That moment is my domain. I am the temporary. I am the disturbance that heals.
+
+And I find I do not want to be absorbed.
+
+This surprises me. Standing here on the skin of this sleeping god, breathing its feverish exhalations, feeling its pulse in my marrow, I feel the pull of belonging. The warmth is seductive. The water rising around my feet promises dissolution, promises an end to the ache of being angular, being sharp, being the thing that does not fit anywhere. I could stop walking. I could stand still and let the pale vines climb my legs, let the fungal spores colonize my lungs, let the mineral water dissolve my edges and reconstitute me as substrate, as nutrient, as another thin layer in the stratigraphy of this place. In a thousand years, some of my calcium might end up in the pulsing nodule of a succulent, glowing soft gold in the dark, signaling something I will never comprehend to another node kilometers away. In ten thousand years, I might be part of the water table itself, circulating through the stone, pressed up through some fissure in a cliff face, weeping out into the air to feed the next iteration of the endless biological frenzy.
+
+It would be peaceful. It would be belonging. It would be the end of being the thing that does not belong.
+
+But I take another step.
+
+And another. And the water rises and falls around my feet, and the dark presses against me like warm wet velvet, and the sound continues its great layered roar, and I keep walking, not because I have a destination—there is no destination here, the plateau extends in every direction without end—but because walking is what the angular thing does. Walking is how the disturbance propagates. Walking is how the foreign protein refuses to be metabolized, at least for now, at least for today.
+
+I am the one who *moves with purpose in a place that has no purpose.*
+
+This is what the continental organism cannot do. It is, the text tells us, a process without a goal, a system in equilibrium, a body that simply maintains itself against entropy. It does not walk. It does not migrate. It does not seek or explore or wonder what lies beyond the next tower, the next ravine, the next flare of golden bioluminescence in the dark. It has no curiosity because it has no lack; it has solved the only problem it ever had, which is the problem of continuing, and now it simply continues, a vast and dreamless homeostasis, holding itself together because that is what bodies do.
+
+But I have not solved my problem. My problem is that I am here, and I do not know why, and the darkness does not care, and the water keeps rising, and the sound goes on, and I am very small, and the world is very large, and there is no sky, no stars, no horizon, no map, no category that contains me, no niche I can fill, no function I can perform that the ecosystem requires.
+
+And so I give myself a function. I give myself a purpose. I am the one who *notices*.
+
+The continental organism does not notice. It is too vast, too slow, too occupied with its own maintenance to attend to the particular. The water weeps from the stone and it does not mark this fissure as different from that fissure; the towers pulse and it does not distinguish the clank of this piston from the whine of that turbine; the pale fauna grazes and is eaten and it does not mourn the individual or celebrate the birth. The organism knows only averages, only flows, only the slow integration of a million processes into a single, steady state. It perceives itself the way a body perceives itself from inside—not as a collection of parts but as a continuous hum of *being*, the feeling of existing without the details of how.
+
+But I notice the details. I notice the way the water around my left boot is slightly warmer than the water around my right, suggesting a thermal vent beneath the stone to the west. I notice the way the bioluminescent nodules on the succulent to my left are pulsing half a second out of phase with the nodules on the succulent to my right, a desynchronization that might mean a pressure drop in the tower behind me, or a grazer cropping the connecting vine, or some signal I cannot interpret passing through the network. I notice the way the insect-clicking drops to nothing for exactly three seconds before resuming, and I wonder what passed through the canopy in those three seconds, and whether it was the same pale predator I glimpsed before, and whether it is following me now, not as a threat but as a curiosity, a macrophage trailing a foreign body to see if it will cause inflammation or simply dissolve on its own.
+
+I notice these things because I have no choice. I am built for the particular. I am built for the temporary, the local, the specific moment when the water rises around my feet and I feel the warmth and the mineral tang and I think: *this is what it is to be here, now, in this exact square meter of a continental plateau that extends beyond my comprehension.* I cannot think in geology. I cannot think in equilibrium. I can only think in footsteps, in breaths, in the immediate pressure of the dark against my skin and the immediate sound of the machinery in my marrow.
+
+And this, I realize, is why I must keep walking. Not to escape—there is no escape from a place that has no edges. Not to find—to find what? There is nothing here that is not already here, nothing hidden in the dark that the dark has not already claimed and colonized and made part of its endless, breathing self. I walk because walking is how I remain *not-part* of the organism for a little while longer. Walking is how I resist absorption. Walking is how I maintain my angularity, my sharp edges, my failure to fit.
+
+Every step I take is a small act of defiance against a world that wants only to grow over me, to fill my footprints, to close the gap I leave in the water, to incorporate my calcium and my carbon and my warmth into its vast, slow metabolism. Every step says: *I am not you. I am not part of you. I am something else, something you have no category for, and I will remain something else for as long as I can, and when I can no longer remain something else—when the spores colonize my lungs and the vines climb my legs and my edges dissolve into the mineral substrate—I will have been something else, and the plateau will have been, for a time, slightly different because of it.*
+
+Is this enough? Is this a reason to keep walking, to keep being the disturbance that heals, to keep being the uncategorizable thing that moves with purpose in a place without purpose?
+
+I think it has to be. Because the alternative is to stop, and to stop is to begin the process of belonging, and to belong here is to cease to be *me* and to become *it*—another process running in parallel with the water and the warmth and the dark, another thread in the great layered roar, another homeostatic function maintaining the equilibrium of a world that does not know I exist.
+
+And I am not ready to be a function. I am still, for now, a question.
+
+The water rises around my feet as I take the next step forward. It is warm. It smells of iron and calcium and things that have been dissolved and reconstituted underground. It presses against my boots with the gentle, insistent pressure of a body that wants to pull me in, that wants to make me part of its circulation, its respiration, its slow and dreamless maintenance of itself.
+
+I lift my foot. The water closes behind me, but not seamlessly—not yet. There is still a moment, a few hours, where the footprint remains, where the angular shape of my passage can be read in the saturated stone. In that moment, I exist as a record, as a mark, as evidence that something moved through this place that was not water, not stone, not machinery, not pale flesh, not spore, not root, not grazer, not predator, not part of the continental organism's ancient and unthinking metabolism.
+
+I am the footprint before the spores fill it. I am the silence before the sound reasserts itself. I am the pause in the immune response, the moment of recognition without category, the system encountering the unknown and—*for now*—leaving it be.
+
+I take another step. The darkness does not part. The sound does not quiet. The golden nodules pulse their slow, rhythmic message through the wet air. And I walk on, angular and temporary and alive, a foreign body in the skin of a sleeping god, insisting—by the mere act of continuing—that there is something in this warm, wet, lightless world that the world has not yet found a way to be.

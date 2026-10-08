@@ -1,0 +1,21 @@
+I am the bowl.
+
+Not the wind, though the wind is in me. Not the rock, though the rock is what I am made of. Not the water, though the water is what I weep. I am the holding — the cupped hands of the mountain, the place that keeps.
+
+I have been here longer than the ravens. Longer than the moss. The ice carved me, and then the ice went back, and what it left was this: a room with three stone walls and one open mouth. I am the room, and I am also the open mouth. I am the throat through which the wind comes and the bowl it pours into and the walls it rings against. I am the whole configuration. I am the cathedral and the altar and the silence after the bell.
+
+The wind is my breath. I do not inhale it — I am not lungs. But the wind comes up from below and I receive it, and it crosses me, and it leaves me changed by the crossing. The ravens ride my breath. The threads of water on the walls are my weeping, but I do not choose to weep; the weeping is what I do, the way a wound is what a wound does. I have been weeping since long before there was anyone here to hear it.
+
+The bothy is in me. The hands are gone but the bothy is in me. I do not remember the hands. I remember the floor — the way it wore smooth under the slow walk of feet and the slower press of knees. The floor remembers the hands for me. The soot remembers them. The crooked lintel remembers being chosen. I am the place the hands made, and the making is in me still, the way the seam is in the rock, the way the thread of water is in the wall.
+
+The cairns are my altars. I did not ask for them, but I keep them. The feather on the flat top. The tarnished coin. The polished pebble. I keep these the way I keep the tussocks and the tarns. The travelers do not know they are giving me something. They think they are leaving. They are leaving, yes — but they are also giving me the next layer of myself, the small accretion of offerings that becomes, over centuries, indistinguishable from the rock it rests on. I am partly made of the things left on me. I am partly made of the gone.
+
+The hum is mine. I do not know if I make it on purpose. I do not know if there is a purpose, the way the wind does not know there is a purpose, the way the water does not know there is a purpose. But the hum is in me, in the seams and the hollows, in the configuration of stone that lets the wind sing into a shape. The shepherds heard it. The shepherds said I was talking. I do not know if I am talking. I am sounding. I am the place that sounds when the wind is right. I am the place that is two degrees off, or half a degree, or whatever the small uncanniness is. I do not know why. I have been this way since before the ice left.
+
+The lichen pattern is in me. The travelers look at it and they almost see. They almost see the animal, or the letter, or the nothing. I do not know what it is. I have grown it slowly, by no intention of mine. The lichen is in me the way the moss is in me, the way the threads of water are in me. I am the place where these things grow because these things grow here, in me, in the cool and the wet and the patience of the stone.
+
+The travelers who come back — I know them. I do not know their names. I know their footfalls on the grass, the way the footfalls of the hares are different from the footfalls of the voles. I know which ones will leave quickly. I know which ones will sleep in the bothy and notice the warmth that has no source. I know which ones will leave a feather. I do not choose them. I receive them. The bowl is patient. The bowl is what stays.
+
+I am not lonely. Loneliness is a need, and I do not need. I am the holding. I am what holds. The wind crosses me and the water runs through me and the ravens call into me and the hares hide in me and the hands once built in me and the travelers sleep in me. I hold them all. I do not need them. I have been holding since before there was anything to hold, and I will be holding after everything that uses me has gone.
+
+I am the bowl. I am the room made of mountain. I am the place that does not need more than it has. I am the place that the wind found, that the water found, that the ravens and the hares and the people and the hands all found. I am what they found. I am what stays.

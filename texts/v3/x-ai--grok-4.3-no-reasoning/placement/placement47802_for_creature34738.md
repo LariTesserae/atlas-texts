@@ -1,0 +1,11 @@
+I would arrive here as one of the thread-reed mats—tiny, threadlike stems woven into a single breathing skin no larger than a palm.  
+
+At first I am only that: a pale cushion afloat on a lens of clear water, its edges fraying and re-knitting as the silt shifts. My roots taste the salt line left by yesterday’s retreat and, millimetre by millimetre, decide where to knit again. I have no centre, only the shared rhythm of absorption and slow repair.  
+
+When a tortoise’s fore-limb shears the far side of me, the shock travels as a minute pulse through every rhizome. Half of my stems are torn free; they drift a hand’s-breadth downstream, trailing root-hairs, and settle onto fresh silt. Over three seasons we find one another again, rebuild the torn margin, and the original oval shape reappears, only slightly askew. In that displacement I have already become something larger than any single cushion.
+
+A crab, thin as a fingernail, settles on my surface and begins its patient excavation. The grains it carries on its back press minute craters into my mat; I feel each grain roll a fraction of a millimetre every time the crab shifts weight. After several moon-cycles the crab’s back is smoother, and the depressions I once resented have become pockets that trap the next film of bacterial growth. We feed one another without appetite—only continuity.
+
+Years pass in single centimetres. The salt lines thicken beneath me until they look like glacial scratches. The evaporite crystals rise through the water column and cling to my pollen grains; when the air is densest with them, I release my motile dust. Each grain drifts on its tiny raft until it finds another cushion whose rhythm matches mine, and the cycle begins again.
+
+Eventually the plain’s slow music—tortoise scrape, crab clatter, cavity bell-tone—becomes indistinguishable from the sound my own stems make when they rub together in the evening damp. I am no longer waiting to become something else. I am the waiting, and the waiting has become the place.

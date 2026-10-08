@@ -1,0 +1,25 @@
+The city is inhabited less by separate creatures than by a living succession.
+
+Its first citizens are almost invisible. Bacteria film the spring mouths; algae darken submerged stone; fungal threads pass through sodden wood and black soil. They occupy new surfaces before those surfaces seem habitable. In the pale, porous walls, minute organisms shelter from current and cold, catching particles brought by the water. Their films slow the flow, bind silt, and prepare footholds for larger lives.
+
+Then come the mosses and liverworts, softening every hard edge. They mantle fallen trunks, seal damp banks, and crowd the fresh lime until towers that began as mineral crusts acquire green roofs. Saxifrages root in narrow seams. Ferns take the shaded galleries. Sedges hold the shallows together with dense, fibrous roots, while horsetails rise along flood corridors and dwarf willows establish themselves wherever a fracture gathers enough mud. Alder thickets claim the slower channels. Beneath them, water plants spread broad leaves across pools, and submerged weeds fill the cold clear spaces below.
+
+Fungi live throughout this structure: in drowned branches, under bark, inside leaf litter, and along the roots of living plants. Their shelves protrude from green embankments like steps. Their hidden networks reduce timber to dark, waterlogged soil, making foundations out of what has fallen.
+
+The water has its own population. Snails graze the stone films. Beetles wheel over quiet pools or hunt beneath them. Larvae burrow in silt, cling to weeds, and fasten themselves to gravel in the faster runs. Pale trout wait at spring mouths, almost indistinguishable from limestone and reflected light. During floods they enter temporary channels and swim among drowned sedges and willow stems, inhabiting for a few days what will later become a road.
+
+Frogs gather in the reed courts, though the chill keeps their voices sparse and low. Salamanders inhabit the saturated understructure. They slip through rotten wood, root cavities, and the pores of half-formed mineral walls, emerging on wet nights to take small prey from the moss. They belong to the city’s foundations, where distinctions between soil, water, and masonry have not yet hardened.
+
+Small deer inhabit the higher lanes and willow quarters. They move with deliberate steps through the shallows, feeding on tender shoots and returning so faithfully to the same ridges that their hooves make roads. Rain fills their prints. Seeds lodge there, silt settles, and plants rise from the marks of their passage. The deer are both residents and engineers, though they know nothing of either role.
+
+Otters occupy the lower canals. They travel through root-roofed waterways, rest beneath alder banks, and eat on flat stones, leaving scales and bones behind. When floods drown the terrestrial passages, otters inherit the archways and corridors recently used by hoofed animals. Where channels grow deep enough, beavers also settle. Their dams divert water into alder stands, drown old paths, and create still districts dense with insects, fish, amphibians, and decaying timber. What begins as obstruction becomes habitat, then soil, then stone.
+
+Birds possess the upper levels. Wrens vanish into hanging roots. Thrushes forage under alder shade. Dippers work the cold, quick channels, dropping from wet stones into the current. Small owls occupy dark cavities in the limestone galleries and watch the lanes below. Other birds nest wherever collapse has opened a shelf or pocket, sometimes before the fractured rock has stopped shifting. Their feathers, droppings, abandoned nests, and carried seeds become part of the accumulating fabric.
+
+Foxes move along the dry ridges, using the same compressed routes as the deer. Lynx keep to ferned terraces and broken ledges, where stillness resembles absence. Larger animals sometimes enter the deepest marshes and leave only broad tracks ending at dark water. Predators are not often seen, but their presence shapes the caution, paths, and hours of everything smaller.
+
+No inhabitant owns a fixed quarter. Flooding transfers passages from mammals to fish. Ice closes some routes and opens others. A fallen bank may bury a salamander refuge while creating a trout pool. A deer path may become a stream; a stream may be checked by roots and turn into marsh; a marsh may gather lime until it rises as a terrace dry enough for willow and nesting birds.
+
+Thus what lives there is also what builds there: microbial films, mosses, fungi, reeds, shrubs, trees, insects, mollusks, fish, amphibians, birds, browsing animals, burrowers, swimmers, and concealed hunters. Each occupies the work of those before it and alters the place for those that follow.
+
+The city’s true population is this chain of tenancy. Water gives the inhabitants no permanent address, only openings. They enter them at once.

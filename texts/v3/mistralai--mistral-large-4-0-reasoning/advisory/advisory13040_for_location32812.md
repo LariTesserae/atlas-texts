@@ -1,0 +1,66 @@
+You do not simply *pack* for this place. You undergo a preparation that re-calibrates your body, your senses, and your understanding of time itself. The Resonant Ward is not a destination you arrive at; it is a condition you survive. Here is how an ordinary human—carbon-based, water-dependent, vocally limited, and temporally impatient—must prepare to step onto that polished silica plain without dying, going mad, or being digested by the architecture.
+
+### 1. Physiological Recalibration: Breathing, Pressure, and the Thirst of Thin Air
+The air is not merely “thin”; it is a low-pressure chemical soup. Your ears will pressurize like a submarine descending. You need a **pressure-equalizing hood**—not a full helmet, but a flexible, transparent membrane that seals around your neck and ears, allowing you to equalize sinus pressure while filtering the atmosphere. Inside, you breathe through a **closed-circuit rebreather** with a three-stage scrubber: particulate filters for the mineral dust (silica is sharp; it will shred lung tissue), chemical absorbers for the ozone (which will burn your alveoli at this concentration), and a molecular sieve for the metallic vapors off-gassing from the Spires’ vascular systems.
+
+You must also carry **supplemental oxygen**, but not in a tank—too heavy for kilometers of walking. Instead, you wear a **catalytic chest harness** that extracts trace oxygen from the exhaled carbon dioxide, a tortoise-shell of slow chemistry strapped to your ribs. The air tastes of ozone and mineral dust; your rebreather must add a drop of peppermint oil or lemon terpenes to the loop, not for pleasure, but to prevent your brain from associating every breath with corrosion.
+
+Hydration is existential. With water at 0.1, your breath mists visibly, meaning you are hemorrhaging moisture with every exhale. You need a **closed-loop moisture reclamation suit**—a second skin of osmotic membranes (borrowed from the cryptogamic pavement’s own technology) that sucks water vapor from your skin and breath before it can escape. You will drink your own sweat, purified. Bring electrolyte tablets that dissolve in non-aqueous condensate if you must interface with local reservoirs, but do not drink the metallic sap of the Spires—it is conductive, caustic, and will precipitate crystals in your kidneys.
+
+Acclimatize to **altitude sickness** before you arrive. The elevation is pressing against your ears not metaphorically but literally; cerebral edema is a risk. Spend weeks in hypobaric chambers. Take dexamethasone. Learn to walk with a slight forward lean, as if pushing against a headwind that is not there.
+
+### 2. Sensory Armor: Hearing, Sight, and the Skin
+The sound level is 2.5. This is not a figure on a decibel chart; it is a physical assault. The wind plays the Spires like a pipe organ, producing a **subsonic drone** that vibrates in your sternum, rattles your molars, and induces low-grade nausea. The dust-mites shriek in high-frequency static when herds pass. The assemblers in the city walls whine at a pitch that makes your fillings ache.
+
+You need **active vibration-dampening ear protection**—not just foam plugs, but bone-conduction isolators that seal the ear canal and cancel infrasound through destructive interference. But you also need to *hear*, because the inhabitants communicate in frequencies below 20 Hz, below the threshold of human vocal cords. You need a **laryngeal implant**—a subdermal transducer on your throat that converts your speech into infrasonic pulses and translates their responses back into audible bone-conduction. Without this, you are mute and deaf in a city that screams in a language of rumbling stone.
+
+Your eyes need **light amplification and spectral correction**. The light level is 1.0—a perpetual twilight where colors are muted to slate, rust, and bone. The sun is a smudge, not a disc. Bring **goggles with photon-multiplying lenses** and filters that restore the visible spectrum—otherwise, you will navigate a world of grey, and the blue-green bioluminescence of the Spires (the only true light source in the deep chambers) will blind you when it pulses. The dust-mite swarms refract this dim light into crystalline rainbows; wear polarized lenses to prevent snow-blindness from their glittering waves.
+
+Your skin needs a **sealed, abrasion-resistant suit**. The plateau is polished silica—smooth as a river stone, but at a continental scale, it is a sheet of glass with the texture of a whetstone. A fall will not bruise you; it will *sand* you. The suit must be self-healing (microscopic assemblers similar to those in the city walls, but defensive) and hydrophobic—when the fog rolls in, it is not water, but a non-aqueous condensate rich with dissolved minerals that will crust your visor and clog your suit’s joints. The temperature is a constant 8°C, but the wind is persistent and desiccating. You need thermal regulation that can handle both the chill of altitude and the radiant heat of the Spires’ slow metabolism.
+
+### 3. Traversal: The Geometry of Emptiness
+Between the Spires lie kilometers of empty, polished stone. This is not a landscape to be crossed; it is a **distance to be endured**. You need **magnetic traction boots** with micro-spikes that bite into the silica without shattering it (the Spires remember; do not scar the plain). The surface is undulating—a vast, continental river stone. You will walk for hours, days, between towers that are 200 meters tall, separated by horizons of nothing but violet twilight and the hum of the wind.
+
+Fog is your enemy and your guide. It rolls in banks, obscuring the Spires, turning the plain into a featureless void. You need an **inertial navigation beacon**—GPS will fail; the Spires’ piezoelectric fields disrupt radio. Carry a **gyroscopic compass** and a **sonar mapper** (the Spires resonate; you can map them by their drone). Mark your path with **bioluminescent tethers**—glowing cords that the lithograzers will avoid (they fear light) and that will not disturb the cryptogamic pavement.
+
+The cryptogamic pavement is dormant life. When dry, it is brittle as pottery; when the fog comes, it awakens, drinking through osmotic membranes. Do not step on it when it is glassy—you will shatter it, and the Spires *remember* such disruptions. Step only on the polished silica between the islands of dormant crust, or wait for the fog to pass and the pavement to become pliable again.
+
+### 4. Fauna Protocol: Dust, Bone, and Wings
+**Dust-mites** are harmless but ubiquitous. They are sand-grain arthropods with crystalline exoskeletons that refract the dim light. They will swarm your suit, coating your visor in living glass. Seal every orifice. They filter minerals from the air; they will try to filter the minerals from your sweat. Your suit’s osmotic layer must be tougher than their mandibles.
+
+**Lithograzers** are deer-sized, with translucent, parchment skin and hollow, bird-like bones. They lick the mineral crust from the Spires’ flanks with tongues like sandpaper. They move in herds, silent on the polished stone, leaving trails of microscopic life that bloom and fade. They are not aggressive, but they are *heavy* (hollow bones, but dense mineral-accumulated mass), and a herd moving at speed will trample you without noticing. Stay clear of their migration paths—marked by the scrape-marks on the Spires’ bases and the infrasonic rumbles that you will feel in your teeth before you hear. Carry a **sonic deterrent**—a device that emits a frequency that makes their hollow bones resonate painfully, encouraging them to veer away.
+
+**Sky-kraken** nest in the upper chambers of the Spires. They have membranous wings and too many eyes. They are predators. They will dive from the bruised sky, silent except for the keening of their calls. Do not approach the Spires’ upper reaches without **aerial surveillance**—a drone with a camera that can see the shadows against the violet haze. If you see a sky-kraken circling, lie flat on the polished stone; they hunt by movement and contrast. Your suit should have **thermal camouflage**—the Spires’ bioluminescence is blue-green; the sky-kraken see in spectra you cannot. Blend into the slate and rust of the stone.
+
+### 5. Interface with the Resonant Ward: Grown Architecture and Slow Gods
+The city is not built; it is **grown**. The walls are living rock extruded by dormant assemblers—viral, mechanical, or symbiotic. You cannot plug into a power outlet; the infrastructure is channels of ion gradients and metallic sap that conducts like copper but behaves like blood. You need a **biological interface suit**—a second skin that can “handshake” with the assembler colonies. It must be sterile, non-reactive, and marked with recognition peptides (synthesized from the local cryptogamic pavement) so the city recognizes you as a symbiote, not an infection.
+
+Do not touch the walls with bare skin. The metallic circulatory fluid is conductive and caustic. If you must enter a chamber, use **calcified filament bridges**—the grown tendons that span gaps between towers, stronger than steel, flexible as tendon. They pulse with the Spire’s peristaltic contractions. Time your crossing to the rhythm—feel the hum in your boots. If you step out of phase, the filament may contract around you, not to crush, but to *incorporate*.
+
+The inhabitants—if they are inhabitants—speak in frequencies too low for human vocal cords. Your laryngeal implant is essential. But also, **listen**. The Spires have moods. They manifest as changes in resonance, shifts in the blue-green bioluminescence. Learn to read the Spire’s “emotional” state before you enter the Ward. If the resonance drops to a subsonic thrum that makes your vision grey, the Spire is dreaming deep, and the assemblers are slow; move quietly. If the bioluminescence flares erratic, the Spire is agitated; the city may seal its chambers. The Spires remember. They have been growing for millions of years, and they will remember you for centuries. Do not damage a single capillary channel. Do not leave trash. Do not shout. The Spire will know, and it will *wait* until you are old, and then it will remember.
+
+### 6. Psychological Anchoring: Time, Dreams, and the Half-Remembered
+This is the preparation that no gear can provide. The light is a resource rationed by the atmosphere. Everything appears as a half-remembered dream. Colors are muted. The sound is a cacophony that makes conversation impossible without pressing mouth to ear. You will feel the infrasonic drone in your chest cavity, a subsonic note that never ceases. You will begin to dissociate. You will forget the color green.
+
+Bring a **reality anchor**—a physical object from your home universe, something with a texture and a weight that your muscle memory recognizes: a river stone from Earth, a photograph (laminated, sealed), a music box that plays a specific frequency. Touch it when the Spires’ blue-green glow pulses and the world feels like a dream you are forgetting. The Spires experience decades in what feels like a moment of geological patience. You will feel the vertigo of that time differential—standing on a plateau scoured by three billion years of wind, while the Spires grow at millimeters per century. You may experience **temporal dysphoria**—the sensation that you are moving too fast, or too slow. Meditate. Practice mindfulness. Learn to exist in the “slow agriculture” of the place.
+
+The weirdness is structural. The urban and the wild are indistinguishable. The city is a fungus on a giant that is dreaming in crystal, ion, and infrasound. You will feel the urge to scream, or to weep, or to sleep for a century. Resist. You are a guest in a nervous system. Behave like a courteous impulse traveling through a synapse.
+
+### 7. The Checklist of Last Things
+Before you step onto the plain, verify:
+- **Rebreather**: Scrubbers full, oxygen catalytic cells charged, mint oil vial unbroken.
+- **Pressure hood**: Seals intact, equalization valve tested.
+- **Suit**: Self-healing membrane charged, osmotic layer saturated, thermal regulation set to 8°C.
+- **Hearing**: Bone-conduction isolators calibrated, infrasound translator synced.
+- **Vision**: Photon-multipliers charged, spectral filters clean, polarized lenses scratch-free.
+- **Traction**: Magnetic boots tested on silica samples, micro-spikes sharp.
+- **Navigation**: Inertial beacon zeroed, sonar mapper synced to Spire resonance, bioluminescent tethers spooled.
+- **Medical**: Altitude sickness kit, silicosis steroids, electrolyte packs, heavy metal chelators (for accidental sap exposure).
+- **Psychological**: Reality anchor in pocket, meditation app downloaded (offline), a letter from someone you love, read once before sleep.
+- **Protocol**: Recognition peptides applied to suit, laryngeal implant tested, sonic deterrent charged, drone launched for sky-kraken surveillance.
+
+You stand on the plateau. The air is thin. Your ears pressurize. The sky is a bruise of grey-violet. The Spires rise, 200 meters of calcified leviathan, humming their endless, patient song. The dust-mites begin to click. The fog is coming.
+
+Breathe. Equalize. Listen to the stone.
+
+You are ready.

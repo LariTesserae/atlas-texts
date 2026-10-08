@@ -1,0 +1,45 @@
+The sea is high here.
+
+Not deep beneath a surface, but high in the sense of altitude: a warm body of water held among the upper reaches of a young mountain chain. Its limits are difficult to find. It occupies valleys, saddles, steep basins, and broad corridors between summits, extending from one pale horizon to another as though an ocean had risen into the sky and remained there. Far below, perhaps, there is ordinary land. Nothing in these waters confirms it.
+
+The mountains have only recently entered the world. Their flanks are abrupt and little weathered, made of dark green-black stone with seams of rust, sulfur-yellow mineral, and glassy blue. Long blades of rock rise from the submerged ridges. Their edges remain sharp enough to divide slow currents, and their broken faces show no deep gullies or accumulated soil. In places, whole escarpments descend through the clear water for distances too great to judge, vanishing into a luminous cobalt haze.
+
+Water covers almost everything.
+
+Above the drowned peaks it may be only a few body-lengths deep, warm and bright, with a wavering ceiling open to the sun. In the valleys it thickens into blue-green distance. There are no beaches, no stable shores. Even the highest rocks are slickly awash, appearing beneath the surface as bronze planes whenever the long water-level cycle falls. Rain is frequent but not violent. It descends in immense, nearly vertical curtains, dimpling the upper sea until water and atmosphere seem to exchange places. During the heaviest rains, the distinction between swimming and flying becomes briefly uncertain: cloud rests on the surface, the surface rises into cloud, and the mountain sea has no clear roof.
+
+The vegetation belongs wholly to this condition. Forests stand submerged along the ridges, though “stand” is only approximately true. Their trunks are living ropes rooted into cracks in the raw stone, pale near their bases and darkening toward crowns that spread sideways rather than upward. Broad translucent leaves overlap in thick tiers, each leaf buoyed at its edge by bladders of warm gas. They form suspended canopies that hang at different depths: one just under the surface, another ten or twenty lengths below, and further layers fading into green dusk.
+
+Some plants descend instead of rise. They germinate in floating rafts of fibrous tissue and send red-brown roots downward through open water, searching patiently for stone. A root may drift for years before finding a summit. Once it touches, it flattens into hundreds of adhesive fingers, and the floating plant slowly becomes a tethered island. Other growths cling directly to cliff faces: feathery cobalt mosses, fans of amber membrane, and thick mats of small, black leaves that turn their silver undersides toward changes in pressure.
+
+There are flowers, although few resemble flowers of air. They open as hollow globes among the branches and fill themselves with water of a slightly different density. Their petals neither droop nor flutter. They hold still in the water like small moons—white, lilac, or a deep mineral orange—while strands of pollen creep from one globe to another in viscous threads. Pollination may take a season. A thread can remain stretched across a ravine for months, almost invisible except when the sun strikes it.
+
+The density of the place is not crowded motion but crowded presence. Every available depth has its layer: surface leaves collecting light; columns of fine roots; middle forests suspended from buoyant crowns; cliff gardens; drifting spore veils; and, lower down, fields of slow-growing fronds that drink the weak warmth rising from fissures. Seen across a broad basin, these layers give the water the appearance of stained glass built without walls. Greens lie over blues, golds over black rock, all softened by distance.
+
+Yet the world is nearly silent.
+
+The water carries sound well, but little makes any. Rain is a muted grain against the surface. Trunks give occasional low creaks as buoyancy pulls against their roots. Now and then a slab of fresh mountain stone settles with a deep, single knock, felt through the body long before its echo arrives. In the deep basins, warm springs release chains of bubbles that ascend for hours. Their faint ticking is sometimes the only nearby sound.
+
+Animals are uncommon enough to feel accidental. Tiny colorless grazers live beneath leaves, seldom moving except to fold themselves around a patch of algae. Once in a great while, a long ray-shaped creature passes through the middle canopy. It has no visible mouth and swims with such restraint that the plants barely bend behind it. Its back resembles wet basalt, mottled with growth, and small rooting tendrils trail from its underside. When it rests against a cliff, it may remain there for years and become indistinguishable from a garden.
+
+Higher up, at the boundary between water and rain, small air-breathing things sometimes cling to the gas-filled leaves. They are soft-bodied, with sealed eyes and wide feet. They surface only once in several days, releasing a quiet sigh before descending again. Nothing hunts them often. Predation exists, but it is rare, almost ceremonial: a sudden absence in the vegetation, a few scales turning in the light, then decades in which no such event is witnessed.
+
+The warmth is constant rather than oppressive. It issues from the young range itself. Narrow cracks in the mountains exhale water rich in iron and dissolved stone, maintaining a mild temperature even under cloud. Around these vents, mineral crusts form in fresh, delicate ridges. They are white at first, then pink, then dark green as life takes hold. The processes are slow, but the terrain is young enough that they have not yet rounded it. Soft organisms cover knife-edged geology without dulling its shape.
+
+Currents barely deserve the name. Water migrates among the high valleys according to pressure, rain, subterranean heat, and the pull of distant celestial bodies. It does so over weeks and years. A suspended forest may lean gradually east for half a lifetime, then straighten during a long season of equilibrium. Clouds of spores cross a basin so slowly that individual grains sprout while still in transit. Fallen leaves do not tumble. They enter descending paths that can take months, gathering mineral dust until they sink into the blue.
+
+There are no paths, walls, carvings, wrecks, or worked surfaces. Nothing indicates that hands have ever arranged one stone upon another. The landscape permits no durable distinction between wilderness and habitation because habitation, where it exists, is vegetal: shelter is a hollow within braided roots; territory is a layer of water held at a favored warmth; memory persists as growth rings and mineral stains.
+
+The strangeness becomes clearer with distance. The high sea does not appear to be confined by a continuous basin. At certain passes, water stands against open air in vast vertical faces, trembling but not falling. Plants grow across these boundaries, their roots in liquid and their crowns extended into cloud. Leaves and droplets cross from one medium to the other without disturbance. Beyond one such wall, another flooded valley may be seen hanging lower in the atmosphere, blue and remote, with its own forests and sharpened summits. The mountain waters seem arranged at several elevations, connected not by rivers but by slow changes of density.
+
+At dawn, sunlight enters nearly level through the water walls. The entire sea brightens from the side. Cliffs cast long blue shadows through submerged forests; gas-filled leaves ignite in sheets of green-gold; every suspended particle becomes briefly visible. The open basins then reveal their scale—ridge after ridge, drowned summit after drowned summit, all densely clothed and nearly motionless.
+
+By midday the view closes. Warm haze accumulates, and the distant landscape dissolves into luminous green. Near things become intensely precise: the crystal edge of new stone, hairs along a root, a globe-flower holding its internal tide. Rain may pass overhead as a darker current. Thunder, if it occurs, reaches the submerged heights as a broad pressure with no sharp beginning.
+
+Night does not wholly darken the sea. Mineral-fed vegetation retains daylight and releases it by degrees. The upper canopies glow dim green; deeper fronds answer in violet; threads of pollen mark faint lines across ravines. These lights do not pulse or flicker. They diminish with patient steadiness until the mountains are outlined by almost nothing.
+
+Then there is only warm water, sharp stone, and the weightless architecture of the forest.
+
+The place changes, but reluctantly. Mountains continue to rise by imperceptible increments. Roots fasten them. Minerals seal cracks and open others. Forest layers thicken until buoyancy tears them free, perhaps once in centuries, sending whole acres adrift toward another summit. The high sea gains and loses a little water. Its vertical boundaries move across passes. Rare creatures complete lives too slowly to be recognized as lives.
+
+Nothing here hurries to become old.

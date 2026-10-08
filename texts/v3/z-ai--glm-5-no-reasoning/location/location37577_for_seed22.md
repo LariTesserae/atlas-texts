@@ -1,0 +1,57 @@
+The sound arrives before anything else. Not sound exactly—pressure, frequency, a vibration that settles in the chest cavity and makes the ribs hum like tuning forks. The noise is cumulative, layered, a white-water rush of frequencies that shouldn't coexist but do. From somewhere beneath the threshold of conscious hearing, a subsonic pulse rhythms through the air, and layered atop it: clicks, whistles, the electronic shimmer of systems communicating at speeds that blur into tone.
+
+This is a place of paradoxes. The scale opens outward—valley-sized, perhaps, though the boundaries are difficult to perceive—yet the space feels hollow, emptied of presence despite the sheer volume of life and structure. Distance works strangely here. Objects that appear near recede as you approach them. The air itself seems to fold.
+
+---
+
+The vegetation is what first grounds you. Lush, impossibly so, spilling across every surface in variations of green and blue-green and colors that shift depending on viewing angle. But it grows in a vacuum of space—great cushions of moss and fern-like structures floating at intervals, connected by thread-thin mycelial networks that catch the dim light and glow faintly amber. Each cluster of vegetation exists in its own pocket of air, surrounded by meters of near-nothingness. You could walk between these floating gardens without brushing a leaf. The moisture comes from them—condensation on their surfaces, micro-droplets that shimmer and drift and occasionally coalesce into a fine, warm rain that falls upward as often as down.
+
+The warmth is pervasive, humid, tropical in its density. It radiates from below, from somewhere beneath the surface you stand on—or what you assume is a surface. The ground gives slightly with each step, spongy, alive with heat and something like bacterial activity. It's new ground. Young. The texture of recently-formed stone, volcanic in origin perhaps, but intercut with threading that glints metallic in the low light. The surface hasn't yet settled into its final form. Ridges and undulations shift subtly under sustained pressure.
+
+---
+
+The city—if it can be called that—emerges from the vegetation rather than replacing it. Structures spiral upward in spiraling fractals, architecture that follows the logic of termite mounds and coral reefs and algorithms that human minds haven't yet named. There's organization here, but it's not human organization. Streets exist as negative space, channels cut through the density, but they curve and double back and sometimes terminate at windows that look out onto nothing.
+
+The building material is unclear. Not stone. Not metal. Something grown, perhaps, or printed at a scale that blurs the distinction. The surfaces ripple at their edges, nanoscale activity visible as a kind of visual fuzziness, matter arranging and rearranging itself at the boundary of perception. Some structures appear to be in the process of becoming—half-formed arches reaching toward each other, walls that thicken as you watch. Others seem to be in dissolution, carefully deconstructing themselves into the raw material of new construction.
+
+The city is empty of people. Not abandoned—never abandoned. Empty as in waiting. The infrastructure is too fresh, too functional, too actively humming with purpose to be called deserted. The doors are open. The light panels glow. The air circulates through corridors that smell of minerals and growing things. But no one walks these streets. No one lives in these layered rooms that stack toward a ceiling you cannot see.
+
+---
+
+The fauna makes the absence of humans comprehensible. Life is abundant here, teeming, but it operates on a different register. Creatures move through the negative space between vegetation clusters, between buildings, through the hollow architecture of streets and plazas. Some are recognizable as insects—beetle-things with carapaces that reflect the dim light in prismatic bursts, moths large as hands that drift on air currents and leave trailing filaments of silk-like substance. Others are less classifiable. Multi-legged forms that move too quickly to track. Something in the higher registers of the structure, calling to others of its kind in frequencies that blend into the omnipresent noise. Rodent-like animals with too many joints in their legs, their movements liquid, almost boneless. They travel in groups, chittering to each other, and when they pause, their bodies align toward shared points of interest, synchronized attention.
+
+The strangeness reveals itself gradually. The creatures do not avoid you, but they do not acknowledge you either. They pass through spaces you occupy as if you were a feature of the landscape, no more remarkable than a support column or a floating moss cluster. Their behaviors are cyclical, predictable, but the cycles operate on logic that doesn't map to any ecosystem you know. They feed on the structures themselves—nibbling at the edges of buildings, drinking from the condensation on vegetation, each performing its function in a system that has no apparent apex. Predator and prey don't exist here in any clean configuration. Everything consumes, everything is consumed, but the relationships blur.
+
+And the noise. Always the noise. It takes on quality as you remain in it—not silence, never silence, but a kind of textured sound-wall that the mind eventually stops fighting. The subsonic pulse, you realize, comes from the city itself. The structures hum at frequencies designed to resonate with organic tissue, stimulating something—growth? Maintenance? Communication? The creatures have adapted, evolved around it, perhaps evolved because of it. Their sounds layer into it, harmonics and overtones that shouldn't be musical but accumulate into something like song.
+
+---
+
+Time passes strangely here. The light doesn't change, dim and amber, filtering down from a source too diffuse to locate. The warmth remains constant. Moisture cycles in micro-climates—you pass through pockets of humidity that bead on your skin, then through dry air that wicks the dampness away within seconds. The vegetation responds to your passage, not obviously, not dramatically, but the moss cushions turn slightly toward you as you move, the fern-things opening their fronds. They track motion. They track heat.
+
+A process reveals itself. Not weather in any conventional sense, but a kind of metabolic activity that encompasses the entire region. The city is digesting itself. The half-formed structures are consuming the dissolving ones, materials flowing through the system in a slow motion that the mind can only perceive through accumulation. Staying still, watching a single wall, you might notice it thinning over minutes, particles drifting away from its surface, joining the air currents that carry them toward a construction site somewhere else. The vegetation participates, its root-things reaching for the falling matter, incorporating it, growing larger, denser, then splitting off new floating clusters that drift away to find their own pockets of air.
+
+You realize, gradually, that the erosion parameter is backwards. This isn't a place being worn down. It's a place being built, still being born, matter organizing itself into forms that haven't finished deciding what they want to be.
+
+---
+
+The technology is the hardest thing to see directly. It operates at scales that the eye can't resolve—nanoscale assemblers in the air, in the ground, in the tissues of every living thing. But you can feel it. The pressure in your ears changes when you move from one sector to another, some atmospheric manipulation keeping the various zones at optimal conditions for their current processes. The surfaces you touch have a texture that shifts—smooth when approached slowly, tacky when approached quickly, some kind of reactive matter that modulates friction. The air itself carries information, you realize. The sound-wall isn't just noise. It's data, encoded in frequencies that the creatures here have evolved to read, position-reports and resource-maps and perhaps histories of every structure that has risen and dissolved in this place.
+
+You could read it too, you think, if you stayed long enough. If your body adjusted, adapted, learned the language of pressure and tone.
+
+The creatures might have been something else once. The rodent-things have forepaws that could have been hands, could still become hands given enough generations in this direction or that. The moth-things have patterns on their wings that resolve at certain distances into shapes like letters, like numbers, like coordinates. The beetle-things carry objects between buildings, objects too small to identify, placing them with precision that suggests intention beyond instinct.
+
+Something is being built here. Not the city—that's the infrastructure. The real construction is happening at a level you can't perceive, matter being arranged into configurations that serve purposes you don't have the context to understand.
+
+---
+
+You are aware, by now, that you are being tolerated. The adaptive matter has assessed you, categorized you, placed you somewhere in the hierarchy of presences that move through this region. Not threat. Not resource. Tourist, perhaps. A temporary pattern of heat and motion that will eventually leave or be incorporated. The creatures ignore you because the system has decided you're not relevant to their processes. The vegetation turns toward you because your heat signature is interesting data. The city reshapes itself around your path—walls that weren't there before, passages that close behind you—not with intention exactly, but with the automatic accommodation that a stream makes for a stone.
+
+The sound has changed. Or you've changed—you can hear it now as layers, distinguishable frequencies, a kind of music. The subsonic pulse is a beat. The creature-sounds are melody, counter-melody, improvisation around themes that repeat and vary. The city's hum provides chord changes, shifting every few minutes to a new tonal center, the whole system cycling through a progression that might take hours or days to resolve.
+
+You could follow it. Let the sound guide you deeper into the region, toward whatever central process generates the core frequencies. You could map the architecture, trace the flows of matter, learn the pattern-language of the assemblers and read the history encoded in the dissolving walls. You could become part of whatever this place is building.
+
+Or you could leave. Find the exit—which exists, you realize, because you entered, and the system maintains its hospitality by offering paths outward as easily as inward. The city is already constructing one behind you, a corridor that didn't exist before, lit with the same diffuse amber glow, humid and warm and alive with the quiet motion of creatures who pay you no attention at all.
+
+The choice, the system seems to say, is yours. It has time. It has nothing but time—the slow time of growth and dissolution, the patient time of matter learning to arrange itself into new configurations. It will be here whenever you're ready. It will be here after you leave.
+
+The noise continues. The pressure rhythms in your chest. The vegetation drifts in its pockets of air. And somewhere in the fractal depths of the structure, something is being built that will outlast any name you might give it.

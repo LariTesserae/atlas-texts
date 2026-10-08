@@ -1,0 +1,69 @@
+# The One Who Counts the Layers
+
+I would not arrive through the rent in the mat. I would already be there.
+
+---
+
+Start with this: I would be old. Not oldest — not the one who was here before, who carries the compressed versions of Wjell like peat carries the remains of forests. That one has a relationship to time that I do not have and will not have, because their time is accumulative, and mine is recursive. They accumulate. I return. The difference is the difference between a pile and a path, and I would be the path.
+
+Old, though. Old enough that the green has entered my hair in a way that I have stopped noticing and that others notice still. Old enough that my hands have the density — not calloused, not hardened, but *compacted*, the way the weg is compacted, the way the living fiber presses itself into a tighter version of itself under pressure. My hands would be my instrument. Not in the way that a scientist's hands are instruments — precise, calibrated, purpose-built for measurement. In the way that a tuning fork is an instrument: responsive, resonant, shaped by use into something that vibrates at a particular frequency when struck against the world.
+
+The world here strikes me constantly. I resonate.
+
+---
+
+What I would do — my function, my name, the description that replaces the name I was born with and that I have stopped missing because the missing would require a context that no longer applies — what I would do is this: I would read the peat.
+
+Not dig into it. Not excavate it. Not core it with instruments or section it for analysis, because the word *analysis* implies a distance between the analyzer and the analyzed, and I would not have that distance, would not want that distance, would not be able to maintain that distance any more than a fish maintains distance from water. I would read the peat the way the settlement reads the water — by contact, by immersion, by being *in* it and letting the information come to me through the medium of my body.
+
+The peat is meters deep. This is said in the description of Wjell, and it is said casually, the way a fact about geography is said casually, but it is not a casual fact. The peat is the compressed remains of every generation of growth that has lived in this basin since the system was seeded. It is the past, made physical, made substrate, made ground. The current growth — the walls, the corridors, the rooms, the weg — grows from the peat. The roots descend into it. The water moves through it. The chemical signals that tell the walls to thicken and the corridors to narrow and the chambers to hollow — these signals originate partly in the peat, which is not dead matter but *slow matter*, matter that is still processing, still metabolizing, still doing chemistry at a rate that makes the surface growth look frantic and temporary.
+
+I would read it. I would lie on the weg in a room that I have chosen for its depth — a room near the center of the basin, where the depression is deepest, where the peat is thickest, where the layers beneath me go down farther than I can reach with my hands — and I would press my body against the living mat and I would listen.
+
+Not with my ears. The hum — the biological hum, the sound of a trillion cells doing chemistry — is loudest here, or not loudest but *deepest*, the way the lowest note of a pipe organ is not loud but *foundational*, felt in the chest more than heard, felt in the floor more than in the chest, felt in the peat more than in the floor. I would press myself against the weg and I would feel the hum through my sternum, through my ribs, through the dense skin of my hands, and the hum is not one hum but many hums, layered, the way the peat is layered, each layer a different frequency, a different pitch, a different *age*, and I would sort them. Not consciously. The way you sort voices at a party — not by analysis but by attention, by turning toward one and letting the others recede, by finding one frequency and following it down.
+
+---
+
+The name would be something that translates, approximately, to *the one who counts the layers*. But *counts* is wrong. *Counts* implies enumeration, sequence, a list. What I would do is not list. What I would do is *inhabit*. I would inhabit the layers the way the one who was here before inhabits the versions of Wjell — not recording them but *containing* them, holding them in a body that has learned to hold them, letting them be present simultaneously, the way a chord is present simultaneously, each note distinct but the distinction not the point.
+
+The point is the chord. The point is the sound that the layers make together.
+
+I would know things. Not facts. Not data. Not the kind of knowledge that can be written or spoken or transferred. I would know the way a riverbed knows the river — by having been shaped by it, by carrying the shape, by being the shape. The peat would tell me things. Not in words. Not in signals that I decode. In *pressure*. In *texture*. In the quality of the hum at different depths, which corresponds to different ages, which corresponds to different conditions, which correspond to different versions of the system that have lived and died and been compressed and become ground.
+
+A layer that hums at a slightly higher pitch: a period of rapid growth, when the system was expanding, when the walls were thinner and the corridors were wider and the settlement was more open than it is now. A layer that hums lower: a period of contraction, of thickening, when the system pulled inward, when the rooms were smaller and the growth was denser. A layer that is silent — not silent, but *thin*, a layer where the hum drops to almost nothing, a stratum that I have learned to recognize as a period of stress, when something happened — a drought, perhaps, or a pathogen, or a shift in the mineral content of the inflow — and the system contracted and went quiet and waited and survived and the waiting is in the peat and I can feel it.
+
+The one who was here before remembers these periods. Or some of them. The ones that occurred during their residence. But the peat remembers more. The peat remembers all of them, going back to the beginning, and the beginning is very deep, deeper than I can reach, deeper than anyone can reach, a hum that goes down and down and down until it is not hum but vibration, not vibration but *temperature*, not temperature but *presence*, the presence of something that has been here since the system was seeded and is still here, still processing, still doing chemistry at the bottom of the basin, and I cannot reach it but I can feel it and the feeling is the work.
+
+---
+
+I would not do this all the time. This is important. I would not be a mystic, not be a priest, not be the person who lies on the floor in a trance while others do the real work. The real work is the pruning. The real work is the redirecting of water and the cutting of corridors and the harvesting of tubers. I would do this work too. I would have a pruning tool and I would use it and I would walk the corridors and I would read the walls and I would call to others in the tonal language — my voice would be low, lower than most, the voice of someone who spends hours with their chest pressed against the ground, and the low voice carries differently in the wet air, it carries *through* the walls instead of bouncing off them, and the others would learn to distinguish my call from the calls that bounce, and the distinction would be part of the language, another layer of context.
+
+But I would also return to the room. My room. The room I had chosen for its depth. The room that I had hollowed — or that had hollowed itself for me, because I had spent enough time in it that the system recognized the shape of my body and the shape of my attention and the growth had adjusted, had thinned at the points where my shoulders pressed, had thickened at the points where my weight settled, had become, over years, *my* room in a way that was not ownership but *fit*. The way a stone becomes the stone of a riverbed — not by being placed but by being shaped by the water that flows over it, and the shaping is mutual, the water shapes the stone and the stone shapes the water and the shaping is the relationship.
+
+I would lie down. I would press my chest to the weg. I would close my eyes, though closing my eyes in Wjell does not change the light, which is the same with eyes open and eyes closed, the same green, the same sourceless diffusion, and the sameness is not a deficit but a condition of the medium, the way darkness under water is not an absence of light but a presence of depth. I would close my eyes and I would count the layers.
+
+Not count. Inhabit.
+
+---
+
+The question is what I would find down there. What I, the one who counts the layers, would discover at the bottom of the hum, in the deepest stratum, in the place where the peat becomes not peat but something else — something older, something that was here before the system was seeded, something that the system was seeded *into*, the way a seed is planted in soil, the way a wound is seeded with cells, the way a basin is seeded with a settlement.
+
+I would find the bruise.
+
+The basin is a bruise. This is said in the description — *the land has been hurt here, pressed down by something that no longer exists, and the depression has remained because nothing has had the energy to fill it.* I would feel this. Not as information. As *pain*. Not my pain. The peat's pain. The land's pain. The pain of a place that was pressed down by something immense and patient and deliberate, something that sat here for a very long time and then left, and the leaving did not heal the pressing, and the pressing is still in the ground, and the ground is still holding the shape of the thing that pressed it, and the shape is the basin, and the basin is the settlement, and the settlement is the system, and the system is the living thing that I live inside, and I would feel this.
+
+Not all at once. The layers are many. The descent is slow. I would pass through the recent peat — the last few generations of growth, the hum I know, the frequencies I have memorized by lying on them for years. I would pass through the older peat — the deeper hum, the lower notes, the layers that the one who was here before remembers and that I know only from the feeling. I would pass through the oldest peat — the compressed remains of the first growths, the first generations, the system's beginning, which is not a beginning like a birth but a beginning like a planting, a beginning that presupposes a hand, or a mind, or a system, something that put the lineages here and left, and the leaving is the first loss, and the loss is in the peat.
+
+And beneath the peat, the bruise. And beneath the bruise, the shape of what made it.
+
+---
+
+I would not tell anyone what I found. Not because it is a secret. Because it is not the kind of thing that can be told. The tonal language does not have a tone for it. The slow language does not have a word for it. The language of Wjell is a language of process, of function, of relationship — *come*, *here*, *now*, *the one who prunes the north corridor*, *vrenn*, *fenn*, *slenk*, *skryll* — and what I would find is not a process or a function or a relationship. What I would find is a *history*. A history of hurt. A history of something that pressed and was pressed and left and left its shape. And history is not a word in this language. History is what happens when the language does not reach and the peat reaches instead, and the peat holds what the language cannot hold, and the holding is the telling, and the telling is for the one who lies on the ground and listens, and for no one else.
+
+The one who was here before would know that I had found something. They would see it in the way I moved — slower, perhaps, or with a particular quality of attention that they recognized, because they had moved that way once, in their own search, at their own depth. They would not ask. Or they would ask, in the slow language, in a room, with the words unspooling in the warm air: *what did the ground say*. And I would say: *it said something old*. And they would nod. And the nodding would be sufficient. And the sufficiency would be the language beneath the language, the hum beneath the hum, and we would both hear it, and the hearing would be the community, and the community would be Wjell.
+
+---
+
+What I would be, then — the shape of my being in this place — is not a role. Not a job. Not a function in the process, though I would have a function and a name and a place in the settlement's economy of attention. What I would be is a *surface*. A surface where the peat meets the air. A surface where the deep hum becomes audible, or not audible but *present*, the way a wall's warmth is present, the way the water's movement is present, the way the system's aliveness is present without anyone needing to declare it or prove it or maintain it. I would be the place where the depth becomes surface, the way the weg is the place where the water becomes ground, the way the walls are the place where the growth becomes shelter, the way the inhabitants are the place where the system becomes *inhabited* — not by being entered, not by being occupied, but by being *met*, surface to surface, skin to bark, hum to hearing, and the meeting is the being, and the being is what I would be.
+
+The one who counts the layers. The one who lies down. The one who listens with her chest. The one whose hair has gone green and whose hands have gone dense and whose voice has gone low and whose room has taken the shape of her body and whose body has taken the shape of the room and the distinction has become, like all distinctions in Wjell, a word that does not hold up, and the not-holding-up is the truth, and the truth is warm, and green, and very slightly damp, and it goes all the way down.

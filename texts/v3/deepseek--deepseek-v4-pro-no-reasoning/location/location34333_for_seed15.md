@@ -1,0 +1,21 @@
+You descend through the ceiling. That’s the only way in—a circular hatch at the apex of the dome, its bronze rim worn smooth by countless entries. The ladder is wet iron, each rung wrapped in twisted hemp for grip, and it drops you straight down into the light.
+
+The Cistern breathes around you.
+
+This is a chamber entirely made, and you feel the making in every surface. The walls are fitted stone—not cut stone, but stones that were carried here, each one chosen for its curve, its willingness to lean against its neighbors. They are mortared with something dark and glossy, pitch maybe, or a resin cooked from plants that no longer grow anywhere near this place. The dome rises in a shallow parabola overhead, and every stone in it is wet. Not damp—wet. Water sheets down the walls in a continuous film, so thin and even that the stone seems to have a skin. It gleams.
+
+The floor is submerged. Not flooded in the sense of disaster—this is a designed submersion, a deliberate knee-deep. The water is warm, blood-warm, startlingly warm after the cool of the ladder’s iron. It moves. There are currents in it, slow curls and drifts that tug at your legs, and you realize the chamber is not a container so much as a passage, a wide place in a flow. The water enters through slits in the eastern wall—no, through the eastern wall, because the wall itself is a grate, a lattice of hand-forged iron so dense with rust it has become a kind of coral, orange and brown and flaking, and through its thousand small apertures the water arrives in thin bright jets. They make a sound like a room full of people whispering *shh, shh*. On the far side, the western wall is lower, and the water leaves in a single broad sheet, falling away into a darkness that suggests not another chamber but a drop, a throat.
+
+The light is everywhere. It comes from above—a shaft cut straight through the crown of the dome, lined with polished mica that catches the sun and throws it down in a column of white fire. But the water catches it too, and the walls catch the water, and so the whole chamber is a lens. Light moves on every surface in slow liquid ripples, and the ceiling is alive with shifting nets of gold. It is so bright that you have no shadow; you are illuminated from all sides at once.
+
+The air is thick. Warm, of course, and dense with water—you are breathing more water than air, a saturated mist that coats your throat. There is a smell: iron from the grates, a faint sweetness from the pitch in the mortar, and something else, something clean and mineral, like the inside of a spring.
+
+There are no fish. No insects skate the surface. No algae streaks the walls. The water is clear as glass, and when you look down through it you see the floor—more fitted stone, these ones laid flat and tight, with channels worn into them by the flow. The channels are the only sign of age here; everything else looks newly made, the edges of the stones still crisp, the ironwork sharp despite the rust. This place is young, geologically speaking. It was built, and then the water was let in, and that was not long ago.
+
+But it was built for something. The purpose is illegible now, but the shape of it suggests ceremony—there is a ledge along the northern curve, a stone bench just above the waterline, wide enough for a body to lie on. Above it, iron hooks are set into the mortar. They hold nothing now. The water whispers past them.
+
+The sound is the loudest thing. Between the entering jets and the exiting fall and the slap of small waves against the walls, the chamber is a constant low roar, a pressure on the ears. It is not unpleasant. It is the sound of a system working, a cycle turning. The water arrives, crosses the room, departs, and somewhere beyond these walls it rises and returns. The warmth says *deep*, says *geothermal*, says *the rock below is hot and will be hot for a long time*. This is a young place but it is not fragile. It will run for centuries.
+
+You stand in the center, the light blazing down, the water tugging gently, and you are the only living thing in the room. The only thing that breathes air instead of drinking it. The chamber does not need you. It was built by hands, but those hands are gone, and the water does the work now. It flows. It shines. It makes its steady noise.
+
+When you climb out, the iron ladder is warmer than it was.

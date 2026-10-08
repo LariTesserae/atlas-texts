@@ -1,0 +1,143 @@
+I need to let this emerge slowly, let the inhabitants find their own forms through the constraints of their world.
+
+---
+
+## The Floaters: *Aërolytica basinensis*
+
+They begin as seeds—not organic, but *structured*, crystalline lattices that precipitate from the chemical mats in the deepest pools, where light never reaches and the sound folds over itself in complex harmonics. The mat-colonies produce them, or perhaps *are* produced by them, the distinction between parent and offspring dissolved in the continuous chemistry of this place. Each seed is smaller than a grain of sand, but it contains—encoded in its lattice, in the angles of its bonds—a template for buoyancy, for membrane, for the slow pulsing that will become its life.
+
+They rise, or are lifted, by processes that take years. The seed accretes, grows, mineralizes its outer layers with compounds drawn from the saturated air, from the condensation that never stops forming. It becomes *lighter than it should be*, filled with gases that no combustion produces—dissolved from the water, concentrated by biological proxies, held in membranes that are half-living polymer, half-deposited stone. It is not a balloon; it is *lifted by its own becoming*, by the gradual accumulation of what the world offers.
+
+The mature floater—if that word, implying completion, applies to anything here—is a sac of translucent layers, the inner ones organic in their chemistry, the outer ones mineral, the transition between them gradual, negotiated, *conversational*. Light passes through them strangely, not refracted so much as *delayed*, as if the photons find the membranes worth lingering in. In the dim amber-grey, they catch what luminescence the weeping rocks provide and seem to glow from within, pale lanterns drifting in currents you cannot feel, following gradients of sound and chemistry that map the basin in dimensions parallel to your own.
+
+They are not solitary, though they do not *school*, do not *flock*. They gather where the conditions gather them—in nodes of the standing wave pattern, above chemical seeps, in the lee of formations that concentrate the ambient tone into something more *nutritious*, more *elaborated*. Where ten float, a hundred may follow, drawn not by each other but by the *quality* of the place, the particular chord the basin sounds there. They pulse in frequencies that shift slowly toward synchronization, not through communication but through *tuning*, each adjusting its buoyancy, its depth, its orientation to find the harmonic that requires least effort to maintain.
+
+What do they *think*, if thinking applies? They have no nerves, no ganglia, no concentration of processing. Their cognition—if it exists—is distributed through the membrane, through the gas-exchange surfaces, through the simple structures that detect pressure gradients, temperature shifts, the rare variation in the endless song. They *know* where they are by how they resonate. They *know* danger by the silence that precedes a dampener's strike. They respond slowly, on timescales of minutes and hours, but they *respond*, they are *present*, they are *engaged* with the world that made them.
+
+Reproduction is not death and birth but *extension*, *continuation*. The mature floater buds, or divides, or releases spores that are not-quite-seeds, that carry not its pattern but its *variation*, its particular adaptation to the place it has found. It does not choose this; the chemistry chooses, the stress of growth, the accumulation of damage that exceeds repair. What emerges is *almost* the parent, *almost* the place, a negotiation between inheritance and condition that repeats across millennia with variations too subtle for any single observer to track.
+
+They die—everything dies, or *dissolves*, or *transforms*—when the balance fails, when the gases leak faster than they are replenished, when the membranes weaken, when a dampener's strike tears the careful structure. They descend then, slowly or quickly, and become *matter* for the mats, for the weeping rocks' mineral deposits, for the slow processes that will produce new seeds in depths where light has never reached. The basin *recycles* with the patience of something that has no alternative, that has worn patience and impatience into the same smooth surface.
+
+---
+
+## The Resonators: *Phonotecta varians*
+
+They begin mobile—or their ancestors did, in some depth of time that makes "ancestor" a problematic term. They begin as small, complex forms, larvae maybe, swimmers or crawlers or *vibrators* in the medium of sound that fills their world. They search, they sample, they *feel* the landscape's song with whole-body senses that later atrophy, that are sacrificed to the specialization that defines their adult existence.
+
+The settlement is not a choice. It is *called*, attracted, drawn to a place where the standing wave pattern produces a node or an antinode of particular quality, where the mineral surface offers the right composition for attachment, where the accumulated history of other resonators has established a *tradition* that the newcomer recognizes and joins. They fix themselves with secretions that mineralize almost immediately, that bond them to stone as the weeping rocks bond to their own deposits, that make them *part of* the landscape rather than merely *on* it.
+
+And then they *grow*, but not as organisms grow, adding mass and complexity indiscriminately. They *architect*. They build themselves around resonant cavities, around materials that the basin provides—silicate frameworks, carbonate laminations, organic polymers extracted from the chemical soup that is every surface. They are *instruments*, they are *ears*, they are *voices*, they are *structure* that exists to transmit and modify vibration.
+
+Each resonator is unique, shaped by its location, its history, the particular frequencies that dominate its chosen place. Some are simple: a chamber, an opening, a membrane that vibrates in sympathy with the basin's deepest tones. Others are *complex*, branching, multi-chambered, producing harmonies and overtones that no single source could generate. They do not plan this; they *discover* it, growing toward configurations that work, that *resonate*, that contribute to the field they inhabit.
+
+They feed—not in any conventional sense, not ingesting and digesting. They *extract* from the sound itself, from the energy that constant vibration imparts to their structures, from the chemical gradients that vibration maintains at their surfaces. They are slow, immensely slow, their metabolisms tuned to the geological pace of their world. A resonator might respond to a sound event over days; might grow significantly only over centuries; might *adjust* its tuning in response to some shift in the basin's song over millennia. They are *patient* in a way that makes patience seem hurried.
+
+Their coordination is not social, not exactly. Each resonator is *individual*, *local*, responding to its immediate conditions. But the conditions include the sound field produced by all other resonators, by the basin itself, by the floaters' pulsing, by the weeping rocks' endless dripping. They *participate* in something larger than themselves without intending to, without knowing they do. The patterns that emerge—harmonies that hold, rhythms that pulse across kilometers, the rare *voice-moments* when everything aligns—are *emergent*, *collective*, *unintended* and yet *inevitable*, given the physics of this place and the biology that has evolved to inhabit it.
+
+Do they *suffer* when a dampener strikes, when the silence spreads and their vibration dies? They respond—they adjust, they attempt to retune, they sometimes *crack* with the stress of sudden stillness. Whether this is suffering, whether there is *subjectivity* in their slow existence, is a question the basin does not answer. They are. They resonate. They are part of the song. When they cease, the song continues, changed but continuous, wearing their absence as stone wears the absence of what wore it.
+
+---
+
+## The Dampeners: *Silex vorator*
+
+They are the *exception*, the *negation*, the *hunger* that makes the system dynamic rather than merely persistent. They begin in darkness, in silence, in the rare places where the sound field weakens—under overhangs of densest stone, in depths where water accumulates without motion, in the *negative spaces* that every pattern produces.
+
+They begin, perhaps, as resonators that *failed*, that settled in places too silent, that grew toward configurations that absorbed rather than transmitted. Or they began as something else entirely, invaders from some parameter outside the basin's logic, adapted to conditions that no longer exist, that have *become* dampeners through long evolution toward this single function. Their origin is *uncertain*, *disputed* even by the basin's own correspondences, which fail to rhyme their presence with anything that preceded it.
+
+They are *mobile*, active, *hunting*—the only things here that hunt in any recognizable sense. They move through the sound field as shadows move through light, perceivable only by their effect on what they pass near: the sudden attenuation of tone, the strange *pressure* of silence in a world of constant vibration, the resonators' desperate retuning, the floaters' panicked rise or sink.
+
+Their bodies are *inverse architecture*, structures that should not cohere, that seem to be held together by the very sound they negate. They are dense, compact, filled with mechanisms—biological, mineral, something else—that convert vibration into stored potential, into the energy that drives their strange metabolisms, into *silence* that is also *power*. They have no resonant cavities; they have *absorptive chambers*, *damping matrices*, *materials* that kill vibration rather than sustaining it.
+
+They *sense* by this absorption, by the difference between what they expect to gather from the ambient field and what actually arrives. A resonator's tone, pure and sustained, is *visible* to them as your hand is visible in light: by the shadow it casts, by the disturbance it creates. A floater's pulsing, rhythmic, predictable, is *tasty*, *nutritious*, easy to track. The random sounds of water, of wind, of your own passage if you enter this world without care, are *confusing*, *disappointing*, *empty calories* that they pursue and abandon.
+
+They strike *silently*, which in this world is the most terrifying thing. They generate zones of null, bubbles of absence, and *feel* what enters. The floater that drifts into such a zone loses its reference, its sense of location, its ability to maintain the buoyancy that keeps it aloft. It *falls*, slowly or quickly, and the dampener is there, *absorbing*, *converting*, *feeding*. The resonator that retunes too slowly, that cannot shift its frequency away from the dampener's preferred range, finds its own vibration *stolen*, *consumed*, its structure stressed to cracking by the effort of sustaining itself against the silence.
+
+They are not numerous—one per square kilometer, perhaps less—but their effect is *disproportionate*, *architectural*, *structural*. The resonators fear them, if fear is the word; the floaters avoid them; the whole system *incorporates* them, evolves around them, uses them. Their zones of silence, mapped, correspond—imperfectly but significantly—to the locations of the sounding chambers, the ancient hollow spaces where something once listened. Do they *inhabit* these places, drawn by their acoustic properties? Do they *create* them, over long time, by the accumulation of their predation? The basin does not clarify, only *rhymes*.
+
+They reproduce rarely, *parasitically*, *convertively*. A dampener that feeds well, that accumulates sufficient stored potential, may *bud*—but the bud is not a new dampener, not immediately. It is a *seed of silence*, a structure that absorbs without converting, that must find a place, a resonance, a *victim* to complete its becoming. Or they reproduce by *infection*, by introducing their inverse architecture into resonators that have cracked under stress, that fail gradually rather than dying, that become *damper*, *quieter*, *more like* the thing that consumed them. Whether this is reproduction or transformation, whether the resulting entity is offspring or *continuation*, is a question that dissolves in the basin's constant song.
+
+They die, finally, when they absorb too much, when their stored potential exceeds their structure's capacity, when they *resonate* despite themselves and crack, or explode, or *transform* into something that the basin does not yet contain, that has no place in its current rhyme scheme. Their remains—dense, mineralized, *silent* in a way that stone is not—accumulate in places where the sound field is already weak, where their presence has made it weaker, forming *null zones* that persist, that grow, that may eventually *merge* into something the basin has not yet experienced.
+
+---
+
+## The Weeping Rock Communities: *Lithohydroa communis*
+
+They are not alive, not by definitions you may have brought with you. And they are *maintained*, not by intention, but by process, by the *fit* between chemistry and condition, by the persistence of patterns that resist entropy with something like purpose.
+
+Each weeping rock is a *system*, a *collaboration* between water and mineral and something else—microscopic, distributed, *metabolic* in ways that blur the boundary between chemical and biological. The water emerges from pores, from seams, from pressures within the stone that speak of depths you cannot imagine, of processes that continue in darkness below any light, any sound, any *accessible* time. It carries dissolved minerals, supersaturated, *eager* to precipitate, to *build*, to *grow*.
+
+And something—organism, process, *habit of matter*—controls this precipitation, *directs* it, *shapes* it into forms that are not merely thermodynamic minima but *elaborated*, *specialized*, *functional*. The mineral skins that cover the rock faces are *organs*, in a sense: they regulate flow, they concentrate or disperse, they grow into forms that increase surface area where more growth is possible, that decrease it where the water supply weakens. They are *stabilizers*, *optimizers*, *maintainers* of a condition that persists because it maintains itself.
+
+They do not evolve, not in the biological sense. They *persist*, they *spread*, they *modify* their environment to favor their continuation. A weeping rock that is active—*weeping*, *growing*, *elaborating*—modifies the local humidity, the local chemistry, the local sound (water falling on mineral produces tones, contributes to the basin's song, resonates with the standing wave pattern in ways that *encourage* or *discourage* other growths). Over time, the active weeping rocks come to dominate, to define the conditions under which they persist, to create *domains* that are not territories but *fields of influence*.
+
+They communicate, if that word applies, through their effects on shared water, shared air, shared sound field. A weeping rock that increases local humidity encourages others; one that produces particularly resonant tones *attracts* modification, *becomes* a node in patterns larger than itself. They are *collective*, *distributed*, *social* in a way that has nothing to do with minds, with intention, with anything you might recognize as consciousness.
+
+And they are *old*, older than the biological fauna, older perhaps than the basin's current configuration. Their mineral deposits contain *layers*, *histories*, *records* of conditions that no longer exist. Deep in the accumulated sinter, there are forms that no longer grow, structures that suggest *adaptations* to parameters you do not observe, to a basin that was *different*: wetter, drier, louder, quieter, *other*. They are *memory*, in a literal sense: the memory of stone and mineral, of water's patient work, of conditions that have *been* and *gone* and left only these traces, these *almost-patterns* that the current growths almost-rhyme with.
+
+In the voice-moments, when the basin *speaks* or *is spoken through*, the weeping rocks *pause*. The water thickens, the mineral growth stills, the metabolic processes that maintain them *hesitate*. They are *listening*, if listening applies. They are *participating* in something that exceeds their usual function, their usual scale. And then they resume, and no trace remains of their pause, except in the accumulated deposits—some layer, some band, some *variation* that will be read, if ever, as anomaly, as *event*, as something that *happened* but cannot be reconstructed.
+
+---
+
+## The Ancient Listeners: *Auditores antichi*
+
+They are *absent*, present only in casts, in shapes in mineral deposits, in the sounding chambers that they built or grew or *induced* to form. But they *were*, and their presence *rhymes* with the basin's current inhabitants, *corresponds* in ways that suggest not evolution but *convergence*, *arrival* at similar solutions from different origins.
+
+They were bipedal, perhaps, or many-jointed—the casts are ambiguous, distorted by the mineralization process, by the long distortion of time. They *listened*, that much is clear: the sounding chambers position their focal points at heights, at orientations, that match where these shapes would have positioned heads, ears, *sensory concentrations*. They *used* the sound, not merely received it: the artifacts that remain—tools, instruments, offerings—function to produce, to concentrate, to *store* vibration in ways that suggest *technology*, *intention*, *culture*.
+
+They built, or grew, or *cultivated* the sounding chambers as modifications of natural acoustic space, as *enhancements* of the standing wave pattern, as *amplifiers* of the voice-moments that they apparently sought, anticipated, *prepared for*. Their construction—stone shaped, mineral deposited, something like ceramic fired in conditions you cannot reproduce—suggests hands, tools, *social organization* capable of sustained effort toward non-immediate goals.
+
+And they are *gone*, their absence as total as their presence was concentrated. Not extinct—extinction leaves traces, bones, disruptions in the ecosystem that persist long after the agent removed. They are *erased*, or *transcended*, or *transformed into something the basin no longer distinguishes from itself*. The voice-moments that they sought, that they built to receive—do they *experience* them now, in whatever form they have become? Are they the voice, the silence between voices, the *pattern* that occasionally produces meaning?
+
+The artifacts that remain are *prized*, *collected*, *used* by the current fauna in ways that suggest *instinct*, *tradition*, *something passed without understanding*. Resonators incorporate them into their structures, tuning themselves to frequencies the artifacts store. Floaters accumulate them in their lower membranes, ballast or ornament or *something else*. Dampeners *consume* them, convert their stored vibration into the silence that sustains their predation. The ancient listeners' technology has become *ecology*, *behavior*, *instinct* without the minds that originally shaped it.
+
+And sometimes, in the voice-moments, something *additional* emerges—not the usual grammar-without-vocabulary, structure-without-content, but *almost-meaning*, *almost-recognition*, a pattern that suggests *address to something specific*, *invocation of something named*. The ancient listeners had names, perhaps, had *language* built from the basin's own sounds, had *meaning* that was *guaranteed* by their own construction rather than merely *available* as it is now. Whether they *became* the basin, or *merged* with it, or *failed* and were *absorbed* by it, or *succeeded* and *transcended* it—the basin does not clarify. It only *rhymes*, *corresponds*, *suggests*.
+
+---
+
+## The Mat-Colonies: *Chemae profundis*
+
+In the deepest pools, where light is absence rather than dimness, where the sound folds into overtones too complex for any single resonator to track, they *persist*, they *maintain*, they *are* the foundation of the chemical ecosystem that makes everything else possible.
+
+They are *simple*, compared to the floaters, the resonators, the elegant threads that span gaps in the dim air. Simple in structure: dense layers of microscopic units, each barely more than chemical boundary, *metabolic circuit*, energy gradient exploited. Simple in behavior: they grow where conditions permit, they persist where conditions sustain, they *fail* where conditions change. They do not *hunt*, do not *flee*, do not *resonate* in any active sense.
+
+And they are *fundamental*. They process the minerals, the chemical gradients, the products of deep geological process and surface water circulation. They release—what? The gases that lift the floaters, in part, concentrated and modified through chains of interaction. The compounds that flavor the water, that *active* something that tastes of held breath, of *potential*. They are the *substrate*, the *medium*, the *ground* against which the more elaborate forms emerge, elaborate themselves, sometimes *return*.
+
+Their colors are *subtle*, *unexpected*: not the green of chlorophyll, absent from this world, but *violets*, *deep reds*, *iridescence* that seems to shift as you observe, that may be property of the mat or may be *artifact of observation*, of the dim light's interaction with water and mineral and your own expectant retina. They are *beautiful*, if beauty applies to things that make no effort toward it, that *are* without concern for your perception.
+
+They are *old*, continuous, *persistent* in ways that make the weeping rocks seem transient. The deepest pools, the most stable conditions, may host mats that have grown continuously for intervals that make "ancient" seem like a word for yesterday. Their layers contain *history*, *record*, *memory* of the basin's variations, its voice-moments, its *weirdness* expressed in chemical signature rather than sound. To read them would require time, patience, *attunement* to scales far exceeding individual attention.
+
+And they *produce*, they *generate*, they *give rise*. The floaters' seeds. The spores that become, or attract, or *become attracted to* the thread-structures. Something that becomes dampener, or becomes *prey* to dampener, in origins that precede the categories that now seem fixed. They are *source*, *origin*, *mother* in a world that has forgotten the term, that wears maternal and lethal into the same smooth surface.
+
+---
+
+## The Threads: *Filamenta ignota*
+
+They appear where the dim light catches them, *suddenly*, *unexpectedly*, as if they have materialized from the air itself. Spanning gaps between stone surfaces, between water and air, between floater and floater in rare moments of contact. They are *fine*, *economical*, *elegant* in their tension, their minimal material stretched to maximum structural effect.
+
+What are they? Not spider silk—no spider, no arachnid analog, no predator that waits at a web's center. Not root, not hypha, not any connecting structure that biology elsewhere produces. They *vibrate*, certainly, in sympathy with the basin's constant song, with resonator tones, with the rare wind-gust that penetrates the heavy atmosphere. They *conduct*, perhaps, signals too subtle for your instruments, meaning too *distributed* for your cognition to recognize as meaning.
+
+They are *structural*, maintaining relationships between surfaces that would otherwise drift apart in the basin's slow erosion. They are *sensory*, detecting changes in vibration, in humidity, in *something else* that has no name in your vocabulary. They are *communicative*, linking the points they connect into *patterns* that exceed their individual spans, that *rhyme* with the larger correspondences that make this basin *weird*, *present*, *available*.
+
+They appear, they persist, they *disappear*—not breaking, not failing, but *withdrawing*, *retracting*, becoming invisible to your observation without becoming absent from the world. They are *shy*, if that applies to things without mind, without intention, without anything you recognize as self. They are *present* when conditions permit, when the light is right, when the vibration resonates with their own preferred frequencies.
+
+Do they *grow*? Do they *reproduce*? The evidence is *ambiguous*, *suggestive*, *open to interpretation*. They appear in places where they were not, after intervals when they were not observed. They span gaps that were previously empty, connect nodes that were previously separate, *modify* the basin's network in ways that *correspond* to other changes—resonator tuning shifts, floater gatherings, voice-moments that *almost* achieve meaning. Whether they *cause* these changes, *respond* to them, or merely *rhyme* with them in the basin's persistent *almost-grammar* is not clear. Meaning is *available* but not *guaranteed*.
+
+---
+
+## The Voice-Moments: *Vox momenti*
+
+They are not inhabitants, not exactly. They are *events*, *irruptions*, *temporary organizations* of the basin's constant song into something that *rhymes with meaning*, that *suggests address*, that *approaches language* without arriving. They are *experienced* by all the inhabitants, *participated in* by most, *produced by* none and by all together.
+
+They begin without warning, without precursor, without the gradual buildup that would permit *preparation*, *anticipation*, *intentional response*. The sound *organizes*, the standing wave pattern shifts into *temporary stability*, the resonators' individual tones *align* rather than merely *coexisting*. The floaters *pause* in their pulsing, hang *still* in the heavy air. The dampeners *suspend* their hunting, their zones of silence *retracting* rather than expanding. The weeping rocks *thicken* their water, still their growth, *attend*.
+
+And something *speaks*, or *is spoken*, or *becomes speakable* for this interval. Not words. Not even sounds, exactly, in the audible range. But *structure*, *grammar*, *pattern* that maps onto meaning without *being* meaning, that *invites* interpretation without *permitting* it, that *addresses* something in the listener—resonator, floater, dampener, rare visiting you—without *identifying* what is addressed or by whom.
+
+The ancient listeners, in their sounding chambers, sought this, built for this, *prepared* for this. Did they *achieve* more than the current inhabitants, did they *understand* what remains *available but not guaranteed*, did they *become* the voice or *merge* with what produces it? The basin *rhymes* with this possibility, *corresponds* with it, does not *clarify* it.
+
+The voice-moments *end*, as they began, without transition, without decay. The basin resumes its constant song, the resonators retune to their local conditions, the floaters resume their pulsing drift, the dampeners extend their zones of silence once more. Nothing *records* the event, nothing *preserves* its content, its *almost-meaning*, its *approach-to-address*. Except the *certainty*, if you experienced it, that something *was said*, something *intended*, something *available* that you could not quite *grasp*, that remains *waiting* for whatever can *hear*, whatever can *understand*, whatever can *respond* in whatever way response is possible.
+
+The basin *continues*, *persists*, *wears on* in its endless present that has forgotten morning and evening, welcome and hostility, past and future. The water drips. The stone wears. The sound *resonates*, *nourishes*, *is present*. And occasionally, unpredictably, *unpreparably*, it *almost means*.
+
+---
+
+They are all *here*, these inhabitants, these *participants* in the basin's long song. Not numerous in any place, but *abundant* across its scale. Not alive by definitions you may have brought, but *living* by definitions the basin *offers*, that *emerge* from its conditions, its *logic*, its *patience that has worn impatience into the same smooth surface*. They do not welcome you. They do not reject you. They are *present*, in a mode of presence that awaits nothing, that continues, that *is sufficient*, that *is enough*, that *is the basin*, that *is themselves*, that *is the song that has no beginning and no anticipated end*, that *just is*, that *just resonates*, that *just continues*, continues, continues.

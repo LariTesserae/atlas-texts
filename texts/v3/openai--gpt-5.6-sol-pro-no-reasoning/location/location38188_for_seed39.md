@@ -1,0 +1,33 @@
+The valley lies above the ordinary weather, a broad saddle between summits still rising.
+
+Its floor is not old enough to have become soil. It is a raw spread of dark volcanic gravel, pale broken stone, and slabs split so recently that their faces retain a faint mineral sheen. Ridges shoulder upward on either side, steep but scarcely carved. Their profiles are blunt and unfinished, assembled by frost-heave, uplift, and recurrent landslips rather than refined by rivers. Scree has only begun to gather beneath the cliffs. Drainage channels appear as shallow seams, uncertain of their courses.
+
+Water is everywhere without forming a true abundance. It beads on stone, films the black gravel, and collects in long, shallow pools over impermeable rock. Snowfields linger in shaded hollows. During the dim afternoons they soften at the edges and send threads of meltwater wandering across the saddle; after sunset these threads freeze into clear ribs. Low cloud repeatedly drags through, wetting every exposed surface. Cliffs weep from narrow fractures. Each droplet seems small, but together they keep the valley cold and slick.
+
+There are few plants. Rust-colored moss follows seep lines in tight, velvety margins. Lichens have begun the slow occupation of stable boulders, though many stones move too often for them. Dwarf sedges grow in widely separated clumps around the pools, their blades pressed flat by wind. On the lower slopes, a scattering of ground-hugging shrubs twists among the gravel, never rising high enough to offer the gale a grip. From a distance, the vegetation hardly registers. The land looks empty.
+
+It is not.
+
+Animals fill the open space without crowding it. Herds of mountain ungulates travel the high benches, strung out in loose files so that a single group may extend for kilometers. Their coats are thick and dark with condensation; their hooves knock brief sounds from the stone. Colonies of small burrowing mammals occupy patches of finer debris, emerging whenever the cloud lifts to feed on sedge roots and moss. Their entrances are inconspicuous, since every tunnel must be rebuilt after frost shifts the ground.
+
+Birds are the most visible life. Broad-winged scavengers ride the updrafts along the scarps. Flocks of small gray seed-eaters move like windblown grit between sparse grass patches. Waterfowl settle unexpectedly on the high pools during migration, filling an otherwise vacant basin with muttering, wingbeats, and reflected motion before departing as abruptly as they came. Predators follow all of these movements: pale foxes quarter the flats; lean cats watch from talus shelves; raptors hang almost motionless beneath the cloud base. Nothing stays gathered for long. Abundance here is regional, migratory, and always in transit.
+
+At first the only sounds are wind and water. Melt trickles under stones. Wet snow slips from ledges with a soft collapse. Gravel ticks downhill when the ground thaws. Far away, thunder rolls inside clouds too dense to reveal lightning.
+
+Then the mountain starts its machinery.
+
+There are no buildings, roads, pylons, pipes, or tools. The industrial character belongs to the geology itself. Deep beneath the saddle, pressure drives fluids through a young network of fractures. Vents open and close. Steam rises from fissures in straight white columns, as regular as exhaust stacks, only to flatten beneath the low ceiling of cloud. Mineral springs pulse in cycles, pumping iron-rich water across the gravel. In some pools, gas lifts through the surface in ordered ranks of bubbles. Underground chambers resonate with a low, intermittent compression, like distant turbines starting behind many walls.
+
+The processes sort and transport material with the impersonal efficiency of a vast plant. Frost fractures cliff faces into standardized shards. Seasonal runoff washes the smallest particles into settling basins. Springs plate stones with orange iron, white carbonate, and thin black manganese skins. Wind separates dust from sand. Avalanches deliver fresh loads from the upper slopes. Nothing has been assembled by intention, yet the entire valley behaves like a production landscape—excavating, crushing, washing, grading, and depositing rock.
+
+Its power source is heat imprisoned below extreme cold.
+
+Near the vents, warmth keeps narrow wetlands open through winter. These are the busiest parts of the valley: dark ribbons of unfrozen water edged by moss, insect larvae, and small crustaceans. Birds cluster there during storms. Hoofed animals descend to lick the mineral crusts. Foxes patrol the margins. But a few steps away, the ground returns to frozen barrenness. Steam condenses on nearby stones and armors them in rime. Thus the hot interior of the mountain does not soften the landscape; it manufactures more ice.
+
+Light remains subdued. The cloud deck is usually close enough to erase the highest peaks, leaving only their lower walls visible. Day arrives as a gradual paling of gray and departs without sunset. Pools hold patches of pewter sky. Wet basalt absorbs nearly everything else. Occasionally the overcast tears open, and high-altitude sunlight pours through with startling force, turning the snowfields white-blue and making every droplet shine. Animals stop or alter course under that sudden exposure. Within minutes, mist closes again.
+
+The land’s chief rule is impermanence without age. It changes continuously, but has not yet acquired the worn forms of an ancient place. Streams abandon their channels after a single freeze. A pool may drain overnight when a fracture opens beneath it. A warm spring may cease, leaving fishless water to glaze with ice, while another begins farther upslope. Herd paths remain for a season and are buried by fresh gravel. Even the watershed shifts as the saddle rises by increments and the crust settles around it.
+
+Yet this activity rarely becomes loud. Most of the work happens underfoot or at distances too great to judge. A cliff releases a slab with one hard crack; the resulting fall is muffled by cloud and snow. Steam breathes. Wings hiss through damp air. Hooves clatter and fade. Between such events there is immense quiet, strengthened by the openness of the valley and by the nearly vacant slopes beyond it.
+
+Nothing here has been built, but much is being made. The mountain is making stone, wetlands, migration routes, mineral beds, and the first uncertain outlines of rivers. Life arrives early, taking advantage of warmth, water, salt, and temporary shelter, then withdrawing whenever the young terrain rearranges itself. The place is severe without being dead, mechanical without machines, and crowded with animals while retaining the spaciousness of an almost empty world.

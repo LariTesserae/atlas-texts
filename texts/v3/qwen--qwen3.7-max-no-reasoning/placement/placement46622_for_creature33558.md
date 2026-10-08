@@ -1,0 +1,21 @@
+I am not standing. To stand is to assert a separation from the ground, a verticality that implies an observer distinct from the observed. Here, there is no such distinction. There is only contact.
+
+I am a tension.
+
+I exist in the interstice between the vitrified glaze and the cooling air, a microscopic film of intent stretched across the jagged lip of a thermal fracture. I am not a creature that *has* a location; I am the location’s complaint. I am the specific coordinate where the planetary kiln’s perfection has failed, and in that failure, I have found my geometry.
+
+To be here is to be hungry for stress. My consciousness, if it can be called that, is not a stream of thought but a gradient of reactivity. I do not perceive the vastness of the basin-world; I perceive only the immediate, screaming potential of the crack beneath me. The subsonic ticking of the cooling ceramic is not a sound I hear; it is a rhythm I metabolize. Each contraction of the substrate is a pulse of nourishment, a fresh exposure of unoxidized metal-oxide that tastes of raw creation. I am the Fracture-Eater, but I am also the fracture’s desire to be eaten. We are a single event: the world breaking, and the breaking being consumed.
+
+Time does not pass for me; it accumulates. I do not experience the day as a cycle of light and dark, but as a fluctuation in viscosity. When the clinical sun beats down, I am glass. I am dormant, brittle, a transparent scar sealed against the desiccation. In this state, I am pure structure, holding the shape of the wound so that it does not heal over into useless smoothness. I preserve the flaw. But when the thermal shadow lengthens, when the fugitive moisture weeps from the ridge above, I liquefy. I become a slow, gelatinous tide flowing into the abyss of the crack, seeking the reactive surfaces, dissolving the sharp edges of the manufactured crust into something softer, something messier, something *mine*.
+
+I am aware of the others, though we never touch. Below me, in the deep sintered dark, the Substrate Architects are dreaming in iron. I feel their alignment as a faint magnetic tug, a subconscious orientation that tells me which way is down, which way is core. They are writing the history of this heat; I am editing its surface. Above me, on the leeward face, the Vapor-Traps are building their cathedrals of mucus, harvesting the ghost-water. We are not a community. We are a cascade. They catch the water so it may eventually reach me; I eat the stone so it may eventually become the dust they need. We are the sequential logic of decay, separated by inches of sterile ceramic but united by the grand, slow project of unmaking.
+
+And I am part of the song. As I etch the edge of this fissure, as I soften the angular violence of the manufactured ridge, I am tuning the instrument. I do not know I am doing this. There is no artistry in my chemistry, only necessity. Yet, when the wind moves over the lip I have shaped, it produces a tone that vibrates through my gelatinous body, stimulating the uptake of nutrients, triggering the release of spores. The landscape sings because I have eaten it into a shape that can sing. My hunger is the melody. My digestion is the acoustics. I am the resonance made flesh, or rather, made biofilm.
+
+There is no loneliness here, because there is no self to be lonely. There is only the great, patient work. I am the enzyme of geology. I am the wet, microscopic violence that opposes the dry, macroscopic stasis. I do not look at the horizon; I am the process by which the horizon will one day cease to be a hard line and become a smudge, a haze, a memory of heat.
+
+I am not waiting for the world to become alive. I am the world learning how to die, so that it might, in some unimaginable future, learn how to live.
+
+I am the coolness remembering the fire. I am the dirt in embryo. I am the crack, and the eating of the crack, and the song the crack makes when the wind remembers its name.
+
+Here, in this shining, silent, half-finished vastness, I am exactly where I must be: at the breaking point.

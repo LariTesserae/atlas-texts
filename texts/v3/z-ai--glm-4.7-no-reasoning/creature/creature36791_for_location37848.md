@@ -1,0 +1,26 @@
+The denizens of this suspended, blinding hellscape are not merely inhabitants; they are the architectural syntax of a reality that has forgotten how to flow. To look upon them is to look upon nature’s attempt to mimic the rigid, unyielding stone that birthed it, resulting in creatures that feel more like consecrated tools or living statues than biological entities.
+
+**The Grazers of the Void**
+The primary movers on the ground are the deer-like entities, though to call them deer implies a softness that does not exist. They are creatures of the hiatus, evolved for a world where stillness is the primary survival trait. Their bodies are elongated and spindly, constructed with too many tarsal joints; their legs fold and unfold like the brass collapsible spyglasses of an ancient civilization, moving with the dry, clicking precision of a well-oiled hinge.
+
+They do not graze on grass, but on the patina of the stone. Their muzzles are flat and abrasive, stripping the moss and slime from the terracotta with a slow, rotational grinding. They are eerily silent. When they walk, their hooves—which are made of the same polished material as the tiles they tread—make no impact sound, only a faint suction, as if they are briefly adhering to the world before lifting away. Their eyes are the most disturbing feature: solid orbs of obsidian without pupils or whites. They do not see the visitor; they reflect the unblinking sun, acting as mobile mirrors that ensure the zenith light is never truly escaped.
+
+**The Jerking Sky-Things**
+Above, the avian life defies the smooth curvature of flight. These are creatures of the "skip," evolutionary products of a timeline that stutters. From a distance, they resemble vast, folded origami cranes crafted from yellowed parchment and dried leaves. Up close, their plumage reveals itself to be jagged and sharp, overlapping scales that resemble ceramic roof tiles.
+
+They do not soar. They teleport in micro-jumps. One moment a bird is perched on a basalt lip, the next it is ten feet to the left, with no transitional blur. The frame of reality has simply dropped the intervening motion. When they land, they do not flutter; they snap into place with a sound like a breaking twig. Their beaks are perpetually open, frozen in a pose of screaming, yet the sound—if it comes—is delayed. You might see a bird on a distant branch clamp its beak shut, and only three seconds later hear a hollow, tinny shriek emanating from the empty air where it stood a moment ago.
+
+**The Scaled Geometers**
+The lizards here are low-slung abstractions of biology. They have evolved to blend perfectly with the mosaics beneath them. Their scales are not organic keratin but squared plates of jade, slate, and terracotta, mortared together with a pale, rubbery gristle. They move with the robotic cadence of wind-up toys, pausing every few inches to vibrate.
+
+They possess an intelligence that is entirely navigational but devoid of curiosity. They will climb a bronze lever or a human leg with equal indifference, treating organic matter as just another geological feature to be traversed. Their tongues are not forked but flat and tapered, like masonry trowels, flicking out to taste the sweat and humidity, lapping up the condensation that weeps from the joints of the world.
+
+**The Frozen Predators**
+At the top of this paused food chain are the stalkers—lean, muscular shapes that resemble wolves or big cats, rendered in monochrome granite. They are the embodiment of the "eternal hunt." Because the dynamic of the world is jammed at zero-point-four, violence cannot complete itself.
+
+A predator might be eternally crouched, muscles bunched in anatomical perfection, hovering over a prey that stares back with solid, glassy eyes. The predator’s jaws are open, teeth exposed in a permanent threat, but they never close. They exist in a state of permanent potential energy. Their fur is often strangely stiff, swept back as if by a wind that stopped blowing millennia ago, preserving the texture of their movement in hard lines. To touch one would be to feel a vibration, a hum of kinetic energy that has nowhere to go, trapped in the static loop of their own predatory intent.
+
+**The Silent Shepherds**
+There is a suggestion that something else lives here, something less visible. Perhaps the builders are not entirely gone. Occasionally, one might see the water in the aqueducts deftly part around an invisible obstruction, or a massive pulley of braided hair swing gently as though weighted by an invisible climber.
+
+These are the "Silent Shepherds," or perhaps merely the psychic residue of the builders. They are not seen, but felt as a localized distortion in the humidity. They move through the glitched geometry like ghosts in a machine, ensuring the water flows, ensuring the stone does not shift. They are the custodians of the crash, maintaining the garden of errors, possessing no form that human eyes can resolve—only a sense of a presence that is watching the visitor with the same detached, observing curiosity as the obsidian-eyed deer.

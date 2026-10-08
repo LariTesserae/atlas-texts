@@ -1,0 +1,23 @@
+The air here is heavy not with mist, but with the sheer, oppressive weight of its own heat. It sits at an elevation where the air should be thin and crisp, but here, physics seems to have bargained a different deal. This is a high-altitude pressure cooker, a vast, open caldera suspended miles above the cloud layer, yet sweating like a tropical lowland.
+
+The temperature is absolute—a relentless, soaking heat that radiates not just from the sun above but from the ground beneath. There is no escape from it. It is a humid, flesh-like heat that smells of wet iron and ozone.
+
+At first glance, the landscape appears to be a violent intrusion of industry upon a pristine jungle, but look closer. There are no buildings, no smokestacks, no paved roads. The "tech" score of this world is a lie told by biology; the industry here is organic.
+
+The ground is uneven, a rolling expanse of extreme topography carved from dark, porous basalt. The erosion is settled and established—the sharp edges of the volcanic rock have been worn down over eons, not by wind, but by constant moisture and friction. The stone is smooth, rounded, and dark black, slick to the touch.
+
+Water is everywhere. It isn't pooled in lakes, but rather moving through the world like blood in a body. The porous rock weeps. Freshwater springs bubble up continuously from fractures in the basalt, creating thousands of tiny, braided rivulets that spiderweb across the valley floor. The water is clear and steaming, hot as tea. It collects in shallow depressions, creating a mosaic of terraced pools, constantly overflowing into one another in a rhythmic, eternal cascade. The air is so saturated with humidity that condensation drips from the underside of the few passing clouds like rain, adding to the constant weeping of the rocks.
+
+The vegetation is lush, aggressive, and dense. It fights for every horizontal inch. The dominant flora are massive, paddle-like leaves the size of cars, glossy and waxy, clustered in tight rosettes. They are a deep, bruised purple-green, photosynthesizing efficiently in the thin, high-altitude light. Between these sentinels grows a dense, tangled undergrowth of thick-stemmed vines and mosses that look like steel wool. The density is high; you cannot step without crushing something. The plants layer over one another, forming a vegetative carpet that is spongy and treacherous.
+
+And then there is the noise—or rather, the hum that underpins the quiet. The prompt suggested industry, but the built structures are nonexistent. The machinery of this place is biological. The air vibrates with a low-frequency thrum. It is the sound of a billion wings. The fauna is abundant and specialized. The skies and the gaps between the rocks are filled with "Engine-Bugs"—large, hard-shelled creatures with metallic carapaces that shimmer in the normal, bright light. They are not machines, though their wingbeats click with the mechanical precision of pistons. They hover in dense clouds, harvesting the nectar from the giant purple flowers.
+
+These creatures are the engines of the ecosystem. They generate heat with their bodies, adding to the ambient temperature. When they swarm, the sound is a deafening clatter, like a ball bearing factory in overdrive, but generally, the atmosphere is held in a tense, buzzing quiet—the sound of a dynamo running smoothly in the background.
+
+There is a dynamic tension to the place. It is a factory of life. The predator-prey cycle is fast and visible. Swift, lizard-like ambushers with skin like wet rubber dart out from the steam-covered rocks to snatch the low-flying engine-bugs. The lizards move with lightning speed, their movements accompanied by sharp hisses of steam that vent from gills along their sides.
+
+The "industrial" aspect is found in the waste and the byproducts. The water in the streams is tinged with a chemical blue where certain algae bloom. The ground is littered with the shed carapaces of the giant insects—perfectly curved, translucent shells that pile up in drifts, looking like discarded metal shavings or stamped steel parts. It looks like a foundry floor, but every scrap is biological.
+
+The smell is complex: the sour tang of sulfuric hot springs mixed with the sweet, cloying perfume of rotting fruit and the acritic scent of chemical exhaust from the insects' pheromones.
+
+This is an open region, a wide bowl of green and black and steaming grey, extending for miles. It feels like the lung of a larger world. It breathes in the high thin air and exhales a hot, wet, technologic fog. It is untouched by hands, but it is not untouched by design; the design is simply evolution gone efficiency-crazy, a biological assembly line operating at maximum capacity in the heat of the sun.

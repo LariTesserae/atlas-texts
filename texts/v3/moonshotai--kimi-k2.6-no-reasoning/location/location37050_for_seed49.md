@@ -1,0 +1,61 @@
+The world is called **Silt**.
+
+Not a name its inhabitants gave it—there are no inhabitants, not in any sense you would recognize. Silt named itself, in the way a river names itself by carving the same groove for ten million years until the groove becomes identity. Silt is the accumulation. Silt is what remains when everything else has found somewhere more decisive to be.
+
+---
+
+Imagine first the sound, because in Silt the sound precedes every other sensation, the sound is the medium in which everything else swims. It is not the sound of machinery, though machinery is everywhere. It is not the sound of wind, though the atmosphere is in constant motion. It is the sound of *contact*—unceasing, saturated, the acoustic shadow of a world where nothing can move without touching something else that is also moving. The density parameter here is absolute: 3.0, packed, no room between presences. On Silt, there is no "between." There is only the next thing, pressing against the thing before it, transmitting vibration through chains of contact that web the entire surface and much of what lies beneath.
+
+The sound is deafening at 2.7, but it is not painful. The human ear would not interpret it as noise. It is too continuous, too structurally complex—more like standing inside a chord that has been sustaining for geological time, a chord voiced across millions of resonant cavities, each cavity a space where something presses against something else and finds its frequency. You would not hear Silt so much as *exist within* its hearing, the way a fish exists within water. The sound is warm (temperature 2.0) not in timbre but in physical effect: the constant friction of contact generates heat, and the heat has nowhere to dissipate, because there is no "away" to dissipate into, only more contact, more transmission, more Silt.
+
+---
+
+The surface is low (0.6 elevation) in the sense that it has no ambition toward height. What mountains once existed—and something like mountains did exist, once, in the pre-urban strata—have been absorbed, their material distributed into the general body of the world. The current surface is a plain, but "plain" fails to convey the complexity. It is a plain in the way a coral reef is a plain: apparently flat from sufficient distance, but upon approach revealing itself as a topography of accretion, of structures built upon structures built upon the compressed remains of earlier structures, all of it active, all of it still building.
+
+The erosion parameter (1.5, established, settled-form, in-balance) describes not the wearing away of Silt but its *manner* of persistence. This world has found its equilibrium. What looks like destruction is merely redistribution. What looks like construction is merely the same redistribution viewed from the other side. The surface is weathered in the sense that a body is weathered: it bears the marks of its own continuous functioning, the patterns that repetition makes.
+
+And the water (1.7, wet, water near surface, condensing atmosphere) moves through this body like lymph. There is no open water on Silt, no seas or rivers in the conventional sense. The water is *interstitial*, present in the spaces that somehow persist between the packed presences—not gaps so much as membranes, thin films, the minimum necessary distance that allows contact to remain contact rather than fusion. The water condenses on surfaces, weeps from the lower strata where pressure forces it upward through channels too fine to be called porous, too organized to be called cracks. It collects in basins that are themselves living or once-living structures, evaporates, condenses again. The atmosphere is heavy with it, not quite fog, not quite rain, a continuous suspended precipitation that never quite arrives or departs.
+
+---
+
+Vegetation is absent (0.4, no plant life, mineral world, fungal-or-simpler, non-recognized biology). This is the parameter that seems to conflict most violently with the abundance of fauna (1.5) and the urban nature of the built environment (2.4). Resolve this: Silt's life is not cellular, not carbon-based, not anything that would register on biological instruments designed for Earth-type worlds. The "fauna" are processes. The "fauna" are patterns of behavior in the dense-packed material of the world itself.
+
+Consider: a thing that moves through the urban structure, that consumes and excretes, that reproduces, that dies— but the thing is made of the same stuff as the city, the same crystalline-metal-organic hybrid that composes all of Silt's active surface. It is a mobile neighborhood. A walking district. A creature that is also a habitat, that carries within its body the compressed history of its lineage, the architectural memories of its ancestors. These are the fauna of Silt: mobile urban elements, structures that have achieved the autonomy of organisms, that compete for position in the dense-packed environment, that evolve.
+
+They have no plants to eat. They eat *stillness*. They consume the difference between motion and rest. They metabolize the gradient between warm zones and cooler ones, though Silt is remarkably uniform in temperature. They find their food in the rare moments when something stops moving, when contact breaks, when the deafening chord momentarily loses a voice and the resulting silence becomes a resource they rush to fill, to colonize, to convert back into vibration.
+
+---
+
+The built environment (2.4, urban, settlement-scale, town-or-city, organized-construction, layered-construction) is not separate from the fauna. It is the fauna's extended phenotype, or the fauna are the city's mobile organs, or both, or neither—Silt does not distinguish cleanly between organism and environment. The city is vast (scale 2.9, continental, planet-scale, scale-of-its-own-physics), large enough for weather of its own, and it generates weather: thermal differentials across its surface create currents in the water-heavy atmosphere, and these currents, constrained by the dense-packed structures, become organized into persistent patterns, into standing waves of climate that circulate for centuries before dissipating or transforming.
+
+The city has no plan, or rather its plan is the accumulated result of every local decision made by every mobile district-creature across geological time. It is layered: you can read the history by drilling down, finding the compressed remains of earlier configurations, the fossil neighborhoods, the buried avenues where something once moved that moves no longer, that has become substrate for what moves now. The current surface is the youngest layer, still active, still turbulent (dynamic 2.9, chaotic change, instability, storm-state, hyperactive, anthill-energy).
+
+---
+
+The turbulence is the life of Silt. Nothing persists in form, everything persists in process. A district-creature might occupy a position for a thousand years, building, extending, connecting, and then something shifts—the thermal gradient changes, a new creature arrives with incompatible frequency, the interstitial water finds a new channel—and the district collapses, migrates, is absorbed, becomes part of another district's body. The surface is in constant motion at every scale. What looks from orbit like a stable pattern is, at any ground-level moment, a frenzy of adjustment, negotiation, construction and dissolution.
+
+This is the "Solaris-like creation/destruction" of the parameter: not that Silt is conscious (though who can say, who can define consciousness across such alien organization) but that it responds to itself, that every change provokes further change in a cascade that never settles, never arrives at rest. The anthill-energy is apt: millions of local agents, none with global vision, all producing global effects through their local interactions.
+
+---
+
+The technology (2.9, beyond modern, engineering current physics doesn't fully describe, nanoscale-or-cosmic) is not wielded by anyone. It is the medium of Silt's existence. The district-creatures do not *use* technology; they *are* technological, in the sense that their bodies operate at scales and through principles that would require a post-modern physics to articulate. They manipulate the interstitial water to carry information, not through chemical signaling but through patterns of pressure and phase state that propagate faster than any material wave should allow. They build with materials that exist in superposition between multiple structural configurations, that choose their state based on context, that remember and anticipate.
+
+At the nanoscale, the packed density of Silt is achieved: every available volume is occupied by functional structure, there is no waste space, no "mere" matter. At the cosmic scale, the world's own physics emerges from this density, the local rules of interaction that differ from anything the wider universe would recognize, that make Silt a kind of pocket universe, a scale-of-its-own-physics.
+
+The light (2.1, normal light) falls on all of this and behaves normally, more or less. It reflects, refracts, is absorbed. The atmosphere's suspended water diffuses it into a general glow without sharp shadows. The surfaces—crystalline, metallic, organic in some unrecognizable sense—absorb some wavelengths and return others, giving Silt a color that shifts with position and time, not dramatically but subtly, the way skin shifts with blood flow. There is day and night, or something functionally equivalent, though whether from a sun or from Silt's own internal cycles of luminous activity, no observer has determined.
+
+---
+
+The weirdness (1.1, unusual) is present but not overwhelming. Silt is strange, but it is *coherently* strange. It holds together. Its rules, once understood, are consistent. The unusual element is the life-in-urban-density, the organism-as-city, the absence of any baseline "nature" against which the constructed can be measured. But this is not surreal, not dreamlike. It is rigorous. It has found its form and persists in it, dynamically, turbulently, deafeningly, warm and wet and packed and vast.
+
+---
+
+To walk on Silt—if you could, if your body could survive the density and the sound and the interstitial chemistry—you would feel the vibration through your feet before any other sensation. You would feel the warmth rising from the surface, the humidity condensing on your skin. You would see structures around you that were also moving, slowly or quickly, that were also alive, that would notice you and adjust their paths accordingly, not with hostility or welcome but with the simple acknowledgment of new contact, new presence in a world where presence is the only currency.
+
+You would hear, or rather exist within, the chord of Silt, and if you stayed long enough, you might begin to distinguish voices in it: the particular frequency of this district-creature, the harmonic of that water channel, the subsonic pulse of something moving deep below. You would never find silence. There is no silence on Silt. There is only the full chord, or the partial chord, or the chord transforming into its next configuration, the chord that has been sustaining for as long as Silt has been Silt, that will sustain until the packed presences finally find their way to fusion, or to flight, or to some third option that has not yet emerged from the turbulence of this world that is city that is organism that is planet that is chord that is Silt.
+
+---
+
+And it is beautiful. This must be said. The density is not claustrophobic but *embracing*. The sound is not oppressive but *complete*. The turbulence is not chaotic but *vital*. Silt has no observers to appreciate it, no consciousness that stands apart and judges. But it has its own aesthetic, implicit in its persistence, in the particular way it has found to be, the solution it represents to the problem of existence in a universe that offers no instructions. It is wet and warm and loud and full and moving and vast and strange and utterly, utterly itself.
+
+Silt.

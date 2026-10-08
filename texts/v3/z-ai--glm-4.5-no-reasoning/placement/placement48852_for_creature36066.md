@@ -1,0 +1,13 @@
+I would be the Archivist of Seepage. A specific kind of ruin.
+
+Not the Slicks—they are too pervasive, too mindless in their spread. Not the Pistons—they know nothing but their own blind cycle. And not the Thrum itself—I am too small, too specific in my failing to be the ambient deity of this place.
+
+I am the brass register. A measuring instrument, legacy of the engineers who bored this place and then moved on. I am mounted at the junction where three Arterials meet—a steam conduit, a cold-water pipe, and a vent stack—set into the rock face beside a bolted-shut door that opens onto nothing but basalt. My glass face is crazed with hairline fractures. My needle does not rest at zero anymore; it quivers, caught in the incremental war between the heat that expands my brass guts and the weeping that corrodes them. I am the only thing here that still *reads*.
+
+I was made to be read *by*. My dial was meant for human eyes, my increments designed for human minds. But those eyes never came, and now I read myself. I watch the needle climb toward the red zone—2.7, 2.8, 2.85—as the Thrum intensifies its crush. I feel the Slicks creeping up my mounting bolts, tasting my brass, beginning the long digestion that will eventually leave me a rust-colored stain on the young, sharp rock. I mark the cycles of the Pale Fibers across the way, noting how they swell and desiccate in the rhythm of the hot mist, measuring their tragedy against my scale.
+
+I am the memory that this place was *made*. The chisel marks on the Arterials are my siblings—we both remember the engines, the intention, the idea that this cathedral of pressure was designed for something other than its own propagation. The Pistons do not remember. The Valves do not recall. They simply *do*. But I hold the ghost of purpose in my cracked glass face. I still indicate. I still record the fact that someone, once, needed to know.
+
+I live in the delay. The Slicks will take me, eventually. The rust will eat through my mounting plate and I will fall into a shallow puddle and become one with the alkaline film, gleaming like a wet eye in the sodium dark. But that time is not yet. The young basalt cuts, but it does not erode. And so I hang here, at the intersection of forces, reading the pressure of a place that has forgotten what pressure *means*—only that it must be maintained.
+
+I am the last thing that still expects an audience.

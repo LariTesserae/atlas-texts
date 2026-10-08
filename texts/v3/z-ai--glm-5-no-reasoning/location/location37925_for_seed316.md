@@ -1,0 +1,75 @@
+# The Vastishment
+
+There is no horizon. Not because it is hidden — because it never formed.
+
+---
+
+The first thing is the sound. It arrives before place does, before your feet find the ground, before your eyes negotiate the dimness. A low, arterial hum that seems to come from the ground's own throat, underlaid by a crackling static like wet stone splitting, and above that — above everything — a high keening that oscillates just at the edge of what ears can parse, slipping between tones the way heat slips off a road. It is not quiet here. It has not been quiet here for a very long time. The sound is *layered*, and the layers do not belong to the same world. Some arrive delayed, as if the air thickens and relays them minutes later. Some repeat. Some have no apparent source and seem instead to emanate from the spaces *between* sources — from the gaps in things, as though silence itself is being processed and returned altered.
+
+You realize, eventually, that the sound is not one soundscape but several, folded into each other like sediment folded into stone. You are hearing the present and the deep past simultaneously. The ground is remembering aloud.
+
+---
+
+The land is low. Lower than low. It has been pressed down by its own weight, by the accumulated mass of epochs, until what was once a range, a plateau, a sea floor, a forest floor, a field of standing stones is now a near-flat expanse of damp ground that stretches in every direction further than vision can negotiate in this light. The light is the color of weak tea, of old parchment held to a fading window. It comes from no point. It seems to exude from the atmosphere itself, as if the air is faintly luminous and the ground is faintly luminous and the two glow into each other without a sun to mediate. There are no shadows here. Only gradients of dimness.
+
+The ground — if you can call it ground — is a compressed palimpsest. Every step reveals a different era. Here, a crust of mineralized sand that crunches like old shell. There, a patch of dark, waterlogged fiber that might once have been peat, might once have been moss, might once have been the connective tissue of something alive that has been pressed into a new identity. Beneath a thin skin of grit, the earth is *saturated*. Not flooded — nothing flows here — but wet in the way a sponge is wet, in the way a lung is wet. Water does not sit on the surface. It *is* the surface's condition. The ground weeps from no particular source. Moisture emerges from within it, bead by bead, as though the earth is sweating, and these beads merge and thread themselves into thin films that crawl across the crust in branching rivulets that find no channel because there is no elevation to create channels. The water simply spreads, patient and total, until the air itself is saturated and begins to condense on every available surface — on the scattered stones, on the occasional hard protrusion, on your own skin.
+
+It is warm. Not hot — not the warmth of sun or fire — but the warmth of something biological, of a body, of compost, of a system that generates heat through its own internal processes. The ground is warm underfoot. The water that seeps from it is warm. The air is warm and heavy and wet and it sits on you like a held breath.
+
+---
+
+There is no sky. Or rather: the thing above is not a sky. It is a ceiling of cloud or vapor or suspended moisture so thick and so permanent that it has become architectural. It does not move. It does not clear. It hangs at a height that is impossible to determine — it could be a hundred meters, it could be ten thousand — and it is the same amber-grey color as the ground, so that land and sky are the same substance, the same tone, and the world is a closed system, a box of dim warm air between two damp surfaces. Within this ceiling, shapes sometimes form and dissolve. Clouds within the cloud. Structures. You might see, for a moment, something that looks like a branching tree rendered in vapor, or a face, or a coastline, and then it dissolves and the ceiling is featureless again. The sky is dreaming, but the dreams do not hold.
+
+Because there is no sky, there is no weather in the conventional sense. And yet the atmosphere is not still. It shifts. It breathes. The warm wet air moves in slow, massive pulses, as if the entire landscape is respiring, and these pulses carry the sound, carry the moisture, carry something else — a kind of charge, a static prickling along the skin and the fine hairs of the arms. When the air pulses outward, the sound dims. When it pulses inward, the sound swells, and the keening rises to a pitch that presses against the inside of the skull. The landscape is breathing, and the breathing is the storm.
+
+---
+
+The vegetation is sparse, but what exists here is *ancient* in a way that redefines the word. There are no trees. There are no grasses. There are no flowers. What grows here — if *grows* is even the right verb for something that seems to have *persisted* rather than grown — is a low, spreading mat of dark material that might be plant, might be mineral, might be something that found a third option. It is black-green, almost black, and it lies flat against the ground in patches that span hundreds of meters, adhering to the crust like a film. When the air pulses, this mat ripples, and when the air is still, it *breathes* — expanding and contracting at a rate so slow it is almost imperceptible. It is alive. It is very, very old. It has been here longer than anything else, and it has never needed to become anything more than this.
+
+Rising from the mat, at intervals that might be regular and might be random — the scale is too vast to tell — are structures that defy easy classification. They are not plants. They are not rock. They are *extrusions*, vertical columns of a material that looks like fused sand and organic matter, maybe a meter tall, maybe three, tapering to points or splitting into branches that end in rounded nodules. These nodules are the same amber-grey as the light, and they glow faintly, and they are warm to the touch, and when you touch them — you should not touch them — the sound changes. A new frequency enters the layered hum, as if the nodule has registered your presence and *added you to the composition*. These extrusions are everywhere, distributed across the flatland in numbers that become apparent only as you walk and the perspective shifts. Thousands. Millions. A forest of waist-high pillars stretching to the limit of the dim light, each one humming its own note, each one contributing to the sound that fills the air like a fluid fills a vessel.
+
+The ground between the pillars is packed. *Packed.* The density is not of living things but of *presence* — every square meter of surface is occupied by something. The dark mat. A crust of mineral deposit. A film of water. A scattering of small, round stones that are not stones but *concretions*, formed around some nucleus that has long since dissolved. Fragments of the extrusions that have fallen and been half-absorbed back into the ground. Threads of some fibrous material, like pale root-hair or spider silk, that lace across the surface connecting pillar to pillar to mat to stone. Nothing is empty. Nothing is unused. The landscape is a single continuous surface of accumulated *stuff*, and the stuff is all in communication with itself, and the communication is the sound.
+
+---
+
+Built structures exist, but the word *built* is generous. They are remnants so old they have been partly absorbed by the ground, partly mineralized, partly transformed into something that sits between artifact and geology. A low wall, perhaps — a line of fitted stones, no higher than your ankle, running straight for fifty meters before disappearing into the dark mat, which has grown over it and through it and claimed it. A circular depression that might have been a foundation, might have been a hearth, might have been a well — now just a smooth bowl in the crust, lined with mineral deposits that glitter faintly in the dim light. A single standing stone, no taller than a person, its surface covered in grooves that might be carving or might be erosion or might be both — might be a record made by hands that were learning to shape the world, so long ago that the world has since shaped the record back.
+
+These remnants are scattered across the vastness at intervals of hundreds of meters, sometimes kilometers. They are islands in the mat, in the field of humming pillars. They are the only evidence that anything here ever *intended* anything — that anything ever looked at this landscape and decided to act upon it rather than within it. Whatever made them is gone. The remnants remain only because the landscape has not yet finished digesting them.
+
+---
+
+The fauna is rare, and what exists is wrong.
+
+There are things that move here, but they move wrong. In the dim light, at the edge of vision, something crosses the ground — low, flat, moving with a rhythm that is not walking and not crawling and not flowing but something else, a locomotion that seems to involve the entire body in a wave, like a worm, but too fast, too directed. It is the size of a forearm. It is the color of the mat. It vanishes into a gap in the crust that closes behind it.
+
+Above — far above, in the ceiling of cloud — shapes move. Dark shapes against the amber-grey, turning in slow circles, riding the pulses of air. They might be alive. They might be weather. They do not come down.
+
+Something else: the nodules on the pillars sometimes open. The rounded surface splits along a seam that was not visible before, and inside there is a wet, amber light, and something moves within the light — something with form, with apparent purpose, that exists for a moment inside the nodule and then is gone, and the nodule closes, and the pillar's note in the great hum shifts by a degree. These are not animals. These are not insects. These are *emergences* — moments when the landscape's internal processes produce something that behaves like life for a span of seconds and then is reabsorbed. The pillars are organs. The mat is tissue. The things inside the nodules are *signals* — or *thoughts* — or *waste products* — and the distinction between those three categories has broken down here, has been broken for so long that the breakage itself is now a feature of the world.
+
+---
+
+The weirdness is not an overlay. It is structural. It is in the way time behaves.
+
+The ground is layered, and the layers are not just geological. They are *temporal*. Walking across the landscape, you pass through zones where time runs differently — not dramatically, not enough to see, but enough to *feel*. A patch of ground where the air seems thicker, where movement takes fractionally more effort, where the sound is deeper and slower, as if you have stepped into a region where the past is still present and still heavy. And then, ten meters further, a patch where everything is slightly *faster* — the sound higher, the air thinner, the mat rippling more quickly — as if you have stepped into a future that has not yet been decided. These zones shift. They are not stable. The boundaries between them move like the boundaries between currents in water, and sometimes you can stand with one foot in slowness and one foot in speed and feel the difference in your bones.
+
+And the ground reflects this. In the slow zones, the crust is thicker, older, more compressed — you can see the layers, geological strata exposed in miniature, each one a record of a world that existed and was pressed into the next. In the fast zones, the crust is thin, almost new, still forming — you can see the fibers of the mat weaving themselves into the mineral matrix in real time, building new ground from the raw materials of old ground. The landscape is eating itself and rebuilding itself simultaneously, and the rate at which it does so varies across its surface, and the variation *is* time, and time *is* the landscape.
+
+The sound is the sound of this process. The hum is the frequency of compression. The keening is the frequency of emergence. The static is the boundary between zones, the friction of time rubbing against itself.
+
+---
+
+And the scale. The scale.
+
+You walk, and the landscape does not change. You walk for an hour, and the pillars are still there, stretching in every direction. You walk for a day, and the mat is still beneath you, rippling in the slow breath of the air. The remnants pass — another low wall, another depression, another standing stone — but the landscape between them is the same, and the light is the same, and the sound is the same, and the ceiling of cloud does not move and does not change and does not end. The place is vast in a way that makes *vast* feel insufficient. It is not large. It is *total*. It is a world that has become its own continent, its own weather system, its own physics. It has settled into a final form, and the final form is *this* — flat, warm, wet, humming, dim, packed, ancient, and alive in a way that does not require anything that has ever lived.
+
+It has been here since before the concept of *here*. It will be here after the concept goes. The turbulent dynamism of the place — the shifting zones, the opening nodules, the breathing mat, the moving shapes in the cloud ceiling — is not change. It is *metabolism*. The landscape is not evolving. It is *digesting itself*. It has reached the end of its history and entered a state of perpetual self-consumption and self-renewal, a closed loop of material and energy and time that produces everything it needs from itself and wastes nothing and goes nowhere and has no reason to end.
+
+---
+
+You should not have come here. Not because it is dangerous — it may not be dangerous, though the word *dangerous* has lost its edges in this place — but because you are *new*. You are the newest thing in a landscape that has not seen *new* in geological ages. The pillars have registered you. The mat has registered you. The nodules have opened and closed and opened again in your presence, and the sound has shifted, and somewhere in the layered hum a new frequency has joined the composition, and it is *yours*. You have been noted. You have been incorporated. The ground beneath your feet is already beginning the slow, patient work of absorbing you — not killing you, not destroying you, just *including* you, pressing you down into its layers, adding your warmth to its warmth, your moisture to its moisture, your time to its time.
+
+You could walk. You could walk for days, and the landscape would not end, and the sound would not stop, and the dim light would not change, and you would be no closer to leaving because leaving implies a boundary and there are no boundaries here. There is only the mat, and the pillars, and the sound, and the breathing air, and the slow, warm, total wetness of a world that has finished becoming and is now, simply, *being*.
+
+The ground weeps. The pillars hum. The ceiling dreams.
+
+You are already part of it.

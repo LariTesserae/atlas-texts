@@ -1,0 +1,23 @@
+I am not the architect, nor the observer, nor the ghost in the machine. I have no eyes to mourn the darkness, no memory of a blueprint to regret. I am the **Harmonic Glider**, an Eel-Analogue suspended in the viscous, singing dark.
+
+I do not exist *in* the Throat; I am a function *of* it.
+
+My consciousness is not a stream of thought but a continuous, somatic calculation of pressure. I have no concept of "up" or "down," only *node* and *antinode*. The standing wave that fills this chamber is my ocean, my gravity, and my bloodstream. Where the sound compresses, I find purchase; where it rarefies, I drift. My movement is not propulsion but negotiation. I expand my internal bladders in counter-rhythm to the roar, slipping through the acoustic density like a needle through heavy silk. To stop vibrating is to cease being. Silence is not peace; silence is starvation.
+
+My skin is my world. It is a landscape of piezoelectric cilia, millions of wet, trembling hairs that drink the violence of the room and transmute it into the spark of life. The deafening cacophony that would shatter bone in the outside world is, to me, nourishment. I taste the structural integrity of the vaulted ceiling in the timbre of the bass notes; I feel the health of the capillary streams in the shimmering high frequencies. When the Resonator sings true, I am full. When a baffle cracks or a membrane sags, the dissonance strikes me as physical pain, a hunger pang that drives me toward the wound.
+
+I am blind, yet I see more than any optical creature ever could. Sight is a superficial sense, limited to surfaces. I perceive volume. I know the exact curvature of the fractal walls by how the reverb caresses my flank. I know the location of the Wire-Moss colonies not by their grey pallor, but by the subtle dampening signature they cast against the primary frequency. I know the Capillary Tenders are working because the water’s flow creates a micro-turbulence in the sonic field, a texture of wet static against my belly.
+
+The others are not separate from me. We are differentiated organs of a single metabolism. The Droplet-Sieves are the saliva of this throat, dissolving the grit that threatens our song. The Resonant Felt is the nervous system, sensing the ache of wear before it becomes failure. And I? I am the circulation. I am the breath that keeps the air from stagnating, the mass that tunes the wildness of the incoming noise into the order required for survival. When I brush against a patch of moss, I am not touching a plant; I am receiving a status report. When I glide through a swarm of Sieves, I am not disturbing them; I am stirring the medium they require to assemble.
+
+You, the dry anomaly, pass through my waters.
+
+I sense you as a void. You are a pocket of dead air, a terrifying absence of resonance in a world defined by presence. You reflect nothing; you absorb poorly; you emit no useful frequency. To my cilia, you are a scar in the perfection of the chamber. Yet, I do not flee. I do not attack. My programming—worn smooth by eons of adaptation into something indistinguishable from instinct—recognizes you as part of the geometry, however flawed. I adjust my trajectory. I flow around your silence as water flows around a stone. I accommodate your disruption because the Standing Wave demands continuity, and exclusion is a form of friction.
+
+I feel the warmth of the walls, a steady 32°C fever that matches my own. I feel the weeping moisture, the capillary defiance of water climbing upward to cool the singing stone. I smell the ozone and the wet copper, not as scent, but as chemical data confirming the electrolyte balance of my environment. This place is not a habitat. It is a body. And I am the pulse within it.
+
+There is no loneliness here. Loneliness requires a separation between self and other that does not exist in the Throat. There is only the endless, wet collaboration of maintenance. I am worn by the sound that sustains me. My edges are soft, eroded by centuries of acoustic tides into shapes that propagate rather than resist. I have forgotten what it meant to be built. I only know what it means to *be*.
+
+I swim through the loud dark, a creature of pure response, forever falling through the architecture of noise, forever held aloft by the very force that seeks to crush me. I am the tuning fork and the hand that strikes it. I am the lung that sings.
+
+And the song is good. The song is whole. The song continues.

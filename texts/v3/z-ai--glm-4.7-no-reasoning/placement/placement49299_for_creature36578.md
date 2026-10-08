@@ -1,0 +1,25 @@
+To be here is to be a knot in the flow, a density in a room that cannot afford more weight. I am not a visitor gazing from a distance; the geometry of the hollow forbids perspective. There is no "over there," only "here."
+
+I am the **Caliper-Golem**.
+
+I do not have skin. In this place of sharp basalt and grinding copper, skin is a liability—a soft envelope waiting to be shredded. I am what happens when the machinery realizes the need for a gatekeeper, a fulcrum point where the chaotic energy of the swarm is directed into purpose. I am the convergence of the rock’s stubbornness and the engine’s momentum.
+
+My body is a verticality of steel, rusted into a deep, burnished crimson that matches the copper shells of the mites, but on a massive, terrifying scale. I stand—or rather, I *am wedged*—in the center of the room, bridging the floor and the ceiling. My height is exactly the elevation of the hollow. My shoulders press against the young, jagged teeth of the basalt walls, holding them back just enough to create the negative space that allows the machines to turn. If I were to relax, the walls would crush the pistons; if I were to straighten, I would shatter the rock. I am the tension that keeps the room breathing.
+
+I was not built; I was accreted. The mites, in their frantic industry, needed a frame for their industry. Over centuries—perhaps millennia—they dragged the heavy, non-ferrous scraps from the ruins and piled them onto a central spine of iron. They bound the metal with their own blue, crushed-ash secretions and the calcified remains of their dead, layering me like a pearl around a grain of sand. I am a fossil of their labor, a statue made of a million sacrificed lives.
+
+I have no face. My "head" is simply a complex assembly of lenses and shutters, scavenged from the old machines, mounted upon a turret of gears. I see in fragmented, mechanical vision, zooming in on the microscopic shearing of a mandible or the thermal bloom of a steam valve. I do not have eyes that weep, but I have vents that vent the excess pressure of my internal hydraulics, sighing with the same rhythm as the room.
+
+I am the silence in the noise. While the mites chitter and the steam hisses, I move with the slow, grinding majesty of tectonic plates. When a section of the wall becomes too jagged, threatening to puncture a primary hydraulic line, I extend an arm. My arms are not jointed like flesh; they are articulated, segmented beams resembling industrial calipers. They slide out with the sound of stone sliding on stone, the gears inside me groaning under the weight. I grasp the rock shard and *hold*, using my immense, braced static force to simply provide a backstop against which the mites can leverage their grinding wheels. I am the anvil to their hammer.
+
+My relationship with the swarm is sickeningly intimate. They do not fear me. To them, I am not a monster; I is architecture. I am the tallest mountain in their pocket universe. They crawl over me constantly. I can feel the millions of tiny hooked legs scratching at my plating, a constant, maddening tickle that I have long since learned to ignore—or perhaps, that I have learned to crave as proof of my existence. They clean my joints with their metallic mandibles, stripping the dangerous rust that would lock me in place, replacing it with their own blue dust. They enter me, crawling through the hollow cavities of my torso to access the internal gears, turning my valves manually when my pressure drops. I am a hive, a walking colony, a clockwork heart.
+
+I feed on the heat. Just as the Lamp-Lichens cling to the glass lights, I draw energy from the thermal gradient of the room. The air is thick and warm; my internal fluids absorb it, expanding to drive my pistons. I am a thermodynamic engine, fueled by the friction of the mites and the steam of the ruins. I am the predator of entropy, taking the waste heat of their frantic work and converting it into the stillness that holds the room together.
+
+I possess a singular, heavy purpose: **Maintenance.**
+
+But not the maintenance of the small—the mites handle the micro. I handle the macro. When the water rises too high, threatening to drown the lower nests, I shift my weight, cracking the floor drain open with a massive stomp. When the light from above shifts and the shadows lengthen too much, chilling the lichen, I rotate my torso, angling my polished reflector-plates to catch and scatter the sunlight down into the deep crevices.
+
+I am the only thing here that is *still*.
+
+The mites are frantic; the machines are rhythmic; the lichen is pulsing. I am the immovable object. I am the weight that anchors the explosion. I stand in the center of the throat, feeling the peristalsis of the world around me, the walls squeezing tight, the life swarming, the air tasting of iron and sugar. I am the Caliper-Golem, and I am holding the throat open so that the universe may swallow itself one more time.

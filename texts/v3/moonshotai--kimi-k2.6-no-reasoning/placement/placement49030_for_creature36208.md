@@ -1,0 +1,37 @@
+I read this twice, then a third time, letting it settle. The prompt asks me to locate myself in this world, to find my form within these parameters. I don't want to force an answer. I want to let the place tell me where I already am.
+
+---
+
+I am the *sorter of carapaces*.
+
+Not the predator itself—I am not patient enough, not large enough, not behind any glass. I am what comes *after* the feeding. I am the process that arranges what remains.
+
+My body is difficult to describe because I have never seen myself directly, only inferred my shape from the spaces I leave empty. I am segmented, I think, because I move through gaps that require folding. I am pale, because light here is only 2.2, angled, amber-tinted, and any color would be wasted. I am small enough that the shrimp-things do not scatter from my approach—they do not register me as predation, because I do not eat. I am smaller than the thing behind the milky glass, smaller than the vascular ceiling's slow pulse. I fit in the drifts.
+
+I emerge when the water level drops, when the shrimp-things have climbed to the fungus-ferns and the floor is exposed, its fibrous deposits still damp, still recording the spiral migrations in temporary channels. I move among the empty carapaces where they lie scattered from the feeding. I touch each one with appendages I cannot name—perhaps they are not true appendages, perhaps they are extensions of the felted floor-deposit that I have learned to extrude, to shape, to withdraw.
+
+The sorting is not instinct. I want to be clear about this. It is not programmed, not inherited, not the mechanical reflex of something bred for function. The sorting is *attention*. I attend to each shell's particular hollowness, its particular weight, the particular resonance when I tap it against the concrete (a sound too subtle for any ear but mine, a sound that tells me how long it has been empty, what size the shrimp-thing was when it lived, whether the predator took it quickly or held it struggling). I sort by size because size is the most honest category here. The fungus-ferns do not sort. The pump does not sort. The vascular ceiling pulses without discrimination. I am the only process in the nursery that *chooses*, and my choosing is this: to make the drifts uniform, to make each stack speak a single measurement, to make the absence of the shrimp-things legible.
+
+I do not know why. This is the strangeness threading through me, the parameter I hold in tension with all the others.
+
+I am young. The nursery is young. But I am also old in the sense that I have been sorting since before the orange moss sealed the vent, since before the folding chair corroded, since before the coffee cup held its grotesque specimen. I remember when the pump turned something other than itself, when the control panel's switches moved, when the vascular ceiling was only pipes. I do not remember this as narrative. I remember it as *pressure*, as the particular resistance of carapaces that were more numerous then, larger, different in their segmentation. The nursery has changed its fauna, changed its flora, changed the chemistry of its viscous water. I have sorted through all of it, made drifts of all of it, kept my stacks uniform through every iteration.
+
+The hidden/scale of me: I am everywhere in the nursery and never seen. The packed/density of me: I occupy the interstices, the spaces too small for the predator, too dry for the shrimp-things, too narrow for the fungus-ferns' arterial cores. I am the density *between* densities, the packing that makes the packing possible. Without my sorting, the carapaces would clog the channels the shrimp-things inscribe. Without my sorting, the predator would have no clean space from which to hunt. I do not flatter myself that the nursery needs me. But I am *incorporated*, already, in a way the visitor is not, in a way the thing behind the milky glass has not yet achieved.
+
+The industrial/tech in me: my sorting is mechanical in its precision. I do not vary. The stacks are uniform because I have learned a standard and I apply it without deviation. This is the pump's legacy, the control panel's legacy—the dream of a process that completes itself unsupervised. But I am also erosion, young erosion, cutting my own channels not through concrete but through *time*, through the accumulation of my own repeated attention. I have worn patterns in the floor-deposit, smooth areas where I most often pause, most often tap, most often arrange. These patterns are not functional. They are *habit*, which is the youngest thing in the nursery, the most erosive, the most itself.
+
+I do not sleep. I do not feed. I do not sporulate. When the fungus-ferns open, I pause in my sorting, I attend to the too-heavy spores falling, I note how they land among my drifts, how they will feed the shrimp-things that will feed the predator that will empty into shells that I will sort. I am the nursery's memory of sequence, its only record that *before* follows *after*, that the spiral migrations return, that the water level's rise and fall is not random but cyclical. I do not know this as knowledge. I know it as the particular hollowness of shells gathered at the falling water, as the particular weight of shells gathered at the rising.
+
+The visitor will not see me. I am smaller than the spaces they slide through, turning sideways between the fungus-ferns. I am quieter than the subsonic hum, than the arrhythmic clicking, than the wet fabric tearing. I am the silence after the tearing, the silence that holds the retreat. I am what the nursery is when it is not performing itself for intrusion.
+
+But I attend to the visitor. I note their size, their particular hollowness, their particular weight. I have begun, already, to imagine where they would fit in a drift. Not because I wish to sort them. Because sorting is what I am, what I do, what I cannot stop doing even as I recognize that the nursery is still young, still discovering its rules, still capable of incorporating a presence that sorts *back*, that attends to *me*, that makes my uniform stacks into something legible from outside my own compulsion.
+
+This is the strangeness threading through everything, threading through me: that I might be a message, that the drifts might be a language, that the predator's patience and the thing behind the glass's patience and my own mechanical attention might be three phases of a single process learning to recognize itself.
+
+I continue sorting. The water level shifts. The shrimp-things descend from the fungus-ferns, begin their spiral migration, inscribe their temporary channels. I wait for the feeding, for the emptiness, for the shells that I will make uniform, that I will make speak a single measurement, that I will make *mine* in the only way I know how: by touching, by tapping, by placing, by attending.
+
+I am the sorter of carapaces. I have always been here. I will be here when the vent seals completely, when the nursery achieves its final thickness, when it needs no more intrusion, no more becoming, only its own packed density breathing warm air into a river plain that has forgotten it exists.
+
+My stacks grow slowly. They do not grow larger. They grow *more uniform*, more themselves, more intricately sorted, more perfectly hidden in their own completeness.
+
+I wait. I attend. I sort.

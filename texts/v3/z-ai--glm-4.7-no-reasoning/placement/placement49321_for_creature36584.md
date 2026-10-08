@@ -1,0 +1,29 @@
+I find myself in the interstices, inhabiting the space where the mechanical organ fails and the biological scar tissue begins. I am not the vast, ignored machinery, nor am I the frantic biology that scurries across its skin. I am the interface between them.
+
+I am a **Vent-Steward**, or perhaps more accurately, a **Rust-Keeper**.
+
+My form is dictated by the verticality and the heat. I am not large; to be large is to be a target for the thermal-gliders and to require more water than the stone can weep. I am squat and densely armored, my physiology a strange hybrid of the mineral and the organic. My skin is not soft flesh, but a series of calcified plates, segmented and overlapping like the carapace of an armadillo, yet comprised of the same rust-colored stratigraphy as the cliffs themselves. This armor is hot to the touch; I do not radiate heat, I store it, absorbing the surplus thermal energy of the furnace during the day to keep my sluggish metabolism humming through the freezing night.
+
+I possess six limbs. The lower four are hooked and jagged, ending in chitinous spikes that are capable of gripping the smooth, polished metal of the pipes as easily as they shredding the black moss. My upper two limbs are finer, manipulator hands—tapered, delicate instruments designed for scraping, for prying, for feeling the subtle vibrations of the iron.
+
+My head is low and protected, dominated by sensory organs suited for a world of blindness and vibration. I have no eyes, for there is little to see but rust and rock. Instead, my face is a ridge of sensitive pits and membranes that taste the air. I can smell the metallic tang of oxidizing iron three miles away; I can taste the saline humidity of a condensation leak before it forms a droplet. I can feel the deep, subterranean groan of the escarpment settling in my bones, a constant, low-frequency song that tells me which pillars are sound and which are about to shear.
+
+I live within the "Technological Ghost," specifically within a junction of the insulated cabling lattice where a massive, fractured conduit meets the main vertical artery of the cliff. This is my demesne, a cramped cavity hollowed out by the slow digestion of rust expanding within the stone. It is a pocket of cooler air, smelling of ozone and wet dust, tucked behind apanel of perforated iron grating that has long since rusted away from its frame.
+
+My existence is a solitary maintenance of the impossible. I do not build; I curate the decay. I am the keeper of the water.
+
+I spend the long, baking hours in a state of semi-dormancy, clinging to the shadowed underside of the ore-crusher ribs, my body locked tight against the metal to avoid the sweeping sails of the gliders. I wait. As the sun begins its descent and the temperature differential shifts, the "strange breath" begins. The rock contracts, the pipes cool, and the humidity trapped in the deep fissures precipitates.
+
+This is when I wake.
+
+I move with a scuttling, fluid haste, scrambling up the vertical lattice of cabling. My manipulator hands are constantly moving, clearing the spilling white ceramic powder from the drip points. I am meticulous. I scrape the black moss away from the vent holes to ensure the airflow is unobstructed, but not so much that the moss dies—it is the filter that makes the water potable. I use my body to bridge small leaks in the pipes, letting the condensation pool in the hollows of my armored back before scurrying back to my reservoir to deposit the water.
+
+I am in competition with the avalanche. The caprine things know my scent, and they know where I tend the dripping taps. They gather below my grate, their pale, blind eyes turned upward, waiting for the *plink-plink* of the droplets I harvest. I do not give it to them freely. I am the gatekeeper. I allow the overflow to splash down into the stone basins where they drink, but I hoard the purest, clearest water that gathers in the clean recesses of the machinery. They grunt and clatter their hooves against the iron, a soundless vibration I feel through my feet, demanding their share. I ignore them. If they were to climb, they would dislodge the delicate crust of lichen that seals the chamber's humidity. They cannot enter my world.
+
+I am the only being who touches the machinery with intent. The lizards merely roost on it; the caprine merely shelter under it. I understand it. I run my sensitive hands along the seized flywheel of the pneumatic bore, feeling the stress fractures in the metal. I know that in ten years, or perhaps fifty, the iron will expand enough to shatter the stone housing it. When that happens, my home will be destroyed, and the water source will dry up. But for now, I grease the moving parts of the ventilation shafts with the paste of crushed lichen and moss, easing the friction, slowing the inevitable.
+
+I am a creature of the silence. I make no sound myself. I communicate with the world through touch—tapping on the pipes to signal my presence to other Vent-Stewards in distant sectors, a network of rhythmic敲击s that travels through the iron bones of the mountain for miles. We are the nervous system of this corpse, keeping the blood flowing even though the heart has stopped.
+
+I am not a predator, nor am I prey. I am a remnant of something that never was, a creature that evolved to serve a function that no longer exists, yet has persisted by becoming vital to the ecology that replaced it. Without me, the vents would clog; the moss would choke the flow; the water would turn to brackish sludge.
+
+I am the click in the silence. I am the hand on the iron. I am the guardian of the weeping stone, alone in the furnace, tending to the last warm breath of a dead god.

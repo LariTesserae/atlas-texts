@@ -1,0 +1,39 @@
+The hollow lies only a little way beneath the surface, though nothing in it feels buried.
+
+It is a single chamber, perhaps the size of a village green, contained beneath a shallow dome of pale stone. Long erosion has smoothed the ceiling until it resembles the inside of a weathered shell. Ribs, ledges, and scalloped recesses remain where softer mineral bands dissolved away, but there are no sharp breaks. Every surface seems finished—not polished, exactly, but brought by immense patience to a stable shape.
+
+Light enters through the stone itself.
+
+The ceiling is thin enough, or peculiar enough, to admit the day as a broad white-gold radiance. No sun can be seen. There are no beams, and almost no shadows except immediately beneath an animal or inside the deepest pockets of the walls. At noon the chamber is bright enough to hurt unaccustomed eyes. Clouds passing above turn the whole place gray at once. Dawn arrives as a blush in the eastern half of the dome, while evening lingers in the western stone as amber fluorescence. During heavy rain, the roof darkens with moving stains, revealing the hidden contours of the land overhead.
+
+The floor is mostly bare mineral: warm chalk, honey-colored calcite, and islands of compact red clay. It dips very gently toward a string of shallow basins. Most are dry, their rims feathered with mineral crust, but several hold clear water no deeper than a hand. Condensation forms continually along the coolest wall and gathers into fat drops. They hang for minutes before falling, each impact loud in the quiet.
+
+There is no river now, though the chamber was made by one. Its old course is visible in the low, sinuous trench crossing the floor and in the smooth undercut shelves along the southern wall. Perhaps once every few years, after prolonged rain above, brown water enters through a crack too narrow to see. It spreads ankle-deep through the ancient channel, fills every basin, leaves behind fine silt, and vanishes by morning into porous stone. Nothing here resists such floods. The hollow has achieved its form by yielding.
+
+Vegetation survives in widely separated patches. Thin cushions of gray-green moss cling beneath the dripping wall. A few wiry, translucent grasses rise from clay seams, their blades carrying little chlorophyll; they feed partly on bright stone-light and partly on fungi threaded through the floor. Pale liverworts ring the basins like faded embroidery. In one recess grows a waist-high thicket of jointed stems, hollow and nearly white, which produces neither leaf nor flower until floodwater arrives. Then, over the course of a day, it opens dozens of blue cups and sheds its seed before the water drains.
+
+Because plants are sparse, each patch appears deliberate, almost ceremonial, though nothing has planted them.
+
+Animals are far more numerous than the landscape first suggests. They are small and leave the open floor empty. Sand-colored lizards lie flush against warm ledges, their bodies so flat that only blinking betrays them. Long-legged beetles travel between pools on habitual routes. Tiny frogs occupy holes in the damp wall, one animal to a cavity, their pale throats swelling soundlessly most of the time. Moths rest beneath stone shelves with wings like scraps of mica.
+
+The pools contain clouds of minute, dark crustaceans. When shadow passes overhead—whether from an animal in the chamber or a bird crossing the unseen surface—they sink at once. Blind silver fry sometimes appear after floods, remain for a season, and disappear before the basins dry. No one knows whether they retreat through fissures or leave eggs sleeping in the clay.
+
+The hollow’s strangest inhabitants are the lantern-backed grazers. They are soft-bodied creatures the length of a finger, with six delicate feet and transparent shells. Colonies emerge at dusk from pores in the western wall. They move slowly across the stone, rasping away an invisible film of algae and bacteria. Daylight accumulates in nodules along their backs; after dark, those nodules release it. By midnight the empty chamber contains dozens of wandering points of warm light, spaced widely across the floor like a fallen constellation. They make no audible sound.
+
+Larger animals visit but do not remain. A narrow opening at one edge leads upward through a steep natural chimney. Foxlike burrowers occasionally descend for water. Broad-winged cave swifts spiral in through the same shaft, drink without landing, and leave. Small, long-eared primates come singly or in pairs. They use chipped flakes of the chamber’s glassy calcite to split beetle shells and scrape moss from cracks, then carry the flakes away. No discarded tools remain for long: mineral growth seals them into the floor, floods take them, or the animals retrieve them on later visits.
+
+Thus there is technology here, but no building. The chamber has never held a wall, hearth, stair, vessel, or carved mark. Tool use belongs to bodies and moments rather than settlement. A frog’s hole may be widened with a twig; a calcite blade may serve for years; a fibrous stem may be knotted around food. Nothing accumulates into a dwelling. The place stays empty even while many lives pass through it.
+
+Sound comes separately, never as a continuous field. A drop. The dry skitter of a beetle. A brief wingbeat magnified by the dome. The crack of clay contracting. At certain humidities, the stone gives a low note too deep to locate, caused by air moving through flooded passages below. The frogs call only before an inundation, and then all at once: a few soft, hollow pulses, followed by silence. Their prediction is exact.
+
+Warmth changes little from season to season. The floor holds the memory of the sunlit ground above, while the damp wall breathes a cooler air from deeper cavities. Where the two meet, mist forms ankle-high at night. It does not fill the chamber. It lies in shallow streams along the abandoned river course, moving so slowly that sleeping animals wake with dew on only one side of their bodies.
+
+Time here is measured by deposits. Each falling drop adds a skin too thin to see. Pool rims rise grain by grain. Footprints harden, blur, and vanish beneath new mineral. The old channel becomes shallower each century even as rare floods renew it. Species alter their routes around changes no single generation can perceive.
+
+There is one rule peculiar to the hollow: nothing casts a shadow unless it is moving.
+
+A still animal, a stone, even a fallen stem becomes suffused with the ceiling’s diffuse radiance until its outline nearly dissolves. But when something crosses the floor, a compact dark shape gathers beneath it. The faster it moves, the blacker the shadow becomes. Beetles walk slowly and remain almost shadowless. Startled lizards streak across the chalk trailing darkness. The swifts, descending in tight circles, draw revolving black crescents below themselves.
+
+For this reason nearly every creature moves with caution. Stillness is camouflage, motion an announcement. Hunting happens in patient increments. Courtship may consist of two animals approaching one another over several days. Even the visiting primates have learned to pause between gestures, hands suspended over the pools.
+
+So the bright chamber seems vacant on first arrival: a white room beneath the world, warm, damp at one edge, worn into equilibrium. Remain long enough, and eyes adjust not to darkness but to emptiness. A shell lifts from the stone. A wall blinks. A patch of clay begins to breathe. Life appears by degrees, not because it was hidden, but because it had been waiting to move.

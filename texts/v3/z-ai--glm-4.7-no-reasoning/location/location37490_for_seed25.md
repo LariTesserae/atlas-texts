@@ -1,0 +1,25 @@
+The air is heavy and cool, a thick, humid wool that presses against the skin without the relief of a breeze. It smells of rusted iron, old brine, and the sharp, coppery tang of respiration. This is a low, dark place, a sprawling basin where light fears to tread, caught in the perpetual gloom of a twilight that never quite breaks into day nor deepens into night.
+
+The ground underfoot is treacherous—a slick, calcified pavement of weathered limestone and fissured shale. It is a world of stone sculpted by water and time; the erosion parameter here is evident in the smoothed, hollowed-out shapes of the rock, the natural cisterns and channels that have been worn into the surface over eons. There is no dust; everything is perpetually damp, covered in a shimmering, oily sheen of condensation. Small pockets of water collect in every depression, stagnant and black, reflecting the gray, oppressive sky above.
+
+But the absence of light does not mean the absence of life. In fact, the darkness here is deceptive, for the silence is absolute.
+
+There is no wind. There is no patter of rain. There is only the roar.
+
+It starts as a vibration in the soles of your feet, a low-frequency thrum that rattles the teeth. Then it rises—a deafening, omnipresent cacophony of biological sound. It is a wall of noise: the clicking of a million million chitinous legs, the wet slap of flesh against stone, the high-pitched whine of membrane wings, and the deep, guttural thrumming of massive bodies shifting in the gloom. It is not a chaotic noise, but a dense, layered symphony of an ecosystem in hyper-drive. The "deafening" quality isn't just volume; it is the sheer density of the sonic information. Every inch of air is occupied by a sound wave.
+
+This is a world without vegetation. There are no trees, no grass, no ferns to soften the hard lines of the geology. The color palette is strictly mineral: slate grays, oxidized ochres, and the glossy black of wet stone. Yet, the lack of plant life does not equate to a lack of biomass. The fauna here is overwhelming, a teeming, writhing blanket of organisms that have evolved to consume the rock itself, or each other, in a frantic, closed loop.
+
+Because of the "high density" and "overwhelming fauna" parameters, the space is packed. You cannot step without crushing something. The ground is a moving carpet of scavengers—pale, sightless crustaceans the size of dogs that skitter sideways over the wet stone; translucent, millipede-like creatures that undulate in waves through the cracks. Above them, the air is thick with flying things—leathery bats devoid of fur, and hovering, bioluminescent flies that pulse in frantic rhythms.
+
+Without the green anchor of photosynthesis, the ecology has turned predatory and parasitic with a speed that defies natural order. The "active dynamic" is one of constant consumption. The few large beasts that lumber through the gloom—massive, hulking forms that look like armored slugs supported by spindly, calcified legs—are constantly being eaten alive. They do not seem to mind; their flesh regenerates as fast as it is stripped away by the swarms. They are mobile mountains of meat, moving slowly through the crush, their bodies hosting entire ecosystems of smaller parasites that burrow into their armored hides.
+
+The "weirdness" of the place lies in the nature of the energy. Without sun and without plants, the food chain is fueled by something else—perhaps the chemical heat of the earth, or the breakdown of the mineral bedrock itself. The creatures here are not biological in the way we understand; they seem part-mineral, part-flesh. Some appear to be made entirely of animated silica, their internal organs glowing with a faint, geo-thermal phosphorescence.
+
+Pockets of water are not sanctuaries but traps. The stagnant pools boil with the activity of microscopic life and macroscopic horrors—eel-like predators that snap at the air, and blooms of gelatinous foam that dissolve anything that touches the surface.
+
+Moving through this landscape is a sensory assault. The "cool" temperature is a lie; the sheer density of body heat radiating from the surrounding millions of creatures creates a hot, humid microclimate directly against the skin, contrasting with the chill of the rock. The noise makes thought impossible; the thrumming vibrates in the chest, syncing the heartbeat to the frantic pace of the swarm.
+
+There is no shelter. The "open" scale of the basin means you can see the curvature of the horizon in the distance, a ragged line of obsidian cliffs, but the darkness makes the distance feel claustrophobic. It is a regional purgatory, a stone bowl filled to the brim with hungry, blind life. It is a place that has existed in this state for millennia, a perfect, horrific machine of consumption and regeneration, indifferent to anything that does not belong to the swarm.
+
+Here, the rule is simple: keep moving, or become the stone floor for the next generation of skittering things. The landscape is not static; it is digesting itself, a slow grind of mineral and meat held in a terrifying, noisy equilibrium.

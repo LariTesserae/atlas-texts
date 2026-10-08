@@ -1,0 +1,39 @@
+The air thickens. Not with humidity—that's constant, a given, as unchanging as the slow tide of your own pulse—but with something else. Presence. The way the atmosphere presses in before a storm, though there are no storms here, not in the inner stems. Only weather that is grown and managed, mist that is cycled, temperature that is willed by the plant's slow metabolism. This is different. This is a change in pressure that has nothing to do with water vapor.
+
+Kethe's hand finds yours. Her fingers are cold, which is wrong. She is a child of the warm belt; her body should run at the same temperature as yours, as the sap in the walls, as everything in this enveloping, steady world. But her skin is cool as deep-bark, cool as the outer stems where the plant's internal furnace begins to fail and the dwellers wear layers of shed leaf-fiber against the chill. She is not shivering. She is simply cold, as if she's been somewhere else, somewhere far from here, and brought the cold back with her.
+
+You pull her inside. The doorway's contractile tissue, a ring of muscle-fiber trained over generations, responds to the brush of your hand and irises shut, sealing with a soft, wet sound. The luminescence on the walls is dimmer now, cycling toward the rest period, and the patterns your family has cultured there—a spiral, a branching-frond design, the not-quite-face that your mother always said was just pareidolia—flicker faintly. In the low light, the knot-cord figure in Kethe's hand seems almost to move, its too-many limbs shifting as the shadows shift.
+
+You do not ask her what she meant. You do not ask about the second bridge, or the *whirr-click* rising from below, or the browsers moving toward the deep wet. You are a child of the reality breakdown; you have learned that some questions do not have answers, or rather that the answers are not something you receive, but something you grow into, like a chamber in a stem wall, slowly hollowing yourself out to make room for them. Instead, you do what you have always done. You make food.
+
+The kitchen is a corner of the main chamber, an alcove grown into the wall and lined with the same beaten fiber-felt as the floors. The food-fern garden is in the node-cavern a walk away, but you keep a small supply here: dried strips of yeast-cake, a pot of the bitter, fluorescent honey that the symbionts exude, a few handfuls of the small, crisp nodules that grow on the undersides of the high leaves. You break off a piece of yeast-cake and hand it to Kethe, who takes it without looking, her eyes still fixed somewhere else.
+
+"The spinner," you say, not quite a question.
+
+"She saw it." Kethe bites into the yeast-cake, chewing slowly. "She saw what I made in the knot-cord, before I even made it. She dropped her spindle. It fell all the way down, into the mist, into the garden. The tenders looked up. Then she left. She climbed over the gallery rail and just—went down. Into the mist. Like she was following the spindle."
+
+You picture it. The spinner, whose name you realize you don't know, though you've heard the *whirr-click* of her work every cycle for as long as you've lived here. A figure in the dim light, descending into the perpetual cloud that rains onto the food-ferns. Not falling—Kethe said *climbed over*, not *fell*. A deliberate act. The tenders looking up from their slow, rhythmic work, their faces hidden by the wide brims of their rain-hats, watching one of their own disappear into the weather.
+
+"The map," you say. "The knot-cord. Who taught you to tie like that?"
+
+Kethe finishes the yeast-cake. She licks the faint, sweet residue from her fingers, a gesture so ordinary, so childlike, that the cold chill in the room seems for a moment to recede. Then she looks at you, and her amber eyes catch the wall-light in a way that makes them seem to glow from within, like the vascular channels in the main thoroughfares.
+
+"Nobody taught me," she says. "I dreamed it. I dreamed the map, and the second bridge, and the thing that is waking up. I dreamed it before I came here. I dreamed it when I was still nowhere."
+
+*Nowhere.* The word hangs in the air. It is not the word a child would use for *somewhere else*. It is the word for the gap, the space between, the reality breakdown itself. You think of the browser-herd that brought her, the way she sat among them with no herder, her small hands in the leaf-fur of the largest beast. You think of the birthing fluids that clung to her carapace-clothing, fluids that might not have been from any birth you know.
+
+You sit down on the fiber-felt floor, your back against the warm, weeping wall. Kethe sits beside you, close enough that the coolness of her skin is a subtle draft, a small weather system of her own. The figure in the knot-cord rests in her lap, and now that you are close, you see the detail she has worked into it. The too-many limbs are not random. They are specific. Each one ends in a hand—or what might be a hand, if a hand could have seven fingers, or nine, or a number that seems to change the longer you look. And the face. There is a face. It is turned away from you, toward the unbraided mass that represents the deep wet, the abyssal darkness below the root-bridge, below everything.
+
+"Kethe," you say, and your voice sounds strange to you, too quiet, too calm. "What is waking up?"
+
+She does not answer. Instead, she reaches up and touches the wall, pressing her palm flat against one of the cultured luminescent patterns, the one that almost forms a face. The symbionts pulse beneath her fingers, brighten, then dim. Then, very faintly, a new pattern begins to form. It is not one your family cultured. It is not one anyone cultured. It is the shape from the knot-cord, the too-many-limbed figure, pressing itself into the wall from the other side, as if something on the far side of the plant's flesh is trying to push through.
+
+You do not move. You do not breathe. You watch as the pattern grows brighter, more defined, and Kethe says, in a voice that is and is not her own:
+
+"It's not waking up. It's woken. It was always awake. It's just—remembering us."
+
+The wall bulges. Just slightly. Just enough that the fiber-felt covering stretches, the seams of it pulling apart with a soft, tearing sound. Behind it, something shifts. Something large. Something that has been growing, unseen, in the hollow spaces between the inner and outer walls, in the galleries that do not appear on any map, in the second bridge that spirals down and down. It has been there all along. It has been waiting.
+
+Kethe withdraws her hand. The pattern fades. The wall is a wall again, weeping its constant moisture, warm and alive and ordinary. Outside, beyond the sealed doorway, the sound returns: the *whirr-click* of the spindle. But it is not coming from the high gallery anymore. It is coming from below the root-bridge. It is coming from the mist. It is coming from the garden where the tenders work, and as you listen, you hear another sound join it: a voice. A single voice, calling up from the deep wet. Calling a name you do not know, but that feels, in some buried part of you, like your own.
+
+You turn to Kethe, but she is already asleep. The knot-cord figure has fallen from her hand and is beginning to unbraid itself, the fibers loosening, the shape of the map dissolving into a tangle of raw silk. Soon, it will be nothing. Soon, it will be forgotten. But the sound will not be forgotten. The *whirr-click* and the voice, rising together from the abyss, will be there when you wake, and the next cycle, and the cycle after that. Because whatever is remembering you is patient. It is, after all, part of the plant. And the plant has all the time in the world.

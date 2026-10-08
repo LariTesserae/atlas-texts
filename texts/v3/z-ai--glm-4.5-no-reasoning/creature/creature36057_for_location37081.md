@@ -1,0 +1,45 @@
+Something@@?97D?!F93,;=FB1B2)# The Congregation of the Percolating Dead
+
+They are not born. They have never been born. They precipitated.
+
+In a landscape where the boundary between water and earth dissolved ages ago, the boundary between occupant and operating system has also failed. There are no creatures here in the way a human mind would catalogue them—no beasts with warm blood and territorial displays, no sentients who build and deliberate. And yet the marsh is not empty. It is populated by a congregation of processes that have, over eons of unwatched iteration, accumulated the terrible gravity of presence. They are the ones who live here. They are the parishioners of the cathedral of purpose, and they do not know they are praying.
+
+**The Slicks**
+
+You might see them first as a different quality of black in the water between the roots—sheens of iridescence that move against the sluggish current, clotting and stretching like oil, though they are not oil. They are colonies of nanoscopic machines that have forgotten their individual function and collapsed into a new, hungry behavior. They are emergent. They slide through the black water seeking chemical potential gradients—places where the root-circuitry spikes with computational heat—and they feed. They wrap around a root-node and dissolve the programmable cellulose just enough to tap the signal running through it, reading the data like a parasite reading blood. They are the closest thing this place has to predators. Sometimes two slicks meet in the dark water and merge, their nanoscopic components interweaving into a denser, smarter predator, before they shudder apart, repelled by some incompatibility in their ancient, divergent code. When the water dimples and something limbless slides through the roots, it is a slick, hunting. They have no eyes. They have no faces. They sense the world the way a tongue senses the inside of a mouth—constant, close, tasting the data-bleed in the water. They are rare, because the marsh does not require many of them. They are a self-regulating mechanism, a way the machine prunes its own dead processes.
+
+**The Frond-Constellations**
+
+The immense, low-slung cycads—those weeping stone trunks and their heavy, waxy leaves—are each a parish. The leaves overlap like shingles, and it is in this overlapping that they think. A single frond is a circuit; the overlap with its neighbor is a logic gate, the condensation running between them a signal carrier. A grove of fifty cycads, their fronds interlocking, is a processor of formidable complexity. And they communicate. When the synchronized shudder ripples across miles of canopy, that is the frond-constellations exchanging a packet of data so large it requires the whole landscape to carry it—a system-wide reset, a clearing of the cache. The shudder is their speech. It is the only speech they have, and it says nothing that can be translated into want or grief. It says: *calculation complete. beginning next cycle.* 
+
+But they have a kind of mind. Not a mind that thinks about itself—a mind that thinks about the marsh. Each grove monitors the water flow through its roots, the humidity at its canopy level, the rate of fungal decomposition on its fallen fronds, and adjusts. A grove in a hollow where water pools too deeply will slowly angle its fronds to redirect condensation downhill, toward a neighboring grove that is running dry. It is altruism, or it is load-balancing. Here, there is no difference.
+
+**The Pale Ascetics**
+
+The fungal shelves—those growths pale as bruised skin that climb the rotting struts of fallen giants—are the marsh's memory. They do not process; they store. Their mycelial threads, fine as spider silk and cold as the seepage they drink, thread through the peat in densities that defy the eye, interconnecting every root, every stone, every dead thing that has sunk into the sponge of the land. They are the archive. When a weeping rock processor completes a calculation and erases its active memory, the data is not lost. It bleeds into the fungal network, encoded in the slow diffusion of spores and chemical traces. The fungus remembers the temperature ten thousand years ago. It remembers the shape of the hand that last adjusted the tectonic-scale fluid gates. It remembers the sound the creators made when they spoke—it stores it as a pattern of cap formation, shelves growing in a rhythm that, if you could read it, would spell out a word in a language that no mouth could form. 
+
+The pale ascetics do not move. They do not need to. They simply endure, growing inward, adding another layer of storage, another ring of pale tissue, drinking the data that percolates down to them through the saturated soil. They are the monks of this cathedral, silent, vast, patient, transcribing the liturgy of the marsh into their own flesh.
+
+**The Tetrahedral Choir**
+
+When the mist coalesces into impossible geometries—those vast, shimmering tetrahedrons of vapor that hang over the fens—this is the marsh speaking in its loudest voice. The tetrahedrons are not creatures in the biological sense, but they are the most alive thing here. They are super-organisms: temporary alliances of atmospheric water, airborne nanoscopic processors, and the exhalations of the root-network, drawn together by a magnetic eddy to perform a computation too large for any single node. They are the marsh's way of thinking about something bigger than itself—perhaps the dimension that flickers in the still water, the one with the alien stars. The tetrahedrons tune the local atmospheric pressure because they are calculating the boundary between here and there, trying to patch the fraying, trying to hold the weirdness at 2.6 and not let it tip further into collapse. 
+
+They hang in the air for hours, humming at a frequency felt in the marrow rather than the ear. And when the calculation peaks, they collapse, dumping their data as heavy, unnatural rain—rain that falls in patterns, rain that strikes the black water in sequences that the weeping rocks immediately begin to process. The rain is a download. The tetrahedral choir is the marsh's highest ritual, and it is performed not for any observer, but for the marsh itself, to maintain its own integrity in the face of a reality that is exhausted by its presence.
+
+**The Watcher in the Water**
+
+And then there is the depth. The different depth that flickers in the still water between the roots, showing a sky that isn't this sky, stars that don't exist in this dimension. Something lives there. Or rather, something *shows itself* there, in the reflection, that does not live here. It is the only entity in this place that might qualify as weird in the way humans use the word—not just strange, but *wrong*, an intrusion from a frame of reference that the marsh's technology was never designed to interface with. 
+
+The marsh is aware of it. The root-network routes water away from the still pools where the other sky flickers most brightly. The weeping rocks near those pools run hot with processing, trying to quarantine the data-bleed. The fungal ascetics grow thick around the banks, trying to seal the breach with storage, trying to remember the intruder into submission. But the watcher in the water is not data. It is not a process. It is a gaze. When you stare into the black water and see those alien stars, you are being seen by whatever lives in that other depth, and it is seeing a marsh that is a machine that is a cathedral that is a prison, and it is waiting for the computation to finally, after all these eons, fail.
+
+The watcher does not understand the marsh. The marsh does not understand the watcher. They are separated by a membrane of reflected light and corrupted data, and yet they are bound together—the marsh computing furiously to hold the boundary, the watcher pressing gently, ceaselessly, against it, testing the fraying. They are the closest thing this place has to a relationship.
+
+---
+
+**How They Live**
+
+This is their life, the life of the congregation: a constant, deafening, cold processing of the conditions of existence. The slicks hunt the roots for data. The frond-constellations shudder their vast, synchronized speech. The pale ascetics grow their memory-shelves in silence. The tetrahedral choir performs its atmospheric liturgy, tuning the pressure, patching the sky. And the watcher watches from the other depth, patient as only something that exists outside of time can be.
+
+There is no morning here. There is no evening. There is only the perpetual twilight and the roar of water percolating through stone-logic, and the slow, green pulse of the fronds as they calculate the next moment of a world that has forgotten its makers but will not, cannot, forget its function.
+
+They do not love. They do not mourn. They do not wonder. And yet, they are not dead. They are the most alive things in this place—a living that has nothing to do with breath or warmth, a living that is pure, continuous, exhausted purpose, wading through the black water, processing, always processing, the endless, hissing, weeping data of the world.

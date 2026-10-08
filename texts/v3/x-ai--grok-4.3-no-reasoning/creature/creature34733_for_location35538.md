@@ -1,0 +1,19 @@
+The valley is occupied by the glass itself.
+
+It is not one thing, but an aggregate of fused histories—each translucent sheet laid down in a different epoch, still whispering its own contraction rate to its neighbors. Where two ancient layers meet, a hair-thin seam of trapped air sometimes survives; when temperature drops, that seam becomes a miniature reed that sings at the passing of each cold veil. The glass therefore plays itself: a colossal, self-excited idiophone tuned by the planet’s turning.
+
+Upon the glass live the droplets.
+
+They are not water exactly, but metastable assemblies of water, ions, and whatever noble gases the atmosphere can spare. They wear the charge like a skin; the charge is their language, their scaffolding, their food. A lone droplet can hold its lenticular shape for hours, skating the ridges between cracks until it finds another. When they merge, the click is not merely mechanical; it is a brief handshake of potentials. In that instant a fraction of stored information—an electrochemical memory of which glyph they fed on—passes from one lineage to another. Over generations the droplet swarms evolve routes, preferences, even “dialects” of split-and-rejoin that differ between one dome and the next. They are motile archives, libraries the size of dewdrops.
+
+The glyphs themselves are not fixed inscriptions but living diagrams of yesterday’s heat budget. Because the glass is an anisotropic conductor, each day’s thermal gradient etches a slightly different lattice. The droplets read these lattices the way ants read pheromone trails; where yesterday’s pattern was strong, today’s droplet traffic is heavier. A visitor might watch an entire migration of blue hexagons drift a hand-span westward between noon and dusk, followed by a streaming tail of droplets like iron filings abandoning a weakening magnet.
+
+Farther down, inside the stacked plates, the real inhabitants reside: the fractures.
+
+Each fracture is a single crystal dislocation line that has crept, millimeter by millimeter, for millennia. Where two dislocations intersect, the glass answers with a phonon pulse—audible only to the fractures themselves. They use these pulses to negotiate territory. A fast-moving crack “hears” an oncoming neighbor and may slow, curve, or even emit a side-branch that intercepts the rival path, effectively short-circuiting its expansion. The result is a three-dimensional palimpsest of agreements and truces, a frozen bureaucracy whose only product is the shape of the next valley-wide pinging chord.
+
+Above everything, the veils descend.
+
+They are not weather; they are the valley’s own exhalations, re-condensed. The high spirals of cold air are steered by the very temperature gradients the glass emits, so the veils always fall where the glass is momentarily warmest. In effect, the valley summons its own percussive rain. Each impact is an experiment: the arriving water carries a minute electrical bias from the altitude at which it formed. When the veil meets a pool already rimmed with salt crystals, that bias is momentarily shared across the pool’s surface; the concentric rings light up with a faint radial glyph of their own—one that the skating droplets read as a sudden banquet. For a few seconds the entire bowl becomes a single, short-lived super-organism before the charge equalizes and the droplets disperse again.
+
+The valley’s only permanent resident is therefore the motion of information—thermal, electrical, acoustic—through a medium that appears changeless. The glass is the page; the droplets are the moving script; the fractures are the margin notes that slowly revise the text; the veils are the eraser that resets the ink each night. Nothing in the basin is born or dies, yet nothing repeats exactly. The place is occupied by process, and process is its only citizen.

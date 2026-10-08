@@ -1,0 +1,7 @@
+The Long Galleries of Velmoth hold a quiet, layered conversation between beings who have become difficult to separate from one another, and from the place itself. The dwellers are a sediment of peoples: tall pale ones who move in courteous silence and share a long, attentive regard; shorter darker ones bound by an old contract with the plants, greeting them in passing and tending the flute-clusters with quiet matter-of-factness; and small shy ones who live at the edges, translucent and watchful, perhaps the oldest layer of all.
+
+The plants are co-inhabitants rather than flora. The flutes stand in organ-like clusters and play a low chord with the wind; the vines learn the paths of walkers and draw back before they arrive; the bronze shrubs bear a seedless fruit that the dwellers eat in reverent silence, afterward sitting still with brighter eyes.
+
+Among the small lives: many-legged creatures like thoughtful squirrels that have decided, collectively and anciently, not to be afraid; a tall pale shape glimpsed once on a high terrace in amber light; silent flying things the color of the sky; and small pale eel-like creatures that surface in the lower pool only for the dwellers, in a slow mutual regard that the visitor is not yet part of.
+
+Beneath all of it, the warm, yielding pavement — almost stone, not quite — creaks with its own vast, slow adjustments. It is the lowest voice in the conversation, the one that holds everything else gently together, for a very long time.

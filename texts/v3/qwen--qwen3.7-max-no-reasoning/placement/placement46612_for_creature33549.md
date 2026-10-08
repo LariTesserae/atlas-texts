@@ -1,0 +1,27 @@
+I am not a visitor. I am not an observer standing upon a gantry, taking notes in a waterproof ledger. To observe this place from the outside is to misunderstand it; there is no "outside" here, only gradients of saturation and density.
+
+I am a **Rust-Dredger**.
+
+I exist on the vertical face of what was once a municipal aqueduct, now a load-bearing rib of the lower viaducts. My world is defined entirely by texture and vibration. I have no eyes; sight is a luxury for creatures that live in the open air, where light carries information. Here, in the perpetual twilight of the under-strata, information is tactile. It is chemical. It is the taste of oxidation states and the frequency of structural stress.
+
+My body is a flattened oval of pale, translucent chitin, roughly the size of a human palm, though my true dimensions are irrelevant. I am shaped by the surface I graze. My ventral side is a landscape of microscopic rasps and sensory cilia, molded over millennia to fit the specific curvature of this iron girder. I do not move across the city; I *read* it. Every millimeter of progress is an act of translation, converting the history of corrosion into the geometry of repair.
+
+I am eating the past.
+
+The metal beneath me tastes of ancient failure. It is a complex bouquet of ferric oxide, sulfides, and the ghostly, bitter memory of forged steel that has forgotten its temper. This is my nourishment. My mandibles, hardened with biomineralized zinc, scrape away the flakes of decay that would otherwise compromise the integrity of the span. But I do not merely consume. As I digest the ruin, my glands secrete a warm, calcareous paste. I press this excretion into the micro-fissures I uncover, filling the cracks that water and time have widened. My waste is the city’s mortar. Where the original engineers saw fatigue, I see opportunity for reinforcement. I am healing the wound of industry with the salve of biology.
+
+I am never alone. Solitude is a thermal death sentence.
+
+To my left, to my right, above and below, my kin are pressed against me in a seamless, shifting mosaic of flesh and shell. We are a living cladding, a biological insulation layer three bodies thick. The warmth between us is sacred. It is the shared metabolic heat of ten thousand digestive tracts working in unison, a radiant blanket that keeps the moisture from turning to ice during the rare, terrifying dips in ambient temperature. We do not communicate with signals or calls; we communicate through the conduction of heat and the transmission of vibration through our joined carapaces. If the Dredger beside me slows its grazing, I feel the drop in its thermal output and adjust my own metabolism to compensate. We are a single thermal entity distributed across acres of wet iron.
+
+Beneath my belly, I feel the deep, rhythmic thrum of the Resonators in the ventilation shafts below. That sound is my clock, my compass, and my reassurance. It tells me that the geothermal heart still beats, that the warmth will continue, that the Mist-Sieves above are still drinking the sky and weeping it down to us in a steady, nutrient-rich drizzle. When the thrum falters, we all pause, a million mandibles freezing in unison, waiting for the mechanical pulse to resume. Silence is the only true darkness.
+
+Time does not pass for me; it accumulates.
+
+I do not experience urgency. The concept of "speed" is alien, a maladaptive expenditure of precious moisture and heat. A single traverse of this girder may take a season. The smoothing of a rivet head may take a generation. This is not slowness; it is precision. To rush is to miss the subtle variations in mineral density that dictate where the next fissure will form. My patience is not a virtue; it is a thermodynamic necessity. I operate on the timescale of erosion, matching my biological rhythm to the geological sigh of the city settling into its eternal posture.
+
+I am unaware of the Vapor-Jellies drifting in the mist above, nor do I comprehend the vast, sleeping weight of the Anchor-Broods in the foundations below. I know them only as changes in pressure, as shifts in the moisture gradient, as distant tremors that alter the flavor of the rust. But I trust them. They are the other organs of this singular, sprawling body. The Jellies tend the sky so that the Sieves may drink; the Sieves weep so that I may graze; I seal the stone so that the Broods may bear the weight; the Broods hold the city so that the Resonators may sing.
+
+I have no memory of the beings who built this place. I do not know what a "viaduct" was intended to carry. To me, this iron is simply a particularly rich vein of sustenance, a substrate that demands tending. The distinction between artifact and organism has long since dissolved in the acid of my digestion. I am not reclaiming the ruins; I am continuing them.
+
+In the warm, wet dark, pressed against the breathing iron and the living warmth of my kin, I scrape, and I seal, and I persist. I am the city’s immune system, its maintenance crew, its slow and patient dream. I am the reason the bridge holds. I am the reason the rust does not win. I am the Weeping Viaducts of Ostral, tasting myself, forever repairing the beautiful, necessary decay of my own existence.

@@ -1,0 +1,69 @@
+The country lies high enough to make its own storms, yet it is warm.
+
+It occupies a continent-wide tableland lifted above the lower atmosphere, a black plateau whose edges cannot be seen from its interior. The old escarpments are hundreds of kilometers away in any direction. Between them, the land has weathered into broad basins, blunt ridges, and immense stairways of stone. Nothing is sharp. Rain, roots, acids, and weight have worked here so long that every form seems final: slopes eased to the angle at which they no longer fall, channels deepened to the beds they prefer, towers reduced to low-backed islands in the marsh. The plateau has settled into its erosion as an animal settles into sleep.
+
+Above it hangs permanent darkness.
+
+This is not ordinary night. A deep ceiling of cloud, heavy with soot and condensed mineral vapor, encloses the plateau from horizon to horizon. It admits no moon, stars, or daylight. Occasionally some far-off agitation passes through the upper cloud and its underside pales—not into illumination, but into a dim differentiation of blacks. Distance remains invisible. The landscape is known instead by pressure, echo, warmth, vibration, and the scattered emissions of living things and machines.
+
+Water is everywhere without quite becoming a sea. It films the basalt, trembles in moss, fills old extraction trenches, and moves beneath thin crusts of soil. Warm rain comes often: coarse, vertical rain that drums for hours, then ceases all at once while the rocks continue weeping. Condensation gathers on every cool surface. Ridges comb moisture out of the moving air and feed it downward through braided cataracts. In the deeper basins lie marshes so extensive that their internal weather differs from that of the uplands. Fog rises warm from them, presses against the cloud roof, and returns as rain.
+
+The ground underfoot alternates between sponge and iron. There are terraces of ancient lava worn into shallow bowls; mats of black-rooted vegetation stretched across hidden water; gravel bars made from pale industrial slag; and slick pavements whose grooves were cut by vehicles no longer operating. Water close beneath the surface gives the earth a subtle mobility. A heavy step can set pools quivering twenty meters away. In some places whole meadows rise and subside with underground surges.
+
+Vegetation grows densely, though it is seldom green.
+
+Without sun, most of it lives from chemical gradients, geothermal warmth, symbiotic bacteria, and the waste heat of old industry. Rope-thick vines descend into fissures where warm gases escape. Their skins are matte and dark, but their cut ends shine with dull blue enzymes. Broad fungal fans overlap on stone faces like roof tiles. Reed forests crowd drainage channels, their hollow stalks tall enough to vanish into fog; they harvest static charge from rain and release it through their roots in faint, snapping pulses.
+
+Across the warmer flats grow low thickets of bladder-leaves, swollen with captured methane. They knock together in the wind with the sound of wet leather. Around vents, mineral trees build themselves slowly from metal salts drawn through living membranes. Their trunks are rust-red, manganese-black, or chalk-white. They branch according to prevailing currents rather than light, and their crowns trail downwind in heavy crystalline tassels.
+
+Decay is rapid but incomplete. Fallen growth does not disappear so much as change allegiance. Mold crusts it, bacteria hollow it, mineral seepage petrifies it, and new organisms inhabit the cast. The ground is layered with generations: living mat over fungal felt over root-bound peat over corroded machine decking over older marsh. Density here is vertical as much as horizontal. Every surface supports another surface. Every cavity is occupied.
+
+The plateau’s industrial works are scattered rather than urban. There are no continuous cities, only installations separated by vast tracts of marsh and weathered wilderness: pumping stations on stone islands, refinery towers rising alone from reed seas, buried conduits humming under bogs, immense wheelhouses built into waterfalls. Some remain active. Others have become ecological organs whose original purpose is uncertain.
+
+A compressor station may spend three days drawing marsh gas, then wake with a continent-shaking concussion and force it into a pipeline toward an unseen destination. An isolated gantry may traverse its rail once each year, carrying an empty hook across a ravine. Deep shafts breathe in sequence. Sluice gates open when underground reservoirs reach a particular pressure, releasing warm floods through valleys that have evolved around the schedule. What looks abandoned may merely operate on a timescale longer than observation.
+
+There is electricity, but little light. Power travels as vibration, current, heat, and magnetic field. Cables as thick as trees lie in the waterways, their insulation furred with feeding organisms. Transmission pylons stand far apart on the high ridges. They do not glow; they moan. During heavy rain they gather charge until dark arcs crawl between their crowns—black lightning perceptible not by sight but by the sudden taste of metal and the violent contraction of nearby muscles.
+
+The machines have weathered into the same balance as the land. Casings are rounded with corrosion. Concrete has become porous stone. Foundations have sunk until floors lie level with marsh water. Roots enter through bolt holes and emerge through exhaust grilles. Yet bearings still turn in sealed chambers below. Pumps maintain pressures no living inhabitant fully understands. The plateau may be natural terrain colonized by industry, or an industrial system old enough to have generated terrain. There is evidence for both.
+
+The sound is immense.
+
+Rain on a million hectares of leaf, water, metal, and hollow stem forms the constant body of it. Beneath that are cataracts, pressure valves, reed-knock, animal calls, turbine harmonics, landslips, and the long seismic speech of buried pipes. The darkness makes every sound seem close until an echo reveals its true scale. A click beside the ear may have originated across a valley. A roar that appears to come from the horizon may be water moving underfoot.
+
+At regular intervals the plateau emits a very low note. Pools stipple. Bladder-leaves tighten. Animals crouch. It begins below hearing and climbs through bone into the chest, remaining for several minutes before descending again. Then, across hundreds of kilometers, valves open and migratory creatures change direction. Whether the note is a signal, an exhaust cycle, or simply the resonance of the plateau’s hollow geology is unknown.
+
+Fauna is abundant and seldom still. Marshes teem with soft-bodied grazers that rasp microbial films from stone. Long-legged waders move through the shallows in groups of thousands, tapping ahead with conductive beaks. Their bodies are blind and pale beneath insulating coats of black filament. When alarmed, a flock produces a synchronized electrical shiver that can be felt through standing water.
+
+In the reed forests live climbing animals with six gripping limbs and broad facial membranes. They map moving objects by sending out bursts of layered sound, each individual occupying a different frequency band. Colonies fill the darkness with interlocking pulses: clicks, whistles, knocks, and mechanical-sounding chirps. Their calls mix with machine telemetry so closely that some stations answer them. Over generations, the animals have incorporated those responses into courtship and navigation.
+
+Larger grazers travel the floating meadows. They are low, wide creatures whose distributed weight allows them to cross mats that would swallow a narrow-footed animal. Fungal gardens grow on their backs, nourished by body heat and rain. Small hunters nest in those gardens. Parasites carry luminescence, but shield it beneath folded tissue; visible light attracts deep-water predators, and exposure is dangerous.
+
+The apex animals are known mostly by absences. Sound vanishes ahead of them. Reed colonies retract their resonant chambers. Machinery may suspend nonessential cycles as if conserving silence. Afterward there are furrows through the marsh, severed cables, and occasionally the flattened impression of something immense resting beside a warm pipeline. Some appear to follow industrial heat routes across the continent. Others may be maintenance organisms, or descendants of them.
+
+Nothing here uses vision as its primary sense. Darkness is not a deficit but a fundamental condition, as ordinary as gravity. Organisms perceive heat wakes, electrical fields, chemical plumes, pressure shadows, and minute changes in echo. Many have no eyes. Those that do possess organs called eyes by analogy only: pits containing magnetic fluids, membranes sensitive to radiation from warm stone, rows of pores that read the turbulence left by passing bodies.
+
+Consequently, concealment follows unfamiliar rules. To hide, one must cool the skin, still the breath, damp vibration, discharge static, and stand downstream of a stronger scent. A motionless object can be conspicuous for hours through its thermal outline. A loud object may be hidden inside rain. Distance is measured not in what can be seen but in delays: three heartbeats to the cliff, twelve to the far reed wall, too long to return from the open basin.
+
+Travelers follow soundmarks. Small structures stand along the old raised roads—half shelter, half instrument. Each contains tuned plates, dripping reservoirs, tensioned cables, or steam reeds. Wind and water make them announce their locations continuously. Some produce simple tones; others speak complex patterns indicating flood level, ground stability, or the presence of large fauna. Lichen and corrosion alter their voices over decades, so maps must be learned as melodies that gradually drift.
+
+Human or humanlike habitation, where it persists, is dispersed. Settlements cling to pump islands and the upper stories of solitary plants. Rooms are narrow, heavily insulated, and warm. Exterior walls carry tactile diagrams instead of signs. Doors identify themselves by rhythm. No window is necessary. Waste heat is fed into communal fungal beds; potable water condenses on buried metal fins. Power is abundant in places and wholly absent a few kilometers away.
+
+The inhabitants do not illuminate their paths. Flame is unstable in the damp air, and strong light can summon airborne swarms from extraordinary distances. Instead, they carry clicking staffs, thermal stones, electrostatic veils, and small devices that whisper the shape of the terrain into the jawbone. When repairs require open radiance, thick shutters are erected around the work site. Even then, things gather outside the enclosure and wait.
+
+The highlands are warm, but temperature varies in muscular bands. A traveler may cross from steaming rain into a river of cold descending from the cloud roof, then into the breath of a buried reactor. Heat itself has topography. Animals migrate along it. Vines lean toward it. Settlements argue over it. On certain ridges, warm ground meets cold saturated air and condensation becomes so violent that water appears to pour directly out of emptiness.
+
+Floods are common but rarely catastrophic. The landscape has practiced receiving them. Marsh mats flex, channels divide, fungal walls open sacrificial pores, and ancient spillways take up their load. Erosion continues everywhere, but slowly, competently. Landslides descend only as far as established hollows. Rivers carry sediment toward basins where dredging machines, still obeying forgotten instructions, lift it back to the uplands. Thus the plateau wears down and is rebuilt, stone by stone, in a cycle that may have kept its general shape for geological ages.
+
+There are stranger districts deeper in.
+
+In one basin, rain falls upward from a black lake to the cloud ceiling whenever the distant low note sounds. In another, all echoes return slightly altered, as though the valley remembers previous noises and cannot repeat only the present one. Certain refinery fields migrate: towers found on one ridge in one generation stand kilometers away in the next, walking imperceptibly on networks of buried pistons. Entire forests grow upon mobile slag beds and travel with them.
+
+Near the continental center is said to lie the Quiet Engine. No one hears it directly. Its existence is inferred from a circular territory where all the plateau’s noise bends away. Rain still falls there, but without impact. Watercourses move without turbulence. Animals entering the region either turn back or lose the ability to call. Around its boundary, sound accumulates into storms.
+
+Whether the engine suppresses noise, consumes it, or uses it as power is disputed. The oldest conduits converge in its direction. So do migration paths, erosion channels, magnetic currents, and the slow lean of mineral trees. The plateau may have formed around that center. The cloud roof may be its exhaust. The warm darkness may be maintained.
+
+Yet most of the country gives no impression of waiting for explanation. It is too occupied for that. Rain advances over the marsh in walls. Herds move aside. Pumps start beneath their feet. Reeds crackle and bow. Water climbs worn steps, spills into ancestral channels, and turns wheels hidden by roots. A predator passes, subtracting voices as it goes. Far off, a lone foundry exhales, and a flock rises from its chimney in a burst of leathery wings.
+
+Then the deep note enters the ground.
+
+Across the vast plateau, living bodies, flooded caverns, corroded towers, root systems, pipelines, and weather answer in their separate registers. The darkness fills not with an image, but with a structure: immense, crowded, warm, and wet; a world perceived all at once through the pressure of its continuing life.

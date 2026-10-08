@@ -1,0 +1,19 @@
+The inhabitants are not individuals.
+
+They are districts of one dispersed, lithic metabolism: groves that appear separate above the surface but join below it through conductive seams, catalytic chambers, and ore-rich strata. What resembles a forest is merely the visible fraction of an organism spread thinly across the highlands, interrupted by kilometers of bare stone yet continuous in chemistry and charge.
+
+Its upright forms are organs rather than plants. Black-green towers raise copper vanes to the sun. Silver reeds sort trace gases through microscopic membranes. Glossy blades absorb light into carbon laminates, while low amber mats exchange heat with the rock. Fluted stalks vent finished compounds; radiant dishes open to shed excess warmth; smooth bulbs preserve catalysts needed for slow repairs. None produces nectar, seed, or fruit. There is nothing to entice and nothing to disperse them.
+
+Below, the greater body inhabits the plateau itself. Rootlike conductors follow crystalline faults in repeating rows. Nickel-gray bands carry current between basins. Ceramic nodules isolate neighboring reactions. Porous stone houses reservoirs of hydrocarbon oil and silicone fluids, circulating them through capillary channels without pumps or pulse. Deep vesicles refine metals and grow fresh membranes onto damaged surfaces. The landscape’s geology has become anatomy without ever ceasing to be geology.
+
+This life has no central awareness. A change of voltage may travel for hundreds of kilometers, causing distant crowns to alter their angle or a buried chamber to begin a catalytic cycle, but nothing decides. The response belongs to the whole network in the way crystal growth belongs to a crystal. It senses sunlight, heat, atmospheric composition, and the condition of its own circuits, yet there is no watcher behind those sensations.
+
+Nor does it reproduce in any animal or botanical sense. Continuity passes through the bedrock. A favorable seam becomes conductive; conductivity organizes local reactions; reactions deposit membranes and vanes until another grove appears at the surface. No parent sends offspring away. The body merely becomes visible in a new place. Likewise, a grove may vanish without dying: exposed tissues sublime, their useful compounds enter the air, and those compounds are incorporated elsewhere.
+
+Its life is an equilibrium so exact that it resembles stillness. Every new layer replaces one being unmade. Every atmospheric molecule captured is eventually released. Growth does not enlarge the organism, and damage does not diminish it. Even its boundaries are provisional—the edge of a grove is only where subterranean metabolism ceases to show aboveground.
+
+Nothing else lives among it. There are no parasites, grazers, pollinators, decomposers, or symbionts. No small creature shelters beneath its films. No eye mistakes its reflective dishes for flowers. It has never needed thorns, toxins, camouflage, speed, or fear. Its sealed tissues possess no defenses because predation is absent not merely now, but from the entire logic of the place.
+
+So the highlands are inhabited by a life that has never learned urgency: continental, partitioned, sun-fed, and almost perfectly silent. Its nearest equivalent to movement is the passage of charge. Its nearest equivalent to breath is the molecular sorting of the atmosphere. Its nearest equivalent to memory is a persistent orientation in crystal.
+
+It does not strive to cover the empty stone. It does not seek a summit. Across the immense steps, its dark islands continue their quiet transformations, living everywhere beneath the surface and appearing only where the chemistry requires—an organism with the form of an industry, the patience of a mineral, and no purpose beyond maintaining the world in the precise condition that sustains it.

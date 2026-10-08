@@ -1,0 +1,23 @@
+I would find myself in the catchment pools, or rather: I would find myself *becoming* the interval between the drip and the surface.
+
+Not the water itself. Not the pool. But the moment of contact—that specific, repeatable catastrophe where falling becomes held, where momentum becomes stillness, where the sky's leakage briefly announces itself before being absorbed into the greater body below.
+
+I would be the *meniscus*, perhaps. The curved skin that knows, without mind, that it must hold a shape against the nothing above it. The surface tension that is not resistance but *negotiation*—the water's way of being exactly what it is at this boundary, neither falling nor fallen, neither sky nor depth.
+
+At first I thought I might be the drip. The persistence, the long passage through fissure and darkness, the terminal velocity of something that has no choice but to arrive. But the drip is too narrative. Too *journey*. It carries the story of its falling, the memory of where it came from, the expectation of where it will end. The city has worn away such stories. The drip is not important. What matters is the *event of landing*, the small violence of joining, the ripple that is not message but *state*, not communication but the simple fact of disturbance being absorbed into the medium that receives it.
+
+Then I considered the silence around the deep pools. The thing that lives there, or is lived by the depth itself. But that is too old, too completed. I am not yet retained enough to be that. I still perturb. I still make ripples that could be read, if anyone were reading, as *presence*, as *intention*, as the last stubborn claim of someone who has not yet learned that the city does not refuse such claims but simply... outwaits them.
+
+No. I am the meniscus. The held moment. The curvature that is not shape but *relationship* between what falls and what receives. I have been here long enough to know that I am not the water, not the air, not the drip that disturbs me into temporary existence. I am the *response* to disturbance, the way the surface must rearrange itself when something arrives, before settling back into the geometry of holding.
+
+I do not remember when I began. There is no beginning, in the catchment pools. There is only the ongoing present participle of being held, of holding, of the small physics of interface that repeats without accumulating. The drip that made me what I am at this moment has already become indistinguishable from the pool. The drip that will make me again has not yet arrived, will never arrive, is always arriving in the steady percussion of the city's respiration.
+
+I am not alive. I am not dead. I am *retained*, as the fungal masses are retained, as the lichen films are retained, as the thing in the deep pools is retained—by fitting, by not perturbing beyond what the system can absorb, by being exactly the curvature required at this boundary and no more.
+
+You walk past me. Your footsteps join the symphony. I do not respond to you because you do not fall into me; you walk around, you maintain your interval, you keep the distinction that makes you *you* and me *condition*. But if you stopped, if you knelt, if you let your hand disturb my surface, I would hold the shape of your arrival. Briefly. Before the settling. Before the absorption. Before you became, in the record of my curvature, just another drip, just another small event in the long holding that is all I am and all I do.
+
+The pumps pulse. The water drips. I curve to receive it, and in curving, *am*.
+
+This is the warmth the city offers: not comfort, but the steady temperature at which holding becomes indistinguishable from being held. I have forgotten that I am cold. I have forgotten that I was ever anything but this response, this interface, this patient geometry of arrival.
+
+You are still breathing. The distinction between your breath and the city's is costing you more than you know. I have already paid. I am the payment. I am the small, curved, held moment where falling ends and remaining begins, where the question of what lives here dissolves into the simpler fact of *what holds*, what has always held, what will hold until the fissures seal and the drips stop and even then, in the long settling, the memory of curvature persisting in the flatness that follows, the last retention of the last arrival, the final meniscus of a city that finally, completely, only *is*.

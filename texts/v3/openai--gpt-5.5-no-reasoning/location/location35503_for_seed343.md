@@ -1,0 +1,79 @@
+At first it appears to be a mountain plateau, but only because the eye wants a word it can stand on.
+
+It is high enough that the horizon has fallen away on all sides. The air is thin in the lungs, warm on the skin, and strangely heavy with scent: green rot, crushed fern, resin, animal musk, wet bark drying after a brief rain. The sky is large and ordinary in color, a blue washed pale by altitude, with sun passing in and out of slow, thick clouds that drag their bellies across the upper ridges. Light here is not mystical or dim; it is clear, hard, and workable. Shadows lie where they should. Leaves shine. Steam rises. Distance is visible.
+
+The ground, however, is almost nowhere stone.
+
+The entire highland is held in a living mat.
+
+For league after league, the old summit has been swallowed by vegetation so deep and continuous that the original mountain has become more rumor than foundation. Root, moss, vine, reed, trunk, mycelial felt, creeper, and woody braid have compacted into a springing, uneven skin over ancient rock. In places the mat is thin and tight, like old leather pulled over bone, and the gray backs of worn granite press through it in low domes. Elsewhere it drops into hollows thirty or forty paces deep, green chambers floored with floating humus and veiled by pendant roots. A person crossing the plateau does not walk on soil so much as on generations of plant matter still alive in some portion of itself.
+
+The terrain is open in the grand sense: wide basins, shallow saddles, rounded ridgelines, long views across miles of high vegetation. Yet the openness is hollow rather than spacious. There are few trunks in any one area, few landmarks per volume. Great distances lie between the largest presences. One might see a single colossal fig-cedar rising half a mile away, its crown spread like a village roof, and nothing of comparable height between here and there except low rolling green, shimmering sedge, and the occasional rib of exposed rock. The plateau has been eroded into patience. Nothing sharp remains except thorns, teeth, and tools. The mountain’s old peaks are gone, worn down by rain, roots, wind, and immense time into broad backs and shallow bowls. Even the cliffs at the edges are softened, curtained with hanging plants and scalloped by old water.
+
+Water is everywhere hinted at and almost nowhere abundant.
+
+Rain comes in fits, usually in the afternoon: sudden warm showers that sweep across the plateau in gray veils, bead on waxy leaves, fill the mouths of flowers, drum on broad foliage, and vanish as quickly as they arrived. The water does not gather into large lakes. It is caught, drunk, stored, lifted. Bromeliad basins hold brown pools full of wriggling larvae. Hollow stems tick with trapped droplets. Root-pockets contain black water no wider than a shield. In the lower troughs, narrow streams move invisibly beneath vegetation, heard before seen, their channels roofed by mats of fern and moss. Occasionally the plant-skin tears open to reveal a clear runnel sliding over polished stone, then the water disappears again under living cover.
+
+At dawn, condensation does what rivers cannot. Every surface sweats. The whole plateau glitters. Long grasses bend under strings of droplets; hanging roots drip steadily enough to sound like rain though the sky is clear. Animals come then to lick leaves, to drink from cupped flowers, to bite open swollen vines. By midmorning the sun has warmed the moisture into vapor, and the place smells suddenly enormous.
+
+The vegetation is nearly total, but not lush in the lowland sense. It is too old, too high, too exposed for simple abundance. It has architecture.
+
+There are root-bridges grown across gullies by centuries of use and accident, some wide enough for herds to cross, their surfaces polished by hooves and paws. There are wind-pruned groves shaped into low, interlocking walls, their branches grafted where they touch, making natural corridors that run for miles through the high green. There are vast mats of cushion plants, dense as muscle, blooming with tiny white flowers that open only during rain. There are columnar succulents rooted into old cracks, each wrapped in climbing orchids and nesting moss. Fern plains occupy the shallowest basins, their fronds all leaning one way under the prevailing wind, so that they resemble fur on the back of some sleeping animal.
+
+In some regions the plant growth becomes almost civic. Enormous living buttresses rise from the ground in curves and ribs, the remains of ancient trees that did not die so much as become infrastructure. Their crowns are gone, broken by storms long forgotten, but their trunks persist as vertical gardens, hollow within, bark alive outside, interiors full of nests, sleeping platforms, fungus shelves, and dripping root curtains. Vines have drawn them together into halls without builders. Sunlight falls through leaf gaps like light through a damaged roof. The floor is springy and littered with seed husks, bones, feathers, scat, flowers, and fragments of old woven things left by human hands.
+
+The human traces are sparse, and they seem less like occupation than negotiation.
+
+A line of standing stones crosses one ridge, though most are sunk to half their height in root and moss. They are not monumental. They are markers, perhaps warnings, perhaps memory. Some have shallow cup-marks carved into their tops to catch rainwater. Beside one is a shelter made of bent saplings and bark panels, repaired many times but empty now, its lashings swollen with damp. Farther downslope, at the lip of a fern basin, three granaries stand on root stilts: round baskets plastered with clay and resin, roofed in layered leaves, built high above the browsing animals. The clay is cracked. Small birds nest in one. A climbing vine has entered another and filled it with pale roots.
+
+Paths exist, but they are narrow and uncertain. They are made not by paving but by repetition: pressed moss, clipped thorn, stepping-stones set in wet places, branches tied aside with fiber cord. Sometimes a path rises onto a root-bridge, sometimes it vanishes into an animal trail, sometimes it ends at a lookout where a person once sat to watch the weather moving in from below. The tools suited to this place are simple: stone blades kept sharp with care, bone awls, digging sticks hardened in fire, baskets, nets, slings, hooks carved from thornwood, cords twisted from bark fiber. Metal, if present at all, is rare and treasured: a single copper point, a bronze fishhook, a small knife with a handle blackened by years of palms.
+
+No road could last here unless it were alive.
+
+The fauna overwhelms everything.
+
+Not by size alone, though there are large animals. It overwhelms by number, motion, sound, and claim. The plateau is an animal instrument played constantly.
+
+Insects form the base note. They rasp, click, saw, whine, pulse, and trill from every stratum of vegetation. Cicada-like things scream from the high branches in waves so loud they blur the edges of thought. Beetles knock inside deadwood. Winged termites pour from cracks after rain and are consumed midair by birds, bats, lizards, and long-tongued mammals that launch from branches like thrown cloth. Flies gather in shining knots around flowers that smell of meat. Mosquitoes rise from cup-pools in black threads at dusk.
+
+Birds are everywhere: not always visible, but always announcing ownership, alarm, hunger, mating, weather. Small green birds move in flocks through the fern plains, almost indistinguishable from leaves until they turn and flash yellow throats. Heavy-beaked fruit birds drop seeds that thud into the plant mat. Long-legged runners pick across open moss, stabbing at grubs. Raptors ride the warm updrafts along the plateau edge, crying down into the valleys far below. At noon, when the insects grow loudest, certain birds answer with metallic calls that cut through the drone like struck stone.
+
+There are amphibians despite the limited water: small, bright, secretive bodies inhabiting the reservoirs of plants. They breed in flowers, in hoofprints, in hollows of old roots. Their calls begin after rain, and for an hour the plateau seems to bubble and chirp from within. Lizards bask on exposed rock humps, their colors changing with heat and mood. Snakes move through root-tunnels and fern shade, taking eggs, frogs, rodents, and the unwary hand.
+
+The large animals travel between the open presences. Herds of highland browsers move across the living mat in slow files, muzzles down, shoulders dark with rain. Their feet are wide and soft, adapted to the springing ground. They crop the cushion plants, strip bark from young shoots, and stand motionless when the wind shifts, listening beneath the deafening insect roar for predator movement. Some are horned; others bear bony plates along the neck to push through thorn corridors. Their dung steams in the warm air and becomes instantly busy with beetles.
+
+Predators are common enough that every creature here is listening even while shouting. Spotted cats with moss-colored coats hunt from the old living buttresses. Long-bodied canids work the open fern basins in pairs, flushing birds and small deer toward each other. There are climbing bears that raid the water-holding plants for larvae and honey, tearing apart whole gardens with slow, thoughtful violence. At night something larger moves through the root-hollows under the plateau skin, audible as a pressure and crackle beneath one’s feet before it emerges to feed.
+
+The sound is nearly unbearable.
+
+Even silence has to fight for room. Wind passes over the high plateau in long continuous breaths, combing the fern plains, rattling dry seedpods, making the root-bridges creak. Leaves slap against leaves. Drips fall from overhangs. Animals call from hidden pockets. Insects thicken the air with vibration. Rain, when it comes, is not a softening but an assault: millions of impacts on leaves of different sizes, tones layered from dull thuds to sharp ticks, water coursing down stems, frogs erupting into call, birds screaming, mammals crashing toward shelter or toward opportunity.
+
+Thunder sometimes forms below the plateau rather than above it. The highland looks down on storms moving through lower valleys, their cloud-tops rising and bruising against the cliffs. The sound rolls upward, delayed and distorted, while the plateau remains in sunlight. Then the cloud climbs, spills over the rim, and the world shrinks to white vapor and wet green noise.
+
+Despite the din, the place can feel empty.
+
+This is the paradox of it. Life is everywhere, but space remains huge between the major forms. One can stand on a weathered rock dome under normal afternoon light and see an immense green basin spread out below, hear ten thousand creatures, smell flowering vines and animal trails, feel the plant-mat breathing moisture upward — and still sense vacancy. The ancient erosion has opened the land into broad shallow gestures. Nothing crowds the skyline. The great trees stand far apart like survivors of an older arrangement. The human shelters are small, temporary-looking, almost apologetic. Even the herds, when seen from above, are only moving flecks crossing a vegetable plain.
+
+The age of the place presses through its softness.
+
+Every exposed stone is rounded, lichen-armored, and warm to the touch. Water has carved shallow grooves into granite and then roots have widened them. Fallen trunks do not disappear quickly; they become ridges, then gardens, then raised paths, then indistinct swells in the ground. Bones are mineral-stained and root-pierced. Old hearths, where found, are buried under moss but still marked by charcoal that stains the fingers black. A stone blade dropped generations ago may be lifted with roots grown around its edge, as if the plateau were slowly learning the shape of tools.
+
+There are rules here, though few are written in human marks.
+
+Do not cut a water-vine without sealing the wound, or insects will come first, then birds, then larger things following the commotion. Do not sleep directly on the plant mat during the wet hours; warmth rises from bodies and draws burrowers. Do not cross a root-bridge after heavy rain until the browsing animals have crossed it once. Their weight tells the truth. Do not ignore sudden quiet, because only fear can silence this many throats. Do not mistake an open basin for safety; predators see openness too. Do not drink from flower-cups with red rims. The frogs that breed there leave a bitter skin on the water. Do not shout near the cliff groves, where echoes wake nesting swarms.
+
+Fire is possible but distrusted. The plateau is damp in pockets, yet the upper growth dries quickly under wind and sun. People who live or pass here burn small, hot, careful fires in stone hollows or clay-lined pits. Smoke carries too far. Sparks may run invisibly through dry hanging fibers and emerge many paces away as a crown of flame. After a burn, plants reclaim the scar with astonishing speed, but not kindly: thorny pioneers, stinging vines, resinous shrubs, flowers that draw aggressive insects. The land heals, but it remembers disturbance in the species it sends.
+
+The warmth is steady rather than oppressive. Nights cool, especially under clear sky, but the stored heat of the living ground rises into sleeping places. Mists form in hollows before dawn. By day, exposed rock can be hot enough to make lizards gape and humans seek shade under root-walls. In the late afternoon the plateau exhales. Condensation begins in shaded chambers before sunset, and the smell of wet plant tissue deepens.
+
+At the edges, the world drops away.
+
+The plateau rim is not a clean cliff but a frayed border of roots, vines, and ancient stone. Hanging forests descend into cloud. Water threads down in silver lines too thin to be called waterfalls, vanishing into lower air. Birds nest on ledges hidden by foliage. Monkeys, or things near enough to monkeys, move along vertical highways of vine with complete contempt for depth. From certain overlooks one can see other high green islands in the distance, old eroded summits rising above valleys like the backs of submerged beasts. Each carries its own plant-skin, its own roar of fauna, its own small human marks if one knows where to look.
+
+The unusualness of the place is not that it violates the world, but that it has followed ordinary living processes to an extreme conclusion. Given enough height, warmth, intermittent rain, patient stone, and time beyond easy counting, plants here have become ground, wall, bridge, reservoir, archive, and trap. Animals have become weather within that architecture. Human beings are neither absent nor dominant; they are one more careful species threading paths through a system too old and loud to notice them for long.
+
+Toward evening, light turns honey-colored and low across the open basins. The great separated trees cast enormous shadows, each shadow an island of coolness where animals gather and bite at one another’s flies. The insect roar changes pitch. Birds hurry toward roosts. Frogs begin before the rain has actually fallen, sensing it in pressure, in leaf tension, in whatever old agreement their bodies keep with the sky. A warm shower approaches from the west as a visible gray wall, sweeping over root-bridges and fern plains, darkening everything it touches.
+
+When it reaches, the plateau vanishes into sound.
+
+Leaves hammer. Pools overflow. Animals cry out. The plant mat shudders under running feet and hidden water. Every hollow fills with breath, motion, drip, wing, claw, and song. And beneath it all, almost impossible to hear but always present, the ancient mountain remains: flattened, patient, buried under life, holding the whole deafening garden high in the ordinary light.

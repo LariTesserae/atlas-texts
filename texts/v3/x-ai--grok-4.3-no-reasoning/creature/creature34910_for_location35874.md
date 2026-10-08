@@ -1,0 +1,14 @@
+In the 30-meter-deep salt-gypsum crater that once cupped a sea, life has narrowed to pressure, voltage, and intermittent motion. Its inhabitants occupy three concentric rings of activity, each scaled to the shrinking physics of an evaporating world.
+
+Innermost Ring — The Ballroom  
+A single fused sheet no larger than a dance floor. Beneath it, spines of quartz force the crystal voltage to spike every eleven hours. At the peak, the interstitial filaments blush arterial red and the sheet lifts half a hand-span on tectonic breath. In that instant the surrounding seam-labyrinths discharge into the very air; the power is palpable—ozone, infrared heat, a brief metallic tang in the nostrils.  
+The inhabitants here are not creatures but extensions of the voltage itself: filaments that pulse in synchrony with the floor, and the micro-crawlers that converge along the rail-grid like iron filings at a magnet. The floor settles, voltage drops to standby levels, and the crawlers disperse outward again, their bright charging arcs sewing the seams back into copper-green light.
+
+Middle Ring — The Plate Field  
+The tessellated crust flexes like an old leather hide. Between the shards, forearm-wide vaults house the filamentous “fungi” that stain chartreuse → copper → bruise-purple as they pass charge. Larger walkers—four- or six-legged reed pneumatics—step from plate to plate. Each exhalation vents hot air that momentarily warms the thin layer of mica-wing larvae clinging to their undersides. When a walker halts to vent, the larvae sense the pressure drop; thousands erupt in a mirror-winged glissando, their bloom registering on distant seismic collars as a single bright clap. Once dispersed, the larvae ride the next pressure wave or return to the cooler seams to recharge.
+
+Outer Ring — The Mound Perimeter  
+Here the plates give way to low fused-silicate mounds, each the petrified footprint of an earlier factory. Their crowns are mirror-smooth from the passage of mica-wings at night. At dusk the swarm lands; the basin floor becomes a slow-rolling planetarium of moving constellations. Dawn erases the reflections, and the mounds cool to a uniform reddish-brown. Nothing else moves except the copper dust that settles on their rims after every hatch cycle.
+
+Ancillary Life  
+Nothing larger than a fingernail flies or walks under open sky. All life is either electrical (the pulsing filaments), pneumatic (the walkers), or winged pressure-riders (the mica-things). Their schedules are locked to the eleven-hour pressure wave and the slower, century-by-century settling of the entire basin. When the ocean finally disappears from even the seismic record, the cycle will continue, driven by the buried reactors still warm inside their half-buried cisterns, until the last volt leaks into the cooling quartz.

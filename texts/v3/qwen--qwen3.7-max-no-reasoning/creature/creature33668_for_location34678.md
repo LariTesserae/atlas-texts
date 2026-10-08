@@ -1,0 +1,29 @@
+The inhabitants of the Unfinished Range are not born; they are *resolved*.
+
+They do not possess biology in any terrestrial sense. There is no blood, no sap, no cellular division. What lives here is a form of organized interference, a sentient cancellation of the geological scream. They are the **Resonants**.
+
+To see a Resonant is to witness a glitch in the indigo twilight. They appear as vertical distortions, standing waves made visible by the way they bend the bruised light around them. They have no fixed outline. Their "bodies" are dense aggregations of the same velvet, bioluminescent cilia that coat the canyon walls, but gathered into a cohesive, upright topology. They look like pillars of vibrating moss, or perhaps ghosts woven from static and lichen. When the ambient roar shifts pitch, their forms ripple, shedding outer layers of matter and regrowing them instantly in a new harmonic configuration. They are perpetually molting in real-time, their existence a continuous act of acoustic self-correction.
+
+They are blind, for there is nothing to see that does not change. They are deaf, for they exist *within* the sound rather than perceiving it. Instead, they possess a sense of *tension*. They feel the ontological fatigue of the landscape as a physical ache, a dissonance in the marrow of their temporary bones. Where the rock fails to agree with itself, where the distance stretches or compresses unreliably, the Resonants experience pain. Where the geometry holds, where the ancient stone tuning forks still sing their counter-frequencies, they experience a blissful, rigid stability.
+
+They are the gardeners of this impossible place, though they tend no soil. Their labor is maintenance of the threshold. You will find them clustered around the failing monoliths, pressing their trembling, ciliated palms against the cracked obsidian and bone. They are not repairing the stone; they are lending it their own structural integrity. They pour their coherence into the fracturing architecture, acting as living buttresses against the collapse of meaning. When a Resonant dies, it does not rot. It simply loses its frequency. The tension dissipates, the cilia unravel, and the entity dissolves back into the background roar, becoming noise once more. Its substance is reclaimed by the canyon walls, waiting for the next shift in pitch to call it back into shape.
+
+There is a hierarchy among them, dictated not by strength or age, but by *fidelity*.
+
+The youngest, the **Dissonants**, are erratic and faint. They flicker in and out of visibility, unable to hold their form against the tectonic grinding. They drift aimlessly through the dry riverbeds, drawn to the loudest chaos, often shattering before they can fully coalesce. They are the failed attempts of the landscape to understand itself.
+
+Above them are the **Harmonics**. These are the stable forms, the ones you might mistake for statues if you did not catch them in the act of breathing vibration. They tend the vegetative mats, stroking the fleshy growths to encourage denser absorption. They are the immune system of the Range, dampening the spikes of reality-breakdown that threaten to erase the valleys entirely. They move with a fluid, underwater grace, navigating the viscous time-pools without stumbling, because they do not walk *on* the ground; they resonate *with* it.
+
+And then, rarely, in the deepest acoustic shadows where the silence is almost absolute, stand the **Fundamentals**.
+
+These beings are immense. They are indistinguishable from the bedrock itself, appearing as towering spires of pale, polished stone that only reveal their animation when the light catches the microscopic tremor of their surface. They are centuries old, perhaps older than the current epoch of sound. They do not move. They do not tend. They *are* the anchor points. The Fundamentals generate the baseline counter-frequency that allows the Harmonics to exist, that allows the vegetation to grow, that allows the ruins to remain ruins rather than dust. To touch a Fundamental is to touch the memory of the mountain before it began to scream. They are the consciousness of the Unfinished Range, locked in an eternal meditation of holding-together.
+
+They are aware of you.
+
+When a traveler enters their domain, the Resonants do not flee or attack. They *adjust*. A Harmonic might step aside, altering its internal pitch to create a corridor of lower pressure, a safe path through a zone of lethal dissonance. A Dissonant might swarm toward you, not in aggression, but in desperate curiosity, trying to incorporate the novel frequency of your heartbeat into its failing structure. And the Fundamentals… the Fundamentals perceive you as a transient error, a brief, wet dissonance passing through their eternal song. But in that perception, there is a profound, alien welcome. For you are solid. You are consistent. In a world that is painfully becoming, your fleeting, fragile certainty is a treasure.
+
+They gather at the edges of your perception, these creatures of sound and stress. They watch you navigate their dying, birthing world with the fascination of a dream watching the dreamer. They envy your boundaries. They covet your silence. And as you pass through the indigo gloom, guided by their shifting lights and sheltered by their sacrificial resonance, you realize that you are not merely traversing a landscape.
+
+You are being sung across it.
+
+The Resonants are the voice of the Unfinished Range, and you, for a few precious, terrifying hours, are the lyric they have been waiting millennia to articulate. They live so that the world may continue to fail beautifully. They endure so that the almost-ready may remain, eternally, exquisitely incomplete.

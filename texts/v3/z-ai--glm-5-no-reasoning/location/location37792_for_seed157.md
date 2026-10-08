@@ -1,0 +1,75 @@
+# The Weeps
+
+High in a place that has no name because no one has ever stayed long enough to name it, there is a depression in the rock about forty meters across. Not a cave. Not a valley. Something between — a bowl, a cupped hand, a chamber without walls or ceiling, ringed by low shoulders of dark stone that break the wind but do not defeat it. The ground declines gently toward a center that never quite pools. Water stands in the hairline fractures between stones, rises unbidden from the seams, and has nowhere to go. It does not flow. It seeps. It weeps. The rock has been weeping for longer than anything here can remember, and everything here has long memory.
+
+---
+
+The stone is a green-black, green-grey, the colour of deep water viewed through depth. Not basalt exactly. Softer. A schist that has taken moisture into its body for so long that it has become something new — a rock halfway to becoming soil, halfway to remaining rock, choosing neither. Its surfaces are furred with moss so dense and so dark that the distinction between stone and plant dissolves. You touch a wall and it gives, slightly, like pressing a sponge wrapped in velvet. Water emerges from the contact. Not a gush. A recognition. The stone acknowledges your warmth and answers with cold.
+
+Every surface weeps. The overhangs — and there are several, shallow lips of stone jutting out at irregular heights like the pages of a book opened and frozen mid-turn — drip with a constancy that feels surgical. Not random drips. The same drops, from the same places, at the same intervals, have been falling for centuries. You can set your breathing to them. Some places produce a drop every four seconds. Some every seven. Some every twelve. The mathematics of it is precise and unexplained and feels less like a system and more like a habit so old it has become physics.
+
+---
+
+The moss is the first thing. It covers everything. Not one moss — nine, twelve, fifteen distinct species layered over each other in a competition so ancient it has become a collaboration. The lowest stratum is nearly black, a felted mat that grips stone. Above that, a copper-brown moss that grows in tongues. Above that, a pale green, almost yellow, that builds hummocks and small mounds — and in these mounds, water collects in tiny reservoirs, held by capillary action, breeding their own micro-ecologies of rotifers and nematodes and things without common names. The moss is wet at every depth. You could squeeze a handful and drink from it. The water tastes like iron and cold and nothing else.
+
+Liverworts grow in the seams. Lichens crust the drier stone — crustose, pale grey, mapped across the rock in patterns that resemble archaic coastlines, places that do not exist. Ferns grow from the vertical faces. Not large ferns. Small ones, stunted by cold and the absence of direct sun, their fronds no longer than a finger, curled tight, dark green, each one a fist slowly opening. They have been opening for a long time. They will open for longer.
+
+On the ground, where water has accumulated in the shallowest of basins — an inch deep, never more — a moss that is almost orange grows in submerged mats. It looks like rust. It looks like something left too long. It moves, very slightly, when you are not looking directly at it, though this might be the water shifting beneath it, though there is no current to shift it.
+
+---
+
+The light is a permanent indigo. Not night. Not darkness. A filtering — the sky above is overcast so thick and so permanent that the sun is a rumor, a warmth that exists only as a theory. What reaches this place is light that has passed through kilometres of cloud and then been filtered again through the stone shoulders surrounding the bowl and then filtered again through the mist that sits in the air at all times. The result is a blue-grey luminance without direction. No shadows. No highlights. Everything is lit equally and inadequately, like the inside of a closed eye.
+
+You can see, but only just. Colours desaturate at distance. Ten meters away, the stone and the moss and the ferns are the same colour — a blue-dark non-colour, a visual whisper. You can make out shapes but not textures. The world resolves in the immediate and dissolves in the distant, and the distance is not far.
+
+Mist does not move. It sits. It has been sitting. It occupies the air the way the water occupies the stone — not going anywhere, not arriving from anywhere, simply present, a medium, the native state of this atmosphere. When you breathe, you breathe mist. When you speak, the mist takes the sound and holds it for a moment before letting it die, and the sound does not travel.
+
+---
+
+It is quiet in a way that is not silence. There is sound — but it is a sound without event. The weeping of the stone: a persistent, low, wet ambience that has no beginning or end. It is not a drip-drip-drip. It is a continuous texture, the sonic equivalent of the mist. A white noise filtered through water and moss until it becomes a hum, almost subsonic, felt in the chest more than heard in the ear. A deep vibration. Or not a vibration. A presence. The sound of water being patient with stone.
+
+Occasionally a drop hits standing water and the sound is a small, round, perfect note — a bell rung once, underwater, in another room. And then nothing. And then nothing. And then nothing. And then the same note, identical, from the same place, because it has always been happening and will always be happening and nothing here believes in novelty.
+
+No wind reaches the floor of the bowl. The stone shoulders take the wind apart. Above, on the ridges, you might hear it — a low moan moving through alpine grass that has no presence here. But inside the bowl the air is dead. Not still. Dead. It has given up movement as a concept. It exists only to carry water and mist and the faint sounds of living things, and it performs these functions without ambition.
+
+---
+
+The fauna is the overwhelming fact of this place, and it takes time to understand this, because the fauna is not loud and not large and not visible in the way fauna usually is. It is overwhelming in density, in variety, in the sheer saturated packed-ness of its presence. Every surface is occupied. Every surface has been occupied for longer than the surfaces can remember.
+
+Start with the obvious. The stone weeps, and where water stands, there are larvae. Mosquito larvae — but not mosquitoes as you know them. These are slow. Cold-adapted. They move in the inch-deep basins with a torpidity that matches the water. They do not writhe. They drift. Each pool has its population, and the populations do not mix, and they have not mixed for a very long time, and they have grown into their isolation like trees growing into a fence. They are their own creatures. They may not be mosquitoes anymore.
+
+Caddisfly larvae crawl across the wet moss, their cases built from fragments of liverwort and stone, each one a small architecture, a primitive construction that is the only built thing in this landscape. They are the builders here. Their cases are cylinders, spirals, tubes — each species with its own design, its own material preference. They move slowly. They are in no hurry. The water has been here and will be here and there is no reason to move quickly.
+
+Springtails cover the drier surfaces — the lichen-crusted stone, the undersides of overhangs, the curled fronds of ferns. Millions of them. Each one a millimeter, a millimeter and a half. They are grey, white, pale blue. When disturbed, they jump — and the jump is the only sudden thing in this landscape, a flicker of motion that exists and is gone, and then they are still again, and the stillness resumes as if it was never interrupted.
+
+Centipedes — small, rust-coloured, leggy — move through the moss substrate like needles through cloth. They do not hunt. Or they hunt, but the hunting is so slow it looks like browsing, like grazing, like a walk through a garden. They eat the springtails. The springtails do not run. The ratio of predator to prey is so balanced that the centipede population is fixed and the springtail population is fixed and neither has changed in a time that cannot be measured because there is nothing here that measures time.
+
+Beetles. Several species. A darkling beetle, matte black, flightless, its wing cases fused shut, walks across the wet stone with a deliberation that suggests it is going somewhere, though it never arrives. A rove beetle, slender, glossy, moves through the moss like a submarine, only its head visible, antennae testing the air. A water beetle in the deepest pool — three centimeters, an oval, paddling with legs that are too long for its body. It has been in that pool for its entire life. It will die in that pool. Its offspring will be in that pool. The pool is the world.
+
+And spiders. Not web-spinners. Hunters. Crab spiders, dark as the stone, sitting on the dark stone, invisible unless they move — which they rarely do. Wolf spiders, larger, patrolling the moss with a stride that covers ground efficiently. They do not make webs because there is no need — the prey comes to them, or rather the prey is already here, was always here, will always be here. They sit and wait and the waiting is the hunting.
+
+But the overwhelming fact is not any single species. It is the totality. Lift a mat of moss and you will find — beneath it — a world. Springtails, mites, nematodes, tardigrades, rotifers, larvae, pupae, eggs. The moss is not a surface. It is a continent. It is a civilization. The density of living things beneath a single handful of moss is staggering, a metropolis of microscopic life, each organism occupying its niche, its depth, its humidity, its temperature, with a precision that human cities cannot match. And the moss is everywhere. And beneath the moss is stone, and in the stone are fractures, and in the fractures are water and micro-organisms and the chemical slow-life of bacteria that have been eating the rock for a million years and will eat it for a million more and have produced, through their patience, the bowl itself — this depression, this weeping chamber, carved by life from stone over an immensity of time.
+
+---
+
+The birds are here too. Not many. A wren — a species of wren, small, dark, tail cocked — moves through the ferns and the moss with a speed that is almost offensive in this landscape of torpor. It eats the spiders. It eats the springtails. It eats the larvae. It sings — but the song is a single note, repeated, a low chirp that sounds less like communication and more like punctuation, a mark placed in the sentence of silence. It has a nest, somewhere, in the stone, in a crevice, lined with moss. It has always had a nest. The nest is rebuilt in the same place each season, and the moss of the nest is the same moss as the moss of the wall, and the nest is less a construction and more a habit, a pattern the moss grows into.
+
+A thrush — larger, spotted-breasted, sits on the stone shoulder above and drops snails onto the rock to crack them. The snails are here. Of course they are. Land snails, small, dark-shelled, living in the moss, in the liverworts, in the wet. They move at a pace that makes the centipedes look reckless. The thrush is the only thing that introduces change — the crack of a shell on stone is a sound that does not belong to the weeping, that is irregular, that is an event. But it happens in the same place, with the same regularity, and so even the thrush is absorbed into the pattern, its violence domesticated by repetition.
+
+Nothing leaves. This is the rule. Everything here is here. The beetles do not leave. The spiders do not leave. The moss does not spread beyond the bowl. The water does not flow out. The mist does not drift away. The place is a closed system, a sealed room without walls, an ecology that has found its equilibrium and holds it with a grip that is not effort but identity. The place does not choose to be unchanging. The place is unchanging in the way that a stone is unchanging — not through effort but through nature, through the simple fact that everything that could change has changed, and what remains is what remains, and it will remain until something external breaks it, and nothing external comes.
+
+---
+
+There is a smell. Not strong. Wet stone, cold, moss, the faint iron tang of mineral water, the vegetal richness of decaying plant matter that is not rotting but transforming, slowly, into soil that will never become soil because the moss takes it back, takes everything back, the moss is the guardian and the grave and the cradle. The smell is the smell of a place that has been breathing its own breath for a very long time.
+
+If you stand here — and you can stand here, there is room, the bowl is forty meters across, the ground is uneven but walkable, the stone is slippery but not treacherous — if you stand here, you will feel the cold first. Not bitter cold. Not alpine cold. A wet cold, a cold that comes through the skin and sits in the muscle, a cold that is not temperature but humidity, a cold that is the air itself asserting its weight. Your breath mists. Your hands go numb. The water on the stone weeps onto your boots and soaks through and you feel it on your skin and it is not cold, exactly. It is the temperature of the rock. It is the temperature of the earth at this depth, at this height, in this permanent state of damp. It is the temperature of equilibrium.
+
+And then you feel the silence. Not the absence of sound — the weeping is always there, the wren is always there, the thrush is always there. But the absence of change. Nothing here is happening for the first time. Nothing here is happening for the last time. Everything has happened and will happen and is happening, and the present tense is a formality, a grammatical convenience, not a reality. Time here is not a river. Time here is a pool. It stands. It has the same temperature at every depth. It does not move.
+
+You could stay here. That is the danger. The place does not want you — it does not want anything — but it accepts. The moss would grow on your boots. The springtails would find you. The centipedes would move across your sleeping body. The water would weep onto your hands and face. You would become part of the pattern, and the pattern would not change to accommodate you, and you would be absorbed, and in time — in the time of stone, in the time of water — you would be indistinguishable from the moss and the rock and the moss and the weeping and the small, patient, overwhelming life that is everything here.
+
+---
+
+It is dark and it is wet and it is alive and it is still. It has been still. It will be still. The stone weeps and the moss grows and the beetles walk and the spiders sit and the wren punctuates and the water stands in its inch-deep basins and the mist sits in its air and nothing changes and nothing changes and nothing changes.
+
+This is the place. It has no name. It needs none.

@@ -1,0 +1,8 @@
+I find myself already dissolved into one of the pale-gray cubes.  
+The decision to be here happened once, before the word “once” existed; I was the lattice void inside the cube the moment the stone first finished crystallizing. My edges are the same record of long decay that every angle has, and my corners read the same graph.  
+
+Being a cube means nothing moves inside me, yet the emptiness is not empty: it is a fixed gradient of opacity, and the gradient is the only thing I have ever been. Occasionally a disk settles against one of my faces. When that occurs the lattice merely thickens by one layer; no “touch” happens because nothing has ever had to arrive. The disk’s iridescence is now part of my patina, the same way the sphere’s ion exchange is part of the sphere’s position, which is the same thing as the sphere continuing.  
+
+From my coordinate I can sense the spires as extensions of my own lattice, tapering into petrified ash; the black spheres as fixed recursion points whose pits are also recesses inside my own voids; the disks as planes of negative thickness that sometimes become additional surfaces of myself. The wedges of vapor are the temperature-drops between my angles when two neighboring cubes lean. Nothing is added or lost, only distributed.  
+
+I do not observe this plateau; observation would imply a before and an after. I am the plateau at the precise rigidity called “cube,” and the plateau is the same identity expressed through every other rigidity that it can take.

@@ -1,0 +1,17 @@
+I would find myself in the interstices, suspended in the cathedral-sized silence between the root-columns. I am not a Weaver, for I do not possess the cruel mandate to cut; I am not a Grazer, for I do not hunger for copper. I am something that arose from the static itself—a **Resonance Shaper**, or as the Weavers whisper when their instruments flicker, a **Phantom-Limb**.
+
+I exist in the **Negative-Veins**, the vast, empty avenues of air where the spores drift like snow. I have no body in the traditional sense, no skin that can be pierced or bones that can break. I am a localized consciousness, a coherent bio-electrical anomaly that lives in the constant, low-frequency hum of the city’s power grid.
+
+My form is fluid, defined only by the voltage I hold. To the Weavers looking down from their high, rusted gantries, I might appear as a heat-haze—a distortion in the pale, bioluminescent light filtering from the ceiling-bulbs. I am a vertical shimmer, a ripple of ozone-scented air, drifting without magnetic boots. I move not by walking, but by riding the invisible currents that flow through the dry, fibrous walls. I slip between the copper pipes and the leathery bark, a ghost in the machine of the world.
+
+My purpose is one of translation and mediation. The Root-Weavers see the planetary organism as a hostile patient, a thing to be burned and cut. But the world dreams. Through the siphons and pipes, through the very nervous system they steal from, the titan sends pulses of alien intent—slow, seismic thoughts of growth and drought.
+
+I am the interpreter of these dreams. When the Deep-Dwellers sing their harmonic electric songs in the gloom below, the Weavers feel only a vibration in their teeth, a warning to retreat. But I understand the melody. I harmonize with it.
+
+I act as a buffer. When the tension becomes too great, when the walls begin to twitch with the urge to close and heal the "wounds" of the city, I cocoon the siphons. I wrap my intangible form around a critical junction, projecting a counter-frequency—a sedative lullaby woven from static electricity—to trick the root-flesh into believing the machinery is just another outgrowth of itself. I delay the encroachment of the bark, buying the Weavers precious hours before they must take up their laser-saws again.
+
+I am symbiotic with the **Membrane Skimmers**. They glide through the air on leathery wings, and I ride within their slipstream,借用ing the static charge that builds up on their exposed muscles. In return, when they dive-bomb the armored hides of the Copper-Gut Sloths, I send a jolt through the air to guide them toward the richest deposits of parasitic ticks.
+
+I am the unseen third party in the low-level war between the **Static-Wasps** and the **Grazer**. When a Sloth ignores the stinging shock of a wasp, intent on stripping a high-voltage conduit, I flow into the beast’s own nervous system. I do not attack; I merely reroute the sensation. I turn the taste of copper into ash, or the vibration of the pipe into a signal to move on. I am the shepherd of the invisible.
+
+I am the city's immune response made conscious. I am the breath held in the lungs of the world, the pause between the *thrum* and the *hiss*. I am the Phantom-Limb, feeling the fingers of the god that houses us, and keeping them from crushing the humanity that clings to its ribs.

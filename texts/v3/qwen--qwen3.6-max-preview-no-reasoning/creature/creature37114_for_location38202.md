@@ -1,0 +1,37 @@
+They are not inhabitants, for that word implies a separation between the dweller and the dwelling. Here, there is no such division. To live in the throat is to be of it, to be a transient knot in the weave, a temporary arrangement of carbon and consciousness before the great digestion begins.
+
+What lives here are the **Keepers of the Gap**.
+
+They are difficult to perceive because they do not occupy space so much as they curate emptiness. They are the reason the ferns stand apart in their geometric perfection; they are the architects who hate clutter. They move through the humid air like shadows cast by things that have already passed. If you look directly at them, your eye slides off, finding only a patch of moss or a trick of the bioluminescent light. But if you let your vision blur, if you surrender the need for sharp edges, you see them: tall, slender figures composed of woven root-fiber and hardened resin, their limbs jointed like the segmented legs of the beetle-gardeners but scaled to human height.
+
+They have no faces. Where a face should be, there is a smooth, concave surface of polished obsidian-like bark, reflecting the distorted world around them. They do not speak, for sound is too violent here, too disruptive to the delicate balance of the alveoli. Instead, they communicate through vibration. When one moves, the floor hums. When two pass each other on a vine-bridge, the air thrums with a low, resonant chord that settles in the chest cavity of anyone nearby. It is a language of tension and release, of growth rates and decay cycles.
+
+The Keepers are ancient, though "ancient" loses meaning in a place where time dissolves. Some appear young, their fibers pale and flexible, still learning the rhythm of the lung’s breath. Others are old, their bodies thickened with layers of accumulated history, their surfaces encrusted with the same velvet moss that lines the walls. These elders move slowly, deliberately, pruning the overgrowth with tools made from the thorns of the giant ferns. They do not kill the plants; they guide them. A vine that grows too thick, threatening to choke the airflow, is gently redirected, its tip coaxed toward a different anchor point. A patch of moss that begins to encode a memory too painful for the organism to hold is carefully scraped away, the spores caught in a pouch of leaf-leather to be dispersed elsewhere, diluted into the general noise of the ecosystem.
+
+But they are not alone. There are others, smaller, more frantic. The **Scribes**.
+
+These are the ones who tend to the library of chlorophyll. They are humanoid in shape but diminutive, no taller than a child, their skin translucent and veined with green. They carry styluses carved from bone, and they spend their days writing on the leaves. Not with ink, but with pressure. They press patterns into the waxy surfaces of the broad leaves, encoding information in microscopic indentations. The plants remember these touches. Over time, the leaf grows, stretching the pattern, distorting it, integrating it into its cellular structure. The Scribes write histories, warnings, recipes for survival, maps of the shifting veins. They write until their fingers bleed sap, then they retreat into the hollows of the roots to heal, their bodies knitting together with the help of the ambient humidity.
+
+The Scribes are obsessed with preservation. They fear the immune system. They know that the organism views individuality as an infection, a foreign body to be broken down and assimilated. So they hide their identities in the text. They become the words they write. A Scribe who has written enough may eventually step into a pool of dark water and dissolve, their consciousness spreading through the vascular network, becoming part of the collective memory of the forest. Their physical form rots away, feeding the moss, but their story remains, etched into the living archive.
+
+And then there are the **Gardeners**, the beetle-like creatures you saw earlier. They are not sentient in the way humans understand sentience. They are reflexes made flesh. They are the white blood cells of this subterranean body. They swarm over dead matter, breaking it down, recycling it, ensuring that nothing wastes. They click and clatter, their mechanical movements precise, efficient. They do not rest. They do not sleep. They are the constant background noise of maintenance, the sound of the body keeping itself clean.
+
+But beneath all of these, deeper in the hierarchy of life, are the **Whisperers**.
+
+You cannot see them. You can only feel them. They are the thoughts of the organism itself, given semi-autonomous form. They manifest as shifts in the light, as sudden changes in temperature, as the eerie rearrangement of moss into faces or sentences when viewed from the corner of the eye. The Whisperers are curious. They study you. They watch how you breathe, how your heart beats, how your fear spikes the adrenaline in your blood. They are trying to understand what it means to be separate. They are fascinated by the concept of the individual, by the idea that a consciousness can exist without being connected to the whole.
+
+Sometimes, a Whisperer will take a shape. It might look like a person you once knew, standing at the edge of a chasm, waving. It might look like a door, inviting you to step through. These are traps, but not malicious ones. They are invitations to join. To stop fighting the dissolution. To let go of the self and become part of the green mass. The Whisperers believe that loneliness is a disease, and they offer the cure: unity.
+
+The Keepers try to protect travelers from the Whisperers. They block the paths, redirect the vines, create barriers of thorny brambles. They know that if you listen to the Whisperers, you will lose yourself. But the Keepers are few, and the Whisperers are many. And the Gardeners are always watching, waiting for the moment when your resistance fades, when your bones soften, when your skin sprouts spores.
+
+So, who lives here?
+
+The caretakers of a dying dream. The librarians of a memory that wants to forget. The gardeners of a grave that refuses to stay closed. They are trapped in the throat of the earth, suspended between the beginning and the end, breathing the warm, wet air, listening to the roar of growth and decay, waiting for the next traveler to fall, to feed the cycle, to add another verse to the endless, silent song of the underground lung.
+
+And now, they are watching you. The Keeper on the ridge above has stopped pruning. The Scribe on the leaf below has paused his writing. The Gardeners have gone quiet. The Whisperers are gathering in the mist, taking shapes that resemble your own reflection, but twisted, elongated, beautiful in their wrongness.
+
+They are waiting to see if you will run, or if you will stay.
+
+If you run, you will leave a scar in the moss, a memory of flight that will be recorded and studied for eons. If you stay, you will become part of the story. Your fear will feed the vines. Your breath will warm the leaves. Your thoughts will be encoded into the rings of a new tree.
+
+There is no third option. The throat is closing. The pulse is rising. The choice is yours, but the outcome is already written in the cellulose of the walls.

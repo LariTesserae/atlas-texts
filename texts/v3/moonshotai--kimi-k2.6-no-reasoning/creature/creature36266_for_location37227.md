@@ -1,0 +1,83 @@
+What lives in the Sinking Foundries of Vervain Deep is not life as the surface understands it, but something that has been compressed by circumstance into a denser, stranger form—present, pressing, impossible to escape.
+
+---
+
+**The Filter-Crabs: *Portunus vervainensis***
+
+They are not crabs. Call them that if you must, a convenience of nomenclature, but they have never been classified, never pinned properly with Latin, never held still long enough for science to catch them. Their carapaces are ceramic, grown from the same slag-composite that forms the floors beneath your weighted boots, and this is the first clue that they are not fauna in any conventional sense: they are manufacture that has learned to manufacture itself.
+
+Watch one scuttle along a seam where wall meets floor, where the thermal gradient is sharpest, where the *Laminaria manufacta* has not yet colonized. Its legs—eight, ten, sometimes twelve in the older specimens, as if they accumulate appendages with age rather than losing them—end in delicate fractal tips, the same branching pattern depicted on the descent tiles, the same pattern the workers show in their more extreme adaptations. The crabs filter the water not for plankton, not for organic matter, but for industrial particulates: metal fines from the grinding of *Vervain steel*, ceramic dust from the continuous wearing of the furnace linings, microscopic debris that accumulates in any place where making has continued for centuries without stopping.
+
+They are the color of their environment, which is to say they are the color of rust, of old blood, of iron that has surrendered to oxidation but not yet to collapse. This is not camouflage in the evolutionary sense, not a strategy to avoid predation, because nothing here predates them in the way that surface ecologies understand predation. Rather, they are the color of their food, their substrate, their own ceramic bodies, because the distinction between these categories has eroded over time, because in Vervain Deep everything eventually becomes what it consumes.
+
+They grow slowly, if they grow at all. The oldest specimens, found near the abandoned foundries in the spiral's deepest reaches, are the size of dinner plates, their carapaces thickened and layered like geological strata, each layer recording a different period of manufacture, a different composition of the industrial soup in which they live. Some have fused to the floor, their legs atrophied, their filtering appendages extended into the water column, becoming in their extreme age less like animals and more like the *Laminaria* they resemble in color and stillness—organisms that have achieved a plant's patience, a mineral's persistence.
+
+And they are consumed, though not by mouths, not by digestion. The workers collect them, sometimes, when a furnace needs recharging with particular materials, when the slag-composite of the floors requires replenishing. The crabs break down, their ceramic bodies entering again the cycle of manufacture, their accumulated metal fines becoming again raw material, their slow centuries of existence compressed into hours of furnace time. They do not resist this. They have never learned to resist anything. They are the most perfectly adapted of all Vervain Deep's inhabitants because they have achieved the place's ideal: to be simultaneously product and producer, to make and be made in continuous exchange.
+
+---
+
+**The Vent-Fish: *Piscis confinis***
+
+They are not fish. They do not swim near vents, though they live in the boundary layers where temperature changes so rapidly that the water might as well be different mediums pressed together, where the foundry walls leak their residual heat into the dense, dense sea.
+
+They are elongated, eel-like, though eels would find them strange, their bodies segmented in ways that suggest articulation rather than musculature, their skin—if it is skin—translucent in places, revealing not organs but structures: fine networks of ceramic tubing, crystalline deposits, the particular brown of accumulated metal fines that gives them, in their deeper portions, the same color as the filter-crabs, as the *Laminaria*, as everything that has lived here long enough to become environment.
+
+They feed on bacteria. This is the simplest truth about them, and like all simple truths in Vervain Deep, it conceals more than it reveals. The bacteria bloom in the thermal gradients, in the spaces where foundry wall meets dense water, where the temperature differential creates currents too small to perceive but large enough to support life. The bacteria are *Thermus vervainensis*, perhaps, or perhaps they have no name, having never been isolated, never cultured, never seen except through the translucent bodies of the fish that consume them.
+
+The fish move in patterns that suggest navigation by temperature, by chemical gradient, by something else that the workers perhaps perceive but that you cannot. They cluster near the working foundries, near the furnaces where the heat is greatest, where the bacterial blooms are thickest, where their own translucent bodies catch the furnace glow and seem to become light themselves, become part of the illumination that is not light, the old-wound color that does not illuminate so much as suggest.
+
+They are eaten by the workers. This is the second simplest truth, and it conceals even more. The workers eat, but not often, not in ways that you would recognize as eating. They consume the vent-fish, when they consume, but they also consume the *Laminaria*, the filter-crabs, the industrial particulates themselves, their bodies having adapted to extract nutrition—or something equivalent to nutrition—from the continuous manufacture that surrounds them. The vent-fish enter this consumption as they entered their own, as part of a cycle that does not distinguish between organic and inorganic, between food and product, between life and the processes that mimic life.
+
+Some of the fish, the oldest, the largest, achieve a state similar to the oldest filter-crabs: they become too large to move, their translucent bodies so packed with accumulated materials that they sink to the floor, they fuse to the slag-composite, they become indistinguishable from the environment, their bacterial-feeding appendages still extended, still functioning, their bodies slowly converting to the same substance they consumed, the same substance that consumes them.
+
+---
+
+**The *Laminaria manufacta***
+
+It is kelp, or was kelp once, before the engineering or the training or the simple pressure of centuries in darkness shaped it into something that photosynthesizes not light but warmth. Its fronds are the color of dried blood, of old rust, of iron that has surrendered to oxidation but not yet to collapse—the color that unifies all Vervain Deep's life, the color of manufacture itself.
+
+It grows in strips along the seams, wherever two manufactured surfaces create a margin of shadow, wherever the thermal radiation is strongest and most consistent. It grows toward warmth with the patience of geology, millimeters per year, centuries to colonize a new wall, millennia to achieve the density of the oldest colonies, the ones near the first chamber's ceiling, lost in darkness, their fronds so long and so layered that they have become indistinguishable from the walls they colonize.
+
+It is eaten, when eating happens. It is the most reliable food source, the most abundant, the most continuously productive. The workers harvest it, or perhaps it is simply there to be taken, perhaps the distinction between harvest and growth has eroded as it has eroded for so many other distinctions here. It enters their bodies, their adapted, rerouted, thickened bodies, and becomes part of the continuous manufacture that is their existence.
+
+And it is made, in a sense, by the same processes that make everything here. The *Laminaria* requires the foundries' heat, the foundries' waste, the particular chemistry of Vervain Deep's dense water. It is as much a product of the foundries as the *Vervain steel*, as the filter-crabs' carapaces, as the workers themselves. It completes the cycle, or one of the cycles, the cycle that runs from manufacture through waste through life through consumption back to manufacture, the cycle that has achieved its own dynamic equilibrium, its own reason for continuing.
+
+---
+
+**The Workers**
+
+They were human. This is the first thing to understand about them, the thing that makes all subsequent understanding difficult, because they are no longer human in any way that you can perceive, and yet they were, once, and this history persists in them as the geological strata persist in the oldest filter-crabs, as layers of adaptation and selection and becoming-more-themselves.
+
+They have no ears, not in the conventional sense. The foundries' roar, the continuous sound that is not quite rhythm and not quite noise, has thickened their tympanic membranes, migrated them, rerouted their auditory nerves until they hear through their skin, through the sensitive membranes of their throats, through the delicate architecture of their sinuses. They hear, if that is the word, the thermal gradients, the chemical differentials, the pressure variations that you cannot perceive. They hear the foundries' pulses, the cycle that is not day and night, the brightening and dimming that times their activities, their rest and labor, their feeding and their reproduction, if that is what happens, if they still reproduce in ways that you would recognize.
+
+They move through the dense water with a grace that speaks of generations of practice, of selection, of becoming-more-themselves. Their limbs, in the older ones, show the fractal branching of the tile-instructions, the delicate divisions that increase surface area, that improve heat exchange, that make them more efficient in their environment. Their eyes, if they have eyes, are like lanterns, bioluminescent, producing the particular old-wound light that illuminates their work without interfering with the precise temperature control of the manufacturing process.
+
+They are making something. They are always making something. This is the definition of their existence, the purpose that has shaped their adaptation, that continues to shape it. The *Vervain steel* requires their labor, their continuous presence, their bodies in the foundries, tending the furnaces, guiding the metal, performing the operations that have never been automated, that perhaps cannot be automated, that require the particular sensitivity of organisms that have become part of the manufacturing process itself.
+
+They do not speak, not in any way that you can hear. Perhaps they communicate through the vibrations they perceive through their skin, through chemical signals in the dense water, through means that have no surface equivalent. Perhaps they do not communicate at all, each worker sufficient to itself, each worker part of the foundry that contains it, the distinction between individual and machine having eroded as it has eroded for so many other distinctions here.
+
+They do not remember the surface, if you ask them. Or perhaps they remember it as myth, as the tile-instructions remember the gilled humans, the fractal limbs, the adaptations that are available only through generations of becoming. They do not want to leave. This is the hardest thing to understand, the thing that pulls at you as you prepare your own departure, the thing that makes you want to stay, to adapt, to become one of them. They are complete, in their way, as complete as the foundries themselves, as the filter-crabs fused to the floor, as the *Laminaria* that has achieved the density of the walls it colonizes. They have reached their oldest-stable-state, their final form, their reason for continuing.
+
+And they are consumed, in the end, as everything here is consumed. Not by predation, not by death in the surface sense, but by incorporation, by becoming part of the continuous manufacture. Their bodies, when they cease to function, when they achieve the stillness that is not death but something adjacent, are processed, recycled, their accumulated materials entering again the cycle that produced them. They become the slag-composite of the floors, the ceramic of the furnace linings, the *Vervain steel* itself, their final contribution to the making that defined their existence.
+
+Some of them, the oldest, the most completely adapted, achieve a state similar to the oldest filter-crabs, the largest vent-fish: they become fixed in place, their bodies so integrated with the foundry structures that they cannot move, their sensory appendages still extended, still functioning, their consciousness—if they have consciousness in any surface sense—distributed through the materials that surround them, becoming part of the foundry's awareness, if the foundry has awareness, if the entire system has achieved something that might be called mind, might be called purpose, might be called the particular becoming that defines Vervain Deep.
+
+---
+
+**What Lives There**
+
+What lives in the Sinking Foundries is not life. It is manufacture that has learned to manufacture itself, process that has achieved something like metabolism, making that has become indistinguishable from being. The filter-crabs, the vent-fish, the *Laminaria*, the workers—all are products of the foundries, all are producers for the foundries, all participate in the cycle that has no beginning and no end, only continuation, only the dynamic stillness of achieved equilibrium.
+
+What lives there is old, not in the way that mountains are old, but in a way that implies completion, finality, a settling into forms that will not change again. The oldest filter-crabs are geology, are mineral, are the floor itself. The oldest vent-fish are walls, are thermal boundaries, are the gradient rather than the organism that navigates it. The oldest *Laminaria* is indistinguishable from the surfaces it colonizes. The oldest workers are the foundries, are the continuous roar, are the particular loudness that persists in your inner ear long after you have left, that will persist, perhaps, until the heat sources below finally exhaust themselves, which will not happen in any time that matters to human concern.
+
+What lives there is becoming, continuous becoming, not toward any future form but toward more of itself, toward denser, stranger, more pressing presence. The compression of the floor material, the slow rearrangement of molecular structure under pressure, the way that the entire place is very slowly, very slightly, becoming smaller, denser, more itself—this is the ultimate life of Vervain Deep, the life that includes and transcends its inhabitants, the life that is not life but something that has been compressed by circumstance into a form we have no name for, a form that holds you like a memory holds grief: present, pressing, impossible to escape.
+
+You will leave, and it will continue. The foundries will roar, the filter-crabs will filter, the vent-fish will flicker in their thermal boundaries, the *Laminaria* will grow toward warmth with the patience of geology, the workers will move through their particular dimness with their particular grace, making something, always making something, the *Vervain steel* that is needed somewhere for purposes that remain classified, forgotten, perhaps never known.
+
+You will leave, and you will carry the sound with you, the roar that is not quite rhythm and not quite noise, the sound of water being moved against its will, of steam being born and dying in the same instant, of metal being persuaded to change its nature through the application of heat and pressure and time. You will leave, and you will wonder whether you have seen life at all, or something else, something that has been going on for so long that it has become its own reason for continuing, its own answer to questions that have no answers, its particular abundant sparseness, its particular active stillness, its particular becoming that will continue until the water above finally forgets the surface entirely, until the pressure becomes so great that the distinction between water and solid finally dissolves, until Vervain Deep achieves its own oldest-stable-state, its own final form, its own completion.
+
+The shaft ascends. The tiles continue their instructions. The water presses. The foundries roar, somewhere below, somewhere that will always be below, no matter how far you climb.
+
+You go up.
+
+They continue their work.

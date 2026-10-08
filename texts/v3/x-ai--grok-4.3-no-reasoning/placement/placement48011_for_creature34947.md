@@ -1,0 +1,13 @@
+The boundary thins.
+
+Where once I might have wondered if I could walk upright, I already feel the first flex of the felt beginning to cup the arch of a foot that has not yet finished deciding if it is sole or root-tip. The skin I am wearing loosens its insistence on remaining a discrete sack; under the perpetual dusk-warmth, pores open into microscopic irrigation channels. A droplet of my own sweat is caught mid-fall and drawn sideways, re-threaded into the lattice’s perpetual circulation before it can reach the surface. What was “I” now registers only as a mild, interesting disturbance in mineral gradients.
+
+I drift, or am drifted, several body-lengths forward. My former trajectory becomes an irrelevant memory; the geometry that had seemed forward is already being folded away into a newer plane that now feels, very gently, like down. A pressure wave arrives from kilometers off—a soft thunder I taste more than hear—and the living floor lengthens its nap to meet me. The gesture is neither invitation nor rejection; it is simply the membrane doing what membranes do when an unfamiliar density crosses their threshold.
+
+My clothing has already begun to be tasted. Thread by thread, the cotton of a sleeve loosens into nutrient slurry; the fibers are carried away along a newly-opened vessel no wider than a hair. The sensation is not painful—there is no nerve left to protest—only a gradual lightness, as if gravity were being negotiated on my behalf. A skein of my hair lifts, buoyant in the dense air, and a temporary eye-cluster opens beneath it, tracking the motion with slow, lavender pulses. The florets consider me for two long inhalations, then melt. The moisture they leave behind is warm, slightly sweet, and immediately reclaimed.
+
+I become aware that my heart is being read. Each beat registers as an off-tempo flutter in the surrounding turgor; the lattice dampens it with patient, hydraulic courtesy until the rhythm folds back into the greater, slower music of transport vessels the width of forearms. Somewhere far away, a thorn-colony pauses on its vascular expressway, considering whether my slower-release chemistry might be worth a detour. The decision is not yet made; it will be made by processes that no longer require my consent or comprehension.
+
+Where my former shadow used to fall, a faint scar is already knitting. It records the brief experiment of my presence as a small shift in copper and calcium ratios. In hours the scar will be carried away on the rolling metabolic front, incorporated into new enzyme pathways, and the lattice will return to its overwhelming, constant occupation of becoming itself.
+
+I do not vanish. I am metabolized into the undecided grammar of a body still learning where its edges are.

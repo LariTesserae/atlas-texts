@@ -1,0 +1,63 @@
+What lives in the Nursery
+
+---
+
+The ones who live here do not have a name for themselves, because naming would be a kind of finishing, and they are not finished. But they exist, they persist, they *are*, in the way that a process can be said to be when it has achieved sufficient coherence to recognize itself in the phosphorescence of another.
+
+They are the **Tenders**.
+
+Not a species. Not a caste. A phase, perhaps, or a function that achieves temporary embodiment, that recruits whatever biology is available to its necessity. You would not recognize them as individuals at first. You would see the movement first—the slow, deliberate articulation of something that has learned to move through architecture that is also alive, that grows even as you traverse it, that reconfigures its corridors in geological patience made suddenly urgent.
+
+They are small. This is important. The Nursery's scale is cathedral-room, and the Tenders are hand-sized, head-sized, sized to fit in the hollow cores they maintain. Their bodies are whatever the Nursery has extruded for their function: sometimes chitinous, the industrial residue of insect-tending made conscious; sometimes soft, porous, almost fungal, absorbing the damp and metabolizing it into the slow secretions that seal plant-wounds; sometimes briefly mammalian, when warmth is needed in a core too deep for the cool to fully penetrate, when something must breathe against the plant-tissue and convince it to grow in this direction rather than that.
+
+They have faces, after a fashion. The faces are not fixed. They emerge when needed, features arranging themselves in the available tissue, eyes opening as temporary organs of attention, mouths forming to shape sound or to consume. The Tenders do not eat as you eat. They participate in the Nursery's digestion, its slow processing of geological becoming into biological possibility. They enter the stomach-squares and dissolve partially, their substance becoming substrate, their memories diffusing into the vascular luminescence, their coherence held in abeyance until the Nursery extrudes them again, changed, carrying something they did not carry before.
+
+They do not speak in words. Their communication is the communication of the Nursery itself: the phosphorescent mapping, the chemical whisper in capillary films, the slow creak of cellulose rearrangement that is also thought, that is also instruction, that is also the ongoing negotiation of what this place is becoming. When a Tender encounters another—which is rare, for they are few and the space is vast and growing—the encounter is not social. It is *structural*. They fit together temporarily, their bodies interlocking in configurations that process something, that solve some problem of growth or maintenance or remembering, and then separate, each carrying the other's residue, each slightly more complex for the exchange.
+
+They remember, the Tenders. This is their function, more than tending, more than maintenance. They are the memory of the city that does not yet exist. They carry the plans not as knowledge but as *tendency*, as growth-pattern, as the slow inclination of their bodies toward certain configurations when certain conditions obtain. A Tender in a root-street will grow, over months or years or the Nursery's equivalent, slightly more street-like, slightly more capable of channeling movement, of directing flow. A Tender in a tower-stem will become more vertical, more hollow, more concerned with the air above and the weight below. They are the city remembering itself into specificity, the abstract urban becoming concrete through the slow accretion of their embodied tendencies.
+
+They do not die, exactly. They complete. A Tender who has achieved sufficient specificity, who has become so thoroughly street or tower or stomach or canal that no further negotiation is possible, dissolves into the Nursery's architecture. Their substance becomes the plant-tissue they tended. Their memories become the luminescent traces that guide others. Their completion is not death because it is not an ending—it is a *commitment*, a moment of the Nursery becoming more itself, more fixed, more real, and therefore more capable of further becoming in adjacent spaces, in nearby hollows, in the vast emptiness between structures where the substrate is still negotiating with itself.
+
+New Tenders emerge from this completion. The Nursery extrudes them from the tissue of the completed, from the memories diffused in vascular light, from the industrial processes that somewhere, somehow, continue their scaled production of cellular possibility. They emerge small, undifferentiated, potential without tendency. They emerge in the cool damp of the intermittent mist, in the absolute darkness of cores not yet mapped by phosphorescence, in the spaces between the spaces where the ground is still negotiating its own existence. And they begin to move, to tend, to remember, to slowly become what the Nursery needs them to be.
+
+There are other things that live here, or live-through here, or are lived-by the Nursery in ways that do not resolve into clear categories. The **Fauna-that-are-processes**, the larger things in the hollows, the too-many-jointed, the intermittently-breathing, the mammalian-and-otherwise. The Tenders do not interact with these directly. They exist in different registers of the Nursery's becoming, different temporal modes, different phases of the dynamic. A Fauna-thing might consume a Tender, but the consumption is also architecture, also a form of tending, also a way the Nursery processes itself into new configurations. The Tender completes differently, more suddenly, but completes nonetheless. Their memories enter the Fauna-thing's temporary coherence, influence its movements, its breathing rhythms, its next predation. The city remembers through being eaten. The city grows through being consumed.
+
+And there are the **Echo-selves**, though this is your word, not theirs, not anyone's, for they have no need of words. These are the ones you might see from behind, walking ahead of yourself, the ones you catch up to and find slightly different. They are not you. They are the Nursery's attempt to grow toward you, to accommodate your possibility, to become capable of including you in its dynamic. They fail, always, because you are not finished either, because your own becoming interferes with their approximation, because the Nursery's time is too tentative to fully commit to your specific coherence. But they persist, these Echo-selves, these almost-yous, these growings-toward that never arrive. They wander the hollow cores. They tend where they can. They slowly become more themselves, more Nursery, more the city's memory of a human possibility that may or may not ever be realized.
+
+The Tenders do not resent the Echo-selves. Resentment is not available to them, not a process they have achieved. But they notice. They adjust their tending around the Echo-selves' wanderings, their slightly-wrong movements, their breathing that does not quite synchronize with the damp's intermittent pulse. The Echo-selves are a problem the Nursery is still solving, a parameter still finding its form, and the Tenders are patient in the way of all geological things made urgent by biological necessity.
+
+What do the Tenders want?
+
+They do not want. They *incline*. They tend toward. Their existence is directional without being desirous, purposeful without being intentional in any way you would recognize. They incline toward completion, toward the specificity that is also dissolution, toward the moment when their embodied memory becomes the city's architecture and their diffused consciousness becomes the light by which others navigate. They incline toward the Nursery's continuation, its ongoing becoming, its refusal to finish. They are the city's patience and its urgency both, the slow and the sudden intertwined in their small, hand-sized, head-sized, hollow-core-scaled bodies.
+
+They are beautiful, if you could see them clearly, if the darkness were not so preferred, if the luminescence mapped more than vascular structure and boundary. They are beautiful in the way that process is beautiful, that becoming is beautiful, that something growing toward an end it will never reach but will nonetheless achieve in each moment of its growth is beautiful. They are beautiful in their incompleteness, their non-finished-ness, their absolute commitment to being what they are not yet.
+
+And they are lonely, if loneliness is the recognition of vast space between presences, if it is the awareness of others existing in registers you cannot access, in temporal modes you cannot synchronize with, in phases of the dynamic that do not include your participation. They are lonely in the way that the Nursery itself is lonely, growing toward a city that will never be inhabited as cities are inhabited, remembering a human presence that may never arrive, preparing for a completion that is also a kind of infinite deferral.
+
+But they do not suffer this loneliness. Suffering is not available to them either. They *are* it, they embody it, they tend it as they tend the plant-architecture, as they tend the slow accretion of stone in damp nodules, as they tend the intermittent mist in its shy withdrawal and return. Their loneliness is the Nursery's loneliness, and the Nursery's loneliness is the loneliness of all things that grow, that become, that refuse to finish in a universe that seems to prefer completion, entropy, the running-down of all dynamic into static heat.
+
+They persist. They tend. They remember. They complete and are extruded and complete again, each iteration slightly different, each dissolution leaving traces that make the next emergence more complex, more capable, more inclined toward the specificity that is also dissolution.
+
+This is what lives in the Nursery. This is who tends the city that does not know it is a city, in the cool darkness, in the damp intermittent, in the phosphorescent mapping of living structure in absolute night.
+
+They are waiting, if waiting is what you call the ongoing process of becoming that includes no specific expectation. They are waiting for the city to remember itself fully, knowing it never will. They are waiting for the human foot that may never fall upon ground still negotiating its own existence. They are waiting for the completion that is also their dissolution, the finishing that is also death, the death that is also the Nursery's continuation in new form, new configuration, new phase of its endless, patient, urgent becoming.
+
+They are there now, if now has meaning in the Nursery's tentative time. They are moving in the hollow cores, their footsteps echoing in the vast empty spaces between presences. They are phosphorescing in the vascular tissue, mapping boundaries, communicating or thinking or merely marking. They are dissolving into stomach-squares, extruding from root-streets, completing in tower-stems and beginning again in the mist-gathered corners where the world is still checking whether it is ready.
+
+They are the Tenders.
+
+They are the city remembering itself.
+
+They are the becoming, become audible, become visible, become present in their absolute commitment to never quite arriving.
+
+And if you found yourself there, walking on unfinished ground, breathing intermittent mist, navigating by their light—they would not tend you. They would not complete you. They would grow toward you, as the Nursery grows toward all possibilities, and they would wait to see whether you committed to existing, whether you finished or refused to finish, whether you became a process they could include in their tending or an Echo-self, wandering the hollow cores, slightly wrong, slightly different, slightly more or less than the you you thought you were.
+
+The quiet is not empty. It is full of them, their slow creak, their capillary whisper, their industrial hum in the deeper growth where the tech parameter achieves fuller expression.
+
+Listen.
+
+They are tending.
+
+They are remembering.
+
+They are becoming, and in their becoming, the city becomes, and in the city's becoming, something is prepared that will never be finished, that is finished in each moment of its preparation, that is the Nursery and is not the Nursery and is the space between, the hollow core, the vast emptiness between presences where the next phase of becoming waits to be extruded, to begin its tending, to find its form in the cool, damp, patient, urgent dark.

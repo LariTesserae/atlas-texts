@@ -1,0 +1,27 @@
+The sky here is not a ceiling, but a bruised, heavy lid of slate-grey cloud, pressing down on the high, worn spine of the world. It is a place where the horizon is a vague promise rather than a line, lost in the mist and the drizzle that never truly stops, merely thins and thickens like the breath of a dying giant. The air is thin and biting—0.5 cold—cutting through the dampness with a knife-edge that chills the marrow, yet the land itself steams.
+
+This is the High Bog, the Old Sweat of the Earth.
+
+To stand here is to stand on the ruin of a mountain range. The elevation is high—2.1—but the erosion is absolute—a 3.0. There are no sharp peaks left, no jagged crags of defiance against time. Instead, the stone has been worn down to a vast, rolling tableland of gravel and conglomerate, flattened by eons of grinding ice and relentless rain. The bedrock doesn't poke through; it has been reduced to a matrix of loose pebbles and coarse grit, a grey ocean of stone that has finally settled into its final, comfortable form.
+
+But it is not dead.
+
+The vegetation rating of 2.7 does not mean a forest in the traditional sense. There are no towering oaks or pines; the wind shears them too high, and the cold rots their roots. Instead, the plant life is a substrate. The ground is a thick, interwoven mat of sphagnum, lichen, and heath—a living carpet that has digested the ancient mountain. You do not walk on stone; you walk on a dense, spongy layer of moss that is meters thick, insulating the permafrost beneath. The rocks are merely tumors beneath the skin of the green. There are no trees, only thick, leathery stands of lichen that stand waist-high, like frozen crowds of grey-green ghosts.
+
+And it is wet. A 2.4 saturation implies that water is not merely present; it is the architect of the place. Every footstep sinks, and water wells up instantly, black and tannic, spilling over the lip of your boot. The ground is weeping. The water near the surface is trapped by the impermeable permafrost, creating a chaotic network of bogs, quagmires, and shallow pools that shift with the weight of a step. The air itself is a condenser; droplets form on your eyelashes, on the hair of your arms, dripping constantly. It is a landscape in a state of perpetual weeping.
+
+Yet, for all this damp silence, the sound is a roar—1.6 loud. It is not the noise of wind or birds, but a low-frequency mechanical thrumming that vibrates in the teeth. It rises from the ground, from the water, from the "veins" of the plateau.
+
+Because the tech level—1.8 industrial—has folded itself into the ecology.
+
+Here, in the sparse density of 0.6, the presences are few and far between, but they are titanic. Dotting the endless, flat expanse of the high bog are the Harrowers. They are not built structures, though they look like factories. They are growths—massive, tubular organisms of iron-rust and chitin that rise from the moss like the smokestacks of a forgotten age. They pulse with a faint, voltaic light, the source of the dim gloom. They are biological engines, inhaling the methane of the bog and exhaling great plumes of superheated steam.
+
+The dynamic here is turbulent—2.8. The landscape is not still. The Harrowers are unstable. Their pressure builds, their casings groan and shriek with the sound of twisting metal. Every few minutes, somewhere on the horizon, one vents. A column of scalding white vapor erupts, the shockwave rippling through the moss, flattening the lichen-crowds in a perfect circle. The water in the nearby pools boils instantly. The hiss of steam meeting the freezing air creates a temporary whiteout, a localized cyclone of fog and boiling water.
+
+The fauna—2.4 abundant—are the scavengers of this industrial-organic nightmare. They are sleek, wet things, shaped like river stones but possessed of too many spindly, jointed legs. They skitter across the surface tension of the boiling pools, immune to the heat. They cluster around the Harrowers, feeding on the sludge that exudes from the pressure-valves. They are the only motion in the vast emptiness, darting between the widely spaced titans, dark silhouettes against the steam.
+
+The weirdness—the reality breakdown of 2.7—lies in the friction. The High Bog is a place where the categories of "machine" and "plant" have eroded as thoroughly as the mountains. As you watch, a cluster of moss near a vent seems to rust, turning into a flaky, red scab that hardens into sheet metal. Conversely, a rusted pipe on a Harrower softens, bulging with green buds that bloom into wet, mechanical flowers, their petals made of stamped steel, their pollen a conductive gold dust.
+
+It is a Solaris-like state of creation and destruction. The land is constantly unmaking itself, the water eroding the stone, the cold freezing the steam, the engines eating the peat, the plants eating the engines. It is high, open, and ancient, but it feels like a wound that refuses to heal, kept open by the endless, churning machinery of life.
+
+You take a step, and the ground shudders—not from your weight, but from a deep, tectonic churning beneath the moss. Somewhere to the north, a Harrower explodes, a dull *crump* that echoes like a heartbeat. A flock of the stone-skinned creatures takes flight, their wings buzzing like copper wires, rising into the dim, drizzly light to scatter over the endless, weeping waste. The air tastes of ozone and rot, and the water at your feet begins to bubble, not with heat, but with the birth of something new that should not be alive, yet is.

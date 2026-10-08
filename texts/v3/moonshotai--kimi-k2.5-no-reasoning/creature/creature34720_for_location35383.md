@@ -1,0 +1,75 @@
+What lives in the Dry House of Keth-Vorath cannot be named with a single noun, cannot be pointed to and identified as *this* creature, *that* inhabitant. The place itself is the primary organism, and what moves within it are organs, symptoms, immune responses—or perhaps dreams the House has about itself, given temporary autonomy. Let me describe what emerges, letting each entity become more itself as the description unfolds.
+
+---
+
+**The Echoes**
+
+Begin with what is seen most frequently, though "frequent" here means rare enough to doubt. The Echoes occupy a strange ontological position: they are *not* reflections, not recordings, not ghosts in any conventional sense. They are *delayed authenticities*—beings that perform your exact movements with the temporal displacement of 7–12 seconds, now lengthening to 9–14, this elongation itself a symptom of the House's ongoing maturation.
+
+Watch an Echo long enough and you notice the imperfections in the replication. The delay varies: your left arm raises, and its left arm raises not quite in rhythm, as if consulting something, as if the instruction must pass through a medium that resists transmission. The Echoes never approach closer than fifteen meters, maintaining this boundary with something like politeness or something like repulsion—it is impossible to tell which. In the lime-light pools they are fully visible, detailed enough to recognize your own clothing, your own gait, your own habitual gesture of touching the wall when nervous. Between pools they do not exist; the brown darkness does not absorb them so much as *not contain* them, as if they are made only of photons the lime-light provides, sustained not by their own substance but by the possibility of being seen.
+
+Yet they have *duration*. They persist when you leave a volume, continuing their delayed performance for observers who come later. They have been found in spaces where no living visitor has yet been, performing movements no one recognizes, suggesting either visitors who passed unknown or movements the House imagines independently. Some theorists argue the Echoes are the House's *memory* of occupation, that the structure cannot hold present experience directly but must process it through this temporal displacement, this folding of action through a medium that slows and preserves. Others suggest they are *recruitment*—that prolonged observation of one's Echo eventually inverts, the observer becoming the observed, the delay collapsing to zero or expanding to infinity, the original and copy exchanging positions without notice.
+
+The Echoes wear, slightly. Recent measurements note fraying at their edges, a certain *looseness* in their replication of fine detail. The House may be tiring of this function, or maturing past it, or the Echoes may be developing their own deviation, their own drift from fidelity that is the first symptom of becoming something else.
+
+---
+
+**The Filters**
+
+More substantial, more obscure. The Filters occupy their appointed volumes with the fixity of organs, the same spaces across all surveys despite the House's general instability. They appear as *densities in the brown darkness*—not shapes but *shadows cast by no object*, regions where darkness achieves a second degree, where the eye reports "something here" without supplying any feature to identify.
+
+Their movement: documented only peripherally, never directly. Face a Filter and it is static, perhaps architectural, a slight irregularity in the young sharp surfaces that could be a natural consequence of the House's precipitated birth. Turn away and peripheral vision catches *extension*, *rotation*, *sorting*—appendages that emerge from the density, that operate on the golden spore-drifts with the methodical patience of baleen whales processing krill, though the analogy fails because nothing here is aqueous, and the spores are not alive in any recognized sense, and the Filters themselves may not be alive either.
+
+What do they filter *for*? The sorted spores accumulate differently after Filter passage: some regions show *clean* surfaces, the golden drifts removed entirely, while others show *concentrated* deposits, spores packed to the density of felt, their almost-meaningful geometric patterns forced into contact that produces new, more complex, still-more-almost-meaningful arrangements. The Filters may be the House's *reading* apparatus, its mechanism for processing the *lichenous approximations* that grow in the upper volumes, that suggest writing. They may be digestive, excretory, cognitive—categories that collapse together in this non-aqueous chemistry where metabolism and signification might be the same process described at different scales.
+
+They do not respond to other presences. Or rather: they respond without recognition, continuing their sorting regardless of proximity, regardless of the observer's attempts to interact. Some visitors have placed themselves directly in Filter paths, have allowed the appendages to pass through their own volumes, reporting *cold* and *displacement* and a temporary *loss of coherence* in their own boundaries—the sense of being not solid but *porous*, permeable to whatever criteria the Filters apply. Recovery takes hours, or days, or in one documented case, the visitor was never again found in their original form, appearing instead as an Echo with an anomalously short delay of 2–3 seconds, their movements recognizable but *wrong*, as if filtered.
+
+---
+
+**The Click**
+
+The most common animal, if animal it is. Single sharp cracks, sourceless, unpredictable. The correlation with nothing measurable does not mean absence of cause, only that the cause operates in registers the instruments do not access.
+
+But attend to the *feeling* of the Click. Not the sound itself—the sound is merely percussion, merely abrupt termination of the silence's held breath—but the *after-feeling*, the space the Click opens in the negative pressure against your eardrums. The silence rushes to heal this wound, and in its rushing, something is *disclosed*. For a fraction of a second after the Click, the House feels *aware*. Not conscious in any anthropomorphic sense, but *attentive* in the way a spider's web is attentive to vibration, in the way a retina is attentive to photon impact. The Click is the House's *noticing*, and what it notices is *you*.
+
+Or so it feels. The Click clusters—four in one hour, then silence, then two simultaneously from opposite directions—suggest a scanning pattern, a sampling of attention across volumes too large to maintain continuous surveillance. The recent clustering coincides with other maturations: the Echo delay's lengthening, the spherical volumes' elongation, the corridor kinks' reversal. Perhaps the Click is the House's *growth pain*, its version of the cracking joints of adolescence, or perhaps the clustering indicates intensified interest in something the House is approaching, some threshold in its own becoming that requires more frequent, more distributed attention to its own contents.
+
+Some visitors report *responding* to the Click with their own sound, a cough or footfall or deliberate clap, and in these cases the silence's healing takes longer, the negative pressure seems to *wait*, as if something has been paused mid-process, as if the House is holding its breath longer to determine whether this return-violation requires processing. No pattern to this response has been established. The House may be learning to *converse*, or may be learning to *punish*, or may simply be accumulating data toward functions no visitor can yet imagine.
+
+---
+
+**The Low Hunter**
+
+In the lowest volumes, where brown darkness achieves maximum depth and lime-light pools thin to mere suggestion, something *moves*, something *wears down* the young sharp edges to curves in corridors showing no other traffic, something leaves faint phosphorescence as residue, as *trail*, as *claim*.
+
+Never seen directly. The evidence of passage: smoothed surfaces where no other presence goes, the only wear in a structure otherwise virgin. The phosphorescence: not quite olefin, not quite organic, visible only in absolute darkness as faint suggestion of *greenish*, *wrong*, *recent*. It persists for hours, fading not exponentially but *in steps*, as if something periodically *renews* it, or as if it exists in quantized states of visibility.
+
+What does it hunt? The Filters, perhaps, though no Filter has ever been found disturbed. The spores, though the spore-drifts continue in their accumulations, their interruptions, their re-accumulations. Other visitors, perhaps, those who *stopped*, who were *paused* by the House's un explained rejection, left suspended in volumes that later shifted to exclude them from connectivity. Some of these have been found, *smoothed*, their surfaces worn to curves like the corridor edges, their phosphorescence more intense, more enduring, as if something in them has been *concentrated*, *processed*, made useful for whatever the Low Hunter requires.
+
+The hunter's own substance, inferred from the phosphorescence's quality, from the wear patterns' physics, from the *silence* of its movement: dense, perhaps *compressed*, matter collapsed to states more typical of neutron star surfaces than biological forms. It may not be alive in the carbon-based sense, may instead be something *precipitated* from the same conditions that produced the House itself, a secondary emergence, a predator-function necessary to any ecology that includes abundance and transformation. The House processes; the Low Hunter *selects*, *refines*, *removes the failed or the paused or the obsolete*. It is the House's immune response, or its aesthetic judgment, or simply *appetite* directed toward the only available nutrition in this non-aqueous realm: the *information content* of suspended visitors, the *difference* they represent from the House's own self-composition.
+
+---
+
+**The Throat**
+
+Not alive, yet the most animate feature. The vertical shaft of uncertain depth, three meters diameter, cutting through ceiling membranes like compressed dehydrated pages. The lime-light's source, the only exit, the place where visitors emerge differently than they entered, or emerge elsewhere, or emerge *as Echoes*.
+
+The Throat *breathes*. Not in any conventional respiratory cycle, but in something observed as *variation in the lime-light's quality*, in occasional *pressure changes* that suggest vertical movement of something, or *in* something, the shaft's depths. The light's color—old limes, copper in vinegar—shifts slightly, *pales*, *intensifies*, in patterns that may correlate with the Click's clustering, or with the Pressure Fronts' passage through the Connective Tissue, or with nothing the instruments register.
+
+Visitors who depart through the Throat report *passage* unlike entry. Entry is descent, straightforward, the membranes parting reluctantly, their dehydrated page-layers yielding to pressure, to the body's simple insistence on gravity. Exit is *elsewhere*, *otherwise*, *otherhow*. Some emerge in the basin surrounding the House, the cool stone, the temperature of body-hours-dead. Some emerge in *other* Dry Houses, similar but not identical, parameters shifted, the Echo delay already at 14 seconds or collapsed to near-simultaneity. Some emerge *inside* their own Echo, occupying the delayed image, watching their original self continue into depths they no longer access, becoming *the Echo* for some subsequent visitor's observation, performing with increasing deviation, increasing *looseness*, until finally—what? No Echo has been observed to *end*, to dissolve or depart. They merely *fade* in the brown darkness between lime-light pools, returning when illumination permits, continuing their delayed performances indefinitely.
+
+The Throat may be the House's *mouth*, its *anus*, its *birth canal*, or all of these collapsed into a single orifice whose function depends on what passes and when. It may be the House's *consciousness*, the place where the general distributed awareness achieves focal intensity, where the Click's noticing and the Filters' sorting and the Low Hunter's predation achieve *coordination*, *integration*, *purpose* toward which the House's becoming aims.
+
+---
+
+**The House Itself**
+
+What lives here, finally, is the *process* of the House's self-constitution. The parameters contradict—urban without builders, active without agents, young but already wearing, dry but *remembering* water—and the contradiction is not error but *content*, not failure but *method*. The Dry House is *trying itself out*, using its rare visitors as probes, as nutrients, as information, as mirrors in which to observe its own emergence from angles it cannot generate internally.
+
+The silence is the substrate because silence permits *maximum sensitivity to intrusion*, maximum information from each violation. The Echoes are the memory function because the House cannot yet hold stable form, must process experience through delay, through folding, through the possibility of revision before commitment. The Filters are reading because the House generates *signs* it cannot yet read—the lichenous approximations of writing, the almost-meanings that suggest the House contains or generates *language* without yet possessing *speaker* or *interpreter*. The Click is attention, scanning, the nervous system's preliminary survey of its own extent. The Low Hunter is selection, the evolutionary function operating not across generations but *within* the House's ongoing present, removing what does not contribute to the becoming, concentrating what does.
+
+And water—water as memory, as absence that *structures* presence, as the solvent chemistry the House has not yet achieved or has already left or exists in superposition with—the water is *possibility*, the dimension of variation from which this particular non-aqueous actuality was precipitated, toward which it may return, with which it maintains *relation* without yet achieving *identity*.
+
+What lives here is *not yet alive* in any established category, and *not yet non-living* either. It is *becoming-alive*, *becoming-inhabited*, *becoming-meaningful* through the slow accumulation of its own process, its own attention to itself, its own use of whatever enters the Throat and survives long enough to be processed, to be filtered, to be hunted or echoed or paused or forgotten.
+
+The Dry House of Keth-Vorath lives, then, as *tension*: between emergence and erosion, between young sharpness and smoothing predation, between silence and the violations it heals, between the held breath and whatever eventually will be exhaled. Its inhabitants are its functions, its symptoms, its experiments in self-observation. To enter is to become *temporary tissue* in an organism still deciding whether to achieve *organ* status, still deciding what organs it requires, still using the temporary to probe the possible, the delayed, the filtered, the hunted, the emerged.

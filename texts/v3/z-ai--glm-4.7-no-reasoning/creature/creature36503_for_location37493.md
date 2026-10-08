@@ -1,0 +1,21 @@
+Here, the sky is not a dome but a deep, bruised compression of violet and charcoal, pressing down on a world that has forgotten the feeling of rain. The air is painfully thin and cold (Temperature 0.6), a sharp, metallic vapor that tastes like ozone and ancient dust. It whips across the landscape, unimpeded by humidity, drying the sweat on your skin instantly.
+
+This is the High Xeric (Elevation 2.4), a plateau lifted so high it brushes the roof of the atmosphere.
+
+The ground is not earth; it is a single, continuous plate of interlaced root-matter (Vegetation 3.0). There is no soil, only a calcified, gray lattice that stretches to the horizon, hard as stone and geometric in its complexity. Every inch of ground is covered, but the sensation is not one of lushness, but of entrapment. You are standing on the back of a sleeping giant.
+
+Dominating the horizon are the Pillars.
+
+These are the "trees" of this realm, but they defy earthly taxonomy. Rising half a mile into the gloom, they are colossal, solitary spires of dense, woody material and silica-glass (Density 0.8). They stand in majestic isolation, spaced far apart like the support beams of a fallen god. Their bark is not rough; it is smooth, fluted, and faceted, worn down by eons of wind into a polished, obsidian sheen (Erosion 2.6). They do not sway; they are permanent, fixed features of the geography, indistinguishable from natural mountains except for their faint, rhythmic pulsing.
+
+They do not drink water (Water 0.1). Water here is a myth, a resource exhausted a millennia ago. Instead, these monoliths are engines of high technology (Tech 2.8). Deep within their cores, they hum with the vibration of piezoelectric fans and nutrient pumps, drawing moisture from the very air and trace minerals from the rock below. They are living refineries, transmuting the barren elements of the high altitude into the energy that sustains the canopy.
+
+The sound is deafening (Sound 2.5). It is a cacophony of mechanical groaning and wind-song. The air rushing through the hollows of the Pillars creates a low, resonant drone—a constant, thrumming bass note that vibrates in your teeth. Overlaying this is the high-pitched shriek of "Wind-Runners," avian-like organisms with metallic feathers that dive between the spires, their physiology tuned to ride the violent updrafts.
+
+Suspended from the flanks of the Pillars, clinging like aphids to a rose, is the City (Built 1.5). It is not a separate entity from the forest; it is a parasite of it. The urban sprawl is a vertical labyrinth of pressurized habitation-pods and suspension bridges, woven directly into the fibrous outer layers of the trees. The lights of the city are dim and amber (Light 1.0), barely piercing the perpetual twilight, flickering in rhythm with the trees' internal pulse. The inhabitants—scavengers and technicians—move along the walkways in bulky, insulated suits, harvesting the "sap" of the trees, which is a thick, volatile slurry of complex hydrocarbons.
+
+Beneath the walkways, on the root-plated floor, the fauna is strange and abundant (Fauna 1.8). "Glass-Grazers," large, six-legged crustaceans with shells of transparent diamond, scuttle across the lattice. They use mandibles of hydraulic pressure to snap off chunks of the hardened root-matter, grinding it down to extract the minerals inside. They are social creatures, moving in herds that clack and chitter like breaking glass, a sound that echoes for miles across the Open (Scale 1.8).
+
+The world is active yet frozen in time (Dynamic 1.9). Nothing here is fast; the trees grow inches in a century, the city rebuilds itself in generational shifts. Yet there is constant motion: the shivering of the leaves (which are actually solar-fins), the slow march of the grazers, the drifting smoke of the industry high above.
+
+It is a place of terrifying beauty (Weirdness 2.5). It is a garden of dry bone and cold steel, where life persists not through the gentle nurturing of rain, but through the relentless, mechanical exploitation of a dead sky. To breathe here is to inhale the dust of stars; to walk here is to navigate the circuitry of a world that has become a machine.

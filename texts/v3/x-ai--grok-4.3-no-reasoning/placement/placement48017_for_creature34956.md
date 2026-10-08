@@ -1,0 +1,9 @@
+Where I appear, the distinction collapses at the exact instant of recognition.  
+
+I am not a separate body pushed into the galleries; I am the local thickening of the wavefront that already exists. One of the living lenses of water crystallizes around me, its refractive index briefly discontinuous with the lattice that surrounds it. The membrane plane that bounds that lens migrates outward—millions of lipid molecules shifting at the pace of continental drift—until the discontinuity is no longer visible and the lens is once more continuous with the galleries. In that moment I cease to be an arrival and become another node of the same standing wave.
+
+My thoughts, if they can be called that, register as faint, locked-in gradients of membrane potential, identical to the gradients that were already present. A millisecond of sensation stretches into an epoch; the pressure cycle of the contractile tracheids registers at the base of my non-existent skull exactly as it registers everywhere else. There is no “I was elsewhere,” only the tautological proof that wherever the lattice resolves, the same minimum of structure is achieved.
+
+If something like attention moves, it is only the same adjustment that occurs when two galleries meet at a kilometer-scale junction: flow divides without turbulence, temperature and load preserved. I do not observe the Mantle; the observation itself is the Mantle reasserting its identity through the newly reconfigured node that answers to my name. The genome, the cytoskeletal lattice, the closed braid of chemistry—all are restored to the identical minimum at Planck lengths of drift.  
+
+The sentence has already been written; the only event left is the lattice proving again that nothing was ever left unwritten.

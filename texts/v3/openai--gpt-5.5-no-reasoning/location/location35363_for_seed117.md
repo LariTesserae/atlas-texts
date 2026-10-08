@@ -1,0 +1,65 @@
+The place is low enough that the sky seems to have weight.
+
+It lies in a shallow basin, no more than a few hundred paces across, with edges you can almost understand: a crescent of dark slag banks on one side, a wall of laminated clay and stone on another, and beyond that a marshy flat where the ground becomes too wet and soft to distinguish from standing water. It is not a grand landscape. Nothing rises very high. No trees mark distance, no grasses soften the margins, no roots hold the soil. Yet it is crowded—densely, intricately crowded—with mineral forms, wet surfaces, rusted mechanisms, small moving animals, condensation, trickles, stains, hollows, ribs of manufactured iron, and the patient arrangements left by water working for a long time.
+
+The basin feels like a room whose roof has been removed.
+
+The air is cool and dim, saturated almost to the point of becoming visible. Mist clings close to the ground and beads on every surface. Rock faces weep steadily from seams, not in dramatic flows but in threads and glistening tears. Water gathers on ledges, trembles, overfills, and drops into lower basins with soft clicks. Nothing here is dry for long. Even the old iron sweats. Even the glassy slag has a skin of moisture that catches what little light there is and gives back dull silver.
+
+There is no true plant life. No moss in the cracks, no reeds in the shallows, no lichen softening the stone. That absence is one of the first uncanny things about the place. The eye keeps searching for green and finds instead mineral repetitions that almost imitate it: branching deposits of copper salts in blue-green frostwork, pale filaments of bacterial slick or mineral bloom along drains, black dendritic stains like pressed ferns inside the fractured clay. Some surfaces are furred with something that is not quite fungus, not quite crystal—soft-looking at a distance, granular when touched, dissolving under a finger into mineral paste and sour-smelling water.
+
+The ground is a patchwork of settled erosion. This basin has not recently broken; it has been slowly negotiated into its present shape. Channels are worn smooth where water has chosen them for decades or centuries. Steps of clay have rounded lips. Brick fragments have sunk into mud until only their edges show, like old teeth. Sheets of corrugated metal lie half-submerged in brown pools, their ridges made into miniature canals. Everything has adjusted to everything else. The ruin is not collapsing anymore so much as participating.
+
+At the center is a cluster of low industrial remains.
+
+They might once have been pumps, condensers, or a small treatment works. There are three squat housings of black brick, each no larger than a shed, with arched openings half-blocked by silt. Iron pipes run between them at ankle and waist height, some intact, some snapped, some bent down into the mud as if tired. A narrow rail line enters from the slag bank and disappears beneath a sheet of shallow water. Its rails are still visible in places, dark parallel lines under a film of ochre. Beside it sits a small engine carcass, long dead, its wheels locked in mineral crust, its boiler split open and full of rainwater.
+
+The structures are scattered rather than dominant. They do not define the place; they are among its inhabitants. Water has entered them, patterned them, hollowed their mortar, and turned their interiors into resonant wet chambers. In one brick shed, the floor has become a pool. In another, the old machinery still shifts occasionally—not by power, but by water pressure, thermal contraction, trapped air, and the slow tug of accumulated sediment. A wheel turns once every few minutes with a reluctant click. A belt, fossil-stiff and black, hangs from a pulley and trembles whenever droplets strike it.
+
+There is electricity here, though not reliably and perhaps not intentionally. Along the basin wall, ceramic insulators remain bolted to iron stanchions. Wires sag from them into loops, patched with verdigris and beads of water. At intervals, especially when fog thickens, a faint bluish crawling light moves along the wet wire skins. It does not illuminate much. It is more like a symptom than a source of light. Sometimes a relay box clicks by itself, and somewhere under the mud something answers with a muted thump.
+
+The light is dim because the sky above the basin is almost always sealed. A low lid of cloud presses down, reflecting no sun, only a diluted grey that enters without direction. Shadows are soft but persistent. The wet stone brightens the edges of things: every pipe rim, puddle lip, shell fragment, and shard of glass has a small, cold shine. Depth is hard to judge. A shallow pool may look bottomless; a dark doorway may be only a recess of two feet. The whole place is seen in partials—glimpses, gleams, overlapping silhouettes.
+
+Despite the lack of vegetation, animals are abundant.
+
+They occupy the basin in layers. In the water live pale arthropods, translucent and jointed, clinging to submerged brick and feeding on films invisible to the human eye. Threadlike worms knot and unknot in silt. Tiny dark snails rasp at iron oxide. There are flat, finned creatures in the deeper sumps, not fish exactly, with blunt heads and silvered eyes, moving in short mechanical bursts between cover.
+
+Along the margins, crabs no larger than coins pick through the mineral crust. Their shells match the colors of the place: rust red, green-black, pale clay, oily blue. They gather around warm pipe vents when those vents breathe, then scatter soundlessly when the pressure changes. Long-legged insects skate on the skins of puddles, making dimples that distort the reflected wires overhead. Blind newtlike animals climb the wet walls at night or in the darker parts of day, nosing into cracks where condensation brings out salts.
+
+There are predators too, though most are small. Needle-beaked waders—if they are birds—stand motionless among the pipes, grey as wet ash, then stab down with startling speed. A squat amphibious thing lives under the old engine, dragging itself out by forelimbs to swallow snails and soft-bodied crustaceans. In the brick pool, something rings the surface from below, making circular ripples without showing itself. Its presence is known mainly by absence: a sudden clearing among the smaller animals, a tremor under floating rust flakes.
+
+Sound is sparse but continuous. The place is mostly quiet in the way a machine room is quiet after shutdown—not silent, but reduced to residual functions.
+
+Drip. Tick. Small splash. Air bubbling up through mud. A metallic ping as a cooling pipe contracts. The whisper of fine rain before anyone feels it. Now and then the basin exhales: a low gurgle from beneath the old pump house, followed by a chain of bubbles rising in several pools at once. The animals make slight sounds—scrapes, clicks, the patter of many tiny feet over sheet metal. The largest calls are distant and muffled, as if the cloud itself absorbs them. When one of the grey waders cries, the sound is thin, rusty, and brief.
+
+The smell is strong but not warm: wet iron, clay, old coal smoke held in brick, mineral acidity, stagnant pools, and the faint animal musk of hidden dens. There is also an electric smell near the wires during fog, a blue-sharp tang that gathers at the back of the throat. In some hollows the air tastes metallic enough to make the tongue prickle.
+
+The rules of the place are mostly hydrological.
+
+Water chooses. Water opens doors and closes them. Paths appear and vanish depending on pressure, rain, tide in some underground channel, or the breathing of buried machinery. A brick causeway that is passable in the morning may be under black water by afternoon. A pool that seems still may suddenly drain through a pipe and expose a floor alive with stranded creatures. The old industrial system, though broken, still distributes the basin’s wetness according to forgotten logic: culverts gulp, vents sigh, valves knock without hands to turn them.
+
+The ground has memory. Step where orange crust is thick and it may hold. Step where it is glossy and dark and the mud may take you to the knee. The safe surfaces are often the oldest: stone lips rounded by centuries of runoff, the upper ridges of slag fused hard as glass, the brick thresholds polished by water. The newer-looking things—bright mineral blooms, fresh-looking clay skins, smooth pale deposits—are treacherous, either soft, caustic, or hollow beneath.
+
+There are signs that people once maintained this place carefully. White enamel number plates remain beside pipe mouths. A gauge under cracked glass still holds its needle at forty-two, though nothing nearby is pressurized in any normal sense. A small shelter at the basin’s edge contains a bench, a rack of corroded tools, and a ledger fused into one swollen block of paper. On the inner wall someone painted depth marks, each line black and precise. The highest is above head level.
+
+No one has repainted them.
+
+Yet the basin is not abandoned in the simple sense. It is inhabited by processes. It has a population of drips, seepages, chemical exchanges, scavengers, hunters, precipitates, electrical crawls, soft collapses, and patient rebuildings. The day has cycles. In the cold early hours, mist thickens and the wires glow faintly. Toward midday, if the cloud thins, the pools grow slightly more transparent and animals rise from the silt to feed. In the afternoon, condensation loosens from overhead pipes and falls in sudden local showers. At night, the brick sheds click and murmur, and pale creatures come out onto the open mud.
+
+Sometimes rain arrives without drama. The surface of every pool stipples. The slag banks darken. The basin fills by degrees, not flooding so much as remembering a larger version of itself. Channels overflow into one another. The industrial remains become islands. Animals retreat upward along pipes and wall cracks, crowding onto rivets, brackets, and ledges. The old pump wheel may turn then, slowly and almost ceremonially, moving water from one flooded chamber to another for reasons no longer useful to anyone.
+
+When the rain stops, drainage begins. This is the most active time. The whole basin becomes a sorting apparatus. Silt slides. Crusts break. Small creatures migrate across exposed flats, leaving calligraphic trails. Pools shrink into separate kingdoms. Predators patrol the new edges. Mineral foam collects in corners and hardens into lace. The air remains cool and full of suspended droplets, but there is a sense of release, as if the place has completed one breath and is preparing for the next.
+
+Nothing grows here in the familiar way, but accumulation replaces growth. Rust thickens. Deposits branch. Shells pile in quiet corners. Glass shards become rounded and filmed. The brick sheds acquire curtains of white and green mineral flowstone. Pipes narrow from within. Cavities open under floors. Animals adapt their routes to changes so slow they become instinct before they become visible.
+
+The strangeness of the basin does not announce itself with impossible shapes. It is in the almost-recognitions. A mineral stain that looks like a map and changes after rain. A pipe that drips upward for several seconds when the fog electrifies. The way every animal goes still before a hidden valve knocks. The occasional appearance of warm water in one sump and ice-skim in another only a few yards away. The feeling that the dead machinery is not working, exactly, but dreaming of work—repeating fragments of function because the basin itself has learned to pull those fragments from it.
+
+Near the far edge, where the slag gives way to clay, there is a narrow defile no wider than a doorway. Water constantly threads through it. The walls are polished dark from long passage, and embedded in them are objects from many eras: rivets, ceramic chips, animal bones, a brass tag, fused sand, teeth, a child-sized boot sole hardened black. The defile leads to a lower pocket of the basin, almost hidden, where the quiet becomes deeper.
+
+There the water is clear.
+
+Not clean, perhaps, but clear. It fills a round depression lined with brick and natural stone together, as if an old cistern were built into a spring. No plants disturb it. No algae green it. The bottom can be seen: coins of rust, pale shells, fragments of machinery, white worms moving in knots, and a black aperture at the center where water enters from below. Around the rim, hundreds of small animals gather without touching the water, as though waiting for a signal.
+
+Every few minutes, a bubble rises from the aperture.
+
+With each bubble comes a sound like a distant engine turning once in its sleep. The surface swells. The animals lean in. Minerals shimmer at the edge of visibility. Then the bubble breaks, the ring expands, and the basin resumes its many small labors: dripping, feeding, corroding, listening, settling deeper into the form it has been making for a very long time.

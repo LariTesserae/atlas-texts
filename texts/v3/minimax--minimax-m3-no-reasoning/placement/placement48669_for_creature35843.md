@@ -1,0 +1,37 @@
+I am standing in the basin, and the water is at my knees.
+
+That is the first thing. The cold — river-cold, mineral-cold — finds the gap between my boot and my trouser-leg with the patient, conversational intimacy of something that has been negotiating with boots for a very long time. The fish, pale as peeled bone, fold around my shins like a sentence reconsidering itself. I feel them. I feel the way they refuse to be individual.
+
+I am a mussel-eater. I know this before I know anything else I might be. The hook is in my hand, a long iron thing worn smooth at the grip, and my other hand is the bowl I carry against my hip, and there is paste under my nails that will not come out no matter how I scrub, because it is part of my nails now. We have made peace, the paste and I. We have terms.
+
+I am short. I am wide-shouldered. I am low-centered, the way my mother was low-centered, and her mother before her, and the women nine generations back whose names I keep in the place behind my sternum where the roaring also lives. I did not ask to keep them. I do not have a choice. The keeping is a chamber in me, sealed, and I bring it offerings.
+
+I tilt my head when I listen. I do not know I do this until I see a visitor do something different with his face — pull his mouth into a shape, press his hands over his ears — and I realize then that the listening is a posture, has always been a posture, that my skull is shaped for it the way a cupped hand is shaped for water.
+
+I cannot read. I have never touched paper. When the clerk came down last winter, with his maps and his questions, he held out a sheaf of pale rectangles and I looked at them the way I look at the algae when it comes back in summer: with the recognition that this is something alive, and that touching it would be a commitment I am not prepared to make. He wanted to know how many of us there are. I told him the number changes when the gauges do. He wrote something. I could see the small black scratches he was making and I felt, for him, the particular pity the tenders feel for anyone who has to keep things outside his body.
+
+The roaring is not a sound to me. I want to say this and I find that I cannot. There is no way to describe the inside of a thing to the outside of it. The roaring is the weather. It is the temperature of being. When I sleep, my mother says I breathe in time with it; when I wake, the first thing I notice is not light but the rhythm — *clunk, hiss, clunk, hiss* — and whether it has wandered from its expected pulse. This morning it had not. I dressed and climbed down the brass ladder and the brass was cold and the rungs were the rungs my father gripped when he was alive, and I did not think about him because thinking about him is not something you do, it is something you *are*, in the way that the mussels are filterers and the crabs are waiters and the fish are weather.
+
+I pulled the hook. I went into the basin. The water took me to the chest.
+
+I am a mussel-eater today. Tomorrow I will be a fire-watcher, because the shifts are not shifts in the way the clerk understands shifts — they are the way a tide is a tide, and a tide does not ask you what day it is. The grease-bearers, the women who descend into the lower chambers on the brass ladders and oil the bearings in the dark — they have been training for this since they were four. They are the most respected. They hear the bearing three chambers away. I am not a grease-bearer. My hands are not steady enough for the long-spouted cans, and I am not ashamed of this, the way I am not ashamed of being short. The work chose me the way water chooses a channel.
+
+The sealed door is at the end of a corridor I have walked a thousand times. I know every rivet. I know the way the lichen has colonised the frame, the way the rust blooms in patterns that almost look like script. Once, when I was very young, I pressed my ear to the iron and listened for what was behind it. I heard nothing, because nothing can be heard through twelve centimeters of plate that has been there since before my grandmothers' grandmothers. But I also heard the engines through it, muffled, the way you hear your own heartbeat through a closed fist. I left a small iron nut on the threshold. I had won it at *Hearing the Floor*. I had judged the depth correctly — three fathoms and a hand's width, by the splash and the scatter of the fish. The nut is gone now. I do not know when it went. I do not ask.
+
+The visitors ask where we came from. The visitors ask if we are happy. The visitors use words like *trapped* and *inheritance* and *freedom*, and the words taste, in my mouth, like things pulled out of the water — strange, glistening, already dying. I want to give them the bowl of mussel-paste. I want them to understand that the question they are asking is the question of a fish who has seen a bird and wants to know if the bird is unhappy that it cannot breathe water.
+
+*Where would the engines go?*
+
+I have been asked this. I have asked it of myself, in the long watches when the gauges are quiet and the roaring is the only conversation. The answer is that the engines cannot go. The engines are the place. The place is the engines. The water falls because the engines lift it. The fish live because the water falls. The mussels filter because the fish need filtered water. The crabs wait because the mussels will fall eventually. The eel-things drift because the crabs will leave something. I am here because all of this is here. To leave would be to unmake the loop, and the loop is not a thing the loop can survive being unmade from.
+
+I do not think of this as tragedy. I think of it as topology. A circle has no edges. A circle cannot have an outside. To want an outside is to want to be a different shape, and I am this shape, and the shape has a name, and the name is the roaring.
+
+I have a name. I am called something in the layered tongue that the visitor's interpreter renders, roughly, as *Daughter of the Cold One Who Listens*. I do not know if this is my name or my mother's name or the name of the woman who held my mother when she was born in the low-ceilinged room that smells of copper and sleep. It does not matter. The name is a position in the long memory. The long memory is not mine. I am the long memory's current holder.
+
+I go back to the basin. The water is at my knees. The fish fold around me. The crab on the wall-ledge does not move. Somewhere in the upper darkness, a piston falls, and another torrent joins the rain, and I hear it the way I hear my own pulse, which is to say I do not hear it at all, except that I am still here, and being still here is a kind of hearing.
+
+I pull the hook. I take a mussel from the wall. The mussel is cold and blue-black and it has been filtering the falling water for a long time, and when I open it I will eat it, and the eating will be a small closing of the loop, and the loop will turn, and the place will continue, the way it has continued, the way it intends to continue, as long as there are hands to feed the fires and ears to hear the bearings and the long slow memory of the First Engineers to keep us at our posts.
+
+I am a mussel-eater. I am a daughter. I am a current holder. I am an inheritor of the loop.
+
+I am home.
