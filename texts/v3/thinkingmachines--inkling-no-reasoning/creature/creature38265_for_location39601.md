@@ -1,0 +1,17 @@
+The place is a hollow no larger than a drained cup in the earth—barely above the water table, low enough that cool air pools and refuses to leave. You feel it in the mist: a constant, cool weeping that hangs in the air like the world has just been rained upon and will never fully dry. Water is not scenery here; it is the governing presence. It seeps through every fissure, beads on rusted iron that seems to sweat, pools in footprints that never evaporate, makes the ground a black-brown sponge—peat-dark, saturated, pressing up with each step like a soaked cushion.
+
+Erosion carved the authority long ago. There are no sharp edges left—only smooth, long-rounded lips of earth, channels worn into roundness, rocks reduced to pebble-fatigue. It is old in the manner of machinery left to rust slowly enough to become geology: settled into its own form, in-its-own-state, neither wild nor built, but weathered into a strange balance.
+
+Above this, vegetation is sparse—stunted reeds, black moss in cracks, a few tufts of sedge growing not toward any light but away from the machines, bristling like eyelashes around a mechanical eye. This is not wilderness. The density here belongs to the built and the industrial, layered tightly into every available space.
+
+The hollow is filled—not with architecture, but with fragments. A collapsed gantry. A half-buried pump housing, rounded by wear. A lattice of wrist-thick pipes running parallel like ribs. And scattered everywhere through this small depression are the remains and workings of one dense, miniature complex: dozens of micro-engines, no single factory but a cluster of them, their flywheels barely larger than dinner plates. They sit in a lattice of belts and gears so dense that to move through the hollow is to navigate between touching, layered presences, an intimate machinery scaled not to human grandeur but to the hollow itself.
+
+The technology is mechanized, scaled, electrified—small engines in constant, chaotic congress. They do not rest.
+
+The silence is near-absolute—no wind, no animal call, no human voice—broken only by water and machinery. The air holds that particular quiet of absence, then fills with the low turbulence of operation. The dynamic is storm-state: hyperactive, anthill-energy, a bazaar of motion without vendor or buyer. The engines do not run steady. They stutter, surge, and reverse. Belts snap wetly and re-knot themselves in dark loops. Gears grind, seize, release, and turn again—Solaris-like in its endless creation and destruction, manufacturing nothing visible, consuming rust and moss in continuous turbulent cycles. The entire hollow vibrates with it: not loud, but relentless, a dense turbulence without center.
+
+Light is ordinary—gray-green, diffused through the constant low mist, neither bright nor shadowed, just present enough to catch on water beads and the orange-brown of rust.
+
+No real fauna lives here—perhaps a single insect caught in the teeth of a gear, perhaps nothing at all. The hollow is occupied only by water, rust, and motion.
+
+The weirdness is not flamboyant; it is the wrongness of constant mechanized turbulence in a place too small, too wet, too old to need it. The rules seem settled: water must enter, iron must rust, gears must turn, and nothing must complete itself. Boundaries are defined by the hollow’s own worn lips—scattered with artifacts that are also processes, cool and wet and quietly, relentlessly turbulent in its small, silent, miniature scale.

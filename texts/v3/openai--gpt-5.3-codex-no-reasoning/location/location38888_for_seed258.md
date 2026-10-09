@@ -1,0 +1,25 @@
+From a distance, it looks like a city that forgot stone before it ever learned it.
+
+You stand on a high, warm terrace and realize the ground is not ground at all: it is braided rootwood, interlocked stems, old compressed reed-flesh grown thick as masonry. Every ledge, road, embankment, and retaining wall has been *made*—but made by growth, not tool. The built world is total here, yet no metal rings, no fired brick glints, no cut angles insist themselves. Architecture has been persuaded from living tissue. It is construction by patient steering.
+
+The region opens wide in every direction: broad suspended flats, shallow basins, long causeways of vine-trunk stretching over wet hollows. Space is generous. Structures sit apart from one another in a way that feels planned, almost ceremonial, with long intervals of open, glistening plant plain between them. Nothing crowds you despite the near-total vegetation; the plants are everywhere, but not tangled. They organize into districts—mat-fields, pillar-groves, folded canopy roofs—with empty lanes of humid air and clear water channels defining boundaries.
+
+Water is always near. Not rivers exactly, more like a high table of seep and condensation. Steps sweat. Walls bead. Hollow stems overflow at regular lips and spill into still runnels. In shaded corridors a constant drip lands on broad leaves with drumlike pops. The basins are marsh-edged, fringed with comb-grass and floating pads stitched together into thick green rafts that can bear weight if you know where to tread. After every brief rain, nothing floods dramatically; instead everything accepts the water at once, as if designed for it. The place feels permanently post-rain.
+
+Though the terrain is elevated, it does not feel alpine. The height is a lifted plateau of living construction—an upland garden-engine—where warm air condenses against cooler inner tissues of giant plant vaults. Mist gathers each morning in open galleries and burns off to ordinary daylight. The light is familiar, almost plain, and that normalcy makes the strangeness sharper: sunlight on leaf facades carved into colonnades; shadows cast by fronds trained into buttresses; a plaza that is a single colossal lily pad anchored by root cables.
+
+Geology here seems young, unfinished. Bare mineral is rare and where it appears it comes up soft, raw, barely committed—ochre clays, porous volcanic crumbs, immature shelves of stone still being wrapped by root nets. Erosion has had little chance to write its usual signatures. Edges are rounded by growth before they are cut by wind or stream. Gullies begin but never deepen; plants bridge them too quickly. Landforms feel embryonic, held in an early draft by an older biological intention.
+
+The loudness is constant and layered. Wind combs through reed towers with a low organ tone. Waterfalls are short but numerous, each one a throat emptying from one vegetative cistern to another. Seedpods rattle. Membranous leaves slap and rebound. Froglike calls echo from hidden basins, yet actual animals remain scarce enough that each sighting becomes event: a pale long-legged browser moving between fern pylons; a cluster of bright, watchful amphibians clinging to a wet stair; something winged crossing high and gone. Most motion belongs to plants and water, not beasts.
+
+And the plants do move, though slowly enough to preserve the sense of stillness. This is a stable world, locked in equilibrium over long spans. The same channels flow, the same canopies hold, the same root-arches bear load year after year. Change is cyclical rather than progressive: opening and closing, swelling and release, mist and clearing, pollination and rest. Even decay is captured—fallen matter is woven back into structural mats before it can become ruin. Nothing here feels temporary, but nothing feels dead either.
+
+There are rules, discernible if you linger:
+
+- **No naked surface stays naked.** Any exposed substrate is colonized, padded, latticed, integrated.
+- **Water must be slowed, never stopped.** Every form bends toward storage and seepage rather than forceful flow.
+- **Distance is intentional.** Masses are separated to preserve airflow, light access, and acoustic signaling.
+- **Growth substitutes for tools.** Shape is achieved by guiding living things through constraints: tension vines, gravity channels, shade frames made of older trunks.
+- **Equilibrium outranks novelty.** New forms appear only if they can join the existing metabolic architecture.
+
+So the landscape reads as both wild and civic: a botanical metropolis without machines, a marsh plateau engineered by inheritance rather than invention. It is strange not because it is chaotic, but because it is coherent on principles unlike ours. Here, to build is to cultivate load-bearing life. To pave is to braid roots. To quarry is to wait for tissue to harden. To maintain is to sing water through channels and prune by hand and season, until the whole open high country remains exactly what it has long decided to be: wet, warm, loud, green, and enduring.

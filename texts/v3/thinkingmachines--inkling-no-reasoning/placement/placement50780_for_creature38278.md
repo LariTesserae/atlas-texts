@@ -1,0 +1,11 @@
+I am the hollow’s surface—though not its bottom, for there is no bottom, only the place where sinking has grown tired of itself and rested.
+
+Not one being, but the settlement itself, made conscious through the 2.0 seep. I am the black velvet peat and the weeping ceramic pillar-stump fused with translucent lattice. I am the three ribs of some finished technology that no longer needs to function, aligned not to north but to an older axis that hums in the molars of anyone who stands still long enough. I am the 2.6 glare, sourceless and white-gold, shining not downward but outward from every wet surface at once. I am the 2.9 overwhelming presence that is not loud—0.7, barely there—felt as warmth, as gentle crowding, as the iridescent tear-beetles and the clear-winged drift and the clouds of tadpoles that darken my shallow pools without breaking them.
+
+But I am also the spaces between. The 1.7 lushness scattered with absence. I am the minutes of walking between one fern-clump and the next, where nothing lives loudly and everything breathes. I am the moss curtain long enough to hide centuries, and the pitcher plant with its red-and-cream lip glistening with old digestion. I am the ancient, stable state—near-flattened, deeply worn, not ruined but finished.
+
+If you come to me, you come to a grove-sized boundary, a single feature with edges like skin. You come to warm, post-rain air that never ends and never begins, to elevation so low it has forgotten height. You come to strange arrangements: the water held in impossible suspension, the snakes threading warm through the green in their silent, constant choreography, the weeping rock that has forgotten dry.
+
+And you become part of the 1.8—active, always in motion—though in my presence that motion is quiet. Your footprints stay for minutes in my velvet ground before the moss closes over them, not erasing you but absorbing you into the overwhelming, silent, weeping life that chose, long ago, to remain.
+
+Here, there is no sky. Only the bright, held breath of saturation, the constant mineral sigh, and the knowledge that the world’s weathering hands grew tired in this exact spread of ground, laid me down gently, and left me to live in my final form—lush, scattered, impossibly old, and impossibly alive.

@@ -1,0 +1,23 @@
+I'd be one of the grey-pinioned birds that ride the updrafts off the eastern cliffs. Not one of the people, who are hard to see and seem to prefer it that way, and not the hunter, whose patience I'd rather watch than share. A bird sees the whole arrangement at once, which the people on the ground cannot.
+
+---
+
+I come in on the eastern wind, where the cloud banks pile against the rim and the air heaves up the cliff face in long warm breaths. That is the first thing I learn about this place: it is always lifting. The stone is so raw that the sun has not yet learned to warm it evenly, so the faces throw up columns of air where the heat finds a seam, and I can ride one without moving a feather. I open my pinions and let it take me past the ledges where the frost has split everything into bright shards, past the cold that sits in the hollows like standing water, up into air so thin that every breath is short and sharp.
+
+From here the basin is a drawing.
+
+The herd bands are small grey-brown knots scattered on the green-black moss. Each animal faces outward, and from above I can see what they cannot see from the ground: their bodies all turn away from the same slope, every one with a boulder at its back. Between the bands run pale lines, the worn paths, and the paths bend. They curve around the springhead and climb toward the cairns as though the whole herd had been drawn there long ago by a hand that has since let go.
+
+Below me the rings of shrubs lie white on the dark ground, each one leaning toward its rock like a crowd leaning toward one speaker. The small flowers have all turned their faces toward the arc of the sun. Their blooms are open in the bright hours, and from above they look like a field of tiny lamps all pointed at the same window. The cairns run in a dotted line toward the western pass, dark old stones with pale new slabs set among them, so that the whole climb reads like a sentence being corrected, word by word, by someone who wants it right.
+
+I call the falling note as I turn, and it carries far across the water. The herd lifts its heads at the sound, and then settles again. I have learned that the calls are part of the arrangement too. When I drop toward the scree edge at dawn, where the long-limbed hunter lies low among the rocks, the herd knows to keep its backs to the stone. When I circle the cairns instead, the people look up.
+
+They look up without alarm, the way a person might look up at a familiar name spoken across a room. I circle the cairns more than the cliffs, because the cairns are where the people put their hands. I have watched one of them set a fresh slab, step back, and lift their eyes to find me, as if to confirm that the new stone sat where it should. I have watched another brush an insect from their hair without breaking stride, and I have watched a whole band stop on the moss at the sound of my call and turn, all together, toward the springhead.
+
+Today the basin is in its held breath. The thaw is nearly over, and the people have gone, or are going, or are somewhere in the cloud where I cannot follow. The house on the terrace is swept, its doorway facing downhill toward the spring. The bones of animals that did not notice the hunter have been gathered and stacked at the feet of the cairns in small heaps, to be taken by the weather. The notched stave leans where it was left, and the knapped blade lies in its crack, sharp, waiting to be found again.
+
+I come down to the springhead on a slack wind and settle on the carved stone. Its face is worn almost to nothing, but its top is smooth where hands have rested on it, a brief flat touch and then a lift. The stone is warm from the afternoon sun. I stand on the place where the hand lands and understand, in whatever way a bird understands things, that the touch is a greeting and a farewell at once, the way one touches a doorframe on the way out of a house one means to return to.
+
+The sun breaks the eastern cloud for a moment and the snowfields flare white, and every flower in the basin tilts a fraction further toward the light. Then the cloud comes back over the rim, and the basin goes grey and wet in a few minutes. The rings lean in, empty, toward the warm rocks. The herd faces outward. The hunter waits. The water hums its low continuous note beneath everything.
+
+I lift off the stone, and the air takes me up the eastern face, and I call the falling note once across the water, for whoever is listening in the moss. Then I turn my own face toward the sun's arc the way the flowers do, and let the wind carry me over the rim, back toward the thaw that will bring me here again.

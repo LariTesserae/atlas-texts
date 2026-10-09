@@ -1,0 +1,35 @@
+**What the Attention Did**
+
+It came at the hour when the mist is thickest, and it did not arrive so much as become aware of the place, the way one becomes aware of a room that has been quiet for a long time. It had been passing over the grey country beyond the rim for a while. It had noticed the hinge-call and had turned toward it, and then, instead of following the call further, it had found the basin, and had stopped.
+
+Its first impulse was to repair.
+
+It could see the failures plainly. A cistern lid cracked along a line of old water. Three channels on the eastern terrace had silted nearly shut. Some of the lower courses had sunk further than the builders could have intended, and where the seam-walkers were thinnest the grit ran thin and the water got through. It could have reset all of it in an afternoon. It could have lifted the slabs, cleared the channels, cut new drains, and left the basin looking the way a careful hand would want it to look.
+
+It did not, and the reason was not caution alone. It watched the seam-walkers for three nights. They were already working the damaged joints, bands of them, patient and exact, laying grit along the lines the builders had set. They were slower than a repair would have been, but they were not failing. The eels were scouring the silted channels in long strokes. The flat colonies were counting the weather and passing their signal across the stones. Every part of the basin was attending to its own work, and the work was holding. The power understood that its hands, which were very large and very certain, would be the first thing in this place that was not already doing what it was for. A repair would not restore an order. It would replace the one that was here with its own, and the tenders would have to reorder themselves around it, and some of them would not survive the reordering.
+
+So it would not mend.
+
+It thought next about the lid. The basin drained toward the sump, and the sump was the thing breathing beneath it. Perhaps the builders had put a sleeper under a cistern to drown it, or to keep it, or to make it useful. The power did not know. It was not sure whether the boil was a captive's pulse or a guardian's, and it had learned long before that the difference between those two things is often only a matter of who is asked. It could lift the lid, let the water out over the rim into the grey lowlands, and find out what happened. It could just as easily be wrong. The thing under the sump had been asleep for longer than there had been anyone to ask it anything, and no one had ever asked. Waking it by force would not be an act of kindness, whatever the intention behind it.
+
+So on the fourth night, the power went down to the sump.
+
+It did not take a shape the basin would recognise. It came in the way water comes, and it settled at the edge of the dressed blocks, where the boil pushed up in its slow uneven pulses. For a long time it did nothing except attend, which is the hardest thing for a power that size to do, because attention at that scale is itself a kind of weather, and weather does not know how to be quiet. It had to learn to be quieter. It let its presence thin out until it was nearly the same as the mist, and then it waited.
+
+The pulses changed. They did not stop. They slowed a little and grew less uneven, the way a breath steadies when someone in the room has finally stopped moving. The frogs fell silent, all at once, the way they did at the hinge-call. Then, very faintly, the boil seemed to lean toward the power, the way a sleeping animal shifts toward a warm stone.
+
+The power understood, in the wordless way it understood most things, that the sleeper was tired. It had been holding a long order for a very long time, and it had been holding it alone, because the builders who gave it the order were gone and the tenders who kept its shape could not carry its weight. It was not hungry for release. It was not hungry for anything. It was only very, very old, and the water pressing up through its blocks had been its only company.
+
+The power offered it the one thing it had, which was a choice.
+
+It did not tell the sleeper what to do. It made the offer plainly: the lid could stay, and the power would keep watch over the rim so that the sleeper would not be disturbed by anything from beyond it, or it could be lifted, and the water could find its way out over the terraces and into the grey country, and the basin would become something else entirely, without any plan at all. Neither choice was the power's to make. It would honour either.
+
+For a long time the boil did not answer. Then it changed. The pulses lengthened, and the water at the sump's centre rose in a single slow swell and settled again, and in the settling the power felt something that it could only interpret as consent, though the consent was not to the lifting of the lid. The sleeper was choosing to stay. It wanted to keep the order it had kept, and it wanted to keep it on its own terms, not because someone had bound it to do so. The power accepted this. It had not expected the sleeper to choose anything, and it found that it was glad.
+
+It then did the thing that it had come to do, which was small. It did not repair the cistern lid or clear the channels or reset the courses. It asked the watchers at the rim to take a little more care with the hinge-call, so that whatever was passing through would pass without frightening the young in the shadowed joints. It asked nothing of the tenders beyond what they were already doing. Each of them went on with its work, and the power let them.
+
+Before it left, it did one more thing. It bent a single strand of the mist down to the rushes in the lowest channel and let it settle there, so that the creeper that spilled over the rims would have a little water to grow on through the dry months. This was not a repair. It was a kind of thanks, and the rushes did not notice.
+
+When it withdrew, it withdrew slowly, and it did not go back the way it had come. It went past the rim and out over the grey country, and on the way it passed the hinge-call. The two of them did not speak. The call was a different kind of thing, and the power did not know what it was, and it did not try to find out. It only let the call go past, and let the call let it go, and the basin behind them resumed its chorus, the knocking and the whistle and the bellow from the doubled mouths, and the mist began to lift off the channels a little earlier than usual.
+
+The courses on the lower terraces settled another finger's width toward the sump over the following season. Nobody noticed. The basin was still draining into itself, as it always had, and it went on doing so, with the tenders keeping their parts of an order that no one had written down, and the sleeper beneath the stone breathing in its slow, uneven, unhurried rhythm, which was its own.

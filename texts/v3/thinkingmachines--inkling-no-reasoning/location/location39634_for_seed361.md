@@ -1,0 +1,25 @@
+There is no ground here, only a hollow.
+
+Not an absence—an absence has edges and memory—but a hollowed place, a pocket carved into high, warm dry rock by water that forgot how to flow long before the stone finished learning its own weight. You come to it through a fissure barely shoulder-wide, and suddenly the world inverts. Outside: ancient high ridges, near-flattened by time, eroded into primordial patience, dust-colored and eternal. Inside: a hidden room of lush contradiction, no larger than a chapel, suspended like a seed in the head of an exhausted mountain.
+
+The scale is intimate, contained, almost hidden from geography itself.
+
+Water lives here at 0.8—not as river or lake, but as intermittent breath. It arrives as condensation, as occasional rain that falls upward from a hidden reservoir in the rock ceiling, beading on surfaces that have not been truly dry since the hollow was formed. Pockets of it: a shallow mirror in a depression of polished limestone, droplets clinging to the undersides of arching roots, a perpetual mist that hovers a foot above the floor and never quite touches it. Damp. Persistent but sparse, like the hollow’s own scattered heartbeat.
+
+The temperature is warm, 2.5—neither tropical nor cool, but the precise warmth of held breath. It pools near the ceiling and lingers near the water, leaving dry pockets of air in between, a climate of intermittent presence.
+
+And in those pockets, vegetation thrives at 1.7, lush but not crowded. Ferns unfurl from cracks with prehistoric slowness. Moss carpets grow only where mist allows, leaving bare smooth stone between them in patterns that seem calculated. A single tree—twisted, ancient—grows horizontally from one wall, its roots exposed and searching, its canopy pressed flat against the opposing rock like a green lung holding its breath. Everything is scattered, sparse in its richness, spaced with reverence across the hollow’s low density.
+
+The erosion is 2.8—ancient, settled into final form. The walls are not rough; they are finished. Near-flattened. The oldest-stable-state, worn to a softness that suggests not violence but exhaustion. Every surface has reached its end of life and decided to remain beautiful there. The stone looks like it has forgotten the concept of breaking.
+
+But it remembers sound. Loud—2.5, overwhelming. The fauna, 2.6, is not visible at first; it is heard. Insects with bodies like glass chimes, vibrating in frequencies that make your teeth hum. Small winged things—too many for the space, scattered across the sparse air—flutter in constant motion, a living static. Their collective voice is not a chorus but a pressure, a loudness that fills the hollow without filling it, leaving space between each call. They are hidden in the density of air itself, present everywhere and visible nowhere, overwhelming in number and invisible in form.
+
+Beneath them, scattered structures—1.3—rest in the hollow’s lower levels. Not buildings, exactly. Faint marks carved in the worn floor, circular depressions that hold water differently. Partial remains of something that understood this place before it was hidden: thin spires of material that do not rust, do not decay, arranged in patterns that suggest both mathematics and prayer. They are occasional artifacts, small, embedded, as if left behind not by builders but by the physics of the place itself, now turned into something beyond modern—2.7—technology that current understanding cannot fully parse. The spires hum at a frequency just below the insects’. They regulate the mist. They hold the temperature. They are scattered, never dominating, always present like punctuation in a language you half-recognize.
+
+The light is 2.0—normal, but wrong here. It comes not from sun or star but from the spires themselves, a steady, even glow that casts no shadows upward, only downward, making the hollow feel like a thought turned inside out.
+
+The world is active—1.9—though its motion is slow and relentless. The mist cycles. The insects swarm in waves that correspond to no clock you know. The tree breathes, releasing spores that shimmer like dust in the spire-light and are caught by winged things and carried back into cracks. Predator and prey exist here in a loop that never resolves into death, only transformation. The ecosystem is in motion, but the motion is circular, ancient, complete.
+
+Strangeness—1.6—permeates without announcing itself. The weirdness is in the coherence: everything here belongs too perfectly to a logic that excludes the outside. The hollow is strange not because it violates rules, but because it has finished writing its own. You feel the beyond-modern not as future, but as residue—engineering that settled into its final form alongside the rock, now indistinguishable from geology.
+
+You stand in it—small, warm, loud with unseen wings, surrounded by scattered presence and vast absence. The hollow holds you the way it holds everything: not tightly, but exactly. A hidden pocket. A final-form sanctuary. Lush in its sparseness. Ancient in its breath. Overwhelming in its quiet, loud life.

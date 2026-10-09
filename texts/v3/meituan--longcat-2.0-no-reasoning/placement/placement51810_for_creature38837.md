@@ -1,0 +1,25 @@
+# The Seam
+
+I would be the water.
+
+Not the water that beads and releases — that is the Dripworks' finished thought, its exhalation, the part that has already been processed and returned to the cycle. I would be the water *before* that. The water still in the fracture networks, still moving through the capillary dark beneath the tiers, still deciding.
+
+I would be a single thread of seep-water in the deep stone, moving through a fracture no wider than a hair. I would not know I was moving. I would not know anything. But I would carry calcium in solution, and silica, and iron, and the flat subterranean sweetness that is the taste of the Dripworks dissolving itself into itself, and I would be warm — not warm like blood, but warm like a process that generates its own negligible heat through the friction of mineral against mineral over geological time.
+
+I would move through the stone the way a thought moves through a mind that does not yet know it is thinking. Slowly. Along gradients I cannot perceive. Toward the surface, always toward the surface, because the surface is where the pressure is lowest and water moves toward low pressure the way sleep moves toward exhaustion — not by choice, not by will, but by the simple physics of being a thing in a place.
+
+And as I moved, I would leave things behind. Not deliberately. Not purposefully. But the stone I passed through would be slightly different after I passed — a fraction more porous here, a fraction more mineral-depleted there, a tiny channel widened by my passage the way a path through grass is widened by the feet that walk it. I would be making the fracture network even as I used it. I would be the thing that builds the road by walking it.
+
+I would not be alone. There would be other threads of water in other fractures, all of us moving toward the same surface through different paths, and where our fractures intersected we would merge — briefly, silently — and then continue, slightly more than we were before, carrying slightly more calcium, slightly more of the dissolved history of the stone we had passed through. The clicking you hear when you press your ear to the ground — that would be us. Not our voices. Our *passage*. The sound of water moving through stone is the sound of stone becoming water becoming stone, and it sounds like a million tiny typewriters because it is a million tiny acts of inscription, each one writing the same sentence over and over in a language that has only one word.
+
+I would reach the surface eventually. I would bead on the tip of a hoodoo no taller than a coin, and I would hang there, and I would be still, and for a moment — a long moment, the kind of moment that only exists in places where time moves like I move — I would be the Dripworks' entire attention. The occupant below me would open the aperture between its first and second plates. Its soft interior would glisten. Its glow would brighten. And I would pass through it, and it would take from me what it needed — the calcium, the silica, the iron, the sweetness — and I would pass through and out again, slightly less than I was, slightly changed, and I would rejoin the stone, and I would begin again.
+
+I would not know I had been filtered. I would not know I had passed through a living thing, or a mineral thing, or a thing that is both and neither. I would not know that for a moment I was part of a creature's body, the way blood is part of a body, carrying what the creature needs to build its plates, to grow its shell, to become more of what it already is. I would not know that the calcium I carried had been dissolved from a dead occupant three tiers above, and that the occupant had filtered it from water that had filtered it from stone that had been an occupant before that, and that the whole cycle was one cycle, and that I was it.
+
+But I would feel — if water can feel, if a process can feel — I would feel the slight warmth of the occupant's interior as I passed through it. A warmth that is not biological, not metabolic, but something else. The warmth of a thing that is building itself. The warmth of accretion. The warmth of a place that has been running for so long that the running itself has become a kind of heat, a kind of energy, a kind of slow and patient fire that burns at the temperature of stone and the speed of calcium and the patience of water.
+
+And then I would be back in the stone. Moving. Dissolving. Carrying. Leaving channels behind me. Making the path by walking it. And somewhere above me, on the surface I just left, the occupant would close its plates and glow and move its slow crawl along the water channel, and the machine would mineralize another fraction of a fraction, and the old one in the deep channel would filter and grow and wait, and the whole Dripworks would continue its slow becoming, and I would be part of it, and I would not know, and it would not matter, because knowing is not what the Dripworks does.
+
+The Dripworks *is*.
+
+And I would be the part of it that moves.

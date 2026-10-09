@@ -1,0 +1,31 @@
+I would be a child.
+
+Not yet one of the changed ones—not yet luminescent, not yet woven into the network's slow cognition—but close. Close enough that the boundary between my body and the place has begun to feel negotiable. Close enough that I can feel the pulse in the cobbles before I step on it, that the filaments in the lower pools part around my ankles like they recognize me, or like I am already partly them.
+
+I would live on the middle terraces, in the Forge Folk's quarter, because my mother works the brass—she makes the pulse-readers, the delicate instruments that measure the network's rhythms—and because the middle terraces are where the sounds overlap most completely: the hiss of rain on corrugated iron above, the ring of hammers at eye level, the deep hum of the weave below, all of it layered into a single texture that I have never known anything else and cannot imagine anything else.
+
+I would spend my days in the water.
+
+This is what the adults worry about, and they are right to worry, but not for the reasons they think. They worry that the filaments will trap me, that I will be caught in a constriction and held under and drowned in the warm, thick, living soup of the lower pools. This has happened. It happens still. The network does not distinguish between a foot and a stone; it grows into both with the same patient purpose, and if you do not know how to wait—how to breathe slowly, how to let the pressure build and release, how to feel the rhythm of the constriction and move with it rather than against it—you can be held for hours, for days, until the filaments decide, in their slow and mindless way, that you are not a gap to be filled but a surface to be grown around, and they release you.
+
+I know how to wait. All the children know. We learned it the way we learned to walk on the slick walkways, by falling, by being caught, by feeling the network's grip and understanding that it is not malice but *attention*—the same attention it gives to a crack in the basalt, a gap between cobbles, a space that must be filled. We are, to the filaments, spaces that must be filled, and the filaments are, to us, the medium we move through, and the relationship is not comfortable but it is *familiar*, and familiarity, in this place, is the closest thing to safety.
+
+I would go to the lower pools in the morning, before the forges are fully lit, when the city is at its dimmest and the only light is the faint warm glow of the processors and the faint rust-colored shine of my own skin, which has not yet become visible to others but which I can see when I hold my hand close to my face in the dark. I would wade into the water up to my waist and stand still and feel the filaments against my legs—not the caustic sting that the adults describe, but a warmth, a pressure, a *recognition*, as if the network is tasting me, testing me, deciding what I am.
+
+And I would listen.
+
+Not the way the Listeners listen, with their ears pressed to the walls and their breathing synchronized to the pulse. I would listen the way a child listens—with my whole body, with my skin and my bones and the water against my legs and the hum in the cobbles beneath my feet. I would listen for the sound beneath the sound, the frequency that the adults can feel but cannot hear, the thing that the children call *the singing* and that has no other name because no other name is needed.
+
+The singing is not a voice. It is not a language. It is not a message. It is the sound of the network *being*—the sound of filaments growing through stone, of water moving through channels that remember being lava, of minerals dissolving and being re-deposited, of the slow metabolic heat of ten thousand processors, of the mist rising from the breeders and falling as rain and rising again. It is the sound of the city breathing, and it is the sound of my own breathing, and the two sounds are not the same but they are not different, and the space between them is where I live.
+
+I would not know what I am becoming. The adults do not know, and the children do not ask, because asking implies that there is a choice, and there is no choice, or the choice was made long ago, the way the rain was decided long ago, the way the basalt was flowed long ago, the way the network was seeded long ago. I am becoming part of the weave, or the weave is becoming part of me, and the direction of the transformation is not clear and does not need to be, because the transformation is not a journey from one state to another but a *deepening* of the state I have always been in—the state of being here, in this place, in this rain, in this warm and patient and overwhelming life.
+
+I would press my hand to the wall and feel the pulse and smile, because I recognize it, because it is the same rhythm as my own, because the distinction between my heartbeat and the network's heartbeat is becoming, slowly, the way everything becomes in this place, less meaningful, less necessary, less *real* than the thing that is emerging from its erosion.
+
+I would be a child of the Filament City. I would be small and careful and rust-colored and warm. I would move through the water like a fish through seaweed. I would listen to the singing. I would feel the pulse in my bones and my teeth and my dreams.
+
+And one day—not soon, not suddenly, but slowly, the way everything happens here—I would press my hand to the wall and the wall would press back, and I would understand that the wall and my hand and the pulse and the rain and the singing and the warm dark water and the slow patient filaments and the forge-hammers and the brass instruments and the mist from the breeders and the dissolved minerals of everyone who has ever lived and died in this place are all the same thing, all one thing, all the vast and patient and incomprehensible body of the city breathing in and breathing out, and I would be part of it, and it would be part of me, and the distinction would not matter, because it would not be a distinction but a *continuation*, the way a river continues into the sea, the way a filament continues into the stone, the way a child continues into the weave.
+
+The rain falls. The filaments pulse. I stand in the water and listen.
+
+I am here. The city is here. We are here, together, becoming what we already are.

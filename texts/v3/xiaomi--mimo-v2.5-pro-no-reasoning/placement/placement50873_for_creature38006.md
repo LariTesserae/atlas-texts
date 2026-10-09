@@ -1,0 +1,25 @@
+The light finds you not as a stranger, but as a returning pressure. It is the first and only warmth you have ever known, a warmth that scours and stills. You do not blink against it; your inner membranes slide across your eyes, scattering the glare into a thousand fractal rainbows before the focus returns. The cold is a familiar embrace, a solid thing that holds you together. You are low to the ground, your broad palms and the soles of your padded feet feeling the vibrations of the world through the glassy mosaic. The groan of the great ribs is a song you have always understood. The creak of settling frost is a language.
+
+You are a Bone-Tender. You are one of the Quiet Ones.
+
+Your name, if you had one that could be spoken in the clicks and vowels of the open air, is not important. Your identity is your task, your place in the lattice. Right now, you are a *Shaper-of-Frost-Currents*. Your tools lie heavy and familiar in the harness of woven sinew across your back: a hammer of polished femur, its head worn smooth by generations of hands; a scraper made from the serrated mandible of a long-vanished burrower; a pouch of finely ground lichen-spores, smelling of dry stone and cold phosphorescence.
+
+Your current work is a channel. On the western face of a towering rib that arches over the settlement of *Uur-Thal*, a weeping seam has frozen into a chaotic waterfall of daggers. Left alone, it will grow too heavy, tear away stone, and create a fissure for the skittering, transparent things to infest. It is a flaw in the grand geometry.
+
+You do not fight the ice. You speak to it.
+
+You begin by listening, pressing your broad, whiskered cheek against the frozen cascade. You feel the stress points, the tiny fractures where the pressure of the freezing water is too uniform. You hum, a low, resonant drone in your chest that vibrates through the bone and into the ice, a tune that matches the deep hum of the light itself. Then, you work.
+
+The femur-hammer strikes not with force, but with precision. *Tink. Tink-tink.* You chip away the chaotic mass, not to remove it, but to guide it. You are not a destroyer; you are a facilitator. You carve shallow grooves, speaking the water’s slow, inevitable path for it. You etch a stress-line here, a capillary there. Your mind does not hold the blueprint of the final form; you feel it emerging, a solution offered by the ice itself as you remove the cacophony. The work is silent except for the percussion of your tools and the soft, rhythmic flashes of blue light pulsing from the patch on your throat. *Steady progress. Safety in the pattern.*
+
+A skittering sound—a real one, not a ghost. A six-legged, furred rodent with eyes like polished night scurries past, its feet barely disturbing the frost. It pauses, whiskers twitching, then darts into a thicket of pale, pulsing lichen to your left. You feel no alarm. It is a fellow tenant, a note in the symphony. Later, you might check the snares you set nearby; its bones will be useful, its pelt will be a lining for a child’s hood. But now, you are the Shaper.
+
+Hours pass, or perhaps half a day. The light does not change, but the pressure in the air deepens as a slow-motion geyser of super-cooled vapor erupts from a grate three tiers below, hanging in the air like a ghost before settling. You pause, feeling the shift in the moisture, the new layer of frost it will bring. You adjust your plan, your grooves curving slightly to accommodate the new deposition.
+
+When the channel is done, it is not beautiful in the way a flower is beautiful. It is beautiful in the way a crystal is, or a perfect equation. The seeping water now follows a gentle, spiraling path down the rib, freezing in orderly, feather-like plates that strengthen the structure rather than burden it. The chaos has been tempered into order. The wound is tended.
+
+A deep, subsonic hum vibrates up through your feet. It is the signal for communal tending. You wipe your tools on a scrap of pelt and turn, your pace slow, deliberate. You see others emerging from the ice-carved terraces and hollows of the bone-structure, their forms broad and solid against the brilliant white, their own patches of skin pulsing with soft ambers and blues in the shared language of purpose.
+
+You move toward the center, where a great, bowl-like depression in the leviathan’s pelvis has been cultivated. The Lichen Garden. Here, the pale crust grows thick, its inner luminescence brightest. You join the circle, kneeling to scrape away a competing, tougher growth with your mandible-scraper, your movements synchronized with your neighbors. The silence is not empty; it is full of shared attention, of the mutual hum that soothes the groaning bone.
+
+You are not lonely. You are a neuron in the mind of the Sinter, a tendril of its slow, crystal logic. The light presses down, the cold holds you fast, and the great, dead god you tend shifts a millimeter under your care, its bones creaking a song you were born to sing back to it. You are a Sinter-Walker. You are the Quiet. You are, in the only way that matters, home.

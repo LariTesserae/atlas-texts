@@ -1,0 +1,17 @@
+There is no sky here—only the water, 2.7, and its refusal to end.
+
+You do not arrive so much as dissolve, received downward through falling atmosphere until the weight of the column above is not pressure but presence—continuous, soundless, like a prayer that never learned to speak. The height is absolute: 1.6, an elevation that should open into air and emptiness, yet offers neither. Instead, you are submerged in every sense of architecture. The liquid hangs in near-solid curtains, a wall of rain turned eternal, filling every void between the crystalline ribs of the region until falling and standing and being become the same grammatical error, corrected only by the flow itself.
+
+Everything is made—2.7, total construction. No bedrock remembers geology; the substrate is engineered lattice, frost-welded alloy and mineral glass worn smooth by eons of abrasion—erosion at 2.8, settled now into primordial stability, the exhaustion of form rather than its birth. The cold holds constitutional: 0.4, not seasonal but structural, a temperature that thinks slowly, that refuses urgency.
+
+The scale unfolds past the immediate—2.0, regional—a valley of absence stretching between scattered monuments of obsidian shadow. Density is sparse: 1.4, long intervals of nothing, then suddenly a pillar, an arch of black water suspended by forgotten tension, dormant machinery humming below human hearing.
+
+Light is 1.0—dim, reluctant. No sun penetrates. Instead, life provides its own faint, necessary glow. The bioluminescent fauna are abundant—1.7—though scattered like living punctuation through the dark: translucent, elongated, some small as a hand, others reaching like slow cathedrals across valleys. At 0.4, they bear no technology, no markings of tools—only bodies evolved, or designed, to navigate this turbulence not as disaster but as grammar. They pulse in blue-violet, and in those brief illuminations the built world reveals itself—smooth, round, eroded into a roundness that seems almost tender, ancient beyond the need for origin.
+
+The turbulence is absolute—3.0, hyperactive, the constant temperament of this place. Currents shear against high ligaments; vortices open and close; architecture collapses at one end and is rebuilt—by pressure, by flow, by hidden mathematics—at the other. The environment lives at anthill intensity translated into liquid dynamics, a storm-state that has become baseline. Nothing stays; nothing rests; the negotiation between weight and form is endless, silent.
+
+Sound is 1.1—mostly quiet. The chaos is largely without noise: no thunder, only the deep, sub-aquatic murmur of mass in motion, a low-pressure hum that settles in the teeth. Occasionally a creature releases a tone—long, mournful, resonating like a bell struck in another century.
+
+Plants do not exist—0.2—only absence where green should be, a mineral world where even fungal intuition fails. The weirdness is present but restrained—0.7—not in spectacle but in wrongness: water that behaves like thought, cold that feels like consciousness, abundance that resolves into loneliness.
+
+This is ancient—2.8, near-flattened, the end of process. A world that constructed itself, then forgot its reason, leaving only the architecture of that forgetting and the scattered, glowing beings who drift through it, surviving in chaos they do not question, within a manufactured ocean without bottom or sky, high, cold, and endlessly in motion.

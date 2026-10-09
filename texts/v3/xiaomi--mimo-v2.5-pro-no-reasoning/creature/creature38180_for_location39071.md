@@ -1,0 +1,15 @@
+The Warm Pocket breathes. Its inhabitants do not live so much as *occupy* it, each to a precise and urgent specification.
+
+They are a density of presence. On the weeping ceiling, the harvestman is an eight-pointed asterisk of patience, its body a pale knot above the unceasing drip. It has measured the space and waits within it, a hunter in a world where the longest journey is the length of a foreleg.
+
+Beneath it, the clay is a textured tapestry of movement. The oribatid mites are not so much individuals as a living grain, a crawling mosaic that grazes the invisible film on the mineral skin. They are the pocket's primary processors, turning the ghost of a biofilm into mite, into stillness, into the potential for more mites. Their stillness is not fear; it is a communal calculation. When the warm breath enters, they pause as one, a thousand-footed nerve, then resume their silent harvest.
+
+The springtails are the punctuation. They are less numerous, more vivid in their motion—a sudden, jerky vitality that throws them from wall to wall in arcs that are less flight than directed collapse. They test the humidity, their pale bodies mapping the moisture gradients, their clicks the only percussion in the pocket’s drip-and-hum rhythm.
+
+Down on the damp silt floor, the beetles are the patrol. Dark and ridged, they move with a deliberate, armored purpose. Their antennae dip and touch in silent, complex negotiations over territories so small a human would see only a speck of mud. They follow the seep, drawn to the deeper dampness, tracing paths that are their entire universe. They are the pocket’s cartographers, and its inhabitants, and its reason.
+
+And in the back, in the trembling puddle, the chironomid larvae are the pocket's slow, red heart. They writhe in a U-shaped agony of growth in the silty shallows, each a bloody thread weaving through the sediment. They are the culmination of the moisture, the living proof that water here is not merely dampness, but habitat. A single, impossible nematode drifts among them, a filament of time in a space that has almost none.
+
+Together, they are not a colony. They are an *event*. A spontaneous congregation in a vessel shaped by the bite of a machine. They have made a pact with warmth and dampness, and they keep it with absolute focus. The pocket is their ark and their entire world, and they are building it as they live, with their bodies, their waste, their quiet deaths, their slow consumption of its mineral skin.
+
+They are unaware of the spoil heap settling outside, the idling engine, the survey stake beginning to rot. They know only the scale of their world: the seep, the drop, the wall, the neighbor’s antenna. Their existence is a held breath in the warm clay, a tiny, teeming grammar that will persist until the world outside either forgets them or swallows them whole. Until then, they are here. They are enough. The pocket breathes, and they are its breath.

@@ -1,0 +1,17 @@
+**Who Lives in the Cradle**
+
+The bowl is not empty. Its residents are the ones you might take for part of the machinery, until you look closer.
+
+They are the Tenders. There are perhaps forty of them, though the count is hard to settle, because some are only visible when the leaves shift. Each one is set into the growth where a pipe meets a stalk or a valve meets a trunk. They are human in outline, but the outline has been slowly absorbed. A shoulder runs into a conduit. A forearm is sheathed in bark, and the bark has grown around the wrist like a cuff. Through the amber film on the leaves you can see a face pressed into a split trunk, eyes open, mouth set on a word it never finished.
+
+Their hands are the clearest sign of what they do. Each Tender rests a palm on a valve wheel or a crank, and the wood of the wheel has worn into the exact shape of that palm over a span no one can measure. The fingers curl in the grooves. When the pressure valves hiss on schedule, the hiss is their breathing, slow and shallow, a single exhale every few minutes. When the turbines pass through their stroke, the deep thrum is the pulse under the bark. They are not sleeping. They are holding the rate.
+
+The sap is their food and their time. It beads on their skin and runs down into the leaves, and it is the reason the plants are so lush in a dry place. The Tenders are slowed so far that a single drop of sap might take a year to fall the length of a finger. So the growth around them is not really growing. It is their own slowed life, spread out through the stalks and pipes, the way a hand's warmth spreads through a glove. When you see a fern unfurl from a junction box, it is one of them, very slowly, deciding to be a little larger.
+
+At the centre of the bowl, where all the pipes converge, stands the largest trunk. It is taller than the gantry and split down its length, and its heartwood glows a dull brass-green. Inside the split is a woman, or someone who was once a woman, standing upright with both hands on a great wheel. Her face is turned toward the gauges. Her eyes are not closed. The steam from the central vent rises from her open mouth at the same angle it always has. She is the conductor of the whole equilibrium. Every other Tender is tuned to her, so that the engines keep their speed and the plants keep their shape and nothing in the bowl drifts a hair's breadth from where it was set.
+
+It is hard to say whether she was put here or chose it. The painted arrow on the wall points toward her, and the boot-prints in the salt lead to the foot of her trunk and stop, as though whoever made them stood there and did not walk on. Perhaps they all came to hold something steady, and held it so long that the holding became their whole shape.
+
+No animals live here, because nothing that moves could survive the stillness. The Tenders are the only living things that can. They do not call out or stir or ask to be let go. But if you stand near the central trunk long enough, feeling the thin cold air get into your lungs, you may notice that the drone is not quite constant. Under it, at very long intervals, a valve somewhere clicks a fraction early, and a leaf turns its edge toward you, and the woman's eyes seem, for one slow breath, to have followed you across the bowl before the moment settles again.
+
+Whether she is keeping the world in place or the world is keeping her, the bowl cannot say. It only holds its breath, and so do they.

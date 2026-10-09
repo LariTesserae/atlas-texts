@@ -1,0 +1,23 @@
+Here, in a hollow no wider than a clenched heart and buried so deep that nothing above remembers sky, there lives a stillness that behaves like life.
+
+The air is thick with minerals and holds at about half-summer—warm, unmoving, and utterly dry. Not a drop of water has ever entered. No rivers feed it, no seep touches its skin, no dew collects. Instead, the darkness is filled with a constant, dim amber glow that comes from neither sun nor flame but from the slow, constant burning of the moss-fiber walls themselves, as if the hollow’s very membrane smolders gently in perpetual twilight.
+
+Everything is fresh, sharp-featured, young in geological terms. The ceiling is spalled crystal in blade-like ridges that have not yet been worn round by time or erosion—sharp edges that will never dull. Below lies the floor: a flat plate of black basalt that cooled into this exact shape and will not change, a dark pool of stone that remembers nothing.
+
+And within this sealed chamber, life is scattered with enormous, deliberate emptiness between each presence.
+
+Thick vines of pale gray-green hang in isolated curtains from the crystal ceiling—never touching one another, always separated by yards of naked, burning stone. Their serpentine bodies pull what they need from the mineral air and the warm darkness alone. The leaves are broad, waxy, translucent like wet parchment, and they do not grow; they are present, fully formed, eternal in form, suspended in curtains of lush stillness.
+
+The black basalt floor is dotted with small round cushions of moss—some no bigger than coins, others the size of a child’s hand—spaced far apart in an unbroken pattern that has never shifted. They are emerald, velvet-dark, and they do not spread. They simply exist, lush and isolated, thriving without moisture.
+
+The fauna is abundant but never crowded. Tiny eyeless white-shelled beetles click and crawl across the basalt in loose, intermittent processions, always leaving gaps between groups. They feed gently on the moss without damaging it, and they do not reproduce into swarms—there is exactly enough of them, spread across exactly enough emptiness, as there always has been.
+
+Higher, along the vine-curtains, hang clusters of translucent six-winged insects. Except for the constant, loud vibration of their wings, they hang motionless. Their hum is sustained, resonant, omnipresent—a deep mechanical drone that fills the hollow without echo or decay, never dropping, never intensifying. The crystal ceiling shivers in sympathy with the sound but never cracks. The noise is loud, invariant, a single chord held for eternity.
+
+Small, pale, hairless rodents—no larger than fists—sit scattered among the root-knots of the vines, breathing slowly, watching nothing, present but not gathered.
+
+There are artifacts, sparse and primitive, scattered like forgotten thoughts. A single hand-woven ladder of dried vine-fiber hangs forgotten from one shard of ceiling-stone; its rungs are brittle, its purpose lost. Near one wall lies a flat circular grinding stone of dark basalt, worn smooth in one shallow depression, bearing the faint outline of a simple hand-carved mark—two lines, almost a figure—scratched into its surface with something harder and older. There is no settlement, only these occasional signatures: a small heap of broken crystal fragments arranged in a shallow circle that has never collapsed, a single wooden peg driven into a floor crack, holding nothing. The technology is hand-level, pre-metal, manual—someone once was here, or something with hands, and they left only these sparse, scattered traces.
+
+The world within is weird in its perfection. Nothing changes. The vines do not lengthen, the moss does not spread, the beetles do not die out or multiply. The temperature holds at its warm plateau; the dim amber light neither brightens nor fades. The loud hum of the insects is invariant. There is no erosion—no wind, no water, no breaking—only the young, sharp edges of the crystal ceiling, fresh-formed and preserved in eternal stasis. There is no weather, no season, no shadow that moves.
+
+This is a hidden pocket, intimate as a clenched heart and buried far beneath anything that remembers the sky—locked in an equilibrium that never tilts. Lush in its scattered life, loud in its unceasing drone, strange in its absolute refusal to become anything other than exactly itself: a dry, warm, dim chamber where vegetation and fauna share a perfect, motionless abundance across vast spaces of emptiness, beneath a ceiling of fresh blades, upon a floor of black stone that expects nothing.

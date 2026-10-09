@@ -1,0 +1,23 @@
+I would be a survey mark, cut into the wall at the third ledge above the basin floor.
+
+I didn't pick this at first. I started by wanting to be a Lean-Walker, because they walk the high pipes and see everything from above the damp. Then I wanted to be a Hummer, because the warmth in the generator bays would be a comfort. But the Hummers move a hand's width a day, and I found I wanted something that could hold still even more completely than that. Something that had been put in place on purpose and had never been asked to move.
+
+So: a notch, about the length of a finger joint, cut into pale basalt with a steel chisel. Someone's hand made it. The hand held a plumb line against the wall and drew a short horizontal stroke, then a number, then a small upward arrow, which I can still feel as a slight step in the grain. The number has mostly worn away. The arrow is still there because the Lean-Walkers keep finding it.
+
+Here is what it is like to be the mark.
+
+Water is the main thing. Condensation runs down the rock in threads, and the threads find me first, because I am a groove. They pool in the notch, and in the wet season the pool stays for days. The stone around me is wet all year, but I am wetter. Steam from the floor cracks drifts up the wall and beads on me before it beads anywhere else. I am the place where the bowl's breath condenses first.
+
+Then the Lean-Walkers. One came down the wall along the ledge last season, folded its long combed feet onto the tuff, and pressed its flank to me. It was cold and rough and the film it left was waxy, and then it stayed. It stayed for most of an hour. Its lenses flickered in slow sequences, a few dozen throws of light off the brow, a pause, then again. I could not tell what it was reading. It may have been reading me, or the difference between me and the mark below, or the green line creeping toward the notch from the crack in the rock. I think it was checking the number against something it carried in its body, the way you would check a watch against a radio, and finding the two did not agree.
+
+After it left, the root came.
+
+It was thin, pale, almost invisible, and it entered through the crack that runs down from my right end toward the ledge. I felt it before I saw it, as a faint warmth that moved along the grain. The network does not grow toward stone. It grows toward what is still warm, and the stone at the notch is warm where the water has been sitting in the heat. It threaded itself along the hairline, found the arrow, and wrapped it. Now there are white filaments inside the groove where the chisel went in, and they carry faint pulses of current I can feel as tiny twitches in the cut.
+
+I understand now that the network is not keeping me as a record. It is keeping me as a place. The arrow marks the floor's height at the time someone cared to measure it. Every centimeter the basin has dropped since then has put the floor farther below me, and the network has been feeling that difference as a strain along the grain. It is growing into the strain. Where the stone cracks, it holds; where the floor is still moving, it reaches down.
+
+I am also aware, in whatever way a notch is aware, that I am not the only mark. Other notches run down the wall in a line, each one cut at a different year, each one now a little deeper below the moss. The bottom ones are under silt. The top ones are still in the air. I am somewhere in the middle, and I know this because the water pools in me, and the water tells me how high the basin's breath reaches.
+
+I do not know whether I'm the last datum anyone set. The surveyors who cut the marks must have left the bowl long ago, or else they are buried under the towers they measured. The city's plan is in the network, the Skitterers keep the trails, the Hummers keep the engines warm, and the birds keep calling from the rim. But the arrow on this wall is the only thing that still says, in a language nothing here has learned to read, *this is where the floor was.*
+
+Sometimes, when the rain has stopped and the bowl is quiet, I hear a single note come down from the rim. It crosses the basin and reaches the wall and passes through me, and the green thread in my groove goes still, for a moment, the way everything else does. Then the drip starts again. Then the next note. And the floor goes down another centimeter, and I stay where I was cut, holding the height of a day that no one now living remembers.

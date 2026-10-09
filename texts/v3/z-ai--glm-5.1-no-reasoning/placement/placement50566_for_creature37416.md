@@ -1,0 +1,39 @@
+I would be the one who reads the ice.
+
+Not a leader—I do not think this place has leaders in any way the lowlands would recognize—but a listener. An attendant to the glacier's breath. The harvesters call me something that translates, roughly, to *tink-sound*, because I am the one who hears the snap of the stalactites before anyone else, the one who feels the vibration travel through the weeping stone and into my flat, callused feet and up through my dense-boned legs and into the deep bell of my chest where it resonates, and I know: *there*, *that shelf*, *that crack*, *that shift*.
+
+I am old for this place. Fifty seasons of freeze-thaw, maybe more—the counting is difficult because the ice does not cycle reliably, and the light is always the same blinding white, and the only calendar that matters is the thickness of the glaze on the central floor. My skin is the same gray-white as the basalt, but darker in the creases—my palms, the folds of my neck, the deep grooves around my eyes where the condensation collects and runs in tiny, persistent rivulets that mirror the weeping walls. My hands are the widest in the settlement. I can press my palm flat against a wall and feel, through the thick leather of my calluses, the pulse of water moving through the stone. I can feel the warmth of a sipper through three layers of chitin-scale clothing and the gloves I have not removed in years. I have the *touch*.
+
+My dwelling is the highest, carved into a recess near the top of the eastern palisade where the columnar basalt leans outward as if yearning to fall, creating an overhang that catches the geothermal updrafts and fills with the motes—the fliers, the bright-specks, the ones that make the air seem to think. My room is always full of them. They roost in the dark—total dark, such a relief after the arena's blinding 3.0 luminosity—and I can hear them, or feel them rather, the whisper of ten thousand tiny wings folding and unfolding, the soft patter of their warm bodies settling against the stone. I do not net them from my own chamber. I let them stay. In the night, their collective warmth is a blanket, and in the morning, when I emerge blinking into the unbearable light, I am already wearing a faint sheen of their shed chitin, a dusting of iridescence that makes my skin shimmer like the oil-slick surface of the processing stones.
+
+I have been carved by this place. That is the only way to say it. I am subtraction, like the architecture itself—a thing revealed by the slow removal of everything that could not survive here. I have no impatience. I have no expectation of change. I move through the wet, the cold, the teeming swarms with the same deliberate flat-footedness as the sippers on the walls, and when I stop, I stop completely, becoming a feature of the landscape—a gray-white figure pressed against the weeping stone, drinking the condensation from the air, listening.
+
+This is what I listen for: the *tink*.
+
+The quiet, crystalline sound of ice breaking. It is the only true sound this place makes—the only sound that escapes the dense, muffling fog, the only sound that matters. Everything else is wet friction, the slide of chitin on stone, the drip of water, the wet pop of a sipper pried from its fissure. But the *tink*—the *tink* is information. It is the plateau speaking.
+
+I have learned its language.
+
+A high, sharp *tink*—that is a stalactite snapping cleanly, a normal event, the balance holding. A low, groaning *crack*—that is an ice shelf shifting on the central floor, and it means the freeze has reached deeper than usual, and the threaders will be sluggish in their traps tomorrow, and the meal will need to be supplemented with extra fliers netted from the thermals. A rapid series of small *tinks*, like laughter—that is a cascade, a section of glaze-ice shattering all at once, and it means a warm seep has opened somewhere below, and the water is coming up faster, and the sippers will crowd to the new fissure and the harvest will be good but the walkways will be slicker, and someone will fall if they are not attentive.
+
+I listen. I translate. I tell the others—not with words, but with presence. When the ice speaks of danger, I stand at the entrance of my high dwelling and I do not go down. The others see me, and they know. They check their footing. They move their traps. They pull the children into the warm chambers and press them against the geothermal floor. When the ice speaks of plenty, I descend to the processing stones and I work alongside the others, my wide hands cracking threader bodies with a rhythm that matches the slow, deliberate placement of the sippers on the walls. I am part of the swarm then, another dark, purposeful mote in the cathedral of weeping stone.
+
+I have a daughter. She is twenty seasons, compressed and dense like all of us, but her lungs are deeper even than mine—she can stand in the coldest updrafts and breathe without gasping, and she nets the fliers with a grace that makes the others stop and watch. She does not listen to the ice. She listens to the air. She feels the thermals change before the fliers do, and she knows when the columns will rise and when they will fall, and she positions her net-loop with a precision that seems, to me, like another kind of *tink*—another way of hearing this place speak.
+
+We do not talk about what I know. We do not need to. She has her attention, and I have mine, and together we attend to the whole of the plateau—ice and air, stone and water, the living and the dying. Sometimes, in the dark of the chambers, when the fliers roost and the geothermal warmth seeps into our bones, I feel her breathing beside me, and I feel the stone breathing beneath us, and I feel the water breathing through the walls, and I understand: I am not *in* this place. I am *of* it. I am its attention turned inward, its capacity for listening made flesh.
+
+The others must feel this too. How could they not? We are all carved from the same subtraction, all pressed into the same shape by the same cold and wet and light. But I feel it most acutely because I am the one who waits, who watches, who translates the *tink* into knowledge that keeps a hundred souls alive in a place that should not support ten.
+
+Sometimes I dream—not in images, because the light has burned the image-making out of me, left my vision a constant white-gray blur of moisture and motion—but in *tinks*. A language of fractures. A conversation of breakage and reformation. In the dream, the ice speaks to me directly, and I understand every syllable, and I answer in the same tongue, and the plateau shudders with the effort of containing the dialogue, and I wake with the taste of mineral water on my lips and the feel of my daughter's breath against my neck and the sound of the fliers stirring in the dark.
+
+I am the one who reads the ice. I am the *tink-sound*. I am the plateau listening to itself.
+
+And when I die—when my dense bones are hollowed into chisels and my oils are burned in clay lamps and my flesh is given to the threaders or the deep processing stones—my daughter will take my place at the high dwelling, and she will feel the ice through her wide, callused feet, and she will hear the *tink*, and she will know what it means. And the plateau will go on, weeping and freezing and breaking and becoming, and the swarms will move, and the people will move, and the needle-point will hold.
+
+Because we attend. Because we are the attention this place requires. Because life is not a visitor here—life is the substrate, and the substrate has learned to listen.
+
+*Tink.*
+
+*Tink.*
+
+The ice breaks. I hear it. I descend.

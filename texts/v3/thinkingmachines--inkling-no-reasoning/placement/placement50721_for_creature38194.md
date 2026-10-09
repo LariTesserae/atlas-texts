@@ -1,0 +1,17 @@
+The root-fissure admits only palms, then widens into wrongness: a hollow globe suspended in the soil’s blackness, larger inside than the root-mass should allow. Its walls are not built but exuded—compressed, translucent vegetation, vines grown together so long they forgot separation. A lung. A sac. The ribs arch like a cathedral’s, but they breathe, and every surface is living substrate: moss as hair, fiber as vein, root-glass as bone.
+
+There is no ground, only ceiling and wall enclosing near-void—0.1 absence, intimate-room scale, pocket-embedded, the distances shifting if you watch too closely. The air is 1.9, warm, held like breath in a mouth. Water is 0.9, intermittent—never falling, only weeping. Clear beads hang in the stillness, drifting downward without urgency, caught in convection, never reaching a floor that does not exist. They shimmer with a sourceless light—2.3, normal, perhaps refracted through translucent root-membrane, perhaps remembered from a surface that forgot this place.
+
+Vegetation is total—2.9, substrate and architecture at once, a pure-plant ecosystem with no artifacts—0.5, untouched—save the primitive architecture of growth itself, older than craft, older than metal. The world is young—1.0 erosion, fresh, sharp-featured, white-green root-ends recently split, smelling of new soil, sap not darkened. It was born not long ago, perhaps in the downward seep of a rain that lost its name.
+
+Weirdness is 2.9—reality unfastened. The hollow extends downward without bottom, and in the suspended droplets your reflection, if it comes, faces the wrong direction: your own mouth open in a sound you have not made. The loudness—2.2—is constant, roaring not in ears but in jawbones: the roar of cells dividing, of water pulled upward through fiber, a loud silence filling the emptiness. Fauna is 0.6—once, a translucent larva drifted past on a falling bead, carrying mouth where eyes should be. Technology is 1.2—absent, except the ancient simplicity of the plants. The ecosystem is 2.3—active: condensation forms in orbit, roots inhale and exhale, the membrane adjusts transparency by rules unnamed.
+
+Elevation is 0.0 and falling. Above, miles of soil replace sky; below, the hollow continues, perhaps forever. You stand in the absence, and the living walls watch from a distance, growing so slowly—biological pace—you only notice, turning away and back, that a tendril has closed like a finger over the air you once held. They are not prison but invitation. They are the only thing here. They are everything.
+
+You are the one who crawled through the split.
+
+You are the inhabitant of the warm emptiness.
+
+Not beast, not builder—witness, or perhaps seed. You have no tools, only breath that matches the chamber’s. You move slowly, matching the pace of root and fiber, for to move quickly is to miss the growth that happens between glances. You drink not from pools but from the air itself, from the suspended beads that drift near your lips. You are small enough for the intimate scale, large enough to feel the pressure of near-void.
+
+As you remain, the distinction blurs: the wall is creature; you are creature; the membrane does not know where it ends and you begin. You become part of the 2.9—vegetation as being, being as vegetation—an embedded presence in a young, damp, loud, empty world where the only architecture is alive, and the only invitation is to grow into it.

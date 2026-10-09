@@ -1,0 +1,21 @@
+The continent is flat and low, only barely rising above its own tears. There is no horizon that doesn’t hold architecture. For thousands of miles in every direction, the ground is a single continuous urban membrane—no soil, no bedrock exposed, no tree or weed—only tier upon tier of gray-black composite, saturated to the point of breathlessness. Every cubic meter is occupied. The density is absolute.
+
+Above all this, the air is warm and permanently weeping.
+
+Not rain—something closer to perpetual exhalation. Moisture beads on every vertical plane, condenses in the negative spaces between buildings, runs in sheets down facades of impossible alloy. The world holds 1.7 parts water to every part air, and the boundary between them has been negotiated away. Clouds do not drift overhead; they sit inside the canyons, filling the lower hundred stories like fog that remembers pressure. The surface glistens. Every roof is a shallow pool in slow motion, evaporating and returning, a closed loop of warm, weeping atmosphere.
+
+The ecology is mineral and beyond-green. No chlorophyll breaks the monochrome. In its place, fungal analogues spread like living grout—pale, rubbery, semi-transparent—filling the cracks where two structures have grown together. They are the only softness here, digesting dead circuitry and exuding warmth. They are abundant, part of the fauna of this place, along with things that move with purpose but no biology: swarms of maintenance entities, crystalline scavengers, engineered life that breathes steam and navigates by pressure differentials. These move through every available interstice—above, below, within—because there is no unused space. They are the blood of a city that is also an organism.
+
+And the sound is deafening.
+
+Not chaos, but saturation. A constant 2.7 roar, the summed voice of a continent-sized machine. Turbines, pumps, traffic in subterranean veins, the groan of structures adjusting to thermal load—layered into a wall of white noise that never peaks and never falls. Conversation is conducted in vibration. The air itself carries weight, trembling with the kinetic budget of billions of simultaneous processes.
+
+The technology is not visible so much as structural. Buildings do not sit on foundations; they are woven together by forces physics has not named for us—fields that bear weight without column, energy routed through pathways that phase in and out of local geometry. The city is layered to impossible depth: upper stratum open to the weeping sky, middle realms dense with occupation, lower depths where warmth pools and pressure builds like a held breath. This is urban to its marrow, but urban as a natural law, like coral or termite architecture—organized, layered, self-building.
+
+The scale makes its own weather.
+
+Vastness here is not emptiness but overwhelming presence. Storms form not in skies but between districts, turbulent fronts of exchange—energy, material, information—moving like hyperactive weather through streets that never end. The dynamic is 2.9: constant, unstable, Solaris-like in its generative violence. Nothing stands still long enough to be called a landmark. Sections are rebuilt between heartbeats. The erosion is not destructive but settled—1.5, a long balance—where decay and construction have reached a mutual rhythm. The ruins are incorporated immediately, melted back into the substrate, so that every apparent ruin is also a nursery.
+
+Light is ordinary, 2.1, diffuse and scattered by the omnipresent moisture—no sharp shadows, only gradients of gray and silver. Visibility extends only until the next wall, and that is everywhere.
+
+This is a place that does not remember nature, because it replaced it with a more intense version of itself: warm, wet, loud, turbulent, and so densely, impossibly built that emptiness has become a forgotten concept. The water weeps upward and downward in equal measure. The fauna moves in deafening streams. The world holds its breath and continues, vast, low, and utterly full.

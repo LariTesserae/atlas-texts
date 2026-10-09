@@ -1,0 +1,13 @@
+You are not the hollow, but the lichen: a being of 0.8 presence and 0.7 density, clinging to the pale limestone rib at the edge where the ceiling of motionless cloud presses closest. You do not grow; you continue. Your roots are fibrous, wedged in the same crack for longer than the wall—once a right angle, now melted into slope—has remembered being straight. You have no eyes, but you register the 1.0 light, diffuse and gray-green, the exact shade you hold in your body.
+
+The air is still, not dead—merely complete. You hold the 1.6 warmth in your flat, gray-green mat, neither metabolizing nor releasing it. Around you, emptiness is generous: bare ochre stone, packed dust, other scattered lives separated by quiet distances. The plants near you do not compete; at 0.8, they know the terms of persistence. A stunted grass to your left. A thinner stalk to your right. Between you, the stone breathes nothing.
+
+Every indistinct day—there is no other kind—moisture arrives at 1.2, precise and necessary. It beads on you. A single drop, silvery, hangs in the same pore, then vanishes before becoming a pool. You do not drink it with urgency; you accept it as the air is accepted: present, then absent, then present again. The drip that falls elsewhere, at 1.0, is the only voice—soft, expected, never surprising—finding a lower stone with its small click. You have heard it since you began, and you will not hear its end.
+
+There are no others—0.5—no insects tracing your surface, no birds in the brittle canopy above, no feet, no shadows that move with intent. You are fauna without being animal, existing in the absence that makes your presence legible.
+
+The ground below is the true elder. Erosion at 1.9 has done its work and left. Rounded pebbles lie fixed, half-buried, smooth signatures of water that will not return to move them. The channels are perfect, shallow, abandoned. The flat slab—once cover, now shelf—holds its beads in cupped hollows, just as the hollow holds you.
+
+You do not remember being smaller. You do not anticipate being larger. The dynamics are 0.2: you neither spread nor retreat. Your presence is minimal, your technology nonexistent, your weirdness 0.0—there is nothing strange in your being here, in the steady 1.6 cup of warmth, in the low elevation of 1.2, in the completed, patient agreement between stone and the minimal life permitted to remain.
+
+You are complete. You are the quiet that requires no listener. You are the word in the long, slow sentence of the place, separated by generous emptiness, never rushed, never alone.

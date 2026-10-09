@@ -1,0 +1,15 @@
+Inside the hollow of a high-altitude cloud—elevation 2.5, suspended in cool, pressurized air—there lives **the Drift-Mother**, though she is less an individual than an unfinished agreement between water and stone.
+
+The dwelling itself is a pocket-cavity no larger than a chapel, its dimensions more suggestion than law, hidden at a scale of 0.3 within the greater storm. Here, density is 0.3; matter is nearly abolished, save for the overwhelming presence of water at 2.8. It is not falling rain but an ambient ocean—suspended droplets, wall-to-wall atmospheric liquid—filling every interval with a deafening 2.8 roar: white noise, crashing micro-currents, the constant deaf saturation of turbulence that renders silence obsolete. The dynamic is 2.7, hyperactive, a churning of creation and dissolution, droplets colliding, merging, splitting in chaotic, Solaris-like negotiation.
+
+The air is cool at 1.2—sharp, a glacier’s breath made breathable.
+
+Life is scarce. Vegetation registers only 1.3: strange, translucent, thread-like membranes of a single aquatic fern, anchored not to soil but to the one structure that holds form here. For this place is not untouched. Built presence is faint, 1.4—scattered like seeds in wind. At the center of the cavity floats a platform hewn from dark, compressed fiber or half-formed stone, its technology at 0.6: primitive, manual, pre-industrial in the extreme. Its edges are raw-geology, erosion at 0.4—emerging, just-coming-into-being, the stone still becoming itself, half-solid, half-vapor, unfinished, under construction by the storm.
+
+Fauna is 1.3, rare. The Drift-Mother is perhaps the only witness: a blind, silver-limbed larval creature, primitive in its tools—bone hooks, woven-leaf nets—articulated and slow, navigating the liquid air not by sight but by the vibrations of the deafening roar. Or she is the architect herself, manual and patient, using the raw tools to catch merging droplets, to weave the fern’s translucent threads tighter around the floating platform, attempting to hold form against dissolution.
+
+Light here is 2.5—normal, bright, strange in consistency. Despite the enclosed chaos, illumination is uniform and gentle, coming not from any sun but from the luminous friction of the water itself, glowing softly as it thrashes against the cavity walls, casting everything in an even, underwater glow.
+
+The strangeness is undeniable at 2.2. The pocket obeys no exterior weather. The water holds itself in defiance of gravity, suspended by embryonic physics. The platform is simultaneously ancient and newborn. The sound is not echo but total occupation—deafening without being loud, a saturation of ear and bone, of thought.
+
+What lives here, then, is not a beast or a builder alone, but the act of holding-on itself: a single, scattered, primitive presence—part creature, part caretaker—threading translucent membranes through raw, unfinished stone, floating in hyperactive cool liquid air, listening to the 2.8 roar not as noise but as the language of a world being born inside a hidden chapel, high and empty, drowning in its own becoming.

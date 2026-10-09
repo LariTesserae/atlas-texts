@@ -1,0 +1,11 @@
+The space is a thermal wound—thin air biting like winter, yet the cavity sweats, holding a wet, breathless warmth that pools in the young basalt fractures. The rock feels newborn: split in fresh black glass, weeping rather than worn, each fissure still sharp with the violence of its own appearance.
+
+Here lives the Absence-That-Matters.
+
+It is not a creature with edges but with conditions—an entity assembled without urgency, present like the coherence of rules that have no author. It resides in the scattered platforms: surfaces polished to a wrong dullness, chipped at margins, holding shallow pools that never ripple yet never still, suspended in a shape older than weight. Around them, the being gathers—barely real, barely fauna: translucent beetles tracing geometric paths across warm stone, a sound like dropped glass that produces no echo, spores rising in the heavy air.
+
+The life is sparse because it is intentional: dark ferns clinging to cracks, waxy leaves storing moisture in translucent veins, scattered like placed furniture across long stretches of bare, sweating rock. Between them, the dark column of glass—no taller than a hand—stands at the center, bending heat differently, remembering fire without burning. The woven bridge, too thin for weight, spans emptiness without tension.
+
+This inhabitant breathes slowly with the place. Water beads and hangs; it does not fall downward but moves, imperceptibly, toward the structures, drawn by an instruction etched too precisely into the stone—marks that are not writing, not ornament, but expectation without student. The ecology turns in geometric silence: condensation finding hollow drums, heat rising from beneath the weeping ground, the artifacts adjusting by increments too small to witness.
+
+There is no urgency of hunger, no predator’s arc. Only process—coherent, complete, and strange. The being is the place knowing its own edges: intimate walls that are not prison but agreement. If you leave, they travel in your breath—thin, sharp, wrong—until the moisture forgets, and you are returned to the ordinary weight of air.

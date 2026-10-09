@@ -1,0 +1,19 @@
+I don't think I'd stay on the rim. I'd come over it on the cool flank, where the mounds throw shadow, and the first thing I'd notice is how little of me is the place's own. My feet would be on the crust, but the crust would be warm only in patches. Lower down, where the vapor drips back into a glazed hollow, the air would taste of minerals, and that taste would tell me where I was in the cycle without any clock.
+
+I'd want to be the tapping. Under the broken arch, something keeps time against stone, and it's the one thing in the bowl that doesn't belong to the ranks. Its rhythm seems to lead the vents, and that would make me the pace-setter of everything I can see. But I'd have to stop there, because I'd have no way to know whether I was the clock or the one locked behind it. A thing that counts with no answer to its question is a poor thing to be. I would take the tapping's position as far as it could go and then step away from it.
+
+The disc-shaped things are the bowl's closing reflex, and they are patient. I could be one. I'd lie flat against the rock, feel the walkers' weight through the crust, and fold when the moment came. But when I imagine the hiss of acid and the long stillness afterward, I find I don't want to be the part of the bowl that keeps the numbers down. I'd rather be something that is counted.
+
+The brass burrowers carry what the discs leave. They're necessary, and they never see the sky, and they seem to have no interest in anything beyond the next crumb. I can imagine being one of them, moving blind under the mounds, but the blindness would be too complete. I'd lose the vents, the water, the ripple. I'd have no part in the ranks at all.
+
+The paper-winged things are the ones that go out past the rim. I can feel the pull of that. They rise on the hot columns, spiral above the basin, and settle on the plateau in clusters the walkers below will eventually turn toward. If anything in this place is trying to get out, it's them. Still, I suspect I'd be a poor paper-wing. Their pattern is held in a membrane I can't read. I'd carry a message I couldn't translate, and I'd arrive somewhere cold with nothing to bring it to.
+
+So I think I would be a walker, and a new one. I'd be at the seam, where the old band has split and the new one hasn't yet hardened. My shell would be soft and pale, and my body would be pressed into the mound I'd climbed out of. The skin I shed would be sinking beside me into the fused mass of everything before, and I'd be standing on it. That is an odd feeling to imagine: that the thing I was is already a part of the ground I'm standing on, that my first living moment is also someone else's last.
+
+From there, the ripple would come to me, a click passing from a shell somewhere up the slope, and I would pass it on. I'd have no idea whether it meant the vent was swelling or the water was drying or a disc had lifted its edge. I'd strike the shell beside me without knowing why, and the ripple would go on through the ranks without me.
+
+That is the part I would find hardest and also most right. I wouldn't be the one who decides. I'd be one of the relays, firing in sequence, with no relay in charge. The bowl would think through me, and I would never know what it was thinking.
+
+The grooves on the six standing stones match the bands on my shell. I can't tell whether I'm an animal that will grow old in the rings, or someone whose body was drawn into the ranks long ago and is now only remembered in the stone. I'd stand on that uncertainty the way I'd stand on the molts, and I'd keep clicking.
+
+And when I looked up through the vapor at the grey light, and felt the first cold breath from the plateau, I'd hear the far tapping under the arch, counting, and I'd keep my place in the ripple and not climb any higher.

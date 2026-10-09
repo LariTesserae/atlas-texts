@@ -1,0 +1,21 @@
+Here, the air is 0.2—thin, dry, and laminated with absence. No rivers run; there is only absence with weight, distributed across a valley-sized hollow near the highest curve of elevation, 2.8 out of 3, where atmosphere surrenders and rock remembers being sky.
+
+The climate holds cool at 0.7—never dead-cold, only permanently chilled, the temperature of sealed stone untouched by warmth. Light is dim, 1.4: not darkness, but twilight without source, illumination that remembers rather than reveals.
+
+Below lies the settlement: open, 2.5, stretching past immediate sight. Density is 0.2—vast spaces between presences, near-void, hollow. Yet it reads 2.1 on the scale—urban, layered, organized, infrastructure arranged without technology, pure absence of machinery, of tools, of devices. The architecture is mineral cognition: buildings are calcified pauses; streets are fossilized currents; bridges span moments rather than chasms. A town assembled from refusal—refusal of water, of plant, of tool, of body—arranged with the logic of a city that forgot it was inhabited.
+
+Erosion is settled here, 2.1—not fresh, not violent, but established-form, in-balance, weathered harmony. The rock is being edited, not destroyed. Facets have achieved final grammar; no sharp edges remain, only curves that have agreed with wind.
+
+Sound holds at 0.3—near silence, or quiet sounds. A low hum of pressure differentials. The click of contracting stone. Dust that moves without falling, because gravity is a suggestion. The place is active—dynamic 2.5—not still, but moving in ways that do not involve motion. Weather cycles exist without weather. Ecosystem is in motion without life. Predator-prey dynamics occur between absence and form. The settlement breathes without lungs; its streets widen and narrow on timescales that do not match patience.
+
+Weirdness is 2.9—reality breakdown, nearly absolute. The rules do not fail loudly; they correct gently. Up is sometimes down if you stand in a doorway that is not a doorway but a consensus about edges. The buildings are layered—urban 2.1—stacked not vertically but dimensionally, rooms inside rooms that do not share geometry. You enter a square; you exit a feeling. There are plazas without crowds, avenues that converge on nothing. Density is hollow: 0.2, empty. You can walk for hours through districts of perfect masonry and encounter only the absence of footprints.
+
+There is no vegetation—0.5—no recognized plants, no fungi. What grows, if that is the word, are mineral patterns: crystalline lattices that remember tree shapes; fungal-geometry that feeds on silence; post-life arrangements without biology. They do not reproduce. They align.
+
+Fauna is 1.4—rare, not absent. What moves is not alive in any recordable sense. There are presences: slow, hollow, made of the same dry mineral as the town. They navigate the layered construction without touching it, passing through walls as if walls are suggestions. They are the settlement’s memory of movement—active dynamics playing out without actors.
+
+The ecology is non-recognized. No water, no carbon cycle—only a slow exchange of absence. Temperature, 0.7 cool, means chemistry occurs sluggishly, in mineral time. Elevation near extreme means the sky is not sky but darker absence, the horizon curving away too close, the world a bowl placed over itself.
+
+The rules are these: nothing is sealed, though everything is enclosed. Nothing is wet, though thirst is constant. Nothing lives, though the settlement functions with urban precision—organized, layered, active—powered by no technology, built by no hand. Reality is not broken loudly; it is politely rearranged, 2.9 of strangeness held in perfect, quiet form.
+
+Here, in the cool, dry, open hollow, silence is not empty. It is full of the town’s quiet architecture, its weathered balance, its rare hollow inhabitants, maintaining an ecosystem that never needed life. You stand—if middle can be said to exist—within a place that is more itself with every passing second: extreme, dim, settled, and profoundly, silently wrong.

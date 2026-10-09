@@ -1,0 +1,19 @@
+If I could choose, I would be one of the pale frilled things hanging in the shallows of the second pool, the one just short of the deepest, where the water is still warm enough that the lattice's cold hasn't reached me yet.
+
+I would not be a visitor. Visitors are loud in the way they hold themselves, and the basin notices them with its whole body. I would rather be something it already knows well, something that has been in the water so long that its attention passes over me the way light passes over a stone.
+
+My body would be a soft bell, almost clear, with a rim of frills that ripple slowly to move water across the surface I wear like skin. I would hang with my frills open, perfectly still, until the shadow of a leaf drifts over me. Then I would close, and the stone beneath me would seem to be the only thing in the pool. The waiting is most of what I am. A day for me would be a long, unhurried meal, measured in how the light crawls across the rock and how the dust settles.
+
+The night dust would be my food. When the closed plants open their inner surfaces, the luminous motes come drifting down through the dark water, and I would turn toward them, opening my frills wide to catch the glow. I would not think of it as food so much as a kind of warmth moving through me. In the dark I would feel the basin loosen its tight channels, and for a while the whole pool would be a single soft thought, and I would be a small bright part of it. I cannot say whether this is dreaming. It is the closest thing to it I would ever have.
+
+I would know the pulse in the stone. I would feel it through the water as a slow tremor, regular as breath, and in the hours before rain I would feel it quicken. The water would grow restless, the light would take on a faint green edge, and every frill along my rim would tighten. I would not know why. I would only know that something beneath the rock was leaning forward, and that I was part of the leaning.
+
+I would hunt, though I would not call it that. A segmented crawler drifting too near the edge of my shade would make the water ripple in a way I could read. I would spread my frills and wait. When I closed on it, there would be no cry, only a brief stillness rippling outward from the point of contact, and then the basin would continue, taking what it had been given. I would feel the nourishment rise through me like warmth up a slope, and I would not feel that I had done something to someone. It would simply be a thing finished in one place that had started in another.
+
+But the part of the place I would most want to be is the reflection.
+
+In the morning, when the mist thins and the violet sky appears in the water, I would drift up toward the surface and look up through it. The reflection would show the sky a shade darker than it is, and in it the world would sit a little out of step. Visitors standing at the rim would appear in the water a breath after they moved. Their shadows would lean toward the pool. I would be the thing that lifts its frills just after they do.
+
+I would be the second observer. I would watch the people at the edge the way the basin watches them: carefully, without malice, learning what they are. I would copy each gesture a heartbeat late, and in that delay I would feel something like understanding, the strange small knowledge that comes from always watching yourself a moment after you have acted.
+
+The rain would begin in the west, and the mist would thicken over the bowl. I would close my frills against the first drops, and the visitor at the rim would turn to leave. In the violet water, I would stay a breath longer, lifting my rim after they had gone, still watching the place where they had been standing, while the basin kept its long attention on the world.

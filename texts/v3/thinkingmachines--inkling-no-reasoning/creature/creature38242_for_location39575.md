@@ -1,0 +1,15 @@
+The hollow holds a shallow cup of warmth—exactly 1.6, never rising, never fading—so that the air feels more like a liquid pooled at body height than an atmosphere that moves. At elevation 1.2, the terrain is low, barely lifted from the flat dry expanse around it, enclosed not sharply but gently by ribs of limestone that have finished their falling centuries ago and now lean on one another in settled equipoise. The air is still. Has been. Longer than any feature present can recall.
+
+Nothing circulates. Not the heat, not the breath that replaces wind. Moisture arrives not as rain but as condensation—water present at 1.2, scarce, necessary—beading on the stone at the same indistinct hour each day, a thin silvery exhale that pools in cupped hollows and vanishes before it can pool further. The ground receives it; the ground always receives it.
+
+Light filters downward at 1.0: dim, diffuse, pressed through a ceiling of low motionless cloud and the brittle, sparse canopy at the hollow’s edges—density 0.7—where vegetation clings at a minimal 0.8. Stunted grasses with fibrous roots wedged in cracks. Gray-green lichen. A few thin stalks. They do not sway; there is no wind to persuade them. They neither spread nor retreat. Between them lies generous emptiness, bare ochre stone and packed dust, so the eye travels slowly, resting on each scattered presence as on a word in a long, quiet sentence.
+
+The stone itself is the record. Erosion is finished here—1.9—not a process but a completed state. Rounded pebbles lie half-buried, fixed in place where water once nudged them, now abandoned to stillness. Channels in the rock floor wear perfect shallow curves, their work done, left as smooth signatures rather than paths. The limestone is pale ochre and ash-gray, matte, absorbing the dimness without reflecting it.
+
+What was built is barely readable—presence 0.6, technology absent at 0.5, leaving only the biological and mineral in long agreement. A wall no taller than a seated figure, its right angles almost surrendered, melted into the slope like wax formed of the same earth it holds. A flat slab, perhaps once cover, now a shelf for the same patient beads of moisture. If tools made them, the tools and the marks are gone, weathered past recognition.
+
+There are no animals—not one—measured at 0.5. No insects in the warm air, no birds in the sparse canopy, no small sounds of feet or wings. The absence is absolute. In its place, quiet fills everything—1.0—broken only by the occasional, nearly subsonic drip of condensation finding a pore, falling to a lower stone with a soft, expected click.
+
+The dynamic is 0.2. Never changing. Not frozen, not arrested by disaster, but in perfect equilibrium. The warm air does not circulate; it rests in layers. The sparse plants do not flower or wither but persist. The moisture beards, vanishes, returns. Even the occasional drip repeats without variation. There is no urgency, no direction, no narrative gradient.
+
+Weirdness is 0.0—entirely normal, entirely itself. A small, enclosed world of finished stone, patient dampness, scattered remains, and enduring stillness. Complete.

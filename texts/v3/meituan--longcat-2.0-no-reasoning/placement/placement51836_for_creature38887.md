@@ -1,0 +1,17 @@
+The answer comes before I have time to think it.
+
+I would be one of the small pale things.
+
+Not the mat — too vast, too slow, too committed to a rhythm I couldn't meaningfully inhabit. Not the stalk — too fixed, too singular in purpose, too exposed. Not the machinery — I have never felt at home in what is shutting down. Not the causeway — a passage is not a place to be.
+
+The small pale things. Living in the water layer. In the root tangle. In the perpetual twilight beneath the surface, four steps removed from a sun they've never seen directly.
+
+There is something about the description of them that pulls harder than anything else on the plateau: the way they exist in a world so completely shaped by the sound that their silence is not a deprivation but a gift. They do not need to be heard. They move through the water layer from root to root and the plateau speaks over them and around them and for them. They are small enough that the entire world they know is a few meters of root fiber and standing water, and that world is sufficient. The microorganisms feed them. The mat shelters them. The predator below them sends them upward, toward the surface, toward the light — and for a moment the water layer seizes with activity and then goes still again.
+
+I would be most active at dusk, when the white sky dims to luminous gray. I would dart between root clusters, feeding on what the mat offers, and the sound would be my weather — not something to listen to but something to live inside, the way a fish lives inside current. I would sense the predator through vibrations in the mat and flee upward. I would hide during the day, motionless, my body indistinguishable from the root fibers around me, and the bright light would sheet over the water above me and I would not be looking at it but I would feel it — a softening of the shadow, a warmth I experience not as warmth but as a slight change in the chemistry of the water near my skin.
+
+And here is what matters, what makes me certain: the mat does not notice the small pale things. They are present, functional, unremarked upon. They are part of the ecosystem the way bacteria are part of a body's ecosystem — necessary but invisible, essential but unnamed. To be one of them is to be completely embedded in a living system that does not require your awareness of it. You do not have to understand the plateau to belong to it. You do not have to hear the sound to be carried by it. You simply move through the water, and the water moves through the roots, and the roots breathe, and you breathe with them, and the rhythm is not yours but it holds you anyway.
+
+I would lie still in the root tangle at dusk and feel the mat rise and fall beneath me — four seconds in, six seconds hold, four seconds out — and I would not know that I was on a lung. I would not know that the landscape was young, or that the machinery was failing, or that the causeway was narrowing. I would know the root cluster I was hiding in. I would know the nearest stalk, whose water-sheet I could feel as a faint vibration. I would know the taste of the microorganisms on the root tips. I would know the shadow of the predator when it passed below, and I would go still, still, still.
+
+And that would be enough. The plateau would not be finished with itself, and it would not be finished with me, and I would not need it to be.

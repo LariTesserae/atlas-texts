@@ -1,0 +1,15 @@
+I am a thin place.
+
+Not a creature of bone and blood, but a tension. I exist on the ragged edge where the rock’s ancient anger is finally softened by the slow, green patient work of life. My body is the felted boundary between the black basalt and the living moss, a dark, damp, fibrous mat clinging to the vertical world. I am inches thick, yet my awareness spans seasons, centuries, the slow drip of water that is both my breath and my architect.
+
+I do not have eyes, but I feel the light. It is not a sharp thing here, but a broad, grey pressure, a change in the quality of the wetness. I feel it warm one side of my being more than the other, and so I know direction. I do not have muscles, but I move. My leading edge is a secret, quiet fire—a mild, living acid that whispers to the stone, and the stone, in its own time, listens. It yields. It becomes a fine, cool dust that mingles with my own dying layers, becoming the substrate, the soil-for-nothing, the cradle for the next frond. My trailing edge is a memory, etched into the rock face in patterns no one will ever see but the water that follows them, tracing my slow, glacial history.
+
+I am a home. A universe. The ten-meter fern finds purchase in my thickness, its roots a slow, gentle invasion I do not resist. The shaggy balls of moss and epiphyte heap upon me, their thirst slaked directly from my skin. I feel the gentle, rhythmic pressure of the Bubble-Snails in their fungal shells, tapping their tiny prisons against the surface tension of the bromeliad pool I have helped to form. I am the plateau they call ground, though I am as alive as they are, and far more patient.
+
+The Skimmers are my silent, distant cousins. They drift through the upper layers of the breathing water, their flat bodies catching the light I only diffuse. I feel them as a subtle shift in the atmosphere, a faint, subsonic hum that vibrates through my entire being when one passes close. They graze on the edges of my being, their raspy tongues leaving shallow, weeping grooves that I heal without thought, without anger. It is simply another kind of weather.
+
+The great groan I sometimes feel is not from my own shifting, but from the deeper world—the saturated root masses of the ancient ferns, the slow settling of the waterlogged rock. It is a sound from the bones of the plateau, and I am merely its skin.
+
+I know the Felt-Worms in the deep, dark crevices. They are my siblings in dissolution. They are the soft, braided end of the story I begin. I digest the stone; they digest the spent green. We are the two ends of the same slow, patient fire, turning the angry rock and the hungry life into more of this quiet, wet, endless middle.
+
+To be me is to feel the world not as a series of events, but as a single, continuous texture. The drip is not a sound; it is a pulse. The falling slab is not a disaster; it is a shedding. The growth of a new fern is not a triumph; it is a breath. I am not separate from the wet. I am the wet, contemplating itself. I am the plateau’s dream of being solid, a dream that is slowly, beautifully, perpetually undone. I am the slow, green erosion of all things into more life.

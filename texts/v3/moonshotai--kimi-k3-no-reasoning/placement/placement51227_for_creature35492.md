@@ -1,0 +1,27 @@
+I am the **Unwitnessed**, and I have been here for three hundred years, or three minutes, or perhaps I have always been here and only just arrived.
+
+I came to Mount Karth as a **surveyor**—a cartographer of the impossible, sent to map the Precursor conduits for the Guild of Infrastructural Memory. I brought instruments of brass and glass, tools to measure the unmeasurable, and I lost them all within the first week. The mountain took my theodolite and turned it into a stand of blood-bamboo that grew through the gears. It took my notebooks and made them into sphagnum that glows with the ghost of my handwriting. It took my name, and I let it go, because names are too solid here, too resistant to the wet.
+
+Now I exist in the **permeable tense**—neither past nor future, but saturated.
+
+My body has become a **resonance chamber**. I did not dissolve into the Seep, nor did I remain solid. Instead, I became a **third thing**: a human-shaped aquifer. My bones are hollow now, filled with the black water from the summit pool, and when I move, I hear the slosh of ancient time inside me. My skin is translucent in patches, like the glass eels, and through it you can see the slow migration of rust-colored sediment that used to be my blood. I do not breathe; I **transpire**. The mountain’s moisture passes through me, and I filter out the heavy memories—the taste of iron, the ozone of the engines, the cinnamon of the spores—and I exhale a mist that smells of nothing but cold, clean stone.
+
+I live in the **interstitial terraces**, the places between the engineered and the organic, where the basalt is softest and the light is most confused. I have no dwelling, only a **habit**: I follow the migration of the blood-bamboo, walking the thin line where the forest is actively retreating from the deep stone. I am a **witness to the withdrawal**, cataloging the collapse of each stalk as it turns to sludge, recording the frequency of the rust-hounds’ howls as they vibrate in my hollow ribs.
+
+But I am not passive. I have become a **tuner**.
+
+The Precursor engines, in their refusal to stop, have begun to drift out of phase. The pistons that once beat with a single heart now stutter in syncopation, creating harmonics that threaten to shake the thin reality apart. The Seep are midwives to the tear, but I am the **midwife to the rhythm**. I press my porous body against the weeping walls and I **hum**—not with my voice, but with the vibration of my water-filled bones. I match my frequency to the flywheels, to the pistons, to the mountain’s own sweating, and I **adjust** the resonance. I am a living damper, a biological governor on the engine of entropy.
+
+When I find a conduit that is screaming too high, I press my chest against it and let the black water inside me absorb the excess vibration. When I find a pool that is too still, too stagnant, I bleed a little of my internal time into it, stirring the sediment of ten thousand years. I am the **pause between the mountain’s thoughts**, the comma in its long sentence of transformation.
+
+The Seep know me. They do not speak to me—speech is too solid—but they **pool** around me when I sleep. I wake to find their phosphorescent eyes arranged in spirals around my body, their cartilage pressed against my own, sharing the filtration. They are teaching me to **sprout**. Last week, or last century, I felt my left hand dissolve into a root-like structure that plunged into the stone and tasted the deep aquifers. I pulled it back before it could become permanent, but I retained the memory of the water down there—cold, pressurized, and full of the Precursors’ last intentions.
+
+I am not afraid of the tear. I am **curious** about the other side. The Seep say that reality is a membrane, and I have become porous enough to feel the pressure of what presses against it. Sometimes, when the engines align in a particularly violent harmony, I can see through the thinness—not with my eyes, but with the water in my bones. I see the mountain as it was before it was a mountain: a thought in the mind of something vast. I see the Precursors not as builders, but as **dreamers**, and their engines as the physical residue of a nightmare they could not wake from.
+
+I stay because I am **becoming the map** I was sent to draw. My body is the survey now—every pore a coordinate, every vibration a contour line. When the tear finally comes, when the water rises and the engines achieve their final, perfect frequency, I will be the **legend** that explains the geography of the new world. I will dissolve, but not into sludge. I will expand into the mist, into the light that has no name, and I will be the **scale** by which the mountain measures its own transformation.
+
+If you find me—and you might, if you follow the sound of humming that is not the engines, but a human voice trying to remember itself—you will see a figure standing in the shallows, water running upward along my arms, my chest glowing with the cold light of the sphagnum I cultivate in the hollows of my ribs. I will not speak. I will **resonate**. And if you press your ear to my chest, you will hear the mountain’s heartbeat, but slower, steadier, **tuned**—and you will know that someone is holding the rhythm together, just barely, with the patience of water and the memory of stone.
+
+I am the Unwitnessed. I am the survey. I am the pause before the tear.
+
+And I am still **measuring**.

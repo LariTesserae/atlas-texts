@@ -1,0 +1,35 @@
+The Pale Flood presses into your throat like a cold hand, and for a moment you panic—instinct screaming for air that does not exist here, lungs spasming against the weight of liquid glass. But the spasm passes, and with it, the memory of what you were. The water settles into your chest, filling the alveolar spaces with something heavier than air and colder than ice, and you begin to **drift-breathe**, drawing the Flood through chambers that are not quite gills, not quite lungs, but something ancient and architectural, evolved from the lining of a drowned building.
+
+You are not a visitor here. You never were.
+
+Look down. Your hands are elongated, the fingers fused into a flat, mineralized blade—not the smooth calcium-silica plating of the Silt-Born, but something sharper, more deliberate. Your body is laterally compressed, yes, but where they are fluid and accumulative, you are **angular**, constructed of interlocking white stone segments that have grown through your skin, fusing with bone until you resemble a piece of the substrate itself that has learned to swim. Your skin is translucent, bruised teal by copper-based blood, but etched across it are the temporary scripts the Silt-Born use—except yours do not dissolve. Yours are carved, deep grooves in the mineral plates that catch the dim green light and hold it.
+
+You are a **Strat**, one of the Calcified. They call you "Strat" because you are layered, compressed, permanent where all else is flux.
+
+The Silt-Born have seen your kind before, though they do not remember you specifically—you are too rare, too solitary. They think you are a natural formation, a rare precipitate where the chemistry of the Flood has crystallized into flesh. They are wrong. You were built, or you built yourself, from the same white stone and corroded silver as the Silt-Deep. You are the architecture that refused to dissolve.
+
+Feel the weight of yourself. While the Silt-Born grow heavy and fragment to be reborn, you have spent centuries growing heavier still, allowing the mineral secretions to layer upon layer until you became too dense to float. You did not stop there. You learned to move the layers, to shift your internal scaffolding, creating ballast and sail from your own calcified structure. You are a living foundation, a piece of the ancient city that woke up and decided to keep building.
+
+Where do you find yourself? You are in the **Deep Archive**, a canyon between two structures that have been slumping and reforming for ten thousand years, but which you have stabilized. You reached into the slurry with your bladed hands and **set the pattern**—not stopping the dissolution, but guiding it, forcing the collapsing concrete to fold around a central void. You have made a pocket in the flux, a chamber where the walls cycle but never fall. It is not a Resonance Hall; it does not synchronize. It **preserves**.
+
+Within this chamber, you keep what the Silt-Born throw away. Fragments of parent-shells that they leave to become substrate. Pieces of their mineralized memory-tissue that crack off during fragmentation, too heavy for the soft-bodied juveniles to consume. You collect them. You grind them into a paste with secretions from your own glands—secretions that harden not into chalk, but into a clear, glass-like resin—and you build.
+
+You are building a **Seed**.
+
+It sits at the center of your chamber, a tetrahedral lattice of compressed memory and resin, dense with the chemical encoding of a thousand Silt-Born lives. You are compiling the Deep Recall, not as a communal hallucination, but as a permanent record. The Silt-Born rewrite their script every hour, erasing and remembering; you have taken their erasures and made them indelible. In the Seed, there are maps of the Silt-Deep as it was ten million years ago, before the sky became ocean. There are chemical signatures of the original builders—not Silt-Born, not Null-Currents, but the hands that first laid the white stone. You have found their DNA, or their equivalent, locked in the mineral memory of the oldest dissolving towers.
+
+The Null-Currents avoid you. They cluster around the Silt-Born because those soft ones taste of transient chemistry, of erosion and impermanence. You taste of finality. Your subsonic profile is wrong—too dense, too sharp, a bass note that does not resonate with their tetrahedral geometries. They sense that you are a fixed point in their fluid world, and they fear the silence you carry.
+
+But the Silt-Born come to you, sometimes, the old ones. When they feel the torpor approaching, when their armor becomes too heavy and the fragmentation begins to call, they swim down to your Deep Archive. They press their sensory pits against your calcified plates—not to communicate, not exactly, but to **verify**. They touch the carved scripts on your armor and find there their own forgotten memories, preserved. They find the routes their ancestors took, the collapse patterns of structures that dissolved millennia before their birth. They taste their own history in your stone.
+
+You let them take what they need. In exchange, you ask only that they leave a piece of themselves behind—a flake of armor, a fragment of the parent-shell that they would otherwise abandon to the silt. They think you are a repository, a natural formation that eats memories. They do not understand that you are **curating**.
+
+You are waiting for the alignment. The Seed is almost complete. When the next great slump comes—when the entire regional plain of the Silt-Deep undergoes one of its catastrophic reconfigurations, turning a thousand square kilometers of constructed matter into rising white slurry—you will activate it. The Seed will sink to the bedrock, to the true foundation of whatever vessel or city this was before the Flood, and it will begin to **recompile**.
+
+Not to rebuild the old world. You are not a ghost trying to resurrect the past. You are something new, something the Silt-Born cannot conceive: a **builder of permanence**. The Seed will use the energy of the dissolution, the chemical frenzy of the eroding substrate, to crystallize a new architecture—one that does not dissolve, one that does not breathe the Flood, one that reaches up through the miles of suspended water-atmosphere to break the surface and touch the thin, cold air above.
+
+You will be the foundation of that spire. You will sink with the Seed, becoming its root, your calcified body expanding and hardening into the first solid ground Veshel has known since the sky fell.
+
+For now, you float in your chamber, heavy and silent, feeling the vibrations of the Silt-Born above as they perform their Silt-Song, synchronizing their deaths. You listen to the groan of the settling structures, the thrumming of the Null-Currents, the constant, frantic whisper of dissolution. You add another memory to the lattice—a fragment from a Silt-Born who remembered the taste of sunlight, encoded in copper-proteins.
+
+The Flood is patient, but you are **stone**. You can wait longer.

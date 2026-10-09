@@ -1,0 +1,99 @@
+# What Lives Here
+
+The first thing to understand is that nothing here considers itself a resident. The lichen might, if it could be asked — but the lichen does not think in those terms. It grows because growing is what it does, the way the wind blows because blowing is what wind does. There is no arrival for the lichen. No moment of *I am here now*. It simply extends, micron by micron, across the granite, and the granite receives it the way the granite receives everything: without comment, without resistance, without any change in temperature.
+
+The orange patches are the oldest. You can tell because they are the largest, and because they have the quality of things that have stopped being in a hurry. They have been spreading for so long that their edges have become terrain — micro-terrain, terrain for mites and tardigrades, terrain for the moisture that collects in the morning and evaporates by noon. A whole geography exists in the boundary between the orange lichen and the grey-green lichen, a frontier that has been shifting at a rate of perhaps a millimeter per decade, and on that frontier, things live and die that no human eye will ever see. The lichen does not know this. The lichen is not unaware of it either. The lichen simply does not participate in the category of knowing.
+
+This is the deepest thing about the plateau. Life here does not know it is alive in the way that life lower down knows it is alive — anxiously, defensively, always checking. Here, living is so fully integrated into the non-living that the distinction becomes a visitors' category, a way of sorting that the place itself does not require.
+
+---
+
+The marmot-things — they are not quite marmots, but they are close enough that the word reaches toward them and they reach toward the word and neither quite meets the other — are the warmest things here. Not the warmest in temperature. The warmest in the sense of *internal heat*, in the sense of blood that is actively heated, in the sense of a metabolism that is always burning, always consuming, always working against the cold and the thin air and the wind.
+
+They know the wind. This is the one thing they know that you would recognize as knowing. They know it the way a coastal creature knows tides — not as information, not as a concept, but as a rhythm written into the body. The wind drops at dawn. The wind drops at dusk. Between those brief windows, the marmot-things emerge from their gravel burrows and sit on their haunches and the world is, for a few minutes, almost manageable. They can hear each other then. They make sounds — short, low, resonant calls that carry in the calm air and mean something to each other, though what they mean is not translatable. *I am here. The stone is still here. The hawk has not come yet. Let us eat quickly.*
+
+They eat the cushion plants. They eat the roots of the wire-grass. They do not eat quickly, actually — they eat with the efficiency of things that have very little time, which is different from eating quickly. Every bite is considered. Every root is chewed thoroughly. There is no waste. Their bodies are compact, dense, fur so thick that the wind finds nothing to grip. They are built like the stone they live on — rounded, smoothed, without projections. Even their ears are small. Nothing sticks out. Nothing catches the wind.
+
+They watch the sky with an alertness that is not fear, exactly, but is the constant awareness that the sky contains something that is interested in them. The raptor. They know the raptor the way they know the wind — as a fact of the place, as something that has always been part of the arrangement. When the raptor appears, they do not panic. They simply go still, and their stillness is so complete that they become part of the stone, and the raptor — which is not stupid, which has been hunting these creatures for longer than either species can remember — circles once or twice and then moves on, and the marmot-things resume eating.
+
+They have burrows. The burrows are in the gravel pockets between boulders, in the places where the wind cannot reach, and they are warmer than you would expect — the decomposing cushion plant material in the burrow walls generates a faint heat, a composting heat, and the marmot-things sleep in this warmth through the loud hours and the loud night and they dream, if they dream, of nothing that can be spoken about.
+
+There are not many of them. A few dozen, perhaps, across the whole plateau. They are spread thin, each colony occupying a sheltered hollow, each individual known to the others by scent and by sound and by the specific way it sits on its haunches and watches the sky. They do not interact much. They do not need to. The arrangement is old and stable and does not require maintenance.
+
+---
+
+The raptor is the largest thing that lives here, and it is the thing that most resembles what you might call a *presence*.
+
+It is not majestic. That word belongs to lower altitudes, to forests and rivers and places where things have the space to be dramatic. The raptor is not dramatic. It is efficient. It is so efficient that it has stopped being efficient *at* anything and has simply become efficiency itself — a thing that moves through the air with the absolute minimum of effort, leaning this way and that, letting the updraft from the escarpment carry it in great sweeping arcs that look lazy and are, in fact, as precise as surgery.
+
+It eats the careless. It eats the young. It eats the marmot-things that do not go still fast enough, that hesitate, that look up one second too long. It also eats the smaller birds, though they are harder to catch — they fly in the same air, they know the same wind, and they are many and the raptor is one. The raptor takes what it can and does not linger. It tears its food apart on a flat rock near the escarpment edge and the wind carries the scraps and the smell away and within an hour there is nothing left but a dark stain on the stone that will fade in the next rain.
+
+It nests on the cliff face. No one has found the nest. This is because the cliff face is a kilometer of vertical stone riddled with overhangs and pockets and shallow caves, and the raptor does not want its nest found, and the raptor has been not-wanting its nest found for a very long time, and the cliff is very cooperative with things that do not want to be found. The droppings streak the stone below the nesting sites of the smaller birds, but the raptor's droppings are elsewhere — higher, deeper, in a place that the wind reaches but the eye does not.
+
+The raptor does not roar. Nothing alive here roars. The roaring belongs to the wind and to the stone and to the place itself, and the living things participate in it but do not produce it. The raptor, when it calls — which is rare, which is almost never — makes a sound that is thin and short and immediately swallowed. It knows this. It does not waste the effort.
+
+What the raptor does, more than anything, is wait. It rides the air and it waits. It is patient in a way that is not human patience, which is always patience *for* something, patience *toward* a goal. The raptor's patience has no object. It is simply the mode in which the raptor exists — a waiting that is also a flying, a flying that is also a waiting, and the two are so fully joined that separating them would destroy both.
+
+---
+
+The birds — the ten thousand, the dark-winged, the compact and aerodynamic — are the most visible thing here, and they are the strangest.
+
+Not strange in appearance. Strange in behavior. Strange in the way that large numbers of coordinated things are always strange, the way a flock turning simultaneously is always strange, because the mechanism is not visible. You see the turn. You do not see what caused it. There is no bird that turns first. There is no signal. The turn simply happens, and it happens to all of them at once, and the new direction is held, and the flock moves as one thing, and then it turns again, and again, and the pattern that emerges over the course of a day is not random. It is not random at all.
+
+It might be the wind. The wind is variable, even in its constancy — it shifts in small ways, in micro-ways, and the birds may be reading these shifts the way a sailor reads a current, adjusting before the adjustment is necessary, moving with the air rather than against it. This is the simplest explanation, and it is probably mostly true.
+
+But there are moments when the flock does something that the wind does not explain. A formation that holds for seconds too long — the birds arrayed in a shape that is too precise, too geometric, too deliberate to be a response to turbulence. A synchronization that exceeds the wind's capacity to cause it — every bird in a flock of two thousand tilting at the same instant, by the same angle, in a direction that has nothing to do with the air. A collective turn that happens a beat *before* the wind shifts, as if the birds know what the air is about to do.
+
+They probably do know. They have been flying in this air for longer than the air has been this air — the wind has always been here, but the specific turbulence patterns, the specific eddies and updrafts and compressions that the escarpment creates, these are stable enough to be learned, and the birds have learned them the way the marmot-things have learned the dawn-and-dusk calm. The birds know the air the way you know your own body — not consciously, not as information, but as a felt knowledge, a knowledge that lives in the muscles and the bones and the feathers and the part of the brain that does not need words.
+
+But there is something else. And this is the part that is hard to say, because saying it requires words, and words are the wrong tool for it, and the plateau knows this, which is why the plateau does not say it.
+
+The birds respond to the stone.
+
+Not to the stone as a physical obstacle — they are above the stone, they are in the air, the stone is below them and irrelevant to their flight paths. But they respond to the stone in a way that is deeper than flight paths. They respond to the *quality* of the stone, to the ancientness of it, to the way it holds its shape, to the way it has been resting for eons in a stillness so complete that it has become a kind of silence, a kind of presence, a kind of *attention* that the birds can feel and you cannot.
+
+When the flock turns in a direction that the wind does not explain, it turns toward the oldest part of the plateau — the deep granitic core, the bedrock that has been weathering since before the first river. When the formation holds for seconds too long, it holds over the largest lichen patch, the orange one, the one that may be older than any tree in the lowland forests. The birds are not attracted to these places. They are not drawn to them. They simply move in relation to them, the way iron filings move in relation to a magnetic field — not because they choose to, but because the field is there and they are in it and the movement is what happens when you are in a field and you are made of something that the field affects.
+
+The stone is doing something. The plateau is doing something. It is not doing it *to* the birds. It is simply doing it, the way a magnet is simply doing something to the space around it. The birds happen to be sensitive to it. You are not. Or you are, but the sensitivity is so far below your conscious perception that you experience it only as a feeling — the feeling that the place is *attending*, that the stone is aware in a way that has nothing to do with minds or brains or thoughts, a way that is older than all of those things, a way that the wind expresses but does not cause.
+
+---
+
+The insects are here and they should not be, and they know this, and they are here anyway.
+
+They are gnats, mostly. Tiny, dark, wind-blown. They do not fly so much as they are flown — the wind takes them and carries them across the plateau and they go where it takes them and they do not resist because resistance is not an option at their scale. They are so small that the air is not a medium they move through but a medium that moves them, the way water moves plankton, and they are, in a sense, plankton. Air plankton. They feed on the moisture in the basins, on the microscopic organic matter that the wind deposits in the shallow pools, on each other when they can manage it.
+
+They reproduce in the pools. The brief, warm, sunlit hours when the water stands in the granite basins are the only time and place where the gnats can lay eggs and the eggs can hatch and the larvae can mature, and they do this with a speed that is not so much speed as it is desperation — a life cycle compressed into hours because hours are all that is available. They hatch. They mature. They emerge. They are blown away. Some of them land in other pools and the cycle continues. Most of them are blown over the escarpment edge and are never seen again.
+
+The beetles are different. The beetles are *here*. They live in the gravel, in the crevices, in the spaces between the cushion plants' roots. They are dark and hard and compact and they move with a slowness that suggests they are conserving energy at a rate that borders on the geological. They eat the lichen. They eat dead things. They eat the wind-blown organic matter that accumulates in the gravel the way dust accumulates in a house that no one cleans. They are the plateau's cleanup crew, its undertakers, its recyclers, and they do their work in the sheltered places where the wind cannot reach, in a calm that is relative but, to a beetle, is as good as silence.
+
+They have been here longer than the birds. Longer than the marmot-things. They are the oldest residents after the lichen, and they carry their age in the specificity of their bodies — each species adapted to this exact place, this exact wind, this exact stone, in ways that would not work anywhere else. They are not generalists. They are specialists of the most committed kind, and if the plateau changed — if the wind shifted, if the temperature rose, if the pools stopped forming — they would not be able to follow the change. They would simply end. They have bet everything on this place staying what it is, and so far, for longer than anything can remember, the bet has paid off.
+
+---
+
+And then there are the visitors. The ones who come up from the lowlands. The ones who stack stones and build windbreaks and sit in the roaring emptiness and make tools.
+
+They do not live here. They come here. The distinction matters to them, though it does not matter to the plateau, which does not distinguish between things that stay and things that leave, because to the plateau, leaving is just a slow form of staying — you will come back, or your children will, or your children's children will, or the wind that scattered your ashes will, and in any case, the stone will be here, and the stone does not care about the interval.
+
+They come up because they need to. This is the only word for it — *need*. Not need the way you need water or food, but need the way you need to be alone, need to be empty, need to be in a place where the self is so thoroughly overwhelmed by the non-self that the boundary dissolves and you are, for a moment, not a person but a thing, a small warm thing on a large cold stone in a wind that does not know you are there.
+
+They come up carrying stone. Chert. Obsidian. Material that is not found here, that must be carried for days, up the long slope, through the thinning air, through the wind that gets louder with every step. They carry it because they will sit in a sheltered hollow and work it, and the working is the reason for the trip, or is part of the reason, or is the thing they do while the real reason is happening, which is: sitting. Being. Letting the wind go through them.
+
+The tools they make are not left here. They are carried back down. The debitage — the flakes, the cores, the broken pieces — is left, and the wind scatters it, and the gravel absorbs it, and in ten thousand years someone will find a flake in a streambed and will know: someone was here. Someone sat here. Someone carried stone up to the roaring place and made something and carried it back down.
+
+The stone rings are for fires. Small fires, sheltered, burning brief and hot in the basins where the wind eddies rather than blasts. The fires are not for warmth, not really — the warmth is negligible, gone the instant the fire goes out, swallowed by the wind. The fires are for *being a fire*. For being a small bright hot thing in a vast cold loud place, a thing that the wind cannot swallow, a thing that pushes back, however briefly, against the total dominance of the stone and the air. The people who build these fires sit beside them and the fire is the only thing in their immediate vicinity that is doing something, that is active, that is changing, and they watch it the way the marmot-things watch the sky — with an alertness that is not fear but is the constant awareness that the thing they are watching is alive in a way that the stone is not, and that its aliveness is the same kind as theirs.
+
+The windbreaks are for sitting behind. They are low, crude, effective — a long flat stone propped against another, oriented precisely against the prevailing wind. Behind the windbreak, the air is almost calm. Almost. The roar is still there — it is always there — but the physical blast is reduced, and a person can sit for hours behind a windbreak and watch the birds and feel the stone under them and let the roar fill their head until the words stop and the something else takes over.
+
+The something else is what they come for. It is not a vision. It is not a revelation. It is not a voice or a presence or a god. It is simply the state of being scoured — of having the accumulated debris of lowland life cleaned out by the wind and the light and the noise until what remains is only the structure, only the bare fact of being a thing that is alive on a stone in a wind, and that bare fact is enough. More than enough. It is, for a little while, everything.
+
+They go back down. They always go back down. The plateau does not keep them. It does not want them. It does not want anything. It simply is, and they come and they sit in the fact of its being and then they return to the places where wanting still makes sense, and the plateau continues to be what it has been since before they had legs to climb with.
+
+---
+
+And the wind. The wind lives here the way fire lives in a hearth — not as a visitor, not as a resident, but as the place's own activity, the place's own verb. The wind is what the plateau *does*. The stone is what the plateau *is*. The water is what the plateau *remembers*. The life — the lichen, the insects, the birds, the marmot-things, the raptor, the occasional visitor — is what the plateau *hosts*, incidentally, the way a river hosts fish, without investment, without preference, without any change to the river's own nature.
+
+The wind does not know it is the wind. It does not experience itself. It does not have a side, or a mood, or a plan. It simply moves from west to east, from the long gradual slope to the escarpment edge, and at the edge it roars, and the roar is the sound of the air doing what the stone forces it to do, and the stone has been forcing it to do this for so long that the forcing and the doing have become the same thing, and the same thing is the place, and the place is what lives here, and what lives here is the plateau, and the plateau is the wind and the stone and the light and the water and the life and the roaring and the silence that the roaring creates by being so total that nothing else can exist beside it, and all of this is one thing, and the one thing does not have a name, and it does not need one.
+
+It is here. It has been here. It will be here.
+
+The wind does not stop.

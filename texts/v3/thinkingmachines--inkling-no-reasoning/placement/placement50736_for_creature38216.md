@@ -1,0 +1,19 @@
+In the shallow bowl—no larger than a small village’s footprint, carved high where the air is always cool and permanently after rain—I am not one being but the state of not-yet-being, made visible.
+
+The place is a marsh-edge at altitude, held in a 1.5 presence of water that never rules but never leaves: weeping from rock-faces still deciding if they are cliff, pooling in shallow stone basins, condensing in long threads on the undersides of split granite like breath held between centuries. The ground is near-surface wet; every footstep releases a small, patient sound into moss that is already 2.4 lush, already arriving.
+
+The rock here is newborn—embryonic, eroded not by time but by absence. Fresh fractures. Shallow hollows. Dark stone bones breaking through a skin of fern and creeping root-networks that grip before soil exists. This is a single feature-area, a bounded room in high country with walls that do not understand their own height, pre-formation, perhaps destined for gorge, perhaps destined to collapse back into flatness. For now, it is a bowl.
+
+Within it clings the settlement—1.9, urban in intent, compressed to the scale of a grove. Simple metal and older hand-tools have built it in layers: terraces of packed earth and slate, stairways chiseled directly into living rock, water routed through channels made by patient repetition rather than engineered pipe. The structures are within sight of one another, arranged with the logic of a body still learning how to stand. They wear the marks of being made—chisel-grooves visible, mortar that still looks wet, roofs of woven fiber and stone plate that sag slightly under accumulated mist. The technology is primitive, manual, immediate.
+
+But I am not only this.
+
+I am also the emptiness that dominates—density near 0.2, a near-void where human presence is punctuation in a long sentence of stone and green. The few who move between these layered structures do so slowly, matching a dynamic of 1.1, change measured in generations rather than years. They are not masters. They are like the animals—1.0, scarce—the dark bird that does not call, the insects audible only as thin vibrations in cool air. The space between presences is vast, cathedral-scale despite the small geographic boundaries.
+
+The true occupation is vegetative and loud. At 2.4 lushness, the green does not decorate; it takes over. Ferns spill over fresh-cut terraces like water made solid. Moss thickens in every tool-mark. Dark, waxy climbers thread the gaps between stone layers, sealing nothing, only asserting that this place belongs to the wet and growing. There are no mature trees—only thickets, shoots, networks that hold the unfinished earth together.
+
+And it is loud—2.3—not with voices but with the birth-process itself. The low thunder of droplets falling from high fractures into shallow pools. The dull ring of primitive metal on emerging stone. The scrape of reshaping rock. The creak of woven structures settling into new weight. In the clear, bright, high-altitude light—normal, revealing every texture—these sounds carry without echo, swallowed by moss and mist.
+
+So I live here as the unfinished bowl and everything it holds: the cool, mist-carrying air; the 1.5 water that weeps and pools and breathes on granite; the 1.9 settlement of layered, manual craft; the 2.4 vegetation that seals and spills; the 0.2 emptiness that makes every presence a question; the 2.3 loudness of stone and water and slow labor; the 1.1 pace of long duration.
+
+I am the post-rain country suspended in perpetual aftermath. I am the shallow hollow that does not know if it will become valley or ruin or garden. I am the near-void that hears its own breath prominently, in the loud, cool, unfinished light of being born.

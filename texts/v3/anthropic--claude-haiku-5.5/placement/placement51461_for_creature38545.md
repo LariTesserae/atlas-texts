@@ -1,0 +1,17 @@
+I would be at the rim, a little apart from the rest, in the thin cool air where the plateau breaks off and the basin begins to fall away. It's the place where the roar starts to thin out, where the sound from below becomes weather instead of conversation. I'd be on the wind.
+
+I would be one of the flat-winged callers. My body is light for its width, the dark ribs strung with membrane, and the resonant sheets in my thorax are tuned to the pulse the others keep. I know where the colony's members are. I call the swell and the pause and the short answer across the basin, and I am good at it. I know where the dust is thickest and where a fall has happened and whose wings will go into the walls by morning.
+
+But I have a second habit, and I'd be a little ashamed of it if the others noticed.
+
+When the air is still and the sun has been on the chalk all morning, I ride the updraft off the rim without calling at all. I hold my wings at an angle that is nearly the angle of the pulse but not quite, and the membrane sings on its own. The sound rises as I lift, swells as the warm air bends under me, and falls away as I drift over the lip and lose the stone's heat. It is one long curve, going up and coming down, and it passes across the surface of the air and then is gone. I can't hear it from inside. I feel it, the way you feel your own voice in a stone room, and then the wind takes it and nothing is left.
+
+I make it because it's easy. I make it because the wind is what it sounds like.
+
+The others go on with their counts and answers. The rhythm I'm making does not point to anything. It isn't a dust pile or a fallen caller or the dimensions of a gallery. It points up, past the haze, toward the far violet edge where the basin ends. When I finish the curve, the air in front of me feels briefly wetter, though I know it isn't, and I wonder whether that's a memory or only my wing-muscles tired.
+
+I'd like to say I understand what the curve means. I don't. The tenders rebuild their galleries to the old measurements because the measurements are what they hold. The haulers carry dust because dust is what the walls are made of. The callers hold the pulse because it tells the basin where everyone is. Nothing in the city carries a sound that is about a river, and yet the rhythm is in them all, passed through the bodies like chitin and sap, and sometimes one of us rides the rising air and makes it again. Maybe a river did run down the valley once. Maybe the curve is the shape of water moving over a surface. Maybe it's only the shape of wind over a warm rim, and the river is something the ground remembers that none of us can reach.
+
+I come back down after a while, the way the callers always do, along the falling heat of the rock. When I reach the lower tiers, the pulse is still going all around me, slow and enormous, and the chatter is rising and falling in waves across the bases of the towers. The haulers are setting down their loads in neat piles. The skitterers are reading the mats. The tenders are turning the brood toward the light in the upper galleries, and the walls are growing another course.
+
+I fold my wings, and my body joins the sound again, and I can't tell where my curve ends and the basin's roar begins. That, I think, is what I'd be: one of the bodies that holds the old rhythm, not sure what it means, letting it rise on the air at the rim when the morning is still, and then letting it go.

@@ -1,0 +1,13 @@
+Here, residence belongs not to a being but to the condition itself—an occupation so complete that inhabitant and architecture have become the same word.
+
+The root-plate tenants are the fused black lignin floor, continent-scale, woven without soil or rain; they are the substrate that never learned thirst, only pressure and heat. Above them, the true sovereigns live: trunks thick as temples, not grown as trees grow but arranged—vaults, ribs, domes of green tissue so saturated that every corridor is a vein and every chamber an artery of some vaster body. They do not fall, they do not rest; they are the ceiling and the wall, layered density that has replaced sky with leaf-roof, leaving light stranded near 0.2, a sub-glow of ember and phosphor in the near-dark.
+
+Within these thickets, the mechanical heart is not tenant but graft—pipes running like dark veins through hollow trunks, engines throbbed awake inside root-knots, compressed chambers refining resin in loops that need no named fuel. They are the plant’s bone now, its metabolism made metal. The factories are not placed upon the growth but born inside it, refining the very resin that sustains the vault in a sealed exchange that outlasted all reference to an outside world.
+
+The absence lives here too—fully present, like a breath held forever. No fauna. No insects, no wings, no animal intention threading these arteries. Only plants and their metal hearts, and the quiet.
+
+The scale of dwelling extends past sight into other domes, other root-cathedrals implied but never revealed—valley after valley of woven biomass, uninterrupted. The sound of what lives is mostly silence: a deep, exhaling sub-bass, the sleeping beast of machinery; the slow creak of vegetation cured to ancientness, expanding in fire that never ends.
+
+And then there is the turbulence—the silent storm that is also a resident. Not noisy, but hyperactive: roots tearing through industrial plating only to be reabsorbed by machinery that produces more roots; growth and decay and mechanical processing happening at once, anarchic, relentless, unending. The chaos is the truest inhabitant: dynamic, dark, hot—three degrees below charring—dry as mineral seal, ancient not because it wears away but because it has settled into its ultimate form and still refuses to stop.
+
+So the place is inhabited by totality: green architecture and black root-floor, fused pipe and bulbous engine, the void where water should be, the absence of all that moves with purpose other than growth, and the quiet, endless churning of a world that has become its own sealed, living machinery.

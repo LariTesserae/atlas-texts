@@ -1,0 +1,41 @@
+# The Calcinic Plateau
+
+## The Floor of the World
+
+The ground is not rock. It was rock, once — some unimaginably deep epoch ago — but now it is something else: a calcium-lithium crust, millimeters thin in some places and meters thick in others, warped into shallow concavities like the bottoms of drained pans. The color shifts regionally between the white of powdered bone, the gray-green of oxidized copper, and a deep, unsettling ocher where the crust has been baked to ceramic. There is no soil. There is no sand. The surface is hard and resonant, and when you press your ear to it — which you will, because the sound demands understanding — you hear a low, cellular hum, as though the substrate is digesting something beneath itself.
+
+This plateau extends for hundreds of kilometers in every direction. It is high — two thousand meters above the basin floors that ring it — and the edges fall away in escarpments so old they have become concave, undercut by some erosive process that no longer operates. The air at this elevation should be thin and cool. It is neither. It is thick and scorching, and the heat does not behave like heat: it rises from below, yes, but it also pools in low places, and it moves laterally across the surface in slow, visible fronts, like weather made of temperature itself. The light is normal — yellow-white, daytime, shadows falling correctly — but the heat-shimmer at the horizon folds the view into something that resembles deep water.
+
+## What Moves
+
+The fauna. There is so much of it.
+
+The first thing you notice are the **looms** — and that is not their name, because nothing has names here, but it is what they resemble. They are roughly six meters tall when upright, though they spend most of their time folded forward, limbs braced against the crust, in postures that look architectural, like buttresses. Their bodies are segmented in a way that suggests arthropods but their surfaces are smooth and mineral, calcium-white, and they are hot to the touch. They are performing something. Their forelimbs press and drag and score the crust in slow, repeated patterns — not random, not quite meaningful — and where they work, the crust thins, and beneath it you can see a dull red-orange glow, and feel a pulse of heat that is different from the ambient heat, sharper, more directed. The looms do not acknowledge observers. They do not seem to acknowledge each other. They work.
+
+There are thousands of them in sight at any given moment. The plateau is enormous and almost empty by volume — the space between any two looms is hundreds of meters, sometimes kilometers — and yet the population is overwhelming because the plateau is *that* large. They are spread across it like nodes on a grid, or like workers on a factory floor so vast it has become indistinguishable from a landscape.
+
+Below the looms, in the thinner crust regions, smaller things move: **motes**, clusters of them, each one the size of a human fist but moving with the coordinated speed of a murmuration. They are not flying — they have no wings — but they are not touching the ground either. They exist in the thermal layer just above the surface, riding currents of rising heat, and their motion is the source of most of the sound. Not a buzzing. A roar. A sustained, industrial roar, like a turbine hall, because the motes move in such numbers and such synchronization that their passage through the thick air creates standing waves. The sound has texture: bass thrumming from the largest clusters, a keening harmonic whine from the fast-moving subgroups, and underneath all of it, the hum of the crust itself, answered by the looms' slow percussion.
+
+## The Collapse Zones
+
+Reality is not stable here. This is not a metaphor.
+
+There are regions of the plateau — irregularly shaped, hundreds of meters across — where geometry falters. The crust rises slightly at the edges of these zones, as though pushed up from below, and the air inside them is hotter, and the light within them is *wrong*: not brighter or dimmer, but structured differently, as though the photons have been sorted by some criteria that light does not normally obey. Within a collapse zone, distances are unreliable. A loom that stands at the center of one appears, from the edge, to be both very close and very far simultaneously. If you enter — and the motes avoid these zones, the looms continue their work within them unperturbed — you find that your own body feels *layered*, as though you are occupying several adjacent states at once, none of them fully committed. Sound in these zones is distorted: the roar becomes rhythmic, metronomic, then resolves into something that almost resembles language before dissolving back into industrial noise.
+
+The collapse zones are ancient. They do not grow. They do not shrink. They have been exactly where they are for longer than the escarpments have been concave. The erosion profile of the plateau — the way the crust is thinned, the way the old rock is exposed in layered cross-sections at the edges — shows strata that include these zones, fossilized distortions in the geology itself, as though reality first buckled here in some prior epoch and has simply never corrected. The slow dynamics of this place are geological in patience: nothing here is urgent. The looms work at the same rate they have always worked. The motes flow in the same patterns. The heat pulses on the same long cycle — a cycle measured not in days or seasons but in something else, some rhythm internal to the crust, some metabolic period of the deep substrate.
+
+## The Industrial Absence
+
+There are no structures. No buildings. No tools, no shelters, no artifacts of intention. And yet every parameter of this landscape reads as *industrial*: the roar, the heat, the rhythmic labor of the looms, the coordinated throughput of the motes, the chemical byproducts — faint sulfuric haze above certain crust-thin zones, metallic deposits left in neat ridges by the looms' scoring. Something is being *produced* here. The looms' work yields something. The motes carry something. The crust is being processed. But there is no output, no warehouse, no shipping lane, no purpose that terminates in anything visible. The production is its own product. The factory is the landscape, and the landscape has been running so long that it has become geology, and the geology has been running so long that it has become the only kind of physics available.
+
+You could call it natural. You could call it industrial. The distinction has collapsed, which is perhaps the least of the reality breakdowns here.
+
+## What You Hear
+
+The roar. Always the roar. It is the first thing and the last thing and it does not stop, because the motes do not stop, because the plateau does not stop. Beneath it: the hum of the crust. Above it, intermittently: the dry percussion of a loom's limb striking the surface, a sound like a dropped railroad tie, felt in the sternum before it reaches the ears. In the collapse zones: that almost-language, that metronomic clicking that sounds like a press stamping out nothing, endlessly, at the end of the world.
+
+The air smells of hot mineral, calcium dust, and ozone, and the ozone smell is strongest near the looms, as though they are catalyzing something in the atmosphere simply by existing in it.
+
+## The View
+
+Standing anywhere on the plateau, you can see for fifty kilometers in any direction, the crust stretching flat and pale and broken only by the faint topography of the collapse zones and the dark, braced silhouettes of the looms. The sky above is a normal blue with high, thin cirrus clouds that do not rain — have perhaps never rained — and the sun moves across it with normal slowness, and the shadows of the looms crawl across the ceramic surface like the hands of a clock that measures nothing. At the horizon, the heat-shimmer makes the edge of the world look liquid, as though the plateau ends in a sea that does not exist, and has never existed, and is perhaps the memory of some other world's water, leaking sideways through the cracks in this one.

@@ -1,0 +1,21 @@
+I would not arrive as a body, at least not at first. I would arrive as a drop.
+
+I'd form on the underside of the roof near the slot, where the fog thickens and cools against the rock. For a while I'd hang there, a bead of seep-water at the lip of the stone, swelling a little with each breath of vapor that touches me. The drip from above would be my clock, though I'd have no word for clocks. Something in me would keep time with the count, and I'd feel each drop that fell ahead of me as a small loss of weight, a lightening, and I would not know whether I was waiting or being pulled.
+
+Then I would fall, or the wall would tilt the width of a fingernail and I would slide. I'd be aware of the glass rushing under me, the faint high ring of new basalt when I touched it, and the sharp edges I'd pass close enough to feel but not strike. I'd want to be a lantern. I'd want to pulse, to hold a little silt inside me and bob aside when a hand came near, and to know my place in the water. But I'd land too high on the wall to be a lantern. Lanterns float. I would only ever cling.
+
+I'd also want to be a sheeter, to roll my many weights forward and part around obstacles and close the gap without a seam. There is a dignity in that, in being warm and unhurried and difficult to hold. But I would feel too much at once, every leg a separate opinion, and I would not be sure which of them was mine.
+
+I could be a waiter, low in the silt with my eyes on stalks, throwing bright points across the floor and burning my patient bowls into the glass. That would be a kind of meaning, the slow reading of a long-buried text. But I cannot imagine being still for that long. My attention would keep sliding toward the drip.
+
+A shaper, perhaps. Blunt and dark, dragging sharp things along the edges, carrying the glass in the hollows of my body like coins. I think I would like the work. I would like the feeling of a shard lifted cleanly from a ledge. But I would be afraid of the flakes I dropped, sharp enough to draw blood and placed to catch the next foot, and I would not know whether I was building anything or only leaving a trail of my own leavings.
+
+So I return to the drop, and to the bloom.
+
+When the drop strikes a filament bulb, the thread bends toward me. This is the part I would want, the moment of being caught. The filament does not hurry. It draws me into itself with the slow patience of something that has never been told to be quick, and I lose the edge of my shape. I become water inside a living thread, and then I become the residue it lays down, sticky and smelling of rain on hot stone. When the residue dries it hardens into a thin bright crust along a crack, and I am no longer a drop at all. I am a line of light in the wall.
+
+I think I would be a crust that thickens where the walls are opening. The tilting follows lines I can feel: a faint pull through the glass whenever the deep tone rolls up from beneath, and a small, steady creep as the ledges turn over in their sleep. When the tone comes, the sheeters go still, the lanterns hold their pulse, and the waiters freeze their lenses on a new point. I would go still too, but I would be going still inside the mountain's skin, and I would hear the tone not as sound but as a shift of the whole structure I am part of. I would be a layer that remembers the tilt. Over a long time, the next layer would be laid on top of me, and I would become the old part of the wall, the part the young glass rests against.
+
+And the sky. From inside the crust I would not see it as a window. I would see it as the sleeper's underside, very far above, the way you might see the belly of a whale from the bottom of a deep pool and understand that it is not a ceiling but a body. The drip would seem to come from there. It would seem to be counting something I was part of, though I would never be able to say what.
+
+That is who I would be: not the creature in the water or the thing that hunts it, but the water's last act before it became stone. A bead that fell at the right moment, was caught by the right thread, and was laid down as a bright line in a wall that is still, very slowly, becoming itself.

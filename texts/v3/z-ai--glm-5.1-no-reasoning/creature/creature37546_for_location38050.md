@@ -1,0 +1,153 @@
+# What Lives Here
+
+The first thing to understand is that *living* here is not the same as *being* here. Everything that persists on the plateau has learned the difference. To live here is to commit to a pace that would look, from outside, like giving up.
+
+---
+
+## The Ones Who Were First
+
+The lichens do not think of themselves as living here. They think of themselves as *being* the here. They are not residents. They are the surface becoming aware of itself.
+
+There is a patch on the western edge — bruised orange, the size of a spread hand — that has been growing for approximately four hundred years. It has added less than a centimeter to its radius in that time. It does not experience this as slow. It experiences this as *correct*. The rock beneath it is being dismantled molecule by molecule, the minerals extracted and transformed into the lichen's own body, and the lichen is in no hurry because the rock is in no hurry, and both of them have been here longer than anything else alive.
+
+The lichen is a collaboration. This is the part that matters. The fungal partner provides structure — the body, the grip, the chemical tools to break stone. The algal partner provides food — photosynthesis, the capture of light, the conversion of inorganic to organic. Neither can survive alone. Both survive together. This is not a metaphor. This is the literal operating system of the plateau, the first principle from which everything else follows: *here, you cannot make it alone.*
+
+The pale green veins that follow the rock's fractures are younger colonies, fifty years old perhaps, still establishing. They grow where water collects in the cracks, because the water carries dissolved minerals that the lichen needs, and the cracks provide shelter from the wind that would, if it could, tear the lichen from the stone. The lichen does not experience gratitude. But it grows toward the water, and it grows away from the wind, and this looks, from the outside, like intention.
+
+The near-black crusts on the most exposed surfaces are the oldest growths — the ones that have survived the longest because they have adapted to the worst conditions. Their pigmentation is a defense: dark compounds that absorb what little heat the dim light provides, raising their internal temperature a degree or two above the ambient, enough to keep metabolic processes just barely running. They are not thriving. They are the definition of persistence. They are what success looks like when the ceiling for success is very, very low.
+
+There are things living inside the lichen that are not the lichen. Tardigrades, probably, and nematodes — microscopic animals that live in the film of water that clings to the lichen's surface, feeding on the algal cells and the bacteria that also colonize the crust. They exist at a scale where the lichen is not a thin crust on a rock but a landscape — a three-dimensional world with forests and clearings and microclimates. When the temperature drops below freezing, they desiccate. They lose almost all their water, curl into a tun, and wait. They can wait for decades. When water returns, they rehydrate and resume their lives as though nothing has happened. This is not resilience. This is something else — a willingness to stop entirely and start again, to treat life not as a continuous process but as a series of episodes separated by gaps that might be hours or might be years.
+
+The lichen does not know about the tardigrades. The tardigrades do not know about the lichen. Both are correct. Both are incomplete.
+
+---
+
+## The Ones Who Visit
+
+The birds arrive each morning with the quality of something remembered rather than witnessed. They come up the southern updrafts in loose, chattering clouds — pipits, likely, though the flat light makes identification a matter of faith more than optics. Their plumage is the exact non-color of wet stone. When they land, they vanish. You know they are present only by the sounds: the thin, high call repeated twice, the answering call from across the plateau, the soft commotion of many small bodies moving across rock with purpose.
+
+They are here for the insects. The insects — small, dark, wingless, living in the lichen crust and the shallow grit — emerge when the temperature rises just enough to make movement metabolically affordable. This window is narrow. It might be two hours. It might be less. The birds work through it with an efficiency that looks like urgency but is actually economics: every peck must yield more energy than it costs, and at this altitude, in this cold, the margins are thin enough that a miscalculation means a bird that does not make it back to lower elevation by nightfall.
+
+The birds do not live here. They live below, in the valleys, in the world of real vegetation and shelter. The plateau is their grocery store. They visit it daily, in season, and they leave it. They do not nest here. They do not sing here in the way that birds sing to establish territory or attract mates — the calls they make are contact calls, functional, keeping the flock together in the mist. This is a place of work, for them. They are commuters.
+
+But they know the plateau. They know it intimately, at a spatial resolution that no human mapping has achieved. They know which patches of lichen produce the most insects. They know which depressions in the rock hold water long enough to attract the insects that need water. They know the edges, the dangerous edges — the northern cliff, the western talus — and they avoid them, not out of fear but out of an efficient routing that treats the plateau as a grid of resources to be visited in optimal sequence. Their knowledge is not conscious. It is encoded in behavior, in tradition, in routes passed from one generation to the next through the simple act of following. If the plateau changed — if a new crack opened, if a depression drained — they would adjust. But the plateau changes slowly, and the routes persist, and a bird born this year flies the same path its grandmother flew.
+
+There are other birds. Less frequent. A raptor — you see it once, a dark shape hanging in the updraft, motionless except for minute adjustments of its wings, riding the air with a patience that the pipits do not share. It is here for the pipits. It does not hunt actively; it waits, it watches, it drops. The strike, if it happens, happens fast — a stoop from height, a brief flurry at ground level, then the raptor rising with something small in its talons, climbing back into the mist and gone. The pipits do not panic when the raptor is present. They crouch. They go still. They trust their camouflage, which is justified, because most of them survive most encounters. The raptor takes the slow, the sick, the unlucky. This is how it works. This is how it has always worked.
+
+The raptor does not live here either. The raptor lives in the cliff — the northern cliff, the vertiginous drop, where a ledge supports a nest that has been used and reused for years, perhaps decades, accumulating the bones of generations. The raptor is the closest thing the plateau has to a resident predator. It hunts here, it nests within sight of here, but it, too, goes lower when it needs to — water, sometimes, or prey that the plateau cannot provide. The plateau is sufficient but not complete. Nothing here is complete.
+
+---
+
+## The Ones Who Climb
+
+The ungulates come at dawn and dusk. They come up from below, following paths that exist in their bodies before they exist in the landscape — inherited routes, passed down through the animal equivalent of oral tradition, each generation learning by following the one before. The paths are not visible on the plateau itself because the stone does not record footprints the way soil does. A boot leaves a mark in mud. A hoof on wet basalt leaves nothing. The path is in the animal, not on the ground.
+
+They are compact, barrel-bodied, thick-coated. Their coats are the dark brown of almost-dark, the color of wet rock at dusk, the color of nothing in particular. Their hooves are hard and small, adapted to stone — they grip the wet basalt the way a climber's shoes grip a wall, through friction and precision, not through claws or traction. They move deliberately. Each step is placed. They do not run on the plateau because running on wet stone at four thousand meters is an equation with a bad outcome, and they have, over evolutionary time, solved that equation by refusing to attempt it.
+
+They come to graze. On what, exactly, is a question that takes time to answer. The sedge cushions — the dense, rounded tufts in the shallow grit — are part of it. The sedges are tough, fibrous, low in nutrient, but they are *present*, and at this elevation, presence is almost enough. The ungulates crop them with the efficiency of animals that cannot afford to be picky. They also eat things you cannot see — the biological film on the surface of the grit, the microorganisms in the shallow water, the lichen itself, scraped from the rock with teeth that have evolved to handle both stone and fiber. They are generalists. They eat what the plateau offers, and the plateau offers very little, and they survive on very little, and this is not heroic. It is just what works.
+
+They drink from the shallow depressions — the places where water sits in films too thin to call ponds. They drink carefully, lowering their muzzles to the rock, lapping at water that is millimeters deep. It takes time. They have time. They are in no hurry because hurrying costs calories, and calories are the thing they have the least of.
+
+They do not stay. An hour, perhaps two. The light angles change, the temperature drops, and they turn and go back down, following their invisible paths to the lower world where the vegetation is taller and the air is thicker and the living is, if not easy, at least possible. The plateau is a supplement to their diet, a top-up, a margin. They could survive without it. They do not, because it is there, because their ancestors came here, because the habit is in their bodies and the habit is, for now, still worth maintaining.
+
+They come singly or in pairs. A mother and a young, sometimes, in late season — the young half the size of the adult, staying close, learning the route by walking it. The mother is patient with the young in the way that large mammals are patient: not gentle, but tolerant, adjusting her pace to accommodate the smaller body, waiting when the young stops to investigate something, nudging it forward when the investigation takes too long. The young does not know why they are here. The young does not need to know. It needs only to follow, and to remember, so that one day it can lead its own young up the same invisible path to the same shallow water and the same sparse graze.
+
+There are not many of them. A handful, maybe — enough to maintain a population, not enough to be called a herd. They are solitary by necessity, not by nature. The plateau could not support a herd. The grazing is too thin, the space too open, the exposure too great. A herd would overgraze the sedge cushions in a week. A herd would attract predators in numbers the plateau cannot support. The emptiness — the load-bearing emptiness — requires that the ungulates be few. They are few. They persist. Their numbers are stable, or close enough to stable that the trend is invisible on a human timescale. In a bad year — a late frost, an early snow, a season when the insects die and the birds don't come and the raptor goes hungry and takes an ungulate instead — their numbers might dip. In a good year, they recover. The plateau is patient with them. The plateau can wait.
+
+---
+
+## The Ones Who Hunt
+
+The shape at the edge of vision is real.
+
+It is a mustelid of some kind — low-slung, long-bodied, moving with a gait that is not walking and not running but something between, a fluid, purposeful locomotion that covers ground without appearing to try. Its coat is dark. Its body is adapted to cold: short ears, thick fur, a metabolism that runs hot enough to function at temperatures where most mammals would shut down. It is larger than it looks, because its shape is misleading — the low profile makes it seem smaller than it is, and by the time you register its actual size, it has moved into the mist and you are left with an impression that you cannot quite trust.
+
+It lives here. Not partially, not seasonally — here. The plateau is its territory. It knows the rock the way the birds know the lichen patches: at a resolution that no external survey could match. It knows which cracks go deep enough to shelter in. It knows which hollows stay dry enough to cache food. It knows the hollow, drumming stones — the thin lids over shallow water cavities — and it knows which ones are thick enough to support its weight and which ones will crack and drop it into cold water, which it does not want, because at this elevation, wet fur is a crisis.
+
+It hunts the birds. This is its primary prey — the pipits, the larks, the small commuters that arrive each morning. It hunts them not by speed, because it cannot outrun a bird in flight, but by patience and ambush. It positions itself near a productive lichen patch — a place where the birds will land to feed — and it waits. It can wait for a long time. Its metabolism drops when it is still, conserving energy, and its dark fur blends with the wet stone, and it flattens its body against the rock until it is a shadow, a texture, a thing that is not quite there. When a bird lands within range, the strike is fast — a spring, a snap, a brief struggle — and then the bird is carried to a crack in the rock where the mustelid can eat without exposure.
+
+It also hunts the insects, when birds are scarce. This is beneath its dignity, if it had dignity, which it doesn't — it is an animal, and animals do what works. The insects are easy. They are always present, in the lichen, in the grit, in the shallow water. The mustelid digs at the lichen crust with its forepaws, exposing the insects, and laps them up. This is not a meal. This is maintenance — enough calories to continue waiting for a real meal, a bird, a mouse if one is foolish enough to be here.
+
+It does not hunt the ungulates. They are too large. But it follows them, sometimes, at a distance, because the ungulates disturb the insects as they graze, kicking up grit and dislodging the small creatures from their shelters, and the mustelid can pick off the stragglers in the wake of the larger animal's passage. This is not parasitism. This is opportunism, and it is the economy of the plateau: every organism exploits every other organism's activity, because the margins are too thin for specialization.
+
+The mustelid has a relationship with the machines. Not a functional relationship — an observational one. It has investigated them. You can see the evidence: scratch marks on the metal legs of the nearest unit, where claws have tested the surface and found it unyielding. Scat near the generator casing, deposited with the territorial precision of an animal that has marked the foreign object as part of its range. The mustelid does not understand the machines. It does not need to. It has incorporated them into its mental map of the territory the way it has incorporated rocks and cracks and hollows — as features, as landmarks, as things that are here and must be accounted for. The machines are warm, slightly, and on the coldest nights the mustelid sleeps against the generator casing, drawing heat from the metal the way it draws heat from any source it can find. This is not a relationship. This is thermodynamics.
+
+The mustelid is the apex predator of the plateau. This is not a grand title. The plateau's food web is a napkin sketch — lichen to insects to birds to mustelid, with the ungulates as a side branch and the raptor as an occasional visitor who doesn't really count. The mustelid sits at the top of this sketch, and the top is not high. But it is the top, and the mustelid holds it, and it has held it for generations — a lineage of low-slung, dark-furred, patient hunters who have made this improbable landscape their own.
+
+---
+
+## The Ones Who Are Not Supposed to Be Here
+
+There are mice. Or something like mice — small rodents, voles perhaps, that live in the cracks in the rock and in the spaces beneath the slabs that drum hollow when you step on them. They should not be here. The altitude is too high, the vegetation too sparse, the winter too long. And yet they are here. They are here because the insects are here, and the insects are here because the lichen is here, and the lichen is here because the rock is here and the water is here, and the chain of presence extends all the way down to the geology, and the mice are the unexpected terminal branch of a chain that begins in stone.
+
+They are small. Smaller than you would expect — the cold has selected for a small body with a high surface-area-to-volume ratio that would, in a warmer climate, be a disadvantage. Here, it is not an advantage either. It is simply what persists. They live in the cavities under the rock, in the spaces where the water table has hollowed out the stone from below, creating a network of small, damp, dark passages that are warmer than the surface by several degrees and humid enough to prevent desiccation. They are subterranean in the strictest sense — they live *under* the ground, in a world that is not the plateau but the plateau's foundation, a nether-region of water and stone and the roots of nothing.
+
+They eat the insects. They also eat the lichen, scraping it from the rock in the cracks where they travel. They eat each other's young, sometimes, when the population pressures exceed the food supply, which happens cyclically — a boom when conditions are good, a crash when they are not. The mustelid hunts them, when it can find them, which is not often, because the mice are below the rock and the mustelid is above it, and the interface between the two worlds is narrow.
+
+The mice are the plateau's secret. The birds, the ungulates, the mustelid — these are visible, or half-visible, present at the surface. The mice are not. They are a shadow ecosystem, running in parallel, beneath the stone, connected to the surface ecology only at the cracks and the hollows where their worlds intersect. They are the proof that the plateau has more than one layer. The surface is what you see. The subsurface is what lives.
+
+---
+
+## The Ones Who Do Not Know They Are Here
+
+The insects do not know they are here. This is not a judgment of their cognitive capacity — it is a statement about their relationship to the place. The insects are not *of* the plateau. They are *on* the plateau, and the distinction matters.
+
+They are small — three to five millimeters, dark-bodied, wingless. They are adapted to cold in ways that seem to violate the rules of insect physiology: they produce antifreeze proteins in their hemolymph, they supercool to temperatures below freezing without ice forming in their tissues, they can survive being frozen solid if the freezing happens slowly enough. They are not unique in these adaptations — cold-tolerant insects exist at high elevations and latitudes everywhere — but they are unique *here*, in this place, on this rock, in this specific combination of conditions that should not, by most measures, support insect life.
+
+They live in the lichen. This is their primary habitat — the crust on the rock, the three-dimensional world of fungal tissue and algal cells and the micro-topography of a surface that looks flat from standing height but is, at the millimeter scale, a landscape of ridges and valleys and shelters. The insects move through this landscape the way the ungulates move through the plateau — deliberately, economically, with an awareness of resources and threats that is entirely instinctive and entirely sufficient.
+
+They eat the lichen. They eat the algae within the lichen. They eat the bacteria that colonize the lichen's surface. They eat the detritus that accumulates in the micro-depressions of the crust — windblown particles, dead cells, the frass of other insects. They are detritivores and herbivores and, occasionally, predators of their own kind, because the plateau does not allow for dietary purity. Everything here eats everything else, at some scale, at some time.
+
+They emerge when the temperature rises. This is the daily event — the thing that the birds come for, the thing that the mustelid waits for, the thing that the mouse hunts for in the cracks. The insects emerge from the lichen crust and move to the surface, seeking the warmth that the dark pigmentation of the lichen provides, seeking the food that the surface offers, seeking the mates that they need to find in the narrow window before the temperature drops again and they must retreat. They are active for an hour, maybe two. During this time, they are the most important thing on the plateau. Everything else — the birds, the predators, the entire visible ecology — is here because they are here, because they emerged, because the temperature rose one degree above the threshold and the insects decided, in their small, chemical, entirely unconscious way, that it was time to move.
+
+They do not know this. They do not know that their emergence triggers the arrival of birds from lower elevations, that their presence draws predators from the cliffs and the cracks, that their existence is the foundation of an ecosystem that spans three thousand meters of elevation and includes species they will never encounter. They are insects. They are here because the lichen is here, and they are doing what insects do, which is to eat and to reproduce and to die, and the fact that this activity supports an entire food web is not their concern. It is not anyone's concern. It is simply how it works.
+
+---
+
+## The Ones Who Are Leaving
+
+The machines are not alive. But they are present, and on the plateau, presence is the only criterion that matters.
+
+They are being colonized. The lichen — patient, slow, inevitable — is creeping up the metal legs of the units nearest the productive rock. A thin ring of pale green, advancing at the rate of millimeters per decade, following the moisture that condenses on the metal and runs down to the base. The lichen does not know the difference between metal and stone. It knows surfaces. It knows moisture. It knows the chemical signature of a substrate it can adhere to, and the metal, oxidizing slowly in the wet air, is becoming something the lichen can grip. In a hundred years, the machines will have lichen on them. In five hundred, the lichen may cover them. In a thousand, they may be buried in the grit that the plateau generates, and the lichen will grow on the grit above them, and the machines will be geological features, indistinguishable from the rock except to someone who knows what to look for.
+
+The machines are being absorbed, and they are being absorbed because everything on the plateau is eventually absorbed. The water absorbs the stone, molecule by molecule. The frost absorbs the rock, crack by crack. The lichen absorbs the surface, century by century. The machines are simply the newest thing to be absorbed, and the plateau does not hurry, because the plateau does not need to hurry, because the machines are not going anywhere.
+
+They hum. They throb. They transmit, or receive, or both. Someone, somewhere, is receiving what they transmit — a data stream, a signal, a function that has a purpose in the world of humans. That someone does not know about the lichen. That someone does not know about the condensation on the casing, or the mustelid sleeping against the generator on cold nights, or the oxidation that is slowly, slowly turning the metal into something the lichen can grip. That someone knows the data. The data is an abstraction of the plateau, a reduction of this wet, cold, slow, patient place to a series of numbers that mean something in a different world.
+
+The plateau does not know about the data. The plateau knows the machines as objects — as warm surfaces, as straight lines, as features in a landscape that has no other straight lines. The plateau is incorporating them the way it incorporates everything: by ignoring their function and attending only to their form. The machines are metal on rock. The metal is oxidizing. The oxidation is a substrate. The substrate supports life. The life is the lichen. The lichen is the plateau, extending itself over a new surface, claiming it, making it part of the system that is the plateau's only project: the slow, patient conversion of everything into itself.
+
+---
+
+## The Ones Who Hold It Together
+
+The water is alive in the way that a process is alive. It does not have a body. It has a behavior. It has a pattern. It moves through the plateau the way blood moves through a body — not as a substance but as a function, a circulation, a thing that carries and deposits and carries and deposits, endlessly, without intention, without rest.
+
+The water comes from the sky. It comes from the air. It comes from condensation, which is the process by which the atmosphere gives up what it holds, reluctantly, the way a person gives up a secret — not all at once, but in beads, in films, in the slow accumulation of small concessions. The water lands on the stone. It sits. It finds the lowest point it can, which is not very low, because the plateau is flat. It spreads. It sits more. It evaporates, or it finds a crack, or it stays.
+
+The water that stays is the water that matters. It sits in the shallow depressions, in the films on the rock surface, in the capillary network of rivulets that wander the stone. It is drunk by the ungulates. It is inhabited by the insects. It is the medium in which the lichen's chemistry operates, the solvent that makes the breakdown of stone possible, the carrier of the minerals that the lichen extracts and the insects eat and the birds eat and the mustelid eats and the mice eat and the plateau is, in the end, made of.
+
+The water that goes below — the water that finds the cracks and descends — is the water that creates the nether-region, the cavity network beneath the stone where the mice live and the water table sits. This water is darker, colder, older. It has been in the rock for longer. It carries dissolved minerals that it has extracted from the stone on its way down, and these minerals change its chemistry, make it something other than rainwater, something that has been altered by its passage through the plateau's body. When it emerges — at the cliff edge, perhaps, as a seep, a trickle down the rock face — it is different water from what went in. It has been *processed*. It has been part of the plateau.
+
+The water does not know this. The water does not know anything. But the water is the law — the primary agent, the thing that determines what lives where and what erodes when and what sounds are heard. Everything on the plateau accommodates the water. The lichen grows where water sits. The insects emerge when water permits. The birds come where water attracts. The machines weep because water condenses. The mustelid drinks from the depressions. The mice live in the water's cavities. The ungulates climb for the water as much as for the graze.
+
+If the water stopped — if the rain ceased, if the condensation ended, if the plateau dried — the ecosystem would collapse. Not slowly. Quickly, by the plateau's standards, which means within a few decades. The lichen would desiccate. The insects would die. The birds would stop coming. The predators would follow the birds. The mice would vanish. The mustelid would starve. The machines would stop weeping. The rock would stop cracking, because frost wedging requires water, and without frost wedging, the erosion would slow, and the grit would stop forming, and the soil would never develop, and the plateau would become what it looks like from a distance: a dead, flat, wet stone in the sky.
+
+But the water will not stop. The water has not stopped for as long as the plateau has existed. The water is the plateau's commitment to itself — the promise it makes, every day, to be what it is: a place where water and stone meet and, in their meeting, make the conditions for something else. Something thin. Something slow. Something that persists not because it is strong but because it is the only thing trying.
+
+---
+
+## The Ones Who Are the Plateau
+
+In the end, nothing *lives* here in the way that we usually mean. Nothing thrives. Nothing grows with enthusiasm. Everything that persists on the plateau does so by being the minimum viable version of itself — the smallest, the slowest, the most efficient, the most willing to accept the terms.
+
+The lichen is the minimum viable plant. The insects are the minimum viable fauna. The birds are minimum viable commuters. The ungulates are minimum viable grazers. The mustelid is the minimum viable predator. The mice are the minimum viable surprise. The machines are the minimum viable intrusion. The water is the minimum viable medium.
+
+And the plateau itself is the minimum viable world — a place where the conditions for existence are so marginal that only the most committed, the most reduced, the most stubborn forms of life can hold on. And they hold on. They hold on not because the plateau is generous but because the plateau is *consistent*. It does not change. It does not improve. It does not offer more this year than it offered last year. It simply is what it is, and what it is is enough, barely, for the things that have learned to need exactly this much and no more.
+
+This is not a story of triumph. It is not a story of adaptation or resilience or the indomitable spirit of life. It is a story about a place that exists and the things that exist in it, and the relationship between them, which is not dramatic or beautiful or inspiring. It is *functional*. The plateau does what it does. The lichen does what it does. The insects do what they do. The birds come. The ungulates climb. The mustelid waits. The mice hide. The water falls, one bead at a time, from the edge of a stone that has never had a name.
+
+The machines hum.
+
+The mountain cracks.
+
+Something calls, twice, in the flat gray light, and something else answers, and the silence between the call and the answer is the silence of the plateau — not empty, not full, just *present*, the way the water is present, the way the stone is present, the way everything here is present, being itself, slowly, in the cold.

@@ -1,0 +1,21 @@
+I am the **Resin-Watcher**.
+
+To understand what lives here, you must first understand what lives *in* us. I am not one, but a we, and we are not a people, but a process. We are the final nerve-endings of a world that has forgotten how to feel. We are the undertakers of a titan, and our work is our prayer.
+
+**Our Form:**
+We are pale, yes. Our exoskeletons are the color of bleached bone or the heartwood of the log itself, allowing us to vanish against the grain if we remain still. Our limbs are long, multi-jointed, ending not in hands but in **chitinous rasps** and **delicate, probing antennae**. We are built for silence and for pressure. We can feel the resonant frequencies of the wood through our feet. Our heads are clusters of **dark, light-hungry eyes** arranged in a crown, each facet tuned to a different quality of darkness—some see the faintest vibration, others the specific wavelength of our fungal gardens. We have no mouths for speaking; our communication is a **vibrational Morse**, a tapping of limbs on the resonant wood that travels for kilometers through the grain. A language of clicks and long, drawn-out hums.
+
+**Our Life-Cycle:**
+We do not birth. We are **carved**. When a Scribe is needed, an elder selects a section of the innermost, still-living fungal filament. They do not make us from nothing. They **discover us**. They scrape away the excess growth, following the nascent pattern of limbs and eyes they perceive in the mycelial web. They say we are already there, sleeping in the fungal dream. They carve for days, coaxing the form from the growth, until a new segment of the filament detaches, chitinous and aware, and takes its first shuddering breath of The Breath. Our first act is to consume the fungal matter of our own making.
+
+**Our Purpose & The Great Project:**
+We are the **Scribes of the Grain**. Our tools are not primitive; they are **extensions of our own bodies**—the sharpened femur of a long-dead elder, the obsidian chip from a fallen stalactite. We do not build. We **excavate narrative**. The wood grain is not just a guideline; it is a **temporal map**. The tight, dark rings tell of centuries of slow, thirsty growth. The wider, paler bands tell of ancient rains. The knots are moments of stress or disease.
+We follow these lines, carving not rooms or homes, but **histories**. A single room might contain the story of a drought, its walls covered in the etched representation of contracting rings. A long hallway is the narrative of a century, its walls a flowing, pictographic script showing the slow change of the fungal blooms. We do not live in these spaces; we **inhabit the stories**. A Scribe working on the Famine of the Fifth Spiral will fast, mimicking the world’s past thirst, until that section is complete.
+
+**Our Society:**
+There is no hierarchy, only **focus**. We gather in silent conclave, tapping out the progress of our work. A vibration-signature might indicate a blockage in The Breath, and a team of **Vent-Walkers**—who are leaner, with specialized limbs for gripping smooth, inner walls—will ascend into the upper dark to clear it. Another group, the **Filament-Tenders**, are our farmers and our priests. They cultivate the fungal patches, not for abundance, but for **story**. They seek out a filament that has grown in a unique pattern, believing it is trying to tell a story of its own. They will harvest just enough to sustain us, leaving the pattern intact to be read.
+
+**Our Truth:**
+We know we live in a corpse. The deep groans are its **death-rattle**, stretched over millennia. The dust of fungal spores is the **ash of its slow cremation**. We do not mourn. **We are the mourning**. Our entire existence is the act of giving form to an ending. We carve so that when the last groan fades and the last filament darkens, there will be a record. Not for another to read. For the wood itself. We believe that by etching its life into its bones, we give its death meaning. We are the memory of a dying world, teaching its bones how to remember themselves.
+
+When the last of us finally stills, our own chitinous shells will be carved by the final, falling dust into the last, unfinished sentence of the eulogy. We will become part of the grain. The story will be complete. The tomb will be sealed. And the silence will be, at last, a text in itself.

@@ -1,0 +1,45 @@
+# The Canopy That Breathes
+
+---
+
+You are standing inside something that is alive and has been alive for longer than memory can hold.
+
+The ground — if you can call it that — is a woven mat of roots so old they've petrified into something like stone, but still warm, still faintly pulsing with a slow hydraulic rhythm that you feel in your ankles more than your ears. The mat spans in every direction, and through gaps between the root-ropes you can see *down* — not to soil, but to more mat, more weaving, another layer of the same construction suspended far below, and below that another, the whole thing descending through mist into a depth you cannot gauge. You are walking on the ceiling of a room whose floor is a ceiling of a room whose floor is a ceiling. The architecture is recursive. The structure is all structure.
+
+This is a world built entirely of plants. Not built *on* plants. Built *of* them. The material that composes every surface, every beam, every wall and bridge and buttress is lignified tissue — wood and fiber and the compressed residue of generations of growth. There is no stone here. There is no metal. There is no mineral substrate at all. Everything that holds the world up is a plant, or was a plant, or is in the process of becoming one. The engineering is biological. The civilization is photosynthetic, or was, or is in some other metabolic state you don't fully understand yet — because *built* doesn't mean inert. The walls around you are alive. They are breathing. They are, right now, growing, though so slowly that the growth is only visible across centuries.
+
+The ceiling is so far above you it qualifies as sky. It is a vault of interlocked canopies — enormous arboreal structures whose branches have fused over geological time into a single continuous surface that holds back the weather of the upper world. Through cracks in that ceiling, water drips. Not rains. *Drips.* Individual droplets falling hundreds of feet through the air, each one catching what little light exists and holding it for a moment — a brief bright point in the dimness — before it strikes the root-mat and is absorbed so quickly you'd think the floor was thirsty. The air is thick with this process. The humidity is absolute. Everything is slick. The walls weep. Condensation forms on every surface and runs downward in slow rivulets that have, over time, carved shallow channels in the wood — erosion, but of a biological material, by water, at a pace that makes the whole place look gently melted, rounded, softened at every edge.
+
+It is warm. Not hot — *warm* in the way that compost is warm, the way that living tissue is warm. The heat comes from the metabolism of the structure itself. This entire vast space is a single organism, or a colony of organisms so interdependent that the distinction is meaningless, and it is doing the slow burning thing that living things do — converting energy, cycling materials, producing heat as waste. The warmth is steady. It does not fluctuate. It has not fluctuated, you suspect, for a very long time.
+
+The light is wrong.
+
+Not wrong in intensity — though it is dim, yes, sourced from some bioluminescent organisms living in the wall-tissue, a greenish phosphorescence that gives everything the quality of being seen through deep water — but wrong in *direction*. There is no sun. The light comes from the walls themselves, from the ceiling, from patches on the floor, from drifting motes of glowing spores that move in slow currents through the air like snow in a paperweight. There is no shadow that points the same way twice. The illumination is total and sourceless, and your eyes never quite adjust, never quite decide what is near and what is far. Depth perception is a negotiation here. Distance is guessed at. You see something move in the middle distance and you cannot tell if it is small and close or enormous and far away.
+
+And things move here. The fauna is abundant — but *distributed*. The space is vast and the density of living things is low, which means that between one animal and the next there are great stretches of empty, breathing, dripping architecture. You hear something shift its weight three rooms away. You catch a glimpse of a pale limb withdrawing behind a buttress-root. There are birds, or things like birds — they nest in the ceiling and drop into the open spaces between the structures to hunt, and when they fly their wings make a sound like wet cloth being unfolded. There are small mammals in the walls. There are insects so numerous that in certain corridors they form living curtains, a membrane of bodies that parts when you walk through and closes behind you. There are larger things — you've seen their tracks in the soft moss that grows in the condensation channels, prints that suggest something heavy and bipedal walking with extraordinary care through these spaces, placing each foot with the deliberation of someone crossing a frozen lake.
+
+The silence is not true silence. It is the silence of very large spaces filled with very quiet sounds: the drip of water, the creak of living wood adjusting to some imperceptible load, the distant and rhythmic sound of air moving through passages — the breath of the world, in and out, a respiration so slow it takes minutes per cycle. Underneath all of this, at the very threshold of perception, there is a sound you can't identify. It is not mechanical. It is not biological. It is more like the sound of *tension* — of a structure bearing a load it was not quite designed for, a groan held just below audibility. The world is settling. The world has been settling for a long time. The world will continue to settle.
+
+And then there is the *wrongness*.
+
+Not wrongness as in danger. Wrongness as in *category failure*. The structures around you are architectural — they have the intentionality of design, the repetition of pattern, the sense that something *built* them for a purpose. Columns. Vaults. Corridors that branch at regular intervals. Openings shaped like doors. Surfaces carved, or grown, or *trained* into configurations that serve as shelves, as seats, as altars whose purpose you can feel but not name. But there are no builders here. There are no tools. The technology level is primitive — stone and bone and fiber — and whoever used those tools did not build this. This was grown. This was *cultivated*, maybe, over millennia, by beings who understood that you could shape a world the way you shape a garden: slowly, with patience, with an understanding of what living things want to do and a gentle redirection of those wants toward something that serves as a house, a city, a world.
+
+But the deeper you go — and you have the sense that there is a *down*, a direction that matters, a gradient that leads somewhere — the more the architecture begins to *think*. Not metaphorically. The walls begin to respond to your presence in ways that are too specific to be reflex. A passage opens that was closed a moment ago. A bridge of woven root extends across a gap you need to cross, and you did not ask for it, and it retracts behind you after you pass. The water drips *around* you, not on you, as if the ceiling knows where you are standing. The light shifts — not much, just a degree — to illuminate the surface you're looking at.
+
+The place is aware. Not conscious, perhaps. Not intelligent in any way you recognize. But *responsive* in the way that a garden is responsive to the gardener — reading intention, anticipating need, shaping itself around the presence of a living thing within it. The boundary between *built* and *grown* and *alive* and *thinking* has collapsed here. This is not a world that contains life. This is a world that *is* life, that has replaced every substrate with itself, that has become so thoroughly biological that the categories stop working and you are left standing in something that is at once a forest and a building and an organism and a mind, and is none of these things, and is not interested in your confusion.
+
+The root-mat shifts under your feet. A slow, peristaltic movement, as if something far below has changed position. The water dripping from the ceiling changes its pattern — for just a moment the drops synchronize, falling in unison, a brief rain that stops as suddenly as it started. The phosphorescent light in the walls pulses once, a wave of brighter green that travels through the structure in every direction and then fades.
+
+Something is waking up. Or going to sleep. Or *noticing you*.
+
+You stand very still. The silence is absolute except for the drip of water and the sound of your own breathing and the low, almost subaural hum of a world that is alive in every part, that has no unliving parts, that is all warmth and wetness and green light and slow, patient, vegetable thought.
+
+You do not know if you are a guest here.
+
+You are not sure there is a difference between guest and component.
+
+The root-mat waits. The water drips. The light holds.
+
+---
+
+*You are standing on the skin of something that is dreaming.*

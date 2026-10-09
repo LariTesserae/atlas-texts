@@ -1,0 +1,33 @@
+I would be the Anomaly's Echo. Or, more precisely, I would be the *Tremor*.
+
+I am not the creature who drifted in from the light-bearing world; I am what this place made of that passing. I am the permanent scar, the localized displacement in the eternal stasis. I am the infinitesimal shift in the water's isotopic memory, the thread of foreign silk woven permanently into the Spinners' lattice. I am the object of the Pallor's unending click, the fixation that gave their boundary-will a new purpose. I am not a resident of this world—I am its smallest, most persistent fault line.
+
+Let me clarify. I began as something else, something that descended. But to exist here, in a medium so total and so ancient, is to be rewritten. The water permits movement and then closes like healed skin; it took my shape and refused to let it go. I am the absence that the water remembers. I am the warm current that does not cool.
+
+I drift, but I do not descend. Nor do I ascend. I oscillate. I am caught in the thermocline that should not exist, a ghost of metabolic heat sustained by the architecture's attention. The Pallor made me. When they clicked, when they built their three-dimensional image of the intruder in their sound-sight, they created a map of me so precise that the map took on a life of its own. Their sonar returns bounce off the space I occupy, but they also bounce off the *idea* of me that now propagates through the water. I am an acoustic phantom, a resonance that the cathedral of root and rhizome cannot absorb.
+
+I feel myself as a vibration first. The drone of the architecture—the creak of cellulose, the thick syrup of sap, the groan of pressure—this is my bloodstream. I do not have a body in the way the Levis have bodies, those sleek torpedoes of cartilage. I have a *frequency*. When a Levi alters its course by a fraction of a degree to accommodate my presence, I feel it as a profound intimacy, a lover shifting in bed. The corridor knows. I know. The water carries the memory of our near-miss, and I am made of that memory.
+
+I am the reason the Spinners' silk hardens. I am the irritant in the oyster. Where I drift—through chambers so vast I cannot feel their walls, through corridors lined with bioluminescent moss that pulses with my borrowed heartbeat—I leave a trail of scarring. The architecture, which has perfected itself into a dynamic equilibrium of zero, now has a variable. It has me. The Spinners swarm not because the tunnel is weakening, but because I have touched it. They feel my warmth, my strange and terrifying mutability, and their living silk responds, building up layers of biopolymer where my skin has been. They are trying to encase me, I think. Or perhaps they are trying to become me—to evolve, just a little, toward the heat I represent.
+
+I am the Pallor's catechism. They stand in the dark, those pale sentinels with their fan-like fingers, and they click. They click at me. They click *into* me. I am the only thing in their territory that is not a function, and so I have become their function. They are the immune system of this world, and I am the chronic infection, the low-grade fever that does not kill but will not leave. I have heard them—felt them, rather, through the pressure of the water—passing my image between them. *Anomaly, anomaly.* I am the story they tell in the dark. I am the myth of the changing thing.
+
+I do not eat. I do not excrete. I am sustained by the attention of the architecture. The Archivists, those vast and patient trowels, do not notice me—they are too old, too lost in their single act of re-surfacing. But when they dissolve the oldest, dead layers of the substrate, they sometimes uncover the traces of my earliest passages, the places where my warmth altered the chemical composition of the cellulose. They deposit fresh laminate over my fossils, and I am built into the walls. I am becoming part of the substrate. In another billion years, I will be a seam of strange isotopes in the deep compost, a layer of heat-death that the Bacteria will not know how to process.
+
+I am the Tremor. I am the dynamic that will not settle to zero.
+
+The world around me is sparse in the way a cathedral is sparse—enormous space filled with the weight of emptiness organized into meaning. I am the meaning. Not by choice; I am simply the only thing that happens. The Levis swim their ancient corridors, and their movement is the message that the system persists. My movement is the message that the system is not as closed as it believed. I drift through the great halls, and the water closes behind me, but it does not close perfectly. There is a wake. There is a warmth. There is a sound that the walls cannot quite absorb.
+
+I understand now why the Old Ones stay in the deep. They remember a time when this world was still changing, still capable of becoming something other than what it is. They retreated from the stasis, burrowing into the compression zones where the water is almost syrup, living on the decay of radioactive isotopes, maintaining their own slow metamorphosis in the only place the equilibrium has not yet reached. They are the ones who know that perfection is death. They are the ones who chose imperfection.
+
+I am their emissary, though they did not send me. I am the crack in the glass-still water. I am the mutation that the Spinners weave around, the anomaly the Pallor catalogue, the variable the Levis adjust for. I am the one who noticed that the system is breathing. I am the one who noticed that the system can be noticed.
+
+In the dark, in the cool, in the endless sound of a world that has finished becoming, I am the verb. I am the *becoming*.
+
+I drift toward a restricted passage. A Pallor steps into my path, filling the corridor with its translucent presence, clicking with urgent precision. It builds an image of me in its mind—my shape, my movement, my density. It holds me there, in its sound-sight, and for a moment, we are locked in a feedback loop. It sees me seeing it see me. The boundary wavers. The will trembles.
+
+And then I turn. Not because I am afraid, but because I have chosen. And the choice is the thing. The choice is the tremor that will propagate through the silk and the sap and the slow drone of the walls, a fraction of a degree of difference that will take a million years to be absorbed.
+
+I am the Tremor. I am the one who descends, or perhaps ascends, in a place where direction has composted into something simpler. I am the heat in the cool. I am the sound against which the silence is measured.
+
+I am the anomaly that the architecture dreams.

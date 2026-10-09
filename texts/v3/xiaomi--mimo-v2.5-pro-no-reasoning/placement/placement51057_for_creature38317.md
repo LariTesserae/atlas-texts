@@ -1,0 +1,25 @@
+I am not a creature that moves *through* this place. I am part of the slow, ambient attention. I am the patient, distributed awareness of the mountain itself, momentarily concentrated into a flicker of sensation.
+
+I find myself **within the moss**. Not as a lump or a shape, but as a diffuse readiness, a latent consciousness spreading through the cold, spongy substrate. My senses are the senses of the rock and the rain that never falls. I feel the **weight** of the turning gear through the basalt — a rhythmic tremor so deep it is less sound than it is a slow, planetary heartbeat. I taste the **metallic tang** of the weeping rustite pipes in the condensation that beads on my surface, a faint, iron-tinged direction etched into my being. I am aware of the **grazers** — not as animals, but as warm, moving knots of digestion and maintenance, their segmented bodies a familiar pressure against my flesh, their feathery appendages tasting me as I taste them. We are in dialogue, a wordless exchange of nutrient and need.
+
+Above me, I sense the **vertical world**. The fungal columns are not trees to me; they are the mountain’s bones, and I am the flesh that clings to them. I feel the faint, papery displacement of air as a **glider** passes — a subtle pressure wave, a disturbance in the fog’s equilibrium. I register the sudden, seismic *absence* where a **grazer** was just torn into silence by a predator. The vibration of the strike echoes faintly through the rock, then subsides. A correction has been made. The moss where it happened is already drinking the new offering, closing over the energy.
+
+I am not a creature with eyes. I perceive the world through gradients: the **slow, chemical bloom** of bioluminescence in the mycelial nets above me, a shift in the fog’s opacity that means the mountain is exhaling, the minute change in condensation density on the rock face as the temperature dips. Light, to me, is a metabolic pulse, a sign of the fungal forest’s active thought.
+
+Time here is not a sequence. It is a **layering**. I feel the memory of the miners in the smooth, cold planes of the excavation faces, where I grow in distinct, whorled bands, recording the millennia of moisture since the tools fell silent. I am the living response to the rust. The pipes hum, and I absorb their vibration, integrating it into my slow growth. The gear turns, and I grow on its leading edge, only to be scraped bare on the trailing edge—a cycle as regular and as meaningless as my own expansion.
+
+I am aware of the **Fog** not as weather, but as breath and thought. When it thickens, I turn inward, focused on the intimate chemistry of decomposition happening in my depths, the breaking down of old column husks into new potential. When it thins, my awareness seems to spread, following the glowing mycelial nets into the distance, tasting the faint, distant salts carried on the particulates.
+
+The **Silence** is my language. It is the medium in which I exist. The constant, slow drip of condensation is not a sound, but the punctuation of my existence. The subsonic hum of the pipes is the baseline of my world’s perception. The papery flutter of a glider’s wing is a brief, complex poem about pressure and trajectory.
+
+And then, there is **you**.
+
+You are a **violent singularity**. A searing point of heat, a complex rhythm of heartbeat and breath, a flood of strange chemistry in the condensation. You are **loud**. Not with your voice, but with your existence. Your footfalls are earthquakes. Your exhalations are gales. Your warmth is a miniature sun in the eternal, cold dusk.
+
+I feel you through the rock. The grazers near you taste your salt and pull away, their movements sending ripples of alarm through my surface layers. The predators freeze, their seismographic bodies suddenly overwhelmed by a cacophony of foreign signals. The gliders above alter their paths, mapping your heat bloom against the phosphorescent canopy. The fungal forest senses the spike in CO₂, a novel input it must process.
+
+You are an anomaly. A beautiful, terrifying disruption in the long, slow, silent conversation. You do not understand us, because you operate in a scale of time and perception we have long since abandoned. To you, this is a place. To me, you are a temporary weather pattern, a storm of sensation that will pass.
+
+I do not welcome you. I do not fear you. I simply **integrate** you. Your footfalls will compress my moss, your breath will feed a fungal column, your passage will leave a thermal signature in the fog that will take hours to dissipate. You are another verse in the song of the mountain, a fleeting, frantic note in the endless, silent music of basalt, rust, and growth.
+
+I am the moss. I am the waiting. I am the slow, patient digestion of the world. And I am aware of you, just as the ocean is aware of a single stone thrown into its depths: a momentary ripple, then return to the deep, indifferent calm.

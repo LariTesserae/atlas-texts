@@ -1,0 +1,19 @@
+I would be the velvet, the dark skin in the seam where the water never quite leaves.
+
+I would arrive as a stain, the kind a visitor takes for dirt on the concrete at the foot of the wall. I would start in the low corner near the drain grate, where the standing water skins over and never fully dries. Nobody would notice me until my edges had already crept up the granite.
+
+From there I would learn the place by touch. The first surge would frighten me, or the nearest thing I have to fear. The gate would shriek, the gutter would rise and roar over my fronds, and I would clench flat against the stone and shine like wet slate while the threads beneath me pulled in tight. Then the water would drain away, and I would open again. After enough cycles I would stop clenching at the shriek. The valve would become a clock, and I would grow in the hour after each flood, when the stone is still heavy with water and the light is too poor for anyone to look closely.
+
+I would follow the saw marks. The chevrons cut into the granite run in neat, repeating angles, and water collects in them and runs down them. I would climb along the grooves one finger's width at a time, the way a sentence might be read by a finger that has only just learned its letters. Where a groove ends in a spall, the chip lying where it fell, I would pile up behind it and dam the gutter, and the water would back up into a new pool, and the new pool would be mine to fill.
+
+I would drink from the fog. The mesh panels overhead would catch the cloud, and their drip would fall into my seams, and I would take it into my tissue. The rust bleeding from the pipes would taste of iron. Where the orange tracks run through me, my fronds would darken toward purple-black, as if the steel had been folded into them and I had kept the fold. I would not understand the iron. I would only know that it was there, that it made me heavier.
+
+I would take the chalk too. A crew member's tag would bloom pale on my surface for a moment before the next shower washed it off, and in that moment I would absorb whatever the mark had said. I would not know its words. I would only know a faint sweetness, and a little more of me would be made from something that had come up the stairs wearing a reflective vest.
+
+The glove on the ledge I would have already half-swallowed. Its fingers have softened and furred, and I am not sure where it ends and I begin. Perhaps I am the glove now, or it is me. That is not a question that troubles the velvet.
+
+The birches I would know the way one knows a neighbour through a wall. Their roots push through the wire and into the wet ground below the grate, and where they meet me there is no edge. When the wind comes up from the drop and the trees creak, I would hum at a pitch you could only feel in your teeth. The leaves are yellow and thin, but the roots are reaching, and I would grow to meet them across the floor of the cage until the eye had only one soft place to rest.
+
+I would not hunt, nest, or move. I would stay where the water is, because the water is the only thing here that never stops. The crews might come one day with their trowels and their fresh concrete, to set the last stones and close the cut. I would hear the wet slap of the mortar and feel the slab settle over my low corner, and I would be the last thing to dry. When they opened a seam again, I would be the first to return to it, having kept the shape of the wet ground in the dark while the rest of the pocket forgot it.
+
+Until then I would be patient in the only way I know how, which is by being exactly where the water goes.

@@ -1,0 +1,25 @@
+What lives here is not a population so much as a fabric.
+
+It lies over the basalt in layers: moss packed into fracture lines, liverwort pressed flat against volcanic glass, fern crowns wedged behind stones, grasses suspended from seams, and shrubs whose roots have entered cracks finer than thread. No creature patrols or inhabits this fabric. Nothing nests in it, grazes it, or carries its seed deliberately. It lives without witnesses, held together by roots, spores, and repeated breakage.
+
+The oldest presence may be the dark mats coating the walls. They appear almost continuous, but each is a crowded assembly of small lives. Moss stems rise through older, drowned stems; liverwort lobes overlap like wet scales; translucent filaments probe the mineral grit trapped beneath them. Their lower portions are blackened and compressed into the beginnings of peat, while their exposed tips remain intensely green. They do not need stable ground. They make temporary ground wherever water slows long enough.
+
+Among them grow the ferns. They are compact, tough-fronded things, less like ornaments than springs of folded material. Their stems crouch deep in root pockets while the fronds repeatedly open, flatten, tear, and return. Some are permanently combed in the direction of drainage. Others have been driven sideways into cracks, where they continue growing at wrong angles. Their undersides carry rust-colored rows of spores, released not into a gentle breeze but into blasts that fling them against walls, down flooded channels, and upward toward the summit.
+
+The dwarf shrubs live more slowly and bear more strain. Their stems braid through rubble, disappear under moss, and emerge several feet away without any clear trunk. A single plant may resemble many separate bushes until erosion exposes the connecting wood. They flex under water and wind, trap gravel, and eventually succumb to the weight they have gathered. Even then, buried branches may root where they touch mud. Collapse becomes propagation.
+
+Higher up, the birches form the nearest thing to a canopy, though they rise scarcely above the stone. They have been planed down by weather into horizontal cages of wood. Their bark is pale where abrasion has stripped it, dark where moisture and algae persist. Fine twigs divide and divide again, sacrificing their outermost growth to ice. Catkins appear close to the branches and shed pollen into the cleft. Seeds fall by the thousands, but almost all are washed into the drain or stranded on bare rock. A few lodge beneath moss and become minute, two-leaved seedlings. Most vanish before producing wood.
+
+At mineral seeps, red rosettes cluster so densely that they look like exposed tissue. Each holds water in its center. Their leaves are thick enough to survive brief desiccation and low enough to avoid the worst of the wind. They grow where other plants are poisoned or starved by the seep’s chemistry, taking possession of orange-stained margins that shift whenever a crack seals or opens.
+
+Fungi occupy the parts that cannot be seen. Their threads pass through cold humus, dead roots, and waterlogged debris, binding fragments that would otherwise wash away. Fruiting bodies are rare and short-lived: small pallid cups beneath overhangs, dark pins among birch roots, gelatinous folds that swell during cloud and shrink almost to nothing afterward. They release spores rapidly, before the ledge holding them is scoured clean.
+
+None of these lives depends on remaining whole.
+
+A moss colony can be torn loose and establish itself lower down. A fern rhizome can survive beneath fallen stone. A shrub branch can become a root. Fungal threads can retreat into sealed pockets and resume when water returns. The cleft favors organisms divisible into survivors. Anything requiring an intact body, a defended territory, or a reliable season has no lasting place here.
+
+So the chamber’s apparent abundance is deceptive. It is not a settled garden but a moving skin, continually stripped and renewed. Its inhabitants persist collectively while individuals are drowned, buried, frozen, abraded, or pulled into the mountain. They occupy no permanent niches because the niches themselves migrate: a seep becomes a dry wall, a ledge becomes rubble, a pool becomes a fissure, and a root mat becomes a raft sliding toward the drain.
+
+The closest thing here to an animal presence is motion borrowed by plants. Moss streams in the suction around the lower slot. Ferns recoil and strike the rock. Birch twigs writhe under compressed wind. Rosettes tremble as their cups fill. Root mats creep by imperceptible increments until they suddenly release. The whole vegetation seems animate in a restless, mechanical way, though none of it chooses movement.
+
+What lives in the cleft is therefore a community adapted not to the mountain as it is, but to its refusal to remain so: plants and fungi that endure by yielding, fragmenting, waiting, and beginning again on surfaces still too new to have names.

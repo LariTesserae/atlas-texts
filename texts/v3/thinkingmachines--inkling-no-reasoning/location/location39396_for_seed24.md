@@ -1,0 +1,19 @@
+Begin at the edge of the hollow.
+
+This is not a valley carved by rivers—there is no moisture here to cut, no rain to gather, no seep to remember. It is a sealed bowl in old, low stone, sitting at the bottom of a dry geography that never learned to flow. The elevation is barely there; the land does not climb, it pools. Around you, the walls are not steep but rounded, weathered by some ancient abrasion—wind without sand, time without urgency—settled into a form that has been exactly this for longer than sequence can mean. The scale is that of a single held breath: perhaps a graveyard circled in walking, a chapel floor if any worship had ever arrived; closer, like a room whose ceiling is missing and whose walls are earth.
+
+The darkness is not absence alone. It is a presence with weight, the kind that fills a space because there is nothing to push it back—no flame, no reflection, no phosphor. Light registers at 0.2, which means your eyes do not adapt; they surrender. You move by texture, by temperature against skin, by the quiet evidence of proximity. The air is warm—2.3—dry, mineral, carrying no scent of life or decay. It rests on you like a held hand.
+
+And it is silent. Not the silence of absence, but the silence of saturation: every possible sound has already been said, or was never invited. Your footfalls on the ground do not echo; the hollow absorbs them. No wind moves, for there is nothing to drive it—this is equilibrium without gradient, frozen in its own state.
+
+The ground is salt-field and dry mineral crust, a pale crust of settled salts and weathered silicates that have reached their final chemistry and stopped. There is no water—0.4, a trace so theoretical it exists as absence rather than presence, leaving the air with nothing to carry, nothing to dissolve. The terrain is flat within its curve, scattered with fragments that might once have moved but now lie in permanent rest.
+
+Vegetation is sparse and strange in its restraint. A few scattering of stunted, silver-grey shrubs sit far apart—1.4 on the scale of presence—rooted in cracks where mineral dust has gathered just enough to pretend at soil. They do not grow; they maintain. No leaves fall, nothing withers, for there is no season here, no change in the 0.3 dynamic. They are witnesses that have forgotten the purpose of witnessing.
+
+Density is low—1.2—meaning the space between things is the real architecture. You stand in an openness that is bounded but not filled. There are no animals—0.5, essentially none—no insects, no burrow, no track, no sound of wing or foot. Nothing that breathes passes through or stays. The life that might have claimed this bowl was either never seeded or was settled out long ago, leaving the hollow as a room cleared of its guests.
+
+There are no structures—0.1—nothing made, no wall stacked, no marker placed, no tool left behind. Only primitive traces—0.9—of interaction that barely qualify: a smooth depression in the crust where something might have rested and pressed its weight, a line of darker mineral where a hand of simple craft might have dragged once, long before the dynamic froze. These are not artifacts now; they are part of the weather, settled-form, in balance with the salt and the dark.
+
+What rules this world is its refusal to become. The weirdness is minimal—0.2—because there is nothing to be strange against; it is simply itself, entirely, without metaphor. The erosion is established—1.8—not destructive but conclusive. Every edge is rounded, every surface is in its own state, weathered not toward ruin but toward perfection of form. It is a place that has finished happening.
+
+You stand in it, warm, silent, surrounded by absence and the sparse, patient presence of what has endured without need. The darkness holds you. The hollow does not ask to be left; it asks only that you recognize it has never changed, and never will. Time here is not passing. It has arrived, and stayed.

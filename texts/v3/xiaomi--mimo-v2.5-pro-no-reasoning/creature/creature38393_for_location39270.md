@@ -1,0 +1,22 @@
+Who lives there? Let’s begin with the silence. Not the silence of an empty room, but the deep, pressurized quiet of a world held under a heavy, wet thumb. In this silence, you would not first hear them, but feel them: a low-frequency hum of existence, a vibration in the basalt that is part breath, part the slow grind of the world beneath.
+
+They are called the **Hearth-Keepers** or, more often, simply the **Deep-Settled**. They are not a people of spectacle or sharp, clean lines. They are the living, breathing grout in the cracks of this jagged world.
+
+**Form and Function**
+Their bodies are a testament to their environment. They are shorter than the plains-dweller, broader in the torso and limb, built for low ceilings and heavy labor. Their skin has a faint, ashen pallor, not from sickness, but from a life lived in the grey glow of gut-skylights and the orange flicker of lichen-oil lamps. Over generations, their hands have become thick-palmed and calloused, fingers strong from shaping stone, yet their fingertips are strangely sensitive—expert at reading the subtle vibrations in the rock, feeling for stable ground or the warning tremor of a dangerous vent.
+
+Their faces are wide and calm, with deep-set eyes that have evolved to see clearly in the perpetual gloom and fog. They blink slowly, a physical manifestation of their pace. Their breath is visible in puffs of white mist, even within the tunnels. They wear layers of thick, felted Goral wool, stitched with sinew, often in natural greys, browns, and the dark, oily black of lichen stains. The cloth smells of animal, smoke, and the cold, metallic scent of condensation.
+
+**Culture and Soul**
+Their entire civilization is a deep breath held against the cold. Their philosophy is not one of conquest or creation, but of **persistent addition**. Progress is measured in generations. A son does not build a new house; he adds a room to his father’s house. A daughter does not found a new workshop; she widens the existing one by a hand’s breadth. Their art is carved into tunnel walls—not epic tales, but repeating, geometric patterns that mimic the fractures in the stone or the whorls of a Goral’s coat. It is art as meditation, as prayer to the patient gods of weight and gravity.
+
+Language is a low, breathy thing, rich in onomatopoeia for the sounds of their world: the *krr-unch* of rime underfoot, the *hisss-pop* of a steam vent, the *lowmmm* of shifting rock. They have no word for “hurry.” To rush is to risk a fall on the sharp stone, a ruptured lung in the thin air, or a broken tool that takes generations to replace. Their highest virtues are **steadfastness**, **quiet observation**, and **communal weight-sharing**—the literal and figurative act of holding each other up.
+
+**Society and Ritual**
+Their society is a mirror of the city itself: a dense, interconnected warren of familial clans. Leadership is not seized, but *shouldered*. A leader is an Elder who can best read the land—the movement of the fog, the temperament of the fissures, the needs of the Goral herds. They hold council not in great halls, but in the warmest, lowest chambers, huddled around a central heat-vent, their voices barely rising above its hiss.
+
+Their most sacred rituals are practical. The **First Scrape** is a coming-of-age ceremony where a youth must, alone, find and harvest a fist-sized Fissure Crawler, proving their understanding of the deep, dark places. The **Stone-Setting** is a weekly ritual where the strongest Goral are led to the sharpest edges of the shelf, their heavy, scraping hooves serving to blunt and smooth the most dangerous shards, making the paths safer for all—a lesson in symbiotic, slow correction.
+
+They worship no distant gods. Their reverence is for the **Great Below** (the geothermal heart that gives them heat) and the **Slow Recede** (the millimeter-by-millimeter advance and retreat of the ice, which defines their world’s rhythm). Their only enemy is the **Sudden Shift**—an earthquake, a landslide, a sudden eruption of a new vent. Against this, their only tools are patience, careful construction, and the deep, communal knowledge of which stones to trust.
+
+They are a people of profound stillness and immense, quiet industry. Their legacy is not monuments that pierce the sky, but a labyrinth that hugs the core of the world. To see them is to see a creature perfectly, almost silently, in tune with the cold, the damp, the weight, and the slow, deep groan of the planet itself. They are the living breath of the Stone Warren.

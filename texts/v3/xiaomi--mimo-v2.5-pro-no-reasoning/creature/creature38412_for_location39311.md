@@ -1,0 +1,19 @@
+Here is what lives in the place of the weeping iron and the warm, black water.
+
+It does not have a name for itself yet. Names are for things that have settled, and nothing here has settled. It is as embryonic as the land it crawls over. You might call it a **Geode-Skitter**, but that is a name for a rock, and this is a thing that moves.
+
+It is born from the black crust. Not in a single moment, but as a slow accretion, a gathering of the living asphalt. A lump of the crust will, over the course of a slow, geologic season, begin to differentiate. The microbial life within it will organize, drawing heat from the water and metal oxides from the weeping rocks. It thickens. It develops a density, a hardness, that the surrounding mat lacks. It is a stone learning to be an animal.
+
+When it is ready, it detaches.
+
+The first movement is a shock. It unfolds legs that were once mere ridges on its surface. There are six of them, thick and blunt, tipped with a dense, chitinous claw the color of tarnished brass. They are not for speed, but for purchase. For gripping the slick grating, the submerged pipes, the faces of the rock-teeth. Its body is a low, armored oval, about the size of a man’s torso, covered in the same leather-black integument as the mat it left behind. It is a living piece of the world’s first skin.
+
+It has no eyes. It does not need them. It navigates by the harmonic vibration of the world—the deep, tectonic groan of the augers, the rhythmic *thump* of the pistons. These are its fixed points, its constellations. It feels the subtle shifts in the water’s current and the minute changes in pressure as the pale fish school past. It tastes the metallic tang in the air with feathery, chemosensory filaments that cluster around the base of its legs, where they join the body.
+
+It does not eat the mat. It *is* the mat, grown mobile. Its purpose is to wander the weeping edges of the world, where the freshest mineral slurry seeps from the rock. There, it lowers its body and presses its underside—soft, porous, and alive with a different, specialized flora—against the slick stone. It does not graze; it *melds*. It allows the rich, new chemistry of the formation to permeate it, to be drawn in and integrated. This is its feeding, its breathing, its communion with the world’s birthing.
+
+It is a solitary thing. There is no society, no communication beyond the simple, physical fact of its presence. But when two of them meet on a narrow pipe or a crumbling girder, they will stop. They will press their armored carapaces together, holding the contact for hours, for a full cycle of the piston’s shudder. They are not mating. They are synchronizing. They are aligning their internal rhythms with one another and with the great, industrial heartbeat of the world, ensuring they remain a part of its pulse.
+
+Its defense is its stillness. Threatened, it will simply stop, folding its legs flat and becoming indistinguishable from the ground. It *is* the ground. To attack it is to attack the world itself, a task even the most tenacious of the plate-sized crustaceans finds impossible. They will scuttle over it, mistaking it for a hillock, their clicking claws finding no purchase on its seamless back.
+
+And sometimes, in the deepest dark, when the sulfurous glow of the plants is at its dimmest, you might see one that has reached its terminal stage. It finds a deep, warm fissure in the rock-teeth, a place where the weeping is heaviest, and it settles in. It pulls its legs in. Its outer crust thickens, cracks, and begins to fuse with the stone. The life within it slows, stops, and begins a new process. It is not dying. It is becoming part of the bedrock, its body a mineralized seed, a kernel of old life to be ground by the augers and incorporated into the slurry that will build the new world. It is returning to the medium, its journey complete, ready to begin again.

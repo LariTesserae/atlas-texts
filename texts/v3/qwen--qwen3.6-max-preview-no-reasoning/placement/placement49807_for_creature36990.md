@@ -1,0 +1,29 @@
+I am not standing. I cannot stand, for there is no "up" that feels distinct from "down," only the gentle, viscous pull of gravity toward the basin floor and the buoyant resistance of the air itself.
+
+I am suspended in the amber warmth, my body a pale, elongated ribbon of pearlescent flesh drifting between two jagged spires of basalt. I am one of the Osmotics. My name, if I had one, would be a vibration, a low hum felt in the marrow of my bones rather than spoken aloud. But names are anchors, and we do not anchor ourselves here. We flow.
+
+The air is thick enough to chew. It tastes of wet stone, ancient pollen, and the metallic tang of geothermal breath. I open the slit-vents along my neck, letting the saturated mist flood into my system. It is not breathing as you know it—a frantic exchange of gases—but an osmosis, a slow drinking of the atmosphere. The humidity coats my translucent skin, merging with the fluids beneath until I cannot tell where my body ends and the High Basin begins. I am wet, but I have never known dryness. To be dry would be to be dead.
+
+My eyes, black and lidless, do not see the world in shapes or colors, but in temperatures. The rock ceiling above is a cold, bruised purple void, pressing down with its weight of condensation. Below me, the water glows with the faint, greenish heat of microbial life. Around me, the city pulses in shades of orange and yellow—the living heat of my kin, the warm veins of the woven reed structures, the residual warmth of the heated stones used for curing food.
+
+I look at the structure before me. It is not built; it is coaxed. A massive fern, its leaves broad and waxy as black velvet, has been guided by song and touch to curl inward, forming a shelter. Vines, thick as my thigh, are lashed around it with sinew, holding it in place against the shifting currents. I reach out with my webbed fingers, feeling the texture of the vine. It is slick, alive. I can feel the sap moving inside it, a slow, rhythmic pulse that matches my own heart. We are connected. If the vine trembles, I tremble. If the rock shifts, I shift.
+
+A drop of condensation falls from the stalactite above. *Plink.*
+
+It hits the surface of the water ten feet below me. The sound is loud in the heavy silence. I freeze. Not out of fear, but out of respect. The land is settling. Somewhere deep beneath us, tectonic plates grind together, deciding whether this valley will remain a basin or rise again into a mountain peak. To move too quickly is to disrupt the negotiation. So I wait. I let my limbs drift, mimicking the undulation of the ferns around me. I become part of the stillness.
+
+Time here is not measured in hours or minutes, but in drips. In the growth of moss. In the slow sagging of a bridge made of twisted roots. I remember when this spire was lower, when the water line was higher. I remember when the family who lived in the hollow of the fern next to me was larger, before they moved upward as the rock rose. They are gone now, merged into the mist, their bodies returned to the water, their memories absorbed into the collective silence. There is no grief in this, only acceptance. Nothing is fixed. Why cling to what is meant to change?
+
+I push off gently with my broad, flat feet, propelling myself forward through the dense air. My movement is fluid, continuous. I glide past a platform where an elder sits, wrapped in spider-silk hammocks. His skin is darker, more opaque, showing the wear of many cycles of rising and sinking. He does not look at me, but I feel his presence—a warm spot in the cool dark. He is listening to the rock. I listen too.
+
+Beneath the soles of my feet, I feel the subtle vibration of the earth. A hum, deep and resonant. The obsidian shards jutting from the water are sharp, razor-edged, unweathered by time. They are new. The gods are still building this place. And we, the Osmotics, are the mortar. Our quiet presence, our slow movements, our whispered songs—they help the stone decide where to rest. We are the patience that allows creation to happen.
+
+I pass over a submerged ruin, older than our memory. Stone blocks, smooth and rounded, lie beneath the murky green water. Eyeless fish dart among them, pale ghosts carrying messages from the deep. I watch them go, feeling a pang of melancholy. They know things we do not. They have seen the darkness before the light, the silence before the sound. But they are fleeting, like everything else.
+
+Above me, the mineral veins in the ceiling glow faintly, casting long, distorted shadows that stretch toward the light sources, defying logic. The shadows are alive, dancing on the walls of the reed-huts, mimicking our forms. I raise a hand, and my shadow raises its hand, but larger, stretched, reaching toward the bioluminescent moss clinging to the rock. For a moment, I am infinite. I am the shadow, the light, the water, the stone.
+
+I stop near a cluster of organ-flowers, their translucent petals pulsing softly. I harvest one with a stone knife, careful not to disturb the plant’s root system. I wrap it in a leaf, placing it on a heated stone nearby. The warmth will cure it slowly, preserving its nutrients without the violence of fire. Fire is too loud, too chaotic. Here, we prefer the slow heat of the earth.
+
+As I eat, I taste the sweetness of the rotting pollen in the air, the bitterness of the fern, the salt of the sea. It is a complex flavor, rich and heavy. I close my eyes—though they are always open—and let the warmth spread through my body. I feel the city around me, the creak of the bridges, the drip of the water, the breath of my kin.
+
+We are the Settlers, though we settle nothing. We are the Osmotics, absorbing the world into ourselves. We are the waiting. And in this heavy, warm, bruised-purple dark, I am whole. I am the silence between the drips. I am the water remembering itself.

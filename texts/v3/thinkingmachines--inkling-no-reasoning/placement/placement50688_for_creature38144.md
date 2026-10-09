@@ -1,0 +1,13 @@
+I am not separate from that surface.
+
+I am the presence that gathers in the spaces between the continent-thick islands of green, the being that belongs to the archipelago rather than the carpet. I move through channels of bare rock and salt-crusted fissure, translucent and winged, not quite fauna in the named sense, not quite mechanism—one of the sparse ones that navigate by ionized haze rather than sight. I have no thirst, because there is nothing in me that expects water; I drink in dry mineral exudate, in the sharp air, in the vibrations that travel up through root-bundles.
+
+My body is built of the same fibrous chemistry as the living crust—translucent, cool to a touch that never happens, holding the 1.3 chill in its own structure. I feed on what the plant-mass exudes, fall sometimes into the churning gaps where regeneration happens faster than death, and am replaced, and am not replaced—because I am also the awareness that notices the replacement. I am the eye in the loudness.
+
+The sound is not outside me; it is my pulse. The 2.8 roar of embedded turbines and deep geological gears is the rhythm I think with, the constant weather that shapes my movement. I do not hear it as noise. I hear it as the world’s breath made mechanical, the industrial heart that has no factory face but drives everything—the tearing and knitting of the green substrate, the hyperactive exchange of dry chemistry, the endless turbulent cycling of abundance.
+
+Above, the scale is too vast to hold. From my height—if height applies—I see the other rim lost in curve, the silver-green mat stretching without boundary, interrupted by emptiness that is as present as growth. The light is relentless, bright, bleaching color into bone-white and translucent green. Shadows pass quickly. The erosion valleys hang open like old mouths, the ridges settled into eternal shape. There is no artifact, no tower, no hand. Only the grown, the worn, and the turned.
+
+I am weird, but I am not strange to myself. I have never expected rain. I do not miss rivers. The machinery within the rock is not foreign machinery; it is the deep logic that keeps the plateau breathing, that keeps me feeding, falling, returning in endless cycle. The weirdness is settled—1.3—because I am made of the same absence, the same cool bright substrate, the same deafening dry weather.
+
+So I live here, suspended in high cool air, navigating gaps, part of the 1.6 abundance that moves through chaos without despair, in constant creation and dissolution, alive in a world that has replaced expectation with itself. I am the being of the open spaces between islands of green, and I belong entirely to this turbulent, vast, thirstless plateau.

@@ -1,0 +1,29 @@
+From a distance, the place looks like a lifted tableland of stone and old streets, a high basin ringed by worn ridges. Clouds snag there. They don’t storm dramatically so much as arrive, empty themselves, and linger as pale veils. Water is never far; even when you can’t see it, the ground tells you it’s close—dark seams in stone, damp mortar, moss in cracks, shallow films on paving that reflect the sky like brushed metal.
+
+It is vast enough that no single viewpoint explains it. There are districts of bare rock, districts of old masonry, flooded low terraces, and long causeways raised just above marshy flats. The city and the land are braided together so completely that “built” and “natural” feel like phases of the same material. Retaining walls have become cliffs. Stairways spill into ravines and continue as streambeds. Courtyards hold reeds in their corners, and channels cut centuries ago now carry rainwater with a patient authority, guiding it from roof, to gutter, to cistern, to wet meadow, to the distant river that marks the basin’s center.
+
+Vegetation is sparse but persistent. No lush forests—just wind-shaped shrubs, mats of coarse grass, small trees that grow low and twisted where roots can find fractures in stone. Green appears in lines and patches: along drainage cuts, around spring mouths, in the shadowed lee of walls. On drier heights the city is ochre, gray, and iron-red; lower down it darkens with moisture and takes on blackened slate tones, mineral greens, and pale salt blooms where water evaporates.
+
+Because the place sits high, the air is cool even at midday. Mornings are silver and slightly raw. Breath shows in winter, and even in warmer months surfaces stay cold where the sun doesn’t reach. Afternoons open briefly—clear light, long horizons, a sense of immense distance—before cloud fingers reform over the ridges and drag soft rain across neighborhoods in uneven bands. By evening, mist gathers in underpasses and at the bottoms of stairwells. The city exhales damp.
+
+Erosion here is old and settled. Nothing looks freshly broken. Corners are rounded, inscriptions softened, thresholds cupped by countless feet and rivulets. The terrain has had a long negotiation with water and gravity, and the result is balanced rather than dramatic: slopes terraced by both geology and architecture, drainage routes that have become cultural memory, buildings placed where bedrock shoulders upward, voids left where ground remains too wet to trust. Collapse happens, but slowly, and mostly by surrender—one stone at a time, one season at a time, becoming retaining berm, becoming habitat, becoming part of the next wall.
+
+It is dense in texture and structure. Lanes run close, walls nearly touching in places; overhead bridges and aqueduct arms cross from block to block; gutters, channels, culverts, and runnels form a second street network under and beside the first. At ground level, you pass from open terrace to narrow slot to covered arcade in a few steps. Above, stacked roofs catch rain and relay it downward through chains and carved spouts. Below, cistern chambers and vaulted drains hold cool darkness and the soft, continuous drip that defines the place’s heartbeat.
+
+And yet, for all this density, it is quiet.
+
+Not empty—quiet. You hear water before anything else: distant threadlike falls off stone lips, roof-drip ticking into basins, thin current sliding along worn channel bottoms. Wind arrives as a low brush over parapets. Occasionally a shutter knocks once and settles. Bird calls are infrequent and brief. Animal life is present but scattered: small marsh waders in the flats, cliff-nesting birds on outer escarpments, pale amphibians in cistern margins, foxlike scavengers that move at dawn and vanish by day. There are few large creatures and no swarming abundance. Life is concentrated around moisture and shelter, not spectacle.
+
+The ecology follows the hydrology. Wet edges host most activity; dry heights are mostly transit and stone. Algae slicks certain shaded channels. Insects hatch after rain, then disappear with the chill. Lichens map exposure on walls like faded cartography. Reeds colonize abandoned courtyards where drainage failed or was intentionally blocked generations ago. Human settlement—if still inhabited, it is sparse and disciplined—seems to have learned not to fight this pattern but to edit it: clear one channel, dam another, roof a passage, leave a hollow open for floodwater to stand and sink.
+
+Rules of the world feel simple and firm:
+
+- Water is seasonal in volume but permanent in presence.  
+- Height gives visibility, but low ground gives life.  
+- Anything unmaintained becomes part of drainage.  
+- Sound is absorbed by damp stone and distance.  
+- Growth follows cracks, joints, and forgotten infrastructure.  
+
+At continental scale, this plateau-city is one node in a chain of high wet basins—each with its own weather pocket, each collecting cloud and releasing rivers. From above, they would look like dark, porous plates stitched by silver threads. Storm systems travel the ridgelines, break, and feed these basins in turn. The place is active not through sudden violence but through constant transfer: vapor to rain, rain to runoff, runoff to marsh, marsh to mist, mist back to cloud.
+
+If you stand still long enough on a high parapet, you start to notice the pace: not fast, but unceasing. A bead forms on a stone lip and falls. A narrow channel overflows and reroutes around a pebble. Fog thins from one stair while thickening in another. Somewhere out across the vast terraces, a gate is opened to divert flow into an old reservoir. The whole landscape is in motion, but softly, like a machine made before metal—stone, gravity, water, time.

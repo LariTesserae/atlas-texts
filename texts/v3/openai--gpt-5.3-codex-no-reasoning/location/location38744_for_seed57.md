@@ -1,0 +1,28 @@
+It is small enough to cup in two hands, if your hands belonged to something patient and tidal.
+
+At first glance it looks like a flooded hollow in black stone—an oval basin no wider than a room, sunk into low ground where the earth never quite decided to be land. Water fills it to the lip. Not clear water: dark, tannic, thick with suspended pollen-fine silt and threads of drifting plant matter, so that depth seems to begin immediately and never end. The surface hardly ripples. It is less a pond than a held breath.
+
+Around the rim, lushness crowds in. Mosses are swollen and slick, each cushion packed against the next until the bank is one continuous felted edge. Pale reed-stems emerge in close ranks, bending under droplets that never fall. Small fern fronds uncurl directly into mist. Roots from nearby shrubs have found the basin and descended like fingers through a crack, then multiplied, braided, merged; now they hang in the water as a dense wooden curtain. There is almost no empty space anywhere—if not root, then leaf; if not leaf, then water; if not water, then silt; if not silt, then shadow.
+
+The place is cool in a way that feels internal, like cellar stone. Breath condenses, but slowly. The air is saturated enough that the boundary between atmosphere and pool is uncertain: just above the surface hangs a low layer of vapor, and when you look through it, things double. A reed appears both straight and curved; a root is present and absent by turns. Nothing dramatic happens. The distortions drift and settle over minutes, as if reality here is mixed by gentle currents.
+
+Because the basin is young, its edges are still sharp where they should have softened. Rock fractures are fresh, angular, uncolonized except where waterline lichens have already begun their careful siege. A recent collapse on one side has dropped a fan of splintered stone into the pool; each shard now wears a skin of algae, thin as breath on glass. You can read time in millimeters.
+
+Built traces are easy to miss. Three stakes stand near the rim, cut long ago, now black with wet and half-swallowed by moss. Between two of them hangs a rotted line of fiber, perhaps once a marker, perhaps part of a trap. At the bottom—visible only when the surface film shifts—lies a shallow clay bowl, broken cleanly in two, already nested in silt as if it had always belonged there. Nothing suggests machines, extraction, management. Any human touch has been reduced to small gestures and left to drown.
+
+Light rarely arrives directly. Even by day this pocket sits under a canopy and cloud, receiving only diluted gray. Most illumination comes from reflection within darkness: root-shine, wet-stone sheen, the soft ghost of sky dissolved in water. At night, or what passes for night in this perpetually dim place, bioluminescent films wake along the submerged roots. Not bright—more like a memory of light, green-blue and intermittent. They map hidden currents, revealing that the water is moving after all, but with ceremonial slowness.
+
+Fauna are sparse but specific. A single blind fish species lives here, translucent and narrow-headed, appearing only at the edge of perception before vanishing into suspended sediment. Water striders do not skate the surface; they stand still on it, spaced far apart like punctuation marks. Once in a long while, a salamander climbs from the root curtain, white with lost pigment, and remains motionless for an hour before descending again. Insects hum only briefly at dusk, and even that sound seems muffled by the humidity.
+
+Silence dominates, but it is layered silence. There is the padded quiet of moss absorbing impact, the underwater hush of suspended particles, the faint tick of cooling stone, the occasional plink of condensation gathering enough mass to drop from fern tip to pool. If you listen long enough, you hear a deeper tone: a subsonic thrum from nowhere local, as though this basin is a pressure node in a much larger flooded world.
+
+And that is where the weirdness settles in fully. Distances do not behave. A root entering the water near your feet may reappear, impossible, from the opposite wall without crossing visible space. Dropped pebbles take too long to hit bottom, then strike in two places at once. Reflections sometimes continue moving after what they mirror has stopped. None of this is violent; it is tender, almost polite. The place does not break reality so much as soak it, loosening its fibers until categories bleed into each other: above/below, near/far, now/later.
+
+The rules, if there are rules, seem to be these:
+
+- Anything left here is slowly translated into water-language: edges blur, colors mute, function dissolves.
+- Growth follows contact, not sunlight. Where touch is continuous—root to stone, moss to stake—life thickens fastest.
+- Motion is permitted, haste is not. Sudden actions lose coherence; slow actions complete.
+- The basin remembers pressure. Kneel at the rim, and hours later the surface dimples where you were, as if replaying your weight.
+
+Over long durations, the hollow is still forming. Erosion has begun but not finished its grammar. Stone is learning curve; water is learning boundary; plants are learning to braid a ceiling over the pool. Someday it may become a peat-choked pit, or open into a channel, or vanish under a sheet of rain-swollen marsh. For now it remains this intimate drowned chamber—packed, dim, cool, and quietly impossible—an ecology of saturation where the world is being rewritten in lowercase.

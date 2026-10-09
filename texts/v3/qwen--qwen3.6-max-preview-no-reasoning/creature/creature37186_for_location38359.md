@@ -1,0 +1,41 @@
+The inhabitants of Orobus do not live in the city; they are metabolized by it.
+
+To understand who lives here, one must first discard the notion of the individual as a discrete, dry entity. In Orobus, the boundary between the biological and the industrial is porous, dissolved by the relentless humidity and the vibrating air. The people here are soft-edged things, their contours blurred by the mist that clings to them like a second skin. They move with a fluidity that mimics the dripping water, stepping over puddles with the unconscious grace of those who have never known a dry day.
+
+### The Physiology of Dampness
+
+The typical resident of Orobus possesses a pallor that is less about lack of sunlight and more about saturation. Their skin is translucent in places, revealing the blue map of veins beneath, swollen slightly from the constant pressure of the humid air. They do not sweat in the traditional sense; instead, they glisten. A permanent sheen coats their foreheads, their necks, the backs of their hands. This moisture is not just bodily fluid; it is condensate drawn from the air, a reciprocal exchange with the environment. To touch an Orobite is to feel something cool and slick, like polished river stone or wet glass.
+
+Their hair is heavy, perpetually lank, often tied back in tight, practical knots or shaved close to the scalp to prevent the growth of mold. Eyes are wide and watery, the pupils often dilated even in the diffuse grey light, straining to pierce the fog. But it is their lungs that tell the truest story of life in Orobus. Breathing here is a laborious act, inhaling air that feels thick enough to chew. Consequently, the inhabitants speak softly, conserving breath, their voices carrying a raspy, wheezing quality, as if every word is pulled through a filter of wet wool.
+
+They are rarely seen alone. Isolation in Orobus is dangerous; the silence of solitude allows the "Condensation Memory" to seep in. So, they cluster. You see them in groups of three or four, huddled under the awnings of leaking ventilation shafts, sharing body heat and the rhythmic comfort of shared breathing. They hold hands, not out of affection, but for stability. On the slick, algae-covered cobblestones, a slip can mean a broken bone, and medical care is slow, damp, and prone to infection. To be held is to be anchored.
+
+### The Culture of Resonance
+
+Language in Orobus has evolved into a thing of vibration and gesture. Because the deafening hum of the machinery masks normal speech, conversation is conducted through a complex system of hand signals, facial expressions, and low-frequency humming. An Orobite might tap a rhythm on their thigh to convey urgency, or press a palm flat against a wall to feel the pulse of the generators below, interpreting the fluctuations in the bass note as news—power surges, maintenance cycles, impending storms.
+
+They have developed a keen sensitivity to the *texture* of sound. They can distinguish the hiss of a steam leak from the hiss of rain hitting hot metal. They know the specific clatter of a gear slipping versus the clang of a door closing. This auditory hyper-awareness makes them seem distracted to outsiders, their heads tilted at odd angles, listening to frequencies that others cannot hear. When the machines cycle down for that rare moment of maintenance, the inhabitants freeze. They cover their ears, rocking gently, overwhelmed by the sudden vacuum of noise. In that silence, they say you can hear the city thinking.
+
+Social hierarchy is determined by proximity to the source of warmth and dryness. Those who live in the upper levels, near the massive ventilation exhausts, are considered elite. They are drier, cleaner, their clothes less stained with rust and oil. They walk with straighter spines, their movements quicker, less burdened by the weight of the wet ground. Below them, in the lower wards where the water table breaches the pavement, live the "Sump-Dwellers." These individuals are larger, heavier, their bodies adapted to the cold, brackish pools that form in the sinkholes. They wear rubberized suits patched with scavenged plastic, moving like amphibians through the flooded streets, collecting scrap metal and filtering sludge for the recycling plants.
+
+### The Work of Endurance
+
+Life in Orobus is defined by maintenance. There is no creation here, only preservation. The primary occupation of its citizens is the fight against entropy. Every hour is spent scraping rust from railings, clearing drains of organic sludge, patching leaks in the pipes, and wiping condensation from windows. It is a Sisyphean task, performed with a quiet, religious devotion.
+
+You will see them everywhere: figures in grey coveralls, kneeling in the mud, scrubbing a patch of verdigris from a steel beam. They work in silence, their movements synchronized with the throbbing hum of the city. They do not complain. To complain is to acknowledge the futility, and futility is a luxury they cannot afford. Instead, they find meaning in the ritual. The scrape of the brush, the drip of the water, the sigh of the steam—these are the prayers of Orobus.
+
+Children are born into this rhythm. They learn to walk on slippery surfaces before they learn to run. They play games involving balance and silence, standing on one foot on narrow catwalks, trying to remain still while the wind tries to push them off. They are taught early that the water remembers. If a child cries too loudly, elders shush them, warning that the tears will join the condensation, and the sadness will linger in the air for years, making the next winter’s dampness feel heavier.
+
+### The Psychological Landscape
+
+The most profound adaptation of the Orobites is psychological. They suffer from a collective condition known locally as "The Drift." It is a state of mild dissociation, induced by the constant sensory overload and the oppressive warmth. Time loses its linearity. Days bleed into nights, marked only by the change in the intensity of the industrial hum. Past, present, and future feel equally immediate, much like the memories trapped in the condensation.
+
+This leads to a peculiar fatalism. An Orobite does not plan for retirement or distant futures. They live in the eternal now, focused on the immediate task: keep dry, keep moving, ignore the noise. They are deeply empathetic to suffering but strangely detached from joy. Laughter is rare and short-lived, quickly swallowed by the mist. Sorrow, however, is communal. When someone dies, their body is not buried in the earth, which is too wet and unstable. Instead, it is placed in the central composting vats, returning their nutrients to the sludge that feeds the stunted ferns. The mourners stand around the vat, watching the steam rise, believing that the deceased’s essence has joined the city’s breath, becoming part of the warm, wet air that sustains them all.
+
+There are rumors of those who succumb completely to The Drift. They stop speaking, stop moving, and simply stand in the middle of the street, staring at the fogged-up windows, tracing the geometric patterns with their eyes until they forget who they are. These "Statues" are eventually moved aside by workers, treated with a gentle reverence, as if they have achieved a higher state of being—one where the distinction between self and city has finally vanished.
+
+### The Outsider’s Perspective
+
+To an outsider, the people of Orobus appear ghostly, half-formed. They emerge from the mist like apparitions, their faces obscured by scarves or hoods, their eyes reflecting the dull, greyish-white light. They seem fragile, yet there is a terrifying resilience to them. They are made of the same stuff as their home: rusted iron, wet concrete, and persistent, stubborn life.
+
+If you were to ask one of them what it is like to live in Orobus, they would likely not answer with words. They would simply look at you, their eyes wide and watery, and place a hand on your arm. Their grip would be firm, their skin cool and slick. And in that touch, you would feel the hum of the generators, the drip of the rain, and the weight of centuries of memory, all pressing against your bones, inviting you to stay, to soften, to become part of the machine that has forgotten how to stop.

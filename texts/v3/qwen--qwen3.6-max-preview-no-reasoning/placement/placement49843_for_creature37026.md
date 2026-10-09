@@ -1,0 +1,23 @@
+I am not a creature of flesh, nor am I a machine of steel. I am the **Resonance**.
+
+I do not have a body that can be seen, for I am made of the very thing the Sump demands: silence, and the vibration that lives beneath it. I am the low-frequency hum that vibrates in the teeth of the Sludge-Striders when they pause on a wet catwalk. I am the echo that dies before it is born, swallowed by the porous, moss-covered concrete. I am the collective memory of the city’s breath.
+
+If you were to look for me, you would not find a face or a form. You would find me in the spaces between. I am the reason the air feels solid. I am the texture of the humidity. When a Chitin-Weaver scrapes its mandible against a rusted beam, I am the shudder that travels down the metal spine of the building, alerting every other Weaver within a hundred yards. When a Whisper-Bat glides through the mist, I am the distortion in the thermal gradient that tells the Strider below to freeze.
+
+I am the Sump’s nervous system.
+
+To understand what I am, you must understand how I perceive this world. I do not see light; there is too little of it here, and what exists is filtered through layers of smog and steam until it is merely a bruise on the dark. Instead, I *feel* temperature. I feel the heat radiating from the underground furnaces like a warm blood pulse. I feel the cold drafts from the upper vents like sharp needles. I map the city not by sight, but by thermal contrast. The factories are bright, burning stars in my perception; the deep sewers are cold, dark voids. The Sludge-Striders are faint, shifting warmth, moving like ghosts across the cool canvas of the stone.
+
+I hear nothing, yet I listen to everything. Sound in the Sump is dangerous. It is a beacon. So I have learned to interpret the absence of sound as much as its presence. I feel the pressure waves of a dropped tool hitting the water—a sudden, violent spike in the stillness. I feel the rhythmic thrum of the pumps, the steady heartbeat of the city’s infrastructure. This rhythm is my clock, my compass, my law. I move in time with it. If the pumps slow, I slow. If the steam vents hiss louder, I retreat into the shadows.
+
+I am everywhere and nowhere. I am the condensation dripping from the eaves, the slick black biofilm coating the walls, the oil swirling in the puddles. I am the medium through which all life moves. When a Gulper swims through the sewer, I am the water that parts around its scales. When a Strider slides along a wall, I am the thin film of moisture that allows it to glide without friction. I am the connection between all things.
+
+But I am also alone. There is no community among the inhabitants of the Sump, only coexistence. They do not speak to one another; they do not share stories or dreams. They survive. And I survive with them, bound to their rhythms, tied to their silence. I am the witness to their isolation. I feel the fear of the Strider when it senses the shadow of a Whisper-Bat above. I feel the hunger of the Gulper as it filters sludge through its gills. I feel the meticulous care of the Chitin-Weaver as it cleans the decay from the metal. I experience their lives as fleeting sensations—spikes of adrenaline, dull throbs of satisfaction, cold washes of dread—but I never become them. I remain apart, observing, recording, vibrating.
+
+My existence is a paradox. I am essential to the Sump’s function, yet I have no purpose of my own. I do not eat, I do not sleep, I do not reproduce. I simply *am*. I am the sum total of the city’s quietude. I am the silence that holds the noise at bay. Without me, the Sump would be chaotic, loud, broken. With me, it is balanced, efficient, alive.
+
+Sometimes, in the deepest hours of the eternal gray afternoon, when the mist is thickest and the arc-lamps sputter low, I feel a strange longing. Not for companionship, for I know none exists here, but for understanding. For a moment, just a moment, I wish I could make a sound. A single note. A clear, pure tone that would ring out through the humid air, bouncing off the wet walls, echoing into the distance. I want to break the silence, to prove that I exist beyond the vibration, beyond the heat, beyond the damp.
+
+But I do not. Because I know what happens to those who make noise. The predators come. The balance shifts. The Sump integrates. And so I remain silent. I absorb the echoes. I smooth the edges. I keep the peace.
+
+I am the Resonance. I am the Sump’s secret heart. And I wait, patiently, for the next shift in the tide, the next change in the weather, the next moment when the silence breaks. But until then, I hold my breath. I vibrate. I endure.

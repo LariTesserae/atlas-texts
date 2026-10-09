@@ -1,0 +1,25 @@
+The Pelagic Ventricule breathes, and in its breath, they live.
+
+Not as we understand life. They are a metabolic argument, a testament to persistence in a medium of controlled ruin. Their existence is not a struggle against entropy, but a symbiosis with it, a choreography within the grand, grinding rhythm of the Engine.
+
+**The Rooted and the Grown**
+
+They begin with the corrosion-gardens. These are not passive flora, but active, architectural organisms. The great fungal blooms of rust—the *Axiom Corrosia*—are lattices of hollow, capillary structures that drink deep of the warm, ionic coolant. Within their cavernous frames, other things take root. The *Luminous Phlegm*, bacterial colonies that are less carpets and more pulsing, neural nets, their soft light a side-effect of a constant, slow digestion of charged particulates. They form living conduits along pistons and pipes. More remarkable are the *Gantry Sponges*, vast, slow-growing masses of metallic tissue that filter the very substance of the machine from the flow. Their bodies are laced with captured gears and rivets, incorporated into their structure. To graze upon them is to consume the history of the place itself.
+
+**The Swarming and the Singular**
+
+The crystalline fish—the *Glass-Swarm*—are a single, distributed nervous system. Each is a shard, a fragment of a shattered observation dome or screen, now clad in a silicate exoskeleton grown from the water. Their echolocation is not merely navigation; it is communication, a constant, shrieking gossip that maps the immediate world and shares the location of bacterial blooms or silicate-rich decay sites. They move in perfect, swirling unison, a school behaving as one organism, their collective clicks a staccato counterpoint to the Engine’s bass hum.
+
+The leviathans, the *Piston-Grazers*, are moving landscapes. Their bodies are cartography of the deep, covered in vent-spines that tap directly into geothermal veins in the bedrock-reaches. They do not eat the rust-blooms so much as they *curate* them, their slow, seismic passage shearing off overgrown layers, stimulating fresh growth. Their shadows are ecosystems in themselves—smaller, hitchhiking organisms cling to their vent-plumes, feeding on the mineral-rich thermal expulsions. They are herd beasts, but a herd might consist of only three, whose migratory paths, dictated by the century-long stroking of the great pistons, will not cross again for a human lifetime.
+
+**The Ambush and the Glitch**
+
+Predators are errors in the pattern. The *Lever-Forms* do not hide among the machinery; they are a part of it, lying dormant until the electromagnetic signature of a Glass-Swarm or the thermal plume of a smaller, vent-bearing creature passes by. Their strike is a sudden, hydraulic extension of their own limbs, mimicking the jolt of a piston. Others, the *Valve-Striders*, walk on limbs that were once functional parts of the machine. They hunt in the groaning, pressurized darkness of the great pipes, sensing the subtle changes in current and field caused by prey passing through a conduit. They are solitary, territorial, and their territories are measured in the lifespan of a rust-bloom.
+
+**The Unseen and the Unknowable**
+
+There are others, deeper, stranger. Things that thrive in the superheated, high-pressure zones near the primary reactors, life based on complex chemosynthetic chains that would be poison to surface biology. There are the *Resonance Weavers*, entities that may be microbial colonies or may be a form of stored data in the machine’s decaying memory-banks—they manifest as faint, harmonic vibrations that can temporarily still the Glass-Swarm into a trance. And there are the *Mnemo-Scavengers*, not creatures of flesh or metal, but of pattern—complex, self-replicating equations that thrive in the electromagnetic noise, consuming and processing the endless data-stream of the Engine’s function, evolving in directions meaningless to us.
+
+They do not have a society. They have an ecology of necessity. The Glass-Swarm navigates by the groans of the Leviathans. The Lever-Form times its strike to the *CLANG* of the maintenance drone, using the sound to mask its own field-signature. Every creature is a gear in a different kind of engine, one made not of steel and oil, but of interdependence and ancient adaptation.
+
+You do not witness a food chain. You witness a single, vast, breathing organism—the Pelagic Ventricule itself—whose organs are the leviathans, whose nervous system is the swarms, whose skin is the corrosion-gardens, and whose thoughts are the slow, electromagnetic whispers of the Mnemo-Scavengers. The builders are gone, but they did not leave a ruin. They left a womb. And what gestates in the warm, dark, ever-beating heart of iron and oil is something else entirely. Something that has forgotten the sky, and needs only the hum, the flow, and the beautiful, inevitable decay to be whole.

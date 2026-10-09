@@ -1,0 +1,16 @@
+{
+  "source_id": "thinkingmachines--inkling-no-reasoning",
+  "requested_endpoint": "thinkingmachines/inkling:no-reasoning",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-10-08",
+  "date_last": "2026-10-08",
+  "texts": 632,
+  "by_type": {
+    "location": 250,
+    "creature": 209,
+    "placement": 173
+  },
+  "evidence_grades": {
+    "event-observed": 632
+  }
+}

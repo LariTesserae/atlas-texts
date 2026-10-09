@@ -1,0 +1,11 @@
+In this place—vast as 2.9 worlds, held only 0.8 above a sea that is still drafting its own boundary—there lives **the Draft**. Not a creature in the old sense, but an inhabitant assembled with the ground itself, at 2.6 total consistency, never older than the present cooling.
+
+The Draft is built, not born. Its body is the continent’s body: synthetic stone that breathes upward at 2.7 heat, exhaling warmth in visible columns from every plane. Where its skin meets the air—charged with 1.3 moisture, that intermittent argument of water in a larger aridity—condensation beads outward, not falling but persuading. The Draft wears these droplets like undecided thoughts, shallow agreements tracing paths that did not exist at dawn, evaporating before they can become memory.
+
+With 0.3 wear upon it, the Draft carries no scars, only the tentative emergence of abrasion. Its edges are ridges not yet convinced they are ridges; its footprints (if it walked) are channels being proposed rather than carved. It moves, if at all, at geological pace—active, 2.3, relentless but never rushed—settling a millimeter closer to stillness with every thermal hum.
+
+Across its 0.8 density of presence, 1.1 life clings: not companions, but annotations. Small, dry, mineral-tolerant organisms—root and spore—cling to its warmest seams, biological processes at barest speed, testing whether they can keep pace with ground that refuses to finish being ground. The Draft does not feed them; they negotiate. Meanwhile, the 0.5 absence of fauna surrounds them in a silence not dead but waiting—no wind remembering trees, only the manufactured breath of a continent testing its own physics.
+
+Under 1.9 light—normal, sufficient, without drama—the Draft extends across flat-to-gently-curving synthetic plains and shallow basins where moisture pools in silver, ephemeral plates. It is large enough that its weather is its own, refusing anyone else’s sky.
+
+What lives here lives as process: the continent’s embryo, a being of continuous pour, of seams where one warmth met another at different temperatures, of shallow riverines that vanish before noon. It lives at the threshold, neither wilderness nor machine, entirely in motion toward a decision it has not yet made—about whether to remain draft, or to become, finally, a place.

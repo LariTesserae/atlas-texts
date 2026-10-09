@@ -1,0 +1,21 @@
+Here, in this enclosed court—small, barely forty paces across, a single round room of hand-set masonry—the world has finished its business with people and now conducts only its own relentless, miniature rituals.
+
+The ground is black brick, fired low and laid without a single visible seam, except where centuries of patient water have worn the joints open. From these seams—dozens, hundreds—run thin, parallel rivulets of cold water, each no wider than a finger. They never merge. They hiss constantly, a bright, insistent white noise that fills the cool air with adjacency rather than breath. The walls are limestone and unfired clay, stacked by manual craft, pre-industrial, groin-scale: no cathedral grandeur, only the obsessive repetition of beings who knew repetition but not engineering. Every pillar is compressed salt-block; every arch was placed with iron and wood, not calculated but accumulated, layer on layer, until the cupola broke—not destroyed, but worn open in three neat fractures that admit the only light: a dim, grey-green refusal, 0.8, falling through mist that never clears.
+
+The temperature is cool, 1.1—cool enough that breath, if there were anyone to exhale it, would form and vanish. Vegetation is nearly absent, 0.6: only black moss clings to the north wall, where the weeping is constant. There is no soil, only substrate, only the made world. The erosion, 2.1, is not damage but decree; the place has weathered into a settled form that requires nothing more of it.
+
+Above, the broken dome lets in the grey-green haze. Below, the floor is slick.
+
+And scattered across that wet brick—separated by yards of running water, clustered only on the driest stones—are hundreds of them. The shells. Or not shells. Calcified forms, hollow and resonant, hand-sized, some open like mouths. They are the abundance here, 2.4, the only life that counts, and they are in constant, slow motion, 2.0—rocking, shifting, never still, not by wind but by some internal current, a muscular undulation inside hollow bodies. Each movement produces a wet click, leather pulled from stone. Together they are percussion without rhythm, never resolving, contributing to the constant 2.2 roar of water and shell.
+
+Some reach. From open ends extends a pale, translucent limb—cartilage and old calcium—grasping at the air with no purpose visible, reaching because reaching is the rule.
+
+The emptiness is absolute, 0.2. The volume between presences is vast, hollow, despite the shells. No bodies lie fallen. No tools remain. Only the architecture, the water, and these slow, strange things that grow from spores embedded in the mortar itself, feeding on lime and moisture, reproducing the built world inside their hollow bodies. When two touch—rare, avoided—the sound is like a struck bell, and for a moment the water runs faster, louder, spiking into something almost like pain.
+
+This is a marsh of architecture. Post-rain that never stops, because the rain is the stone weeping. Predator and prey are implied—visible only in the shells’ anxious separation, their constant shifting away from one another, their occasional reach toward the broken cupola, sensing something pass that they can never name.
+
+The rules are not written but physical: the water must run, must hiss, must not be stopped. The shells must remain separate, must shift, must not gather. The built world, 3.0, is absolute—nothing here is not made, not even these hollow fauna, which are architecture turned biological, manual labor pushed past utility into a strange, cool ecology.
+
+You stand—if you stand—on one dry brick, and understand that every other brick is spoken for: wet, running, accounted for in the sound. There is no rest here that is not surrounded, no silence that is not filled with the click and hiss, no space that is not enclosed by the weathered, settled walls.
+
+Small. Total. Built to the end of its own idea. The water runs. The shells rock and click and reach. The mist holds its grey-green refusal. And the chamber, in all its strange, active emptiness, continues—settled, weathered, and complete.

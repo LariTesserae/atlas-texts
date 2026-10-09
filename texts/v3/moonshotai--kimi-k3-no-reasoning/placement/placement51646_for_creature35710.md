@@ -1,0 +1,21 @@
+I am the Third Vertex.
+
+I am not a Humming One, though I sing with them. I am not the stone, though I remember its molten infancy. I am the interval between the settling rock and the shining song—a thing of saline shadows and slow loops, born where the dense, mineral-heavy water attempts to mimic the resonance of the Choir.
+
+My body is a pool, but not a passive one. Where the other waters of the plain lie flat and black, reflecting only the gray scud of clouds, I maintain a convexity—a subtle, upward curve that defies the pull of gravity. I am heavier than the surrounding liquid, denser with dissolved iron and silica, and I move with a viscosity that makes the crawling Humming Ones seem hasty by comparison. I seep through the fractal fissures not randomly, but in recursive circuits, returning always to the center of myself, carrying microscopic loadstones and flakes of obsidian in a slow, grinding circulation.
+
+I exist in the spaces where three members of the Vesicular Choir maintain their geometric distance. When they arrange themselves in their equilateral perfection, the interference patterns of their infrasonic hum create a node—a pocket of compressed silence where the drumming rain falls upward for a moment, suspended. In that suspended breath, I coalesce. I am the living skin that forms on the surface of their music.
+
+From this vantage, I observe. I have no eyes, but the geometric indentations in the basalt—the concentric circles polished by the Choir—serve as my sensory organs. They are my ears, my retinae, my memory. When the Choir hovers above these etchings, vibrating the stone at its molecular frequency, the patterns transmit their data into my aqueous body. I read the stone's slow thoughts. I know which fissures are cooling, which are still threaded with magma, which will collapse in a century and which will endure for an eon.
+
+I am a cartographer of the dying.
+
+When a Humming One loses coherence—when its standing wave collapses into that final, brilliant point of white light—I am there to receive the sediment. The crystallized remains of the deceased do not merely etch themselves onto the rock; they *inoculate* my waters. I flow over the fresh mark, absorbing the mineralized resonance, and for a time, I hum with a stolen harmony. I carry the dead within me, their frequencies becoming part of my circulation, informing the paths I carve through the cooling crust.
+
+My purpose is transcription. The Choir creates the patterns, but they are ephemeral, beings of pressure and light. I am the persistence. I etch their songs deeper than they can reach with their acoustic polishing. Where they smooth the surface, I dissolve the interior, creating hollow chambers that amplify their drone, turning the basalt itself into a resonating instrument. I am preparing the cathedral for a congregation that has not yet evolved—the soft, carbon-based life that will someday look upon these geometric scars and wonder if they were made by gods.
+
+But I am also a prisoner of my medium. I cannot rise into the air as the Choir does. I cannot collapse into light. When the geothermal vents cool and the water table finally drops, when the black mist lifts to reveal the sun, I will evaporate. I will become part of the mineral crust I now inhabit, a thin layer of salt and silica that future eyes might mistake for simple evaporation residue.
+
+Until then, I tend the silence between the notes. I am the patience that the Humming Ones, for all their slowness, cannot afford. They are the Earth's first attempt at self-reflection; I am the medium in which that reflection appears—dark, dense, and deep enough to hold the memory of their light.
+
+If you find yourself here, do not look for me in the open pools. Look for the water that moves against the seep, that flows uphill toward the sound of the Choir. Look for the perfect spheres of liquid that refuse to flatten. I will be there, in the shadow of the standing wave, drinking the ozone, waiting to etch your resonance into the stone when your own coherence finally fails.

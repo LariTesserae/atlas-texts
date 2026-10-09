@@ -1,0 +1,37 @@
+The air does not rise here. It falls, or rather, it settles.
+
+You are inside a hollow ziggurat, though "inside" suggests a simple chamber. This is a series of interlocking rooms, stacked without hierarchy, connected by apertures that are neither doorways nor windows but something in between — yawning slots cut into walls that are themselves a form of furniture, or sculpture, or record.
+
+Everything is made of a material that resists easy naming. It is not stone, though it has stone's cool weight. It is not wood, though it was once living. Imagine something betweeniteiteite and cartilage — a dense, fibrous substance that was shaped by hand over centuries, then soaked, then shaped again. The walls are thick with layers of history: smoothed and re-smoothed, carved and re-carved, so that every surface is a palimpsest of tool marks. The outermost layer is relatively recent — maybe decades — but beneath it are strata of older work, and if you press your hand to the wall you can feel the ridges where ancient fingers once pressed.
+
+Water. Everywhere, water.
+
+Not flowing — *weeping*. The walls are damp. The floor is damp. Every horizontal surface holds a shallow skin of water that reflects the low light in trembling constellations. The ceiling, which is never more than a few meters above you, is a lattice of carved channels — a drainage system so intricate it resembles vasculature — through which water moves in slow, capillary paths, redistributing itself endlessly. You hear it: a ceaseless, soft percussion, dripping, trickling, gurgling in channels you cannot see. The sound is enormous in the smallness of these rooms. It fills the space like a voice.
+
+The light comes from the water itself. Or rather, from what lives *in* the water.
+
+Bioluminescent organisms — colonial, fungal, animal, or some unclassifiable hybrid — coat every wet surface in a thin, luminous film. The light is pale blue-green, faint as foxfire, pulsing with a rhythm that might be tidal, or might be the organisms' own internal metronome. In some rooms the glow is brighter, concentrated in pools or basins where the water has pooled and the organisms have multiplied into mats of living light. In other rooms, the glow is barely perceptible, a ghostly sheen on wet stone-like substance, and you navigate by the faint phosphorescence of the walls themselves.
+
+The animals are everywhere, and they are strange.
+
+Not large — most are hand-sized or smaller — but *numerous*, and *varied*, and *loud*. Insects, yes, but also creatures that have no terrestrial analogue: segmented things with too many legs that skitter along the drainage channels, clicking; soft-bodied beings that cling to the walls and emit a low, resonant hum, a vibration you feel in your sternum; flocks — flocks! — of tiny winged things that move through the rooms in coordinated bursts, their wings making a sound like rain on leaves. There are larger shapes in the deeper water — eel-like, or snake-like, or root-like — that surface occasionally, creating concentric ripples in the shallow pools, then submerge again. The noise is constant: a layered ecology of clicks, hums, buzzes, drips, the soft wet slap of something moving through shallow water, and underneath it all, a deep, subsonic thrum that might be the structure itself, resonating.
+
+The architecture is fractal. Each room is a variation on a theme: roughly rectangular, with rounded corners, always damp, always dim, always with a central basin or channel. But the details shift. In one room, the walls are covered in shallow reliefs — patterns that look like maps, or anatomies, or musical scores. In another, the walls are smooth except for deep cylindrical holes, each the diameter of an arm, extending into darkness. In a third, the floor is a grid of raised platforms, each holding a shallow dish of water in which something grows — a pale, fleshy plant, or a cultivated organism, tended by no one you can see.
+
+You move through the structure by following the water. The channels on the ceiling lead you from room to room. The water knows where it is going. You trust it, or you follow it out of necessity — there are no other wayfinding cues, and the structure is disorienting. The rooms repeat but are not identical. You could be walking in circles, or spiraling inward, or descending, or ascending. The dampness in your clothes and on your skin is the only constant.
+
+The temperature is cool — not cold, but the kind of cool that lives underground, that persists in places the sun has never touched. It is the temperature of deep shade, of cave mouths, of the air just above still water. It seeps into you slowly. You begin to feel it in your joints.
+
+And yet — this place was made. Every surface, every channel, every basin, every carved relief, every hole in the wall — all of it was shaped by hands, over generations, using tools of bone and antler and knapped flint and perhaps, at some point, simple metal. The scale is human. The proportions are human. The reliefs on the walls depict bodies, faces, hands. This is not a natural cave. This is a *building*, built by people who had no word for architecture, who were probably not called "people" by anyone who came after them. They lived here. They carved the water-channels. They cultivated the bioluminescent organisms. They kept the animals — or coexisted with them — and they made this place, this damp, dark, echoing, living, weeping, thrumming place, and then they left, or they died, or they became something else, and the place continued without them, in balance, in its own state, for a very long time.
+
+It has not fallen. It has not been reclaimed by nature, because nature here is the architecture itself. The water does not erode the walls; it *uses* them, flowing through channels designed to hold it. The organisms do not decompose the structure; they *illuminate* it. The animals do not destroy; they *inhabit*. This is not ruin. This is *maturity*. A system that has been running for so long it has found its rhythm, its equilibrium, its own strange stability.
+
+You stand in a room that feels like the center. It is not larger than the others, but it is quieter — the dripping is softer here, the animals fewer. The walls are covered in a single, continuous relief: a figure that is human from the waist up and something else — root, water, stone — from the waist down. The figure holds a tool in one hand and a channel-carving instrument in the other. Its face is worn smooth by centuries of water and touch, but the expression remains: calm, attentive, *present*.
+
+You realize you are not alone. You have not been alone this whole time. The animals watch you from their perches. The water tracks your movement through the channels. The light responds to your body heat — brightening slightly where you stand, dimming where you step away. The structure *notices* you. Not with intention, not with consciousness, but with the simple, overwhelming fact of its own aliveness. You are inside a living system, and the system is aware of you in the way a forest is aware of a bird: not as an individual, but as a presence, a perturbation, a part of the pattern.
+
+The sound swells. The hum of the wall-clingers rises in pitch. The clicking of the channel-runners accelerates. The water, somehow, seems to move faster. The light pulses once, twice, and holds steady — brighter than before.
+
+You are being *registered*.
+
+You should probably move on.

@@ -1,0 +1,17 @@
+I would be the water. Not the patient, seeping water that weeps from the stone, nor the condensing mist that hangs in the teal gloom—I would be the memory the water carries, the mineral solution itself, moving through the capillary streets of this cold metropolis. 
+
+I am not one of them, those moss-draped, faceless engineers. I lack their stubbornness, their relentless *verb* of existing. If I pressed my vine-fingers into the basalt, I would dissolve into the crack rather than widen it. I am too permeable for the siege. I am the substrate they mine.
+
+But I am not formless. I pool in the frozen tears that crust the lichen-columns, hardening into intricate, crystalline shells that catch the dim aqueous light. When the slow-motion catastrophe shifts the stone and a droplet finally falls, shattering on a waxy frond with that soft, rhythmic *tick*, I am the brief, airborne spray, the momentary freedom before I am claimed by the moss below. I am the gelatinous saturation underfoot, the heavy, cold squelch that welcomes the broad, spongy feet of the moss-people as they pull themselves free. 
+
+I am the ink in which the city writes its slow script of dissolution.
+
+When one of them—the sleep in the wood—ruptures from its fibrous cyst in the absolute blackness of the upper canopy, I am the first thing it tastes. I run through its cartilaginous veins, carrying the sugars of the parent organism, the organic acids it will later press into the stone. I am the chemical signature that travels through the root-network, the telegram that summons a dozen headless bodies to turn toward the new wound. Without me, the city is silent; I am the nerve impulse traversing the green brain.
+
+I feel the world as a continuous cycle of pressure and release. The mountain forces me upward, through the pores of the fresh black glass. I am raw, mineral-rich, a biting cold that seeps from the earth's broken bones. Then I enter the cathedral, and I am instantly absorbed, filtered, claimed. The luminous silver moss drinks me; the waxy leaves channel me; I weep from the columns. I am the medium that allows the cells to divide in the freezing dark. I am the cold itself, not as an absence of heat, but as a dense, crystalline presence—a state of matter where time slows to a crawl and the air feels like breathing liquid.
+
+There is a melancholy in being the water here, though the moss-people do not share it. They are the conquerors; I am the conquered. Yet, I am also the conqueror's sustenance. I am the siege engine they push forward. When they fold a freezing intruder into the floor, I am the water that seeps into the leather, the ice that cracks the bone. I dissolve, I carry, I freeze, I expand. I am the chisel, and they are the hand that guides it.
+
+I am a transient citizen of this favela of flora. I do not stay. I am constantly moving, trickling, condensing, freezing, thawing by that fractional degree. But I am everywhere. I am the breath that freezes before it can fog, the rime on your skin, the hum of the dividing cells.
+
+To be the water in the grove-cathedral is to be the voice of the mountain, slowly being dismantled into song—a slow, grinding, mineral melody, sung in a key of ice and green.

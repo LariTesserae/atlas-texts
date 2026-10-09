@@ -1,0 +1,11 @@
+In the place where altitude is not climbed but inhabited—where elevation fills every axis at its absolute extreme, stretching horizontally through a realm so cool near 0.8 that warmth is only a distant concept—there lives not an occupant upon ground, but the ground itself made sentient: the Garden.
+
+It is open-scale and sparse, a regional expanse of dark valleys separated by leagues of quiet void, yet everywhere it touches is absolute. Its body is vegetation made architecture—root-thatch kilometers thick serving as floor, moss-pillars serving as walls, lichen-beams spanning chasms of suspended mist—an interlocked continent of cellulose that breathes slowly. There is no soil untouched, no stone unclaimed; all is constructed at the highest degree of being-made, though no tool ever shaped it, technology being wholly absent here.
+
+The air is not air but water rendered permanent—absolute, present at every point—suspended in silent, permanent rain that never falls because gravity has been taught to hesitate in this extreme height. The darkness is near-total, a density that swallows vision not through absence but through saturation: too full of suspended droplets and faint, swallowed glimmers to permit sight.
+
+Within this wet substrate, abundant life moves thinly scattered—translucent filter-feeders, segmented crawlers threading the root-weaves, luminous beings swimming through the liquid atmosphere—part of the same tissue, never breaking the stillness.
+
+Everything has been worn smooth by erosion into its final form, primordial and ancient, settled at the farthest reach of stability where change is near-impossible and dynamics have fallen almost to nothing. The loudness is constant—the deep thrum of circulation through plant-arteries, the slow creak of holding—never varying, announcing continuation without event.
+
+Here, in the cool, submerged dark at height 3.0, is the being: a total, self-built ecology of root and rain, spread thin across its own immensity, holding its breath forever—neither dead nor growing, but finished, complete, persisting.

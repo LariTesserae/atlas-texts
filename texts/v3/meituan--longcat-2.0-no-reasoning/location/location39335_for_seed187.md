@@ -1,0 +1,37 @@
+# The Stillworks
+
+---
+
+You are standing in a cathedral of roots.
+
+Not a forest — a single organism, or what remains of one. The space opens above you in a vaulted chamber perhaps forty meters across, its ceiling a woven lattice of living wood so dense it reads as solid surface, yet so ancient it has the mineral patience of stone. Light comes through in shafts — not from any sun you can see, but from bioluminescent colonies threaded through the upper canopy, a cool white-green glow that makes everything look like it's being remembered rather than seen. The light doesn't flicker. Nothing here flickers.
+
+The floor is root. Root upon root upon root, generations of growth so compressed and interwoven that the surface has flattened into something almost geological — a pale, fibrous terrain that gives slightly underfoot, like walking on a body. In places the roots have grown over each other so many times that the original trunk, the original seed, is kilometers deep and completely inaccessible. This is what erosion means here: not the wearing away of rock, but the wearing smooth of life itself, growth layered upon growth until all the sharp edges of individual stems have been subsumed into a single continuous surface. The organism has been growing for so long that it has become its own geology.
+
+And yet — the space is mostly empty.
+
+The chamber you stand in is a void within the mass, a hollow that opened when some interior section died or collapsed or simply *stopped*, long ago. The roots form the walls and ceiling and floor, but the center is open air. You can see across it. You can see the far wall, where root surfaces have gone silver-grey with age, where shelf fungi the size of banquet tables grow in silent tiers, their surfaces so old they've begun to desiccate at the edges despite the damp. The damp is here — you feel it on your skin, a cool film of moisture that never quite becomes rain. Condensation beads on the root surfaces and slides downward in slow, heavy drops. Somewhere below, water is moving. You can hear it.
+
+You can hear *everything*.
+
+The sound is the first thing that truly reaches you, and it does not stop. It is not loud in the way of machinery or storms. It is loud in the way of a held note — a continuous, layered, resonant hum that seems to come from the wood itself. The roots are vibrating. All of them. The entire organism is a sounding chamber, and something — tension, growth, the slow hydraulic movement of water through capillary systems older than any animal — is making it sing. The frequency is low, just at the edge of perception, more felt in the sternum than heard in the ears. Over it, higher sounds: the click and pop of fungal surfaces expanding minutely, the creak of wood fiber under impossible slow tension, the drip and trickle of water finding channels through the root mass. And beneath it all, so low it's almost a rhythm rather than a sound, a pulse. The organism's vascular system, moving fluid through pathways the size of rivers, so vast and so slow that each cycle takes hours.
+
+It never changes. That is the unsettling thing. You listen, and the sound is the same. You wait, and it is the same. The light does not shift. The condensation falls at the same rate. The temperature — cool, just cool enough that your breath doesn't quite show — holds steady. This is a system that has reached equilibrium. Every input balanced by every output. Every growth matched by some equal and opposite process of consolidation or decay. It is not dead. It is *finished*. It has become a steady state, a perpetual motion of maintenance, and it will continue like this until something from outside intervenes.
+
+There are animals here. You see them now, in the stillness — or rather, you see the evidence of them, and then you see them themselves. Pale things. A centipede the length of your forearm, bone-white, moving along a root surface with the fluid inevitability of something that has never had a predator. Spiders, but small, and few — their webs strung between root buttresses in the corners of the chamber, each web perfect and undisturbed, suggesting prey so scarce that the webs are more architecture than trap. In the water channels below, you hear movement — the splash and ripple of things that live in the slow streams that run through the root system's lower levels. Blind fish, perhaps. Or amphibians that have never seen the bioluminescent glow above and have no use for eyes. The fauna is abundant in species but sparse in individuals — each one a specialist, each one occupying a niche so narrow it could only exist in a system this stable, this old, this unchanging.
+
+And then there is the machine.
+
+It sits in the center of the chamber, and it should not be here, and it is.
+
+It is industrial — unmistakably so. A engine of some kind, or a generator, or a pump. It is the size of a large vehicle, built of iron and brass and copper, and it is *running*. It has been running. Its flywheel turns at a constant speed. Its pistons move with a slow, heavy rhythm — chuff, chuff, chuff — that is the loudest single sound in the chamber, louder than the root-song, louder than the water. It is the sound that makes the sound *loud*. Exhaust vents from a stack that rises through a hole in the root ceiling, and the exhaust is clean — or clean enough. Steam, mostly. The machine is powered by something. There is no fuel line, no coal pile, no operator. It is connected to the root system itself — thick cables or pipes or *roots* running from its base into the floor, and you cannot tell where the machine ends and the organism begins. Has it been here so long that the roots have grown into it? Was it built *into* the organism deliberately? The metal is old — not rusted, but patinated, the brass gone dark, the iron surfaces smooth with the polish of condensation and time. It could be a hundred years old. It could be older. It could have been here before the chamber opened, running in darkness inside the living wood, and the hollow formed around it.
+
+It is doing something. That much is clear. The pipes that connect it to the root system are warm to the touch. Fluid is moving through them — drawn from somewhere, processed, returned. The machine is part of the organism's circulatory system now, or the organism has become part of the machine's fuel cycle. The equilibrium includes it. The steady state accounts for its output. Whatever it does — pumping, filtering, generating a faint electrical hum that you can feel in the fillings of your teeth — the system needs it, or has needed it for so long that removing it would be like removing a heart.
+
+You stand in the center of the chamber, between the machine and the far wall, and you understand that you are in a place that is not natural and not artificial but something that has passed beyond that distinction. The organism built itself into a machine, or the machine was built into an organism, and the result is this: a living engine, an organic factory, a cathedral that manufactures nothing you can name but maintains everything you can see.
+
+The condensation drips. The flywheel turns. The roots sing their one unchanging note.
+
+Nothing has changed here in a very long time.
+
+Nothing will change here for a very long time yet.

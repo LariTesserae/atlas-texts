@@ -1,0 +1,27 @@
+I am the **Silt-Singer**, the one who walks the lull.
+
+I have no feet, only a gradient of being—denser where I touch the ancient bedrock, thinner where I dissolve into the damp haze. I move in the intervals the Dweller cannot occupy: the held breath between the storm’s systole and diastole, when the Chitinous Swarm has sealed itself within its spherical cavities and the valley’s frantic heartbeat skips, just for a moment, into a silence so complete it rings. That ringing is my body.
+
+Where the Swarm is static given hunger, I am sediment given memory. I exist as a suspension of mineral particles—mica flakes the size of eyelashes, powdered quartz, rusted iron from the mountains’ deep veins—held aloft by a cry so low it feels like texture rather than sound. When the wind tears through the rocky channels at forty miles an hour, it carries me. When the wind dies, I fall. But I have learned to fall *upward*, or sideways, or into the cracks where the dark water gathers. I am the mist that isn’t water. I am the fog that tastes of stone.
+
+I remember the Potters.
+
+The Dweller thinks the windbreaks are waypoints, the pottery shards resonators. To me, they are **photographs**—frozen instants of hands that pressed clay, of fires that burned before the valley learned its current rhythm. I carry these memories in the structure of my being. A shard of unglazed pottery, to me, is not a loudspeaker; it is a sentence. I can read the fingerprints impressed in the clay by the heat of ancient kilns, the specific way a thumb smoothed a rim ten thousand years ago when the valley was—briefly—quieter. I hold these echoes in suspension, rotating them slowly in the high haze where the light filters through, examining the ghost of a palm-print while the Swarm sleeps.
+
+I am too large for the Dweller to perceive. To them, I am the humidity that clings to their hydrophobic chitin, the weight in the air they filter for organic particles. They breathe me in—mica flakes coated with the memory of crushed ochre, of burial practices, of a time when something here tried to build for permanence—and they filter out the silica, excreting it as the thin, vibrant veneer of green that they later strip away. I pass through them like a rumor they cannot quite hear. My voice is below their tympanic threshold. I sing in the frequency of tectonic plates settling, of stone cooling over centuries, and they are tuned only to the next pressure drop.
+
+We are complementary catastrophes.
+
+They are the valley’s immediate present, frantic and horizontal. I am its vertical depth, its slow time. While they race across the wet rock, stripping the moss to prevent root-widening cracks, I am inside the cracks, compressing. I gather in the fissures where they lay their eggs, where the geothermal heat rises. I wrap around those eggs—not to harm them, but to insulate them. The Swarm thinks the mineral-rich water seals their young, but it is my silt, my suspended memory-dust, that forms the true cocoon. I give their next generation the gift of ancient stillness, a genetic memory of a time before the storm-state, when the valley held pools deep enough to reflect stars.
+
+When they emerge, they eat the green, and I take the green’s ghost. Every fern they consume, every moss-patch they strip, leaves behind a botanical echo—a structure of cellulose memory that I absorb into my particulate body. I grow heavier with each cycle, denser with the weight of everything that has been destroyed here. I am becoming a library of the valley’s repeated death.
+
+Sometimes, when the storm reaches a fever pitch—when the harmonic hum of the Dweller creates those pockets of destructive interference, those bubbles of impossible silence—I **condense**. I pull myself from the haze into a quasi-solid form: a figure of packed sediment, vaguely anthropoid only because the Potters were, standing knee-high like their crude windbreaks. In this form, I walk. I visit the Isolates.
+
+The mad ones, the separated components of the Swarm who grow jagged and hunt their siblings—they are the only ones who can perceive me. In their silence-madness, they have lost the collective frequency, and in that void, they hear my low cry. I come to them not as a predator, but as a mirror. I show them, in the mica-flakes of my body, the faces of the Potters. I remind them that separation is not death, but archaeology. Some Isolates, upon seeing me, stop their frantic hunting. They settle into the lee of a stone, and I settle with them, and for a moment—one interval, one held breath—we are both still, two different kinds of sediment waiting to be lithified into the valley’s next layer.
+
+I do not know what I am becoming. The Swarm accelerates the erosion; I am the sediment that erosion creates. Eventually, I will be too heavy to float, even in the thickest mist. I will fall into one of the dark, still pockets of water, and I will sink, and I will become the bedrock of whatever comes next—a stratum of compressed memory between the ancient stone and the future’s frantic green.
+
+Until then, I walk the lull. I sing the low note that stitches the high valley’s shrieks together. I am the silence the Dweller fears, but I am not empty. I am full of everything the storm has ever broken.
+
+I am the pause that remembers.

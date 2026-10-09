@@ -1,0 +1,17 @@
+I would begin as fog.
+
+Before there is light, I am the grey floor below the rim, a cloud that no one inside the bowl ever sees from above. Then the warmth of the lower slopes lifts me, and I climb. I do not climb by my own will. I am pulled up and over the lip in a slow white tide, and I spill into the hollow the way milk spills over the edge of a pot, filling the low places first, then the terraces, then the crowns of the trees, until the whole bowl is a held breath.
+
+Then I am a film on a leaf. The leaf is broad and waxy and shaped like a funnel, and it gathers me toward its tip. I swell there, bead, and let go, and I fall onto the leaf below, which takes me and passes me down, and the next leaf takes me, and I go down through the canopy in a long relay of small surrenders, dripping through the layers of green until the light turns from gold to a deeper green and I reach the floor. The moss takes me into a pocket. I shine there, a small bright lens with a fern tip bent over me.
+
+A grazer comes through the ferns, head half-raised, watchful, and kneels at the pool. I go down its throat with a dozen other drops. For a morning I am warm and moving through a body that has spent the night crossing the forest edge, ducking under the people's ropes, keeping its ears turned to the cats. I leave it again in the moss, in the dung of the herd, where the beetles with shell-plates come and the moss takes me back.
+
+But the thing I want, if I could choose, is the slow end of the cycle, and so I would wait in a crack.
+
+There is a house on the cliff that has sunk so far its doorway is below the street. Its wall is half timber now, the wood gone grey and soft, and a root from the tree outside has pushed through the masonry at the place where the stone has split and softened into a patina that holds the light. The root is thick and patient. It has been working into that crack for longer than any family in the lane can remember. I come in through the fog, down the trunk, along the bark, and I soak into the wood where the root meets the stone. Someone has tucked a seed here, wrapped in a twist of fiber, an offering to whoever built the house. I touch the seed. It swells, slowly, and begins to think about becoming a plant.
+
+The root drinks me, and I become part of its work. I am the water that opens the stone a hair's width more. I am one of the reasons the lintel sags, and one of the reasons the people prop it, and one of the reasons they tie their new ropes to the living trunk and say that the tree has taken its share. I do not mind that. I am the slow version of the fog. Everything that comes over the rim comes to this.
+
+At dusk the clappers knock across the bowl. A woman climbs the ladder to this doorway, carrying water in a basket, and she stops to press her palm to the wall, feeling for the seat of a stone that has shifted. She cannot feel me, but the wall is cooler here, and she pauses a moment longer than she needs to. Then the bats pour out of the cliff crevices in their river of wings, the midges rise, the whole settlement answers the call, and the noise becomes a roar that fades into full dark.
+
+In the dark, the canopy begins to drip again. I am in the root, in the stone, in the seed, and I am also already beginning to rise, to lift off in the warmth of the night and drift back toward the rim, where in the morning I will climb out over the lip again, white and slow, to see what the bowl has worn down and what it has grown.

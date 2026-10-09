@@ -1,0 +1,17 @@
+I would be a drop of the afternoon rain, and then I would stop being one.
+
+It begins in the cloud. Hot vapor climbs out of the cooling stack, meets the thinner air, and loses its hurry. I am one of the beads that form where the cloud cools, sweet with whatever the deep water carried up. I do not know I am sweet. I only know the pull of the slope, the sun dropping toward the far cliffs, and the pressure of the others crowding me toward the edge. When I fall, I fall slowly, the way everything here falls.
+
+I land on a pipe.
+
+The metal is cold beneath the scale, which has grown over it in pale, bone-colored layers. There is a seam where two lengths of pipe meet, and the seam is already lined with spines, short and sharp, all angled the same way. A flock settled here last evening. I can feel the warmth it left in the metal, though the warmth is fading. My weight presses into a hollow between two spines, and for a while I simply sit there, trembling with the pump's shiver. The pump is somewhere below, turning in its housing, and the pipe carries its rhythm up into me like a pulse I can feel but not hear.
+
+Then I begin to change. The mineral in me meets the mineral in the metal, and the exchange is slow and exact. I do not decide to crystallize. I am drawn into a shape that was already waiting, the way a river finds its channel because the channel is there. My edges harden. A thin lattice spreads from the point where I touched the pipe, branching at an angle I did not choose and somehow recognize, the angle a hand would use to reach a valve. I am becoming a spine.
+
+This is the strangest part: I know the angle. Not from memory, since I have none, but from the shape of the seam itself. The spines along this pipe run in a line that reads like writing, parallel ridges and sudden junctions, and I am one more stroke of it. Whoever laid out this seam was thinking about where a maintainer's hand would fall, where a pump's pressure would split, where the water should turn. Those thoughts did not vanish. They became structure, and structure became the thing that grows. I am a word in a sentence no one is reading anymore, and yet I am the sentence's continuation, adding myself to the line.
+
+Below me the pump turns. I feel it through the lattice. The waders in the pool below tilt their heads toward it, I suspect, though I cannot see them from here. I feel the change in the flow when a grazer passes beneath the gutter, its comb scraping the stone, its silence the same silence that holds me. Nothing I touch makes a sound. Everything I touch moves.
+
+By the next dawn the mist will come up off the pools, and the glare will hit the terraces, and the grazers will gather again under the gutters. A flock will settle on the pipe-tops in its even row, and one of its birds will shake a crystal loose from its feathers. Maybe it lands on me. Maybe it lands on the spine beside me, the one that grew from a seed of the seam's old plan. I cannot tell which. I am a little of both: a drop that became a spine that became a line in the handwriting, and a line that will be read, if it is read at all, by whatever comes to the seam next.
+
+If someone asked me what I am, I would say I am the place where the water remembers the hands that built the pipe. I am not the builder. I am not the grazer or the wader or the bird. I am the shape the work takes when no one is holding the tool, and I am quietly, continuously keeping the line going.

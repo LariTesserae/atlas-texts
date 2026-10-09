@@ -1,0 +1,29 @@
+The inhabitants of the Quiet Gorge of Wethern are not seen. They are *felt* – a presence woven into the very dampness of the stone, a rhythm beneath the silence. To describe them is to describe the gorge's breath and its stillness.
+
+**They are the Keepers of the Quiet.**
+
+*   **Shaped by Silence:** Generations of living within the gorge's acoustic rules have forged them into beings of profound stillness. Their movements are glacial, deliberate – not sluggish like the slugs, but purposeful, with an economy of motion that minimizes disruption to the air itself. Their footsteps are soundless, absorbed by the slick basalt or muffled by layers of moss deliberately cultivated on pathways. Their communication is not spoken. It exists in:
+    *   **The Gaze:** A slow turning of the head, a prolonged stare that conveys meaning within the context of the gorge's current state – the direction of the mist, the density of the slug rivers, the tension in a particular web.
+    *   **The Touch:** Light brushes on damp stone or lichen, leaving faint chemical traces only others of their kind can read. Presses of palms against the weeping walls, feeling the vibrations of the gorge's hidden water.
+    *   **The Placement:** A tool set *just so* on a ledge. A bundle of dried fern stalks leaned at a precise angle. A different kind of moss tucked into a crevice. These are messages, updates, warnings, or simple acknowledgments of presence.
+
+*   **Integrated into the Ecosystem:** They are not above the gorge; they are *of* it. Their biology reflects the strange environment:
+    *   **Pale Skin:** Adapted to the perpetual dimness, often bearing faint, camouflaging patterns like lichen or the streaks in the basalt. Thin, almost translucent, allowing veins to show faintly blue-green beneath.
+    *   **Enhanced Senses:** Oversized eyes adapted to the low light, capable of seeing the subtle movements of slugs and lizards others might miss, and perhaps perceiving the faint bioluminescence or ultraviolet patterns hinted at in fauna. Hearing tuned to subsonic frequencies, interpreting the gorge's hum and the silent vibrations of its life. A sense of smell acute enough to track the mineral-green heaviness of the air, the scent of decomposition, the unique musk of different slug trails.
+    *   **Slow Metabolism:** Aligned with the gorge's pace. They require little food, subsisting on the easily harvested fungal animals (prized for their texture and faint mineral taste), the nutrient-rich soil, lichens, and perhaps fermented mosses. They move little, conserve energy, and live long, measured lives within the gorge's rhythm.
+
+*   **Architects of the Unseen:** Their structures are not mere shelters, but extensions of their philosophy:
+    *   **Stone Harmony:** Built into the rock, using its natural contours. The lack of mortar isn't primitive; it's silent construction – stone fitted to stone with moss packing to absorb sound and vibration. The inward-facing design isn't hiding; it's focusing attention on the stable, known world of the wall, away from the unpredictable, life-crawling center.
+    *   **The Basin Rituals:** Tending the stone basins is central to their existence. Cleaning, refilling from the weeping walls, perhaps introducing specific microbial cultures or harvesting the "living film." These are acts of stewardship and quiet communion with the gorge's hydrology. The cracked, fern-filled basins aren't abandoned; they are repurposed, incorporated into the ecosystem, monuments to past needs.
+    *   **Web Weavers (in Spirit):** They understand the spiders. They don't disturb the major webs strung between their dwellings. They hang the small bundles of dried vegetation – lures for specific insects? Offerings to the spiders? Tools for the spiders to incorporate? It's a silent partnership, a shared architecture of the air.
+
+*   **The Tenders, the Observers:** They are not masters of the gorge, but its careful custodians and students.
+    *   **Pruning the Green:** They meticulously manage the explosive growth pockets, preventing any single pocket from dominating or choking pathways to water sources or other dwellings. They cultivate specific mosses and ferns, perhaps for medicine, food, or acoustic dampening.
+    *   **Reading the Rivers:** They track the slug movements, the lizard circuits, the web cycles. These patterns are their weather, their clock, their warnings. A sudden pause in the slug river is a storm signal; a specific lizard pausing on a specific ledge might indicate a change in the weeping water's chemistry.
+    *   **Maintaining the Rules:** They embody the rules because they *are* the rules. Sudden sound is not just rude; it's a physical shock to their senses and the gorge's equilibrium. Stepping into the green is trespassing into the gorge's active digestion. Their very existence is a testament to the gorge *not* being abandoned.
+
+**What They Are:**
+
+They are the quiet. They are the watchers in the alcoves whose eyes catch the dim light like lizards'. They are the unseen hands that straighten a bundle of ferns. They are the reason the stone basins hold dark water and the pathways stay clear. They move like slow thoughts through the gorge's mist, leaving no sound, only faint trails in the silver mucus and the subtle re-arrangement of a tool on a ledge.
+
+They live in the breath between heartbeats, in the film of water on stone, in the coordinated stillness of a thousand small lives. They are the gorge's consciousness, observing its ancient, voracious quiet, tending its weeping walls, and existing within its rules – not as prisoners, but as its most profound expression. You feel them as a pressure in the silence, a sense of being watched not with hostility, but with an ancient, patient, and utterly silent awareness. They are the reason the gorge is quiet. And they are its quiet made flesh.

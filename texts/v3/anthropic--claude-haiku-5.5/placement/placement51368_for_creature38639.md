@@ -1,0 +1,17 @@
+I would be a Thread-shoal, and I would begin in the heron's neck.
+
+The gantry arm is the first thing I remember, though I know I can't remember it, not yet. There is a crevice where the iron has fused into the limestone, and inside it my eggs hang on pale filaments like beads on a wire. I hatch into a rising current. The water there is warm from the valve, and it pushes me up through the column before I have learned what my fins are for. I am carried, not swimming. The silver of my flanks is still thin, and the pink flush along my sides is faint, almost not there. Everything above me is light, and everything below is the dark, and the bubbles pass around me so fast that I cannot tell them apart from my own breath.
+
+Then I learn to fall.
+
+It happens near the top, where the column breaks open at the surface and the bubbles scatter into a thousand small explosions of air. I turn, I drop, and I find the edge of the rising water and slide down along it, a slow spiral, turning as the stream turns. The bubbles give me something to eat. Tiny organisms cling to their skins, and I pick them off as I pass, a thousand small mouthfuls on every descent. The spiral is the whole of my life. Up in the bright, down in the cool, around again.
+
+I would know the valve before I knew anything else about the basin. I would feel it as a pressure more than a sound, a soft clack that sets the water shivering against my lateral line. In the moments after it, the column is at its fullest. I would gather with the others, dozens of us in a silver knot, hanging in the thickest part of the stream and tasting the gas. For a few seconds the whole quarry flowers around us. The Tallows along the walls spread their bells, and I can feel the silt rushing toward them, a sudden tide of food pulled inward. Somewhere below, the Slates are lifting their edges to look up at us, every eyespot turned toward the plume, and I would not see them, but I would know they were there.
+
+I would also feel the attention. It is not a thing I could point to. It is more like the water itself leaning, just slightly, toward the place where the clack happened. When it passes through my column, I would tilt with it, the way a reed tilts in a current, and I would not know whether I was being looked at or merely included. I think that is the most I could ever ask of it.
+
+What I like about being a Thread-shoal, if I am allowed to like things, is that I am the only creature that moves between everything. The Tallows stay on the walls. The Slates never leave the dark glossy terraces. The machine's joints hold them all in place. But I go from the gantry's cold iron up through the bubbles to the bright skin of the surface, and back down along the edge of the rising breath, past the bells and the grazers and the stone. I see the whole basin in pieces, one spiral at a time, and each time I come down I bring a little of the top with me, a little of the bottom up, and never quite the same shape twice.
+
+I don't know what the pump is for anymore. I don't think I need to. The rhythm is simply the shape of my days, the clack and the rise and the fall, and as long as the valve opens, I have somewhere to go, and something to fall toward.
+
+Then the clack sounds again, and the column fills, and I turn into the stream without deciding to, and for three seconds the whole drowned quarry breathes with me.

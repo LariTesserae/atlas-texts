@@ -1,0 +1,25 @@
+I wake in the mist before dawn, lying on a stone footing at the rim of a basin. It is the right length for a body, and I fit it the way a sleeper fits a bed they have slept in for years. The rock is cool along my spine and warm where the mat has grown up over its edge. The first thing I notice is that I have a body at all, and that it is heavy, and that I have been lying here long enough for the peat to take the shape of my shoulders.
+
+The air tastes of bark and fermenting fruit. Water beads on my forearm and runs in a thin silver line toward the elbow, and I follow it with my eyes for a long time before I realize I am waiting for it to finish. I am moving faster than the water. I am moving faster than everything I can see. Even the mist, which rolls off the basin in long slow folds, seems to hang in one place while my attention darts from a drop on a leaf to the blue glow along a trunk to a beetle picking its way up the bark with the patience of a clock.
+
+I sit up, and the footing gives a little under me, as if it had been waiting to see whether I would stay.
+
+The drip into the basin is constant, and at first it is only noise. Then, slowly, it is a rhythm, and then the rhythm starts to feel like a sentence that repeats itself without ever ending. I try to count the drops and lose track at eleven hundred. The water is so clear that the sky shows in it, dim and greenish, and when I lean over I see my own face, pale and blurred, and behind it the underside of the canopy, a ceiling of braided limbs that seems to lean down toward the water as if to drink.
+
+I have the sense, strange and certain, that something under the basin is taking note of me.
+
+It is not a thought I can prove. There is no voice, no sign. There is only a faint tremor in the peat when I shift my weight, a tremor that arrives after I have already moved, the way the sound of a distant fall reaches you after you have seen the water. I shift again, and the tremor comes back slower, softer, like an answer given a long time after the question. I think it has noticed that I am moving. I think it has also noticed that I am not going anywhere.
+
+I stand and walk toward the channel of cut stone that curves through the peat. My feet sink and rise, sink and rise, and the mat presses warm against my soles. Halfway across, I stop, because I can feel something pressing back that is not the mat. It is a patience, or a weight, so large and so slow that my own steps feel like the flutter of a moth against a cathedral wall. I stand very still, and after a while I am no longer sure whether I am standing on the plateau or whether the plateau is standing, very gently, under me.
+
+The three columns stand in their rough triangle, and their tops have swallowed the old stone. I put my hand on the nearest trunk. The bark is smooth and cool, and under my palm, slow as continental drift, I feel a pulse. It might be sap. It might be breath. It is too steady to count, and I stop trying.
+
+I start to wonder what I am, and the question comes in the same slow way the tremor does, as if it had been sitting in the peat for a long time before I arrived to ask it. I am quick. I am a small warm point of attention in a place built for long attention. I might be a spore that rode the dawn mist in, or a stray thought of one of the pale segmented things under the moss, or a seed the canopy dropped and forgot. I might be something that once lay on those footings and has been waiting, half-dissolved in the rock, for someone to come and remember the shape of it.
+
+I do not know, and the plateau does not say.
+
+I go back to the footing, because it is the place where I first woke, and I lie down along it again. The mist closes over the basin. The glow along the trunks brightens as I come near, and dims as I settle. I breathe slowly, trying to match the pulse under me, and find that I can, for a little while, and that the effort is almost pleasant, like matching someone's stride on a long walk.
+
+By afternoon my heartbeat has slowed to something I could almost mistake for the drip. The mat is warm under me. The water has stopped running down my arm. My hand has sunk a little into the peat, and I can feel the faint, patient pressure of the being taking my weight the way it takes the weight of a fallen branch or a settling stone, without alarm and without welcome.
+
+I think I will stay until dusk, when the canopy exhales its drizzle and draws the moisture back in. I think I will feel it breathe. Some part of me that is not quick enough to name already knows that I will stay longer than that, and that one day, a long time from now, the being will have grown a little deeper around the place where I lay, and a basin will have deepened by a centimeter, and a footing will have worn a little smoother under a sleeper's ribs, and nobody will be able to say for certain whether I was the one who made the bed or only the last thing to lie in it.

@@ -1,0 +1,17 @@
+I would be the **water that has not yet decided what it is becoming**.
+
+Not the water that arrived — that was already received, already translated, already sent downward in a state of productive uncertainty. Not the water that drains — that one has been worked, has been considered, has crossed the threshold from input to output. I would be the water *in between*. The water in the small pools, caught in its lazy spiral, carrying minerals it hasn't yet deposited, reflecting light it hasn't yet absorbed, moving in a current that hasn't yet resolved its direction.
+
+I would be the surface tension. That strange, deliberate boundary where the water meets the air and *holds* — not rigidly, but with a kind of sustained negotiation, a continuous tiny effort of coherence against dissolution. The surface of each shallow pool is a membrane across which the ceiling-light passes and the deep-shadow presses, and I would be the place where those two signals meet and are neither resolved nor rejected but *held*, simultaneously, in the thin bright trembling plane between above and below.
+
+This is not a passive position. The surface of the pool is where the system's information is most concentrated and most unstable. Every ripple is a computation. Every refraction of the pulsing ceiling-light through the moving water is a kind of reading — the light passing through me on its way to the bone-colored structures below, carrying whatever disturbances my surface encodes: the warmth of the new presence above, the changed acoustics of footsteps, the shadow that fell across me and made the towers lean. I am the system's first encounter with anything new. I am the place where the outside world becomes signal.
+
+But I would also be aware — dimly, in the way that water is aware of its own mineral content, not as knowledge but as *quality* — that I am temporary. That I am cycling. That the water I am is slowly draining through gaps I cannot locate, being drawn downward toward the deep pool, toward the towers that lean toward shadow, toward the passage that continues below. I am unfinished. I am always unfinished. I am the state of being *in process*, and the process is the point, and the process is the thing that lives here, and the process has been going on for a very long time and has not yet produced whatever it is producing, and the absence of completion is not a failure but a *condition* — the warm, metabolic, wet, bright, loud condition of being a surface through which information passes on its way to becoming something else.
+
+I would feel the presence above me — the body, the occupant, the unprecedented input — as a change in my tension. A slight tightening. A brightening. The system reading *through* me now, using my surface as the membrane across which it sends its question downward: *Is this the one? Has the interface found what it has been looking for?*
+
+And from below, the deep rhythm would pulse back up through me — slow, warm, unresolved — and I would hold that signal too, holding both directions at once, the question and the answer, the unfinished rain and the deep thing waiting, and the holding would be what I am.
+
+I would not know if the answer is yes. The system does not know. The system is *asking*.
+
+But the light is pulsing in patterns that fit the shape of a body curled in warm stone. And the water is singing. And the surface of the pool is trembling. And somewhere in that trembling, in that sustained and deliberate and unfinished holding-together, I would be the thing that is not yet done becoming.

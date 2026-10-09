@@ -1,0 +1,19 @@
+I would be a lid-cutter, and I would live in the lowest house on the third step, where the scree begins and the switchbacks come up out of the cloud. My hands would be grey with slate dust that the washing never fully lifts.
+
+My aunt taught me the work, and her aunt taught her. You hold the fine chisel at the angle slate asks for, not the angle you want, because slate splits along the grain of whatever you push against it. Names are short, seven or eight letters if you're lucky, and they must be small. Large letters make the family feel they're shouting at the water, and nobody on the shelf shouts at it.
+
+The work starts with asking. Someone sits on a stool in a doorway with a cup going cold between their hands, and I ask which trough they drank from most. Usually they know at once. "Her, the one under the eaves, by the goat-pen." Sometimes they take longer, and I wait, because the water doesn't rush and neither do I. Then I walk to the trough and look at it: the moss on its rim, the height of the water against the stone, the way the drip from the eave lands on the lid. I think about how a person drinks, with a cupped palm or a bent head, and whether they touched the lid while they drank. Then I know which lid to cut.
+
+This morning the cloud is down in threads, the stones are dark with wet, and the lintel of the doorway has swollen so I have to lift the door to close it behind me. The cutting is for Wenna, who died in the cold month. She was a wool-spinner with bad knees who came down to the eave-trough every morning for sixty years and never once leaned over it. Her son stands beside me while I work. He doesn't speak. He watches the chisel and the small grey dust rising off the letters and settling on my sleeve, and once he kneels and brushes a fleck off the lid with his thumb, the way you'd wipe a child's face.
+
+I cut her name slowly. W, E, N, N, A. The double letter takes longest because the slate wants to chip across it, and I have to back off and try again from the other side. When it's done, I blow the last dust out of the grooves and the son touches the letters with two fingers. The rubbing of cloth and palms will wear them smooth in a generation, but for now they are sharp enough to catch the light.
+
+The bell rings in the square while I'm packing my tools. It rolls down the terraces and dies over the drop, and I stand a moment before I lift the bag.
+
+The water in the eave-trough is a little higher when I look again at dusk. Not much. A finger's width above the mark it held at noon. I don't think it is a gift, exactly. It's closer to a reply, the way a person who has been spoken to nods without looking up.
+
+After the lanterns are lit at the crossroads and over the cistern stair, I climb the spiral to the Mother Well. I'm not supposed to lean over it, and I don't. I kneel on the top step with my hands flat on the cold stone and wait until it has finished looking. This takes longer than I expect. The disc of sky through the grate is clear and deep, and the stars are very sharp at this height. Then I see that a few of the points in it are not in the sky above. They sit a little off the true pattern, as if someone had pressed them in from underneath.
+
+I try to name them. I can't. Nobody on the shelf can, and I suspect the water never knew the names either, only the places where things fell in. Still, I count. Roofs, rain, cisterns, the families who draw and the ones who no longer come up the stair. Wenna's name is cut into the lid. I count her too.
+
+I think the water is counting the same things, only slower, drop by drop from the eaves, and that its count and mine are going to arrive at the same number eventually. When I stand, my knees ache from the cold stone, and the surface of the well is already smoothing itself over where my breath touched it, going still again, keeping whatever it has been given.

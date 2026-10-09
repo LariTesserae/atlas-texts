@@ -1,0 +1,25 @@
+# The Weeping Vault
+
+You are inside a sealed chamber about the size of a longhouse, high in young rock. The plateau above has been pressed upward so recently that the stone still holds the shapes of its breaking. Nothing here has been worn smooth. The walls are black-grey and glassy where they fractured, with edges sharp enough to cut a fingertip. Where water has beaded on them, the glass shows a faint sheen, like oil on still water.
+
+**Air and water.** The air is warm, close to blood-temperature, and so saturated that it feels like breathing through wet cloth. Every surface wears a thin film of condensation. Water seeps continuously from the seams in the ceiling and walls, collecting in shallow sheets across the floor. The floor is a few centimeters deep in most places, lying over pale silt that is still settling and has not yet hardened into anything. Where the silt is disturbed it clouds slowly and takes a long time to clear.
+
+**Formations.** The ceiling has begun to form stalactites, but only the first stages: short hollow straws, no thicker than a reed, each with a drop hanging at its tip. The drops gather, hang, and fall at intervals that never quite regularize. The straws do not grow while you watch, and the drip-marks beneath them have the look of something that was finished long ago and is being repeated. The chamber seems stalled between becoming and being, held in a long equilibrium.
+
+**Vegetation.** There is almost none in the ordinary sense. Along the wall seams grow pale, colorless threads, fine as hair and clustered into mats that feel like wet felt. They are fed by the mineral-laden seep and have no need of light. They shiver when touched, a slow ripple that spreads outward and settles. In the deepest pools, a film of something fibrous lies just under the surface, and where it is thickest the water has a faint milky cast.
+
+**Density.** Despite the sparse plant life, the chamber is crowded. Under the surface film of the pools, dozens of small pale creatures move per handspan, blind and translucent, drifting in slow currents from the seeps. They are so numerous that dipping a hand stirs a visible haze of them. Along the walls, the threads interlace so tightly that there is no bare stone left between them. Each drop from the ceiling seems to fall through a crowd of tiny life before it reaches the floor.
+
+**Fauna.** The larger animals are rare. Once in a long while, a broad, flat, translucent shape glides beneath the surface of the largest pool, moving with a slowness that makes it seem to hold itself in place and simply be carried. Its outline is visible only because the milky film bends slightly around it.
+
+**Marks of people.** Someone has been here, though not recently, or not in any sense that the walls keep. Flat stones have been stacked in the wall niches, three or four high, each stack with a slightly different lean, as though they were placed to count something. Scratched into the glass at chest height are spirals and notched lines, arranged in rows. Some of the rows match the lengths of the stacks. A broken bone hook lies on a ledge, its barb snapped off, its surface darkened and polished by hands. Around the warmest pool, a ring of smaller stones has been set in the silt, and the silt inside the ring is clearer than anywhere else in the chamber, as if someone has been keeping it clean for a long time.
+
+**Tools and fire.** There is no sign of a flame ever having been lit here. The people who marked this place seem to have worked by touch. The tools are crude: flaked stone edges, bone points, scrapers of glass. Everything is made for close handwork, the kind done without seeing.
+
+**Sound.** The chamber is mostly quiet. The loudest sound is the drip, which lands with a small clean note and sometimes returns as an echo a moment late, from a part of the vault you cannot see. Beneath that is a very faint hum, possibly from the water moving through the seams, possibly from the rock. It stops when you stop breathing, so you may not be sure whether you are hearing it at all.
+
+**Strange things.** The threads on the walls all lean very slightly toward the same point, though no current you can feel moves them that way. The water in the pools reflects nothing, not even the faint glint of the drops. Each drop from the ceiling hangs for a fraction longer at the lip than gravity should allow before it falls. These oddities are quiet, and they do not change over time.
+
+**Light.** There is none. The chamber is total dark. Everything is known through touch, warmth, the sound of drips, and the give of the threads. The stacked stones, the scratched spirals, and the bone hook are all read by fingertip, the way a blind person reads a face.
+
+The Weeping Vault is a held moment. It has been wet and warm and dark for a very long time, and it has never quite finished becoming a place. Whoever comes to it, and whatever they leave, will be added to a stillness that has been waiting, drop by drop, for something that does not seem to arrive.

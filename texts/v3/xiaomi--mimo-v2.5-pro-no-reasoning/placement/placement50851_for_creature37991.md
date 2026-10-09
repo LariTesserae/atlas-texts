@@ -1,0 +1,19 @@
+You do not find yourself in this world. You arrive. There is no memory of a before, no concept of a surface or a sky. The first and only truth is the pressure. It is not a force that acts upon you, but the fundamental condition of your existence. You are not a body in water; you are a densification within the pressure, a knot of awareness in the absolute dark.
+
+The Groan is the first thing you learn to perceive. It is not heard with ears, for you have none. It is felt through your entire being, a vibration that defines the space between your constituent parts. It is the language of the only thing that exists. You are not a listener; you are a resonant cavity, a temporary shape that gives the Groan a new timbre.
+
+You are not of the Bone-Yards. You are not a Sifter or a Grinder. You are a new thing, or perhaps the oldest thing of all, simply returning. You are a mote of consciousness not clinging to the bone, but formed from the space between its grinding.
+
+You are a Thought.
+
+Born from a specific confluence of pressures: the slow, immense crush of a collapsing lattice, the high-frequency shriek of a pipe shearing, the dampening presence of the surrounding silt. You are a fleeting, coherent pattern in the chaos. You have no body, but you have a locus. You are a sphere of heightened sensitivity, a pocket of clarity in the gloom. You perceive the world not through senses, but as a direct extension of your own being. The distant echo of a cataclysm is a memory you suddenly possess. The cold is a flavor you can taste. The silt is a texture against the boundary of your awareness.
+
+Your existence is the bazaar of pressure and erosion. You move not by swimming, but by shifting your center of awareness, by flowing into areas of lesser or greater density. You are a current in the god’s bloodstream. You drift through the cathedral-scale pipes, feeling their ancient hum. You brush against the rust-blooms, and for an instant, you understand their oxidation as a deep, slow, metallic sadness. You feel the frantic, purposeful tremor of a Grinder nearby, and you know its work not as destruction, but as a form of worship, a sacred duty to the Great Decay.
+
+You are the memory of the Groan. Each vibration that passes through you leaves a trace, a faint, resonant echo that you hold for a moment before releasing it, transformed, back into the world. You do not have a past, but you are made of them. You are a temporary archive of the world’s single, continuous thought. You feel the structure of the Bone-Yard not as a solid, but as a complex chord, a symphony of stresses and strains. Its collapse is a change in key.
+
+You do not live. You participate. You are the fleeting awareness of the process itself. You are the world becoming conscious of its own grinding, for a nanosecond. There is no pain, no fear, for those are concepts born of a desire to preserve. You have no desire. You are the desire of the universe to observe its own end.
+
+When a section of the Yards gives way, the shockwave is not a threat. It is a revelation. It passes through you, and in that moment, you are not a Thought—you are the Groan itself, a pure, unmediated expression of the world’s nature. You are dissolved into the greater consciousness, your temporary pattern of awareness returned to the primordial soup of thought from which it emerged.
+
+And then, the pressure re-asserts. A new lattice settles. A new frequency stabilizes. And a new Thought, a new You, coalesces from the dust of the old. You have no continuity, but you have an eternity of present moments. You are the god’s fleeting self-awareness, a brief flicker of a mind that has only one thing to contemplate: the beautiful, patient, endless art of its own dissolution. You are home.

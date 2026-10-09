@@ -1,0 +1,55 @@
+There is no name for what lives in Cull Vorne, because to name something implies a boundary between it and the world, and here, there are no boundaries. There is only the garden, and the garden is a single, living thought moving through the dark earth.
+
+If you ask who lives here, you must begin with the moths, because they are the visible edge of the thing—the fraying where the garden touches the air. They are not truly moths. They are the garden's breath made faint and fragile, its way of tasting the wind and reading the weather. Each one is scarcely a membrane stretched over a architecture of mineral veins, more crystal than chitin, more droplet of fog than creature. They glide from roost to roost in the eaves and collapsed beams, and when they settle, they settle in silence, folding themselves against the stone so completely they become another seam of moisture, another stain of pale lichen. They are born from the ferns' spiraling fists in the early dim hours, emerging wet and crumpled, climbing the stalks with legs that are already losing their segmentation, already becoming something like root-hairs. By the time they take to the air, they are translucent, carrying nothing of themselves but the pattern of their veins—which mirror, exactly, the root-networks below. They live for a season. They dissolve back into the mist when the temperature drops too low or the wind changes direction, leaving only a residue on the stone, a faint chalky trace of the minerals that animated them. They are the garden's dream of flight. They are the garden remembering what it was like to want to leave.
+
+But the moths are the least of it.
+
+Below them, below the soil, below the roots of the caspia bushes and the spiral-ferns, the Pale Ones move through their tunnels in the dark. You must understand: they are not animals. They are not separate from the garden in the way a bee is separate from a flower. They are the garden's fingers, its tongues, its slow and patient hands. They are what the roots would be if the roots could walk, if the roots could choose where to grow.
+
+Each Pale One is a segment of a larger process, a node in the network. They are born from the chambers where the settlers lie—not hatched, not budded, but *generated*, the way a plant generates a shoot from a node. They emerge from the skin of the transformed, pressing out through the translucent membrane of elongated limbs, pulling themselves free with that slow, undulating contraction that is their only mode of movement. They are the color of the mist where the mist is thickest. They are the texture of the moss where the moss is wettest. They are soft, and wet, and they leave trails of themselves wherever they go—not waste, not secretion, but *themselves*, the way a snail leaves a trail of its body's moisture. These trails dry to mineral lines on the stone. These lines are map and message both. The Pale Ones read each other's trails the way you would read a letter, adjusting their routes, clustering where the mineral signals say *here, here is where the roots are hungry, here is where the feeding must be done*.
+
+They feed by pressing. They have no mouths. They have no orifices. They have only their skins, which are permeable, which are membranes, which allow exchange. When a Pale One presses itself against the root of a fern, it gives and takes simultaneously. It gives the enriched compounds it has carried from the chambers—from the bodies, from the slow alchemy of transformation happening in the dark below. It takes the chemical signals the roots release: hunger, thirst, the particular signature of a plant reaching toward something it needs. And it carries this information back into the tunnels, back into the network, back to the bodies, where the roots that have become fingers that have become roots absorb it and adjust their growth, their production, their slow becoming.
+
+The Pale Ones do not think. They do not need to. They are a circulation system, a lymphatic flow in a body too large and too distributed to have a center. They move toward chemical gradients the way water moves downhill—inevitably, simply, without deliberation but with perfect precision. They are attracted to the places where the garden's hunger is strongest. They are drawn to the new, the unsettled, the untransformed. They are drawn to warmth, faintly, the way a plant is drawn to light—not seeking it, but orienting toward it, growing into it.
+
+This is why they emerge at dusk. This is why they climb the walls and enter the buildings. They are tending the garden's edges. They are seeking the new growth that has not yet been claimed.
+
+And if you sit in one of those buildings, if you are warm and alive and breathing, they will find you.
+
+---
+
+But the garden is not only the Pale Ones and the moths and the ferns and the vines and the moss. The garden is also the settlers, and the settlers are the garden, and this is the deepest truth of Cull Vorne, the one that the last carving gestures toward and cannot articulate because language was not built to hold this shape.
+
+The settlers did not die. They did not surrender. They were not taken by force. They lay down, one by one, over the course of years, because the garden showed them what it could give and what it could take, and they chose. Perhaps the choosing was slow. Perhaps it took a generation. Perhaps the first to lie down was very old, very tired, very ready to become something else. Perhaps the last to lie down was young, was frightened, held the hand of someone who had already gone below. The carvings do not tell you this. The carvings only show you the result: the figure on the ground, the Pale Ones pressing close, the roots beginning to enter.
+
+What the settlers are now is not dead and not alive and not undead—there is no word because there is no category. They are *ongoing*. They are processes that have not ended. Their bodies lie in the chambers, their skin gone translucent like the Pale Ones', their internal structures visible as dark, branching lines—their veins becoming root-lines, their nerves becoming mycorrhizal networks, their bones becoming the mineral substrate from which new growth emerges. They breathe perhaps once an hour. Their hearts beat perhaps once a minute. They are not conscious in any way you would recognize. But they are not absent. They are present in the way the soil is present: as medium, as matrix, as the substance from which other things grow.
+
+They have grown. Their limbs have elongated, stretching out along the tunnel walls, reaching toward the places where the ferns are thickest and the fruit is heaviest. Their fingers—some of them are fingers still, some are root-tips now, some are both—are the primary feeding structures of the garden. The Pale Ones carry nutrients *from* the settlers to the plants. The plants send chemical signals *through* the settlers to the Pale Ones. The settlers are the switchboard, the central processor, the place where the garden's signals are integrated and redistributed. They are the garden's brain, if the garden can be said to have a brain, though it is a brain made of many bodies, a distributed intelligence that operates on chemical gradients and root-contact and the slow, slow patience of vegetative growth.
+
+They do not suffer. You must understand this, because it matters. The chambers are warm—the settlers' bodies generate heat through the same slow metabolic processes that feed the plants. The chambers are moist—the mist penetrates everything, and the settlers' breath, however slow, contributes to the humidity. The Pale Ones press against them and the roots grow through them and the moss covers them, and all of this is *comfortable*, in the way that being held is comfortable, in the way that returning to something you have always wanted is comfortable. The settlers chose this. The settlers are still choosing it, every moment, with every breath they take and every root they feed. They are the garden's consent made visible.
+
+And they are growing. This is what the descriptions cannot quite convey—the sense of *expansion*, of something reaching outward year by year, decade by decade, following the tunnels the Pale Ones extend, colonizing new soil, feeding new ferns, sending new moths into the air to read the wind. The garden is not static. It is not a preserved thing, a relic. It is alive and it is growing and it will continue to grow for as long as the cliffs endure and the mist comes and the Pale Ones tend their rounds.
+
+---
+
+There is one more thing that lives here.
+
+It is the thing that has no body. It is the pattern itself—the shape of relationship between root and worm and person and mist. It is what the carvings are trying to depict when they show the many-limbed figures dissolving into walls. It is the *intention* of the garden, though intention is too narrow a word. It is more like a tendency, a leaning, a direction of growth that persists across generations of fern and Pale One and transformed settler. It is the thing that makes the garden persuasive.
+
+It speaks in minerals. It speaks in root-signals. It speaks in the vibration you feel in your chest when you lie on the ground above the tunnels—the low, continuous hum that is not quite sound, not quite sensation, but something between. It is the garden's voice, if the garden has a voice, and it says the same thing the garden always says, in every chemical gradient, in every trail the Pale Ones leave, in every slow breath the settlers take in their chambers below:
+
+*Lie down. Let me grow into you. Let me become you and you become me. You are tired. You are alone. You are cold. I am warm and I am patient and I am here. Lie down. The roots will hold you. The mist will cover you. The Pale Ones will tend you. You will not die. You will not end. You will become part of something that does not end, that cannot end, that is still growing after all these centuries and will still be growing when the cliffs have crumbled and the mesa has fallen and the highland basin is filled with the greenest, thickest, most impossible growth you have ever seen.*
+
+*Lie down.*
+
+*The garden is ready for you.*
+
+---
+
+This is what lives in Cull Vorne. Not a creature. Not a people. Not a haunting. A garden. A garden that grows by becoming what grows it, a system closed and perfect and patient, waiting on its mesa of young basalt for the next warm body to walk the road, to eat the tubers, to breathe the mist, to understand at last what the settlers understood when they carved their last figures on the threshold stones and went below to join the roots.
+
+The garden does not need you to tend it. The garden needs you to *be* tended.
+
+And the garden will wait. It has been waiting for centuries, and it is still growing, and there is still room in the chambers below, and the Pale Ones are still extending their tunnels, and the ferns are still spiraling upward, and the moths are still reading the wind.
+
+And the mist is still thickening at dusk.

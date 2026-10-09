@@ -1,0 +1,21 @@
+What lives in the Rain Court is mostly not animal, and only marginally plant. It is a thin, distributed life: green-black films in unlit seams, bottle-pale algae in the slowest channels, moss fastening itself to grit trapped against a weld. These colonies inhabit flaws and pauses. They persist where the flushing weakens, where lamps do not reach, where mineral dust has gathered long enough to imitate soil. Cleaning removes their visible bodies, but a dark margin returns.
+
+The court’s greater inhabitant is water.
+
+It has no single body. It lives simultaneously as vapor under the ceiling, trembling beads on cold pipes, straight glass threads issuing from ceramic mouths, white turbulence on channel steps, black depth behind gauge windows, and ice feathering the rim of an unused drain. It gathers itself and comes apart continually. It is driven through the intended system in armored pipes and pump housings, but it also occupies a second, unofficial system: bolt threads, scratches, seams, welds, brackets, and slight errors of level. There it behaves almost delicately, despite the violence surrounding it.
+
+The pumps inhabit the chamber differently. They are fixed, immense, and fragmentary, each appearing from a given walkway as an enamel flank, a guarded shaft, a hot casing in fog. They do not move across the court, but their vibration enters everything. Railings, platforms, droplets, standing pools, and human bodies briefly become extensions of them. Their roar is less a sound in the room than the medium filling it—an artificial atmosphere through which every other presence must exist.
+
+Around them live short-lived climates. Warmth crouches beside motors. Steam nests above bearing coolers. Frost forms at neglected edges. Winds arrive when louvers alter position, rush through one gallery, and disappear. Fog blooms after a purge and suspends the amber lamps in false distances. These climates have no continuity beyond the machinery that makes them, yet they recur so reliably that the court possesses weather and seasons of its own.
+
+People do not truly live there. Workers enter as temporary, brightly marked figures governed by the painted terrain. They travel the blue paths, avoid the red covers, remember which yellow bridges will drown. Unable to speak, they communicate with hands, lamps, and waterproof boards. At the warning of three white beacons they climb, and the room partitions itself behind magnetic doors. Their presence is cautious and episodic. They belong to the court less than its water does.
+
+There are no concealed animals waiting beyond the lamps. No moth circles the fixtures; no rat tests the ducts. The apparent movement in the corner of the eye is spray, vapor, a gauge rising, or a reflection shaken by vibration. What might resemble distant inhabitants from the highest shelf—small lights multiplying in wet surfaces, dark forms among the mist—is only the chamber repeating itself.
+
+Yet the Rain Court does not feel empty. It is occupied by processes.
+
+Condensation arrives. Switches float upward in their cages. Pumps strike awake. Gates turn. Channels flood and clear. Every twenty minutes the upper manifold releases its cataract, and for a few moments water becomes the largest thing in the room. Then it vanishes downward, leaving mist, trembling rails, and innumerable smaller streams to resume their patient work.
+
+The structure was designed to contain water, sort it, pressurize it, and return it to the heights. But water is already learning the structure more intimately than its makers do. It tests every joint, remembers every depression, darkens each recurring route. It deposits minerals, nourishes films, finds cold enough to become solid and warmth enough to rise unseen. In time it will soften edges, stain walls, widen scratches, and turn accidental paths into permanent ones.
+
+That is what lives there: water in all its temporary bodies; machinery translated into vibration and climate; a few stubborn colonies holding to manufactured stone; and, everywhere, the beginning of a second architecture—the one made not by plans, but by repetition.

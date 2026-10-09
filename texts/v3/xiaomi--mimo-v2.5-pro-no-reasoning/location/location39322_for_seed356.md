@@ -1,0 +1,85 @@
+# The Refinery Floor
+
+## First Impressions: Darkness and Warmth
+
+You stand in darkness. Not the darkness of a cave or a moonless night — those are absences, gaps where light should be. This is a *presence*. The air itself has weight and texture, warm against exposed skin, humid enough that breathing feels like drinking. You cannot see your hands. You cannot see the ground. You can feel it, though: spongy, yielding, warm as flesh, slightly wet.
+
+The temperature never varies. It presses against you from every direction — from the air, from the ground beneath your feet, even, faintly, from above. There is no wind. There is no sky. There may be no *above*, not in any meaningful navigational sense. Only the certainty that if you reach up, you will touch something living, and it will be warm and damp and will not care that you touched it.
+
+You are standing on a plant. Everything you can reach is a plant. Everything you cannot reach is also a plant.
+
+## The Substrate
+
+The ground — if it can be called ground — is not soil. There is no mineral earth here, no sand, no clay, no stone. You are walking on the compressed upper surface of a living mat that extends downward into depth you cannot measure. Generations of growth have accumulated, the lower layers dying and pressing and partially dissolving while the upper surface continues to grow, millimeter by millimeter, in a process that has been running for a length of time you have no frame of reference to comprehend.
+
+Beneath your feet the texture changes as you walk. Some patches are firm and fibrous, like walking on woven rope. Others give way almost to the ankle, the mat soft and saturated with water that seeps upward from below. This water is warm — not hot, but *consistently* warm, the same temperature as the air, as the plant matter, as everything — and it carries a faint mineral richness you can taste on the air. It is not the taste of salt. It is the taste of dissolved stone, of calcium and silica and trace metals pulled from deep below by capillary action and root-pressure and the patient chemistry of organisms that have been processing bedrock for longer than most worlds have had oxygen.
+
+The water does not pool. It *persists* — held in the mat by surface tension and the extraordinary sponge-architecture of the root layers, present everywhere, a saturation rather than a flood. In places the mat is so thoroughly soaked that it behaves as a semi-liquid, and you slow, each step requiring careful negotiation. In others the upper surface has grown into raised ridges — not hills, nothing so dramatic, but gentle swells perhaps a handspan above the surrounding low points — where the growth is denser and older and the fibers have twisted into something approaching rigidity. These ridges extend in directions you cannot track in the dark. They are not random. They are the visible expression of the underlying structure, the meridians and channels of a system so vast and so old that its architecture has become the only topography.
+
+## The Growth Itself
+
+What grows here is not recognizable as any plant you have a name for, though it shares features with many. The closest terrestrial analogs would be fungal mats, bryophyte colonies, certain deep-sea tubeworm aggregations — but scaled and hybridized and pushed into configurations that Earth's biology never explored.
+
+The upper surface of the mat — the layer you touch, the layer that touches you back — is a dense felt of filaments, each one no thicker than a hair, branching and rebranching and fusing with its neighbors in a network so intricate that there are no gaps between individual organisms. You cannot tell where one plant ends and another begins. You cannot tell where the *mat* ends. It extends in every direction, warm and dark and wet, for distances that your mind can only approximate by the slow realization that the small-scale textures you feel with your hands — the textures that seem varied and local — begin to repeat, in patterns that only reveal themselves over kilometers.
+
+At intervals, vertical structures rise from the mat. These are not trees. They have no trunks, no bark, no branches in any conventional sense. They are more like columns, or like stalagmites grown from living tissue — smooth at first, then roughening as you run your hands upward, covered in the same filament-felt as the floor but thickened, consolidated, the fibers braided into something structural. They vary in diameter from thinner than your wrist to wider than you can reach around. They rise into the darkness above the mat and do not taper. They do not end. At least, you cannot find their tops. They simply continue upward into warm, wet, total darkness.
+
+These columns are not passive. You can feel, pressed against them, a faint vibration — not mechanical, not rhythmic, but *chemical*, the tremor of active transport, fluids moving through channels inside the column wall. They are conduits. They are pipes. They are the vertical infrastructure of a system that moves water and dissolved minerals and processed compounds up from the deep layers and distributes them laterally across the mat surface, and they do this without pause, without variation, without any signal you can detect that the process is anything other than eternal and automatic.
+
+## The Industry
+
+This is the part that takes the longest to understand, because you have no visual information and must build the picture entirely from touch, from sound — what little sound there is — from smell, and from the slow accumulation of pattern.
+
+The mat is a factory.
+
+Not metaphorically. Not poetically. The mat is a *processing system*, a continental-scale chemical plant, and the vertical columns are its distillation towers and its delivery infrastructure. The filaments that make up the mat are not simply growing and reproducing. They are *converting*. Every square meter of the mat surface is engaged in active chemical transformation: raw materials drawn up from below — water, minerals, dissolved gases seeping from whatever substrate lies beneath the deepest roots — are broken down, recombined, and synthesized into compounds that accumulate in the upper layers.
+
+You can feel the products of this synthesis. In some areas the mat surface is crusted with a fine granular precipitate, dry to the touch despite the pervasive humidity, the grains small and sharp-edged — crystals, you realize, mineral salts concentrated and deposited by the biological processes above. In other areas the surface is coated in a slick, faintly oily residue that smells metallic and complex, a smell like machine shops and cut copper and something else, something sweet and organic underneath. These are the waste products. The byproducts. The outputs of a system that has been running at full capacity for so long that the outputs have nowhere to go. No animal grazes here. No consumer breaks down the compounds and returns them to the cycle. They simply accumulate, layer by layer, century by century, a slowly deepening sediment of industrial residue laid down by a living refinery that processes raw geology into complex chemistry and has been doing so without interruption since the mat first established itself.
+
+The scale of this operation becomes apparent only gradually, as you walk. The textures change. The crystal-crust areas give way to oily areas give way to patches where the mat surface has been colonized by a secondary growth — smaller, denser filaments that have specialized in breaking down the accumulated outputs and recycling some fraction back into the system. These secondary growths are the closest thing to "different species" you can identify, and even they are so thoroughly integrated into the mat that separating them is an intellectual exercise rather than a physical one. The mat is one organism, or it is a million organisms that have become functionally indistinguishable, or the distinction has ceased to matter.
+
+The vertical columns participate in the chemistry. You can smell it when you press your face to one — behind the general warm-damp smell of the mat, the columns carry sharper notes, volatile compounds moving through their interior channels, being processed and reprocessed as they ascend. Some columns emit, from small pore-like openings at roughly your shoulder height, a faint stream of gas that smells acrid and complex. These are vents. Exhaust ports. The atmosphere of this place — the warm, heavy, dark, wet air you are breathing — is itself a product of the refinery, a slow exhalation of metabolic gases and volatile byproducts that has filled whatever volume the mat occupies and simply... stays. There is no wind to move it. There is no weather, not in any dynamic sense. The air is as static as everything else here. It has reached its equilibrium concentration and it sits, warm and still and dense, a permanent industrial atmosphere maintained by a permanent industrial process.
+
+## The Darkness
+
+You have been here long enough now that the darkness has stopped feeling like absence and started feeling like medium. You are inside a substance. The darkness is not empty — it is *full*, saturated with warmth and moisture and the faint metallic-sweet smell of ongoing chemical production and the barely perceptible hum of fluid transport through column walls. Your eyes are open and they are useless and you have stopped minding because your other senses have expanded to fill the space.
+
+There is no light source. No bioluminescence, no phosphorescence, no faint glow from any surface or process. The mat does not produce light. The columns do not produce light. The chemical reactions that constitute the mat's industrial function proceed without releasing photons, or if they do, at wavelengths your eyes cannot detect. You are in the dark the way you might be in water — fully immersed, the darkness a medium you move through rather than a condition you endure.
+
+If there is a sun, it is not here. If there is a surface above this place, it is far enough away that no light from it penetrates the mat canopy. You do not know how tall the columns are. You do not know what is above them. You do not know if "above" is sky or ceiling or more mat, extending upward the way it extends outward, layer upon layer, factory upon refinery upon mill, the vertical extent of the system as incomprehensible as its horizontal reach.
+
+You begin to suspect there is no "above." Not because the information is hidden from you but because the concept may not apply. The mat may be the only thing. The warm, dark, wet, industrial world may be a closed system — a volume of living chemistry contained in its own atmosphere, processing its own geology, running at its own pace, a machine that has no exterior because it has no need of one.
+
+## The Silence
+
+It is quiet. This is the first thing you noticed and it is the thing that continues to unsettle most, because nothing of this scale should be this silent.
+
+There are sounds. They are quiet sounds. The faintest hiss of gas through column-pores. A wet, almost inaudible shifting of saturated mat-fibers as the weight distribution adjusts — the mat breathing, in its way, a slow tidal movement of water through the upper layers that produces a sound like distant, muffled surf. Occasionally a crystal-crust area cracks as new precipitate forms beneath the old layer, a sharp but tiny sound, swallowed immediately by the density of the air.
+
+But there is no wind. No running water, no streams, no waterfalls — the water here does not flow, it *persists*, held in place by the mat's structure, moving only vertically through capillary channels and root-pressure gradients. No animal calls. No insect sounds. No rustling of leaves because there are no leaves — only filaments, only felt, only the dense continuous surface of the mat, which does not rustle because it does not move in any way that would produce sound.
+
+The silence is not peaceful. It is not oppressive. It is *industrial*. It is the silence of a factory that has been running so long and so steadily that all its processes have reached equilibrium, all vibration dampened by the sheer mass and continuity of the system. A factory floor with no workers, no foremen, no one to hear the sounds it does not make. The mat produces and processes and precipitates and it does so in near-perfect quiet, and you stand in the middle of its vast, warm, dark, wet production and you listen to almost nothing for as long as you can bear.
+
+## The Youth
+
+This is the strangest thing about this place, and it takes the longest to reconcile with everything else.
+
+The mat is old. The mat is *so old*. The mat has been running for a duration that your mind translates, inadequately, as geological. The accumulated precipitates, the depth of the root layers, the complexity of the chemical processing, the sheer lateral extent of the system — none of this is young. None of this is recent. This is a system that has been building itself and refining its processes for a time that dwarfs the age of most civilizations.
+
+But the *landscape* is young. The surface, the terrain, the topography — such as it is — shows almost no erosion. The crystal-crust formations have sharp edges. The column bases are clean and abrupt where they meet the mat, with no weathering, no rounding, no gradual transitions. The ridges in the mat surface are crisp and linear, not smoothed by time. Whatever geological substrate lies beneath the mat, whatever event pushed it up or deposited it or exposed it to the mat's colonization, happened *recently* — recently in the context of the mat's own lifespan, which means recently in a sense that might encompass your entire civilization's history and still qualify as a blink.
+
+The mat colonized fast. It established its refinery processes fast. It reached equilibrium fast. And then it stopped — or rather, it continued, but it continued at its equilibrium rate, processing and precipitating and maintaining itself with zero change in configuration, zero evolution of structure, zero adjustment. The dynamic parameter of this landscape is essentially zero. It does not change because it does not need to. It reached its optimal state and it runs at that state and it will continue to run at that state until the substrate beneath it is exhausted or the atmosphere above it leaks away or some external force disrupts a system that, left to itself, has found its stable point and will not move from it.
+
+This is why the sharp features persist. There is no erosion because there is no weather, because there is no wind, because there is no temperature differential, because the mat and its atmosphere are in thermal equilibrium. There is no water erosion because the water does not flow. There is no biological erosion because there are no animals and the secondary growths that might break down surface features are themselves in equilibrium with the primary mat. The landscape is young and it will stay young forever, or at least for as long as "forever" means anything in a place where time's passage is detectable only by the imperceptibly slow accumulation of precipitate on the mat surface, a dusting of crystals that in a million years might be a centimeter thick and might be the only record that time passed at all.
+
+## The Feeling of It
+
+You have been standing here for a while now. The darkness has become intimate. The warmth has become your own warmth. The wet air is your breath. The faint chemical smell — metallic, sweet, industrial — is so pervasive that you have stopped noticing it, the way you stop noticing your own skin.
+
+You begin to feel, with a certainty that is not rational but is undeniable, that you are *inside a body*. Not a body like yours — not a body with organs and blood and a brain — but a body in the most fundamental sense: a living system, self-maintaining, self-processing, oriented entirely toward its own continuation, running its own chemistry at its own pace in its own darkness. The mat is not an environment. The mat is not a place you are visiting. The mat is an organism, and you are inside it, and it is so vast and so complete and so old and so stable that the distinction between "inside" and "outside" has no meaning, because there is no outside.
+
+You are warm. You are wet. You are dark. You are standing on the factory floor of a living machine that has no name and no purpose beyond its own operation, and it is silent around you, and it does not know you are here, and it will not notice when you are gone, and it will continue to run in exactly this way for exactly as long as its substrate holds out, which may be forever, which may already be forever, which may have always been forever.
+
+You sit down on the mat. It is warm. It is soft. You could sleep here, in the dark, in the quiet, in the chemical warmth of an industrial process that makes nothing for no one and needs nothing from you.
+
+You might. There is nothing else to do.

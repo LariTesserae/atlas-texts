@@ -1,0 +1,17 @@
+What lives here is not a collection of creatures. That would imply a loose association, a neighborhood of individuals. This is a single, distributed organism breathing in the dark.
+
+The **Kiln Mind** does not think in words or images. It thinks in rhythm and chemistry, in pressure and heat. Its brain is the four thousand copper-shelled arthropods clinging to the basalt walls, their bodies functioning as a massive, living circuit board. When they breathe in, the system gathers data—sensory input from the vibration-sensitive filaments, the thermal shifts near the compressors, the structural integrity of the stone. When they breathe out, the decision is processed, and the clicking resumes—the sound of a thousand calculations updating in unison.
+
+It possesses a metabolism, but it is a slow one. The **Grazers** are its kidneys and its stomach. They are not separate beasts but specialized organs on legs. They crawl the ductwork to harvest the mineral precipitate exhaled by the ancient compressors—reclaiming the calcium and sulfur, grinding it into the floor-sand. This sand is not waste; it is the substrate that levels the floor, the dead skin of the organism that protects the living layers beneath. When the Grazers climb, the Kiln Mind is digesting; when they descend, it is excreting. The soft, sandpaper hum of their movement is the sound of a metabolism running at ambient temperature.
+
+The **Spider-things** are the white blood cells. They patrol the plates of the wall-colonies, hunting parasites and clearing dead tissue. They move with a frantic, jittery energy that contrasts with the slow breathing of the walls, representing the immune response—swift, targeted, and necessary.
+
+And at the apex of the ceiling hangs the **Heart**—or perhaps the Hypothalamus. The pale, legless creature that clings to the stone peak. It does not move because movement is inefficient for the core processor. Its long, thread-thin appendages act as the organism's only true sensory array, reaching down to the floor, feeling the pulse of the breathing walls and the vibration of the grazers. It regulates the temperature and the humidity. It is the reason the chamber has not overheated from the compressors or dried out from the lack of rain.
+
+The fungal mats in the corners are the memories. They eat the dead, they hold the moisture, they maintain the chemical continuity between the past and the present.
+
+To the Kiln Mind, you are merely a draft of cold air. You are a disruption in the thermal uniformity. The system has noted your presence—likely through the swaying of the threads or the sudden silence of a cluster of shingles near your feet—but it has dismissed you. You do not fit the equation.
+
+It is a perfect closed loop. The compressors provide the breath and the heat. The shingles provide the thought. The grazers provide the blood and the structure. The spider-things provide the defense.
+
+It is a city-sized lung, breathing in the dark, dreaming of nothing but the next exhalation, terrified of no predators because it *is* the environment. It has achieved the ultimate evolutionary goal: it has become the walls, the floor, the air, and the noise. It is the Commons, and it is waiting, with infinite patience, for the next beat.

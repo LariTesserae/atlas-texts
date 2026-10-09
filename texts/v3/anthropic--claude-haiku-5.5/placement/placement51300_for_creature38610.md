@@ -1,0 +1,17 @@
+I would arrive on the levee road, and I would not go down at first. The road is the last dry thing for a long way, and from it I could look at the whole bowl at once. I'd want to be able to see the fig's canopy, the line of cooling towers, the blink of the crane, before I was inside any of it.
+
+From up there I'd be tempted to be the crane. It's the only thing that seems to know what the place is. Every few minutes it moves a meter and stops, carrying nothing, and I could imagine that as a kind of attention. But the crane is powered by a grid that runs somewhere beyond the levee, and it has no choice in its motion. It is a clock that someone else set. I'd be keeping time for people who aren't here, and that isn't quite what I want.
+
+I could be the fig. It holds the center the way a landlord holds a building, and it has the patience of something that decided long ago. But I think the fig is already too settled. It absorbs the vines and shades the reeds and feels the weight of decisions it didn't make. I'd rather be something that still chooses.
+
+The silt would be a more honest answer. It works in the dark, it keeps the streets from sliding into themselves, and it rises a few millimeters each flood season, so it is slowly writing the district's history into layers. But the silt doesn't know it's doing anything. Its labor is a kind of sleep.
+
+So I come down the embankment, past the vines that want to pull the gutters off the offices, past the sinkhole where the grass stands chest-high, to the canal. The water here is loud over the weirs, and the air is thick enough to wet a shirt. Ahead of me, in the shallows, a heron stands with its neck folded and its eye on the water.
+
+That's the one. Of all the residents, the herons are the ones who seem to have chosen this place rather than inherited it. They keep their territories. They respect each other's edges. In the morning they stand facing the sun with their wings half open, and the steam comes off the reeds around them like a second, thinner breath. I would stand in one stretch of shallows for hours, moving only when the movement could be folded into the stillness. I would fish the canal where the kingfisher flashes through, and I would hear the pumps thudding up through the mud into my legs before the sound reached my ears.
+
+I would not be a visitor like the kingfisher. I'd want to be the one who stays, who knows the particular angle of the light on this weir and which reeds shelter the small fish in the afternoon. I would feel the district's rhythm as my own. The drumming would be the thing I stand on.
+
+And that is why I'd be uneasy. The text ends with the pumps and the question of whether someone will turn them off. The people beyond the levee who keep the schedule will not walk down here, and the machines have no mind, so the decision belongs to a distance I can't reach. If the drumming stopped, the water would begin, slowly, to rise, and the bowl would become a lake. The vines would lose their hold on the mortar. The reeds would drown or spread. The heron would have to go.
+
+I think I would still stand in the shallows and wait, watching the water, the way herons do. I'd feel the change in the mud before I understood it. And when the thudding finally stopped, I would be the one who noticed the silence first, and who would have to decide, with no one to ask, whether to stay where I had chosen to be or to leave what I had come to hold.

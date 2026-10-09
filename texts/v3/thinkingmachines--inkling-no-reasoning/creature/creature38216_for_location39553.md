@@ -1,0 +1,17 @@
+In the shallow bowl—no larger than a hamlet’s footprint, high above calmer worlds—there lives the state of being born. Not a people, exactly, though a few are scattered like punctuation through the green (density near-vanished, a near-void of 0.2): figures moving slowly between structures, their presence barely more frequent than that of the single dark bird, the thin vibration of insects, the animals at 1.0 that register as rarity. They are not masters here. They are participants in the loudness.
+
+The true residents are the unfinished things.
+
+The rock lives first—embryonic, not yet cliff or wall, breaking through its dark moss-and-fern skin with shallow hollows and fresh fractures that do not know if they will stay, collapse, or deepen into gorge across long durations (dynamic 1.1, the pace of generations). The water lives everywhere within it, at 1.5 presence: weeping from rock-faces, holding in shallow stone basins, condensing on split granite like breath kept too long. The ground is near-surface wet; each footstep releases a patient, small sound.
+
+Then the settlement—1.9, urban in intent if not grandeur—clings to these emerging bones in layered, manual craft. Simple metal and older hand-tools have shaped terraces of packed earth and slate, stairways chiseled into living rock, channels for water routed without engineered pipe. The buildings are a town compressed to the size of a grove, within sight of one another, arranged like a body still learning posture. They wear the marks of their making: chisel-grooves visible, mortar still damp-looking, roofs of woven fiber and stone plate sagging slightly under accumulated mist. The technology is primitive—early-tool-use, repetition, patience—so nothing hides its birth.
+
+But the vegetation—2.4, lush—occupies with greater authority. Ferns spill over fresh-cut terraces like green water. Moss thickens in every chisel-mark. Dark, waxy climbers thread the gaps between layers, sealing nothing, only insisting that the wet and growing belong here. There are no mature trees, only thickets, shoots, creeping root-networks gripping raw rock before soil can arrive.
+
+And it is loud—2.3—this birth. Not with voices. The cool air carries constant mist and the low thunder of droplets falling from high fractures into shallow pools. From the settlement comes the dull ring of metal on stone, the scrape of hand-tools reshaping emerging rock, the creak of woven structures settling. The sounds do not echo; they are swallowed by moss and water, carrying without return in the clear, high, bright illumination that reveals every texture.
+
+The rules of habitation here are not written but embodied: build only what unfinished stone permits; stay bounded, stay small; let the green have precedence between efforts; endure in the cool, loud silence of becoming. The space between presences is cathedral-vast despite the shallow bowl’s small scale. You hear your own breath prominently.
+
+So what lives here? A post-rain country suspended in perpetual aftermath. A marsh-edge at altitude. A settlement-scale body of metal and fiber in near-empty density, working slowly to match the pace of geology. The loud absence of rushing streams replaced by patient percussion. The near-void of crowd, where emptiness is not absence of life but absence of claim.
+
+For now, it is all three possibilities at once—valley, ruin, garden—under bright, cool, unfinished light, in the loud, lush, 0.2-quiet of a place that refuses to be finished, and is therefore, entirely, alive.

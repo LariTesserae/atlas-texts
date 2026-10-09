@@ -1,0 +1,17 @@
+The basin is about two kilometers across, and you can see most of it from the rim. It's a shallow bowl, sunk maybe forty meters below the land around it, and it was once a lake. The old shoreline is still visible as a set of pale terraces stepping down the walls, each one a band of white crust a little lower than the last. Nothing has filled the bowl in a very long time.
+
+The floor is salt. Not the glittering kind, but a grey-white crust cracked into polygons, each plate the size of a hand or a dinner table, curled at the edges like old paper. The plates lift slightly where the subsurface moisture is highest, and the centers have sunk into shallow troughs. Walking on it would make a faint, brittle sound, a dry crackle that carries a long way in the stillness.
+
+It is warm. The heat seems to be stored in the ground itself. Even in the deepest dark the crust gives off a faint thermal breath, and the air above the flats has a close, mineral dryness, like the inside of a sealed jar of sand. There is no wind to speak of. The air moves only when the ground releases heat, a slow thermal stirring that lifts the dust in faint columns and lets it settle again.
+
+The light is poor. The sky is a low, even overcast, dense enough that no moon or stars show through, and the basin lies in a permanent dusk. Shapes are visible only by their pallor. The salt glows faintly grey, the rock walls are darker, and the sparse plants are almost black. Depth is hard to judge. Distant rims look close, and nearby stones look far.
+
+Vegetation exists here, but it is thin. Clusters of low, woody shrubs grow on the higher terraces, where the crust gives way to gravelly soil. Their branches are grey and jointed, with leaves reduced to small scales that hold dull, waxy colour. They stand well apart, roughly the width of a body between each one, and their roots must reach deep, because the surface has no moisture to offer. Between them there is a fine, dark lichen mat that grows in rosettes, dry and crisp to the touch. In the flats there is nothing but a few brittle, reddish tufts, each one a ring of dead-looking fronds around a living core, growing only where a plate has cracked open.
+
+There are no animals at all. No insects in the air, no tracks in the dust, no burrows in the walls. The dust is undisturbed except by the slow rise and fall of the heat.
+
+The one human trace is nearly lost. On a low terrace near the western rim, half buried in the salt, lies a single flake of dark chert, struck from a larger stone by someone who knew how to strike it. The edge is sharp still. It is the only sign that anyone has ever been here, and it is so small and so patient that it seems almost part of the ground. Nothing has been built. There are no walls, no cairns, no paths.
+
+The place is quiet. The loudest sound is the faint crackle of the salt plates as they contract in their slow cooling, a sound too small to count as a voice. Otherwise there is only the soft breath of the warm ground and the very faint hiss of dust settling against the shrubs.
+
+Nothing here changes. The terraces will not sink further, the crust will not crack more, and the lichen will not spread. The basin has reached a balance that holds without strain, as though the light, the warmth, the dust, and the stillness settled into their places long ago and have stayed there. Stand at the lowest point of the flats, in the middle of the grey polygons, and the place seems to be waiting for nothing at all.

@@ -1,0 +1,21 @@
+Here, nothing is dead—only faster or slower living.
+
+Inside the moss-locked hill, the air is always weeping. Not rain, but breath exhaled from the stone itself: cool droplets beading on every surface, pooling in shallow basins carved into the root-floor, filling the hollow spaces with a soft, perpetual hiss. The temperature never climbs; it holds in that narrow band where every exhale ghosts briefly white, then vanishes. The storm is internal. The sky never opens. The cloud lives in the stones.
+
+The settlement is burrowed into that flank—small, dense, cathedral-scale at best, a hamlet compressed into a single cluster of grottos and chambers. Yet inside it, there is no boundary. Every wall is a trained root-mass, every archway a coaxed trunk bending in graceful, deliberate curves. Vines, braided by generations of bare hands with bone needles and woven-cord tools, form the ropes that bear weight. Roots have been drawn downward into pillars, weighted and guided, until they hold themselves there by memory of moisture and tension. Moss, lichen, and climbing ferns pack every gap. You do not see bare earth. You see substrate—green, saturated, all-consuming.
+
+This is architecture grown, not built. Rooms are hollows inside root-masses. Staircases spiral in compressed ferns, each step worn smooth by bare feet passing for years. Light filters through layered canopies in shifting green-gold patterns, falling not as beam but as atmosphere, luminous and humid, touching nothing with sharpness. At the center, a shallow pool collects the constant drip, surrounded by terraced moss where the frogs—their voices thick, rhythmic, never quite aligning—create a turbulent thunder that never stops. The water moves through hollow root-pipes with a deep thrum, draining and filling in cycles that are older than the people who guide them.
+
+And the people are few. Weathered. They work with wooden mallets, simple iron hooks hammered flat, patience. They do not reshape the world; they negotiate with it. They guide new archways, harvest moss for plaster, tie snapped vines with cord woven from the vines themselves. Their roads are compacted fern-beds; their walls are hedges trained into shape. The settlement is urban—intentional, layered, organized—yet every structure breathes, shifts, accepts and resists in equal measure.
+
+Because here, the fauna is not visiting. It is infrastructure.
+
+Beetles with dark, polished carapaces crawl over every beam in constant, glistening motion. Moths batter themselves against wet lantern-glow in thick, fuzzy clouds that never sleep, never disperse fully. Millipedes thread through the moss like living stitches, and small burrowers rustle beneath the root-floors. Frogs bellow from hidden pools. You do not walk past them. You walk through them—through the black, moving gloss of carapaces, through the hum, through the rustle. The animals are the street, the wall, the ceiling.
+
+Everything is in its settled state. The erosion is not ruin but balance—water has carved its channels smooth without breaking them; roots have settled into the shapes they were guided toward and now maintain themselves. The rock behind is ancient, rounded, weeping but whole. What looks like turbulence is only hyperactive life: vines snapping and being tied, pools draining through root-siphons and filling again, insects swarming in shifting black clouds, frogs appearing and vanishing into the water, the whole system moving in anthill-energy—organized chaos, creation and consumption in the same breath.
+
+But there are edges.
+
+The settlement ends where the trained roots thin, where the wild marsh takes over, where the weeping rock becomes unclimbable and the chorus of frogs fades into simpler, lonelier sound. Within those edges, though, it is overwhelming—loud, cool, saturated—no dead matter present, only different speeds of living. The plants hold the people. The water holds the plants. The insects hold the air. And nothing here is finished. Nothing needs to be.
+
+It is all in the process of being exactly itself—slow, relentless, green, and loud.

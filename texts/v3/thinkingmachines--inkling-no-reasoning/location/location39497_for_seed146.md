@@ -1,0 +1,17 @@
+The hollow breathes warmth without fire.
+
+Beneath a crust that has never seen sun, a vault has opened—young, fresh, enormous. Scale is continental: a sealed sub-surface continent of void and salt, where "weather" is only the imperceptible creep of pressure equalizing across distances that swallow horizons. Elevation is deep below; this is not a valley but an interior, a planet’s closed lung.
+
+The air is dry to the point of absence—no water, no vapor, only a warm, dense mineral breath that hangs in perfect equilibrium. Temperature holds at a constant, gentle warmth, like a body in sleep. Light is nearly none: 0.4 out of 3, a darkness so complete that vision is taught downward into texture, into proximity, into the near-touching crowd of surfaces.
+
+Every plane is coated, layered, saturated. Density here is not of crowding bodies but of presence—minerals packed so close they form a continuous tissue. The floor and walls are fresh-formed, eroded by nothing; sharp edges of salt and glass and dry crystal have not been worn. The world is 1.0 on the scale of erosion—geologically newborn, its shapes still remembering the violence that made them.
+
+There is no vegetation—0.2—no green, no fungal bloom that any eye can claim. Instead, the ecology is mineral and other. The fauna, abundant at 1.6, does not move in the way life above is expected to. They are numerous, small, warm-blooded in slow motion, bodies like polished stones or bristled nodules, navigating the darkness through vibration and chemical whisper. They are not insects, not quite beasts; they are the hollow’s own digestion made ambulatory, feeding on crystalline exudates and on each other in cycles too slow to notice. They are everywhere, dense as the rock itself, yet silent.
+
+The sound is 0.9, mostly quiet. Not silent—there is the low, constant hum of pressure, the faint clicking of mineral settling, the subsonic passage of bodies too dense to move quickly. But no wind, no water, no thunder. The dynamic is 0.3—never changing. Time here does not flow in directions. The temperature does not shift; the darkness does not lift; the fauna do not migrate. They exist in a state of perfect, unbroken equilibrium, an ecology without seasons.
+
+Weirdness runs high—1.9. The structures are scattered: small, primitive marks of an intelligence that was never technological. Hand-carved recesses in the salt walls, simple metal tools left in geometric patterns, a single collapsed archway of fused quartz that serves no purpose anyone can assign. The tech is 1.4—primitive, pre-industrial, the work of hands that understood the hollow’s stillness and tried to answer it with simple marks. They built little; they left traces that have not degraded because there is no erosion, no weather, no change to reclaim them.
+
+The atmosphere is dense, near-touching, layered. You sense the presence of the hollow not as emptiness but as saturation—so many bodies, so much mineral, so much warm dark, that solitude is impossible even in absence of others. The place is vast enough to contain its own physics, yet intimate enough that every surface is within arm’s reach.
+
+Here, the world has achieved stasis. A warm, dark, dry continent beneath the surface, never changing, full of strange abundant life that moves too slowly to disturb the silence, built upon by scattered primitive hands whose purpose dissolved into the salt. The hollow holds its breath, and never exhales.

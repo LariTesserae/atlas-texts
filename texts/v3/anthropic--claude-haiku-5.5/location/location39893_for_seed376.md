@@ -1,0 +1,27 @@
+**The Undergrowth of the Hollow Plateau**
+
+You stand on a plateau at roughly the height where clouds sit below you in the valleys. The air is cold and thin, and it carries a faint metallic tang, like a struck coin held near the tongue. There is no bare ground anywhere. Everything you can see is living mass, a continuous, thick, many-layered skin of growth that rolls over the high country in long swells and hollows, the way snow drifts over a field. The rock underneath is visible only in places where the growth has been torn away, and it is old: rounded, smoothed, weathered into soft shoulders and deep grooves, as though the mountain has been settling for a very long time and has finally agreed with its own shape.
+
+**The vegetation**
+
+The plants here do not stand in a landscape. They are the landscape. Low fibrous mats cover the ground in grey-green felt, dense as wool and springy underfoot. Above them rise stalks like thick, fluted columns, some as tall as a three-story house, their trunks perforated with pores that breathe a fine mist. Between the columns hang ropes of pale vine, and between those, fungal shelves and lichen plates stack into terraces and buttresses, so that the whole mass has the look of architecture: arches grown across gaps, galleries woven between trunks, cisterns of bulbous tissue holding water like cupped hands. Nothing is empty. Every cubic metre of air is occupied by some branch, tendril, or drifting seed-cloud. Walking through it means parting curtains of growth and ducking under lintels of living bark.
+
+**Machinery grown from life**
+
+The cold, the altitude, and the restless activity of the place have produced something that resembles industry, though nothing here was built. Across the plateau are pumping systems: great root-bulbs the size of boilers that swell and contract on a slow rhythm, forcing sap up through pipes of woven xylem that run for kilometres along the ground. Where a bulb contracts, you can see the surrounding tissue shiver as pressure gets redistributed. There are seed-presses, dense spiral pods that wind tighter and tighter until they release a cloud of spores with a force that makes the surrounding fronds snap back like springs. Gears of interlocking leaf-sets turn slowly on axles of stiff stem, driving fibre-bundles that wind and unwind, hauling water, lifting shelves of moss toward the light. It is a whole economy of mechanism, running on sugar and water and pressure, and it hums with a purpose nobody has to supervise.
+
+**Weather and turbulence**
+
+The place is never still. Growth here is a storm. Some slopes are flourishing with new shoots that push up through the mat in hours, unfurling and hardening within a day. Others are collapsing: whole stands of stalk slump under their own weight as their internal pumps fail, sliding downhill in green avalanches that fold into hollows and rebuild themselves from the wreckage. Seed-clouds pass overhead in waves, thick enough to dim the light, and where they settle they germinate in ragged patches, so that a clearing you crossed yesterday is now a thicket of spiked saplings. Rain falls in intermittent bursts, short and cold, and every burst reshapes the mats: water pools in cisterns, floods the lower galleries, and triggers a flush of new growth that rushes through the system like a fever. Between rains, condensation beads on every surface and runs in thin threads down the stalks, and the whole mass drips softly.
+
+**Sound and silence**
+
+There is almost no sound. The thick mats absorb footfalls, the columns swallow voices within a few paces, and the rain makes no splash on the felt, only a muffled patter, like fingers on a closed book. The mechanisms are mostly silent too. Their rhythms are felt through the soles of your boots as a faint tremor, or noticed as a shift in air pressure when a bulb swells. Occasionally a seed-press releases with a dry crack, or a collapsing stand groans deep in its trunk, but those sounds are brief and seem to be swallowed almost before they arrive. The quiet is so complete that you start to hear your own heartbeat.
+
+**Light and life**
+
+The light is ordinary daylight, though it reaches the ground only in fragments, filtered through canopy and drifting spore-haze. Patches of sun fall in hard coins on the mats and move slowly as the sun passes. Animal life is scarce. You might see a small grey insect that rides the seed-clouds, or a burrowing creature that makes a single pale tunnel and vanishes. Larger fauna is absent. The plants have claimed every role, and what other living things exist here seem to be guests, brief and passing.
+
+**What it is like to stay**
+
+Staying here for long is disorienting. The landscape never repeats. The trail you marked yesterday has been buried or reassembled. The gate-like arch you passed through has grown shut, and a new one has opened a few metres to the left. The sense of being inside something alive and deliberate, something that is always rebuilding itself, becomes a kind of companionship and a kind of unease at once. The place does not seem hostile, only enormously busy, and you are just one more small disturbance it will absorb, digest, and grow over before the next rain.

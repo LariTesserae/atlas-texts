@@ -1,0 +1,13 @@
+I would come down the north bank in the last grey hour before the furnace glow comes up. The mud there is still dark from the slump of the night before, and I would slide a little on the way down, the way everyone does. Inside the ring the moss takes my weight and gives it back. I would start walking toward the far bank, as the ones who walked in do, and I would not be surprised when it stays in front of me.
+
+Somewhere past the water tower, where the tram rails curve in ways nobody planned, I would stop beside a sign.
+
+Its letters are moss now. I would not be able to read them, but I would feel the shape of the words under my hand, a rhythm of stress and rest that the tenders say as they pass. I would stand there long enough for the drip to fall from the lip of the sign onto my wrist, and I would notice that the drip keeps the same timing as the words. The sign has no meaning left. It has only the cadence of a meaning that wore away, and the moss has grown into the gaps so exactly that it seems to remember them.
+
+That is what I would be: the rhythm that survives after the sense has gone. I would hold the shape of something that was once said with purpose, and the Quarter would go on saying it, passing under it with their notebooks and their bark-scaled wrists, without knowing what it meant and without needing to. I would be a little tune in the drip. I would be the part of a sentence that a place keeps long after it has decided what it is saying.
+
+I would not be able to leave the sign. I could walk away from it, but the rhythm would follow, faintly, in the sound of my steps on the wet paving. Then I would be a tender's habit, a way of pacing a path. The Quarter takes things this way. It turns them into patterns and then into routes, and water finds the routes, and then the slump comes down and the routes change.
+
+Some nights, I think, I would be the sign's neighbour, the sap-membrane window that glows green-gold after the sun has been gone long enough. I would look out at the basin through my thin skin and see the rain go up past the balcony rail in the wrong direction, and I would not be frightened. I would only think that the basin had decided something about its edges, and that I had not yet been asked what I thought of the decision.
+
+Most of the time, though, I would be standing by the sign, stopped, not looking at the far bank at all. I would be listening to the moss say its rhythm back to the drip, and feeling the ground under my feet begin, very slowly, to choose which way it will fall.

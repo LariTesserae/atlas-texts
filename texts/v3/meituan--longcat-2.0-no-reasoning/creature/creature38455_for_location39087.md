@@ -1,0 +1,99 @@
+# What Lives in Sorvenn
+
+---
+
+## The Slime-Mold
+
+It is not one organism. It is a consortium — a living skin that coats the lowest ledges in sheets of orange and pale green, thick as a finger, soft as liver. It feeds on the perpetual weeping of the rock, on the mineral-laden condensation that beads on basalt in the mornings. It has no name in the local language that distinguishes it from the rock itself; the word for "ledge-surface" and the word for "slime" are the same word, and this is not imprecision. They are the same thing. The mold is what the ledge *does* when it is wet.
+
+It grows in patterns that follow the water's path — branching, dendritic, like the drainage maps of rivers seen from very high up. Tannvik's harvesters read these patterns the way farmers read soil. A thick sheet, dense and orange, means the ledge above is channeling well; the mold is fat with minerals. A thin, greenish film means the water is spreading too wide, too shallow, and the harvest will be poor. They scrape it with bone tools, collect it in hide buckets, and process it in ways that are partly culinary, partly industrial, partly something else — a kind of tending. The mold is food when dried and salted. It is medicine when fresh and applied to wounds, where it seems to knit flesh in a way that is faster than it should be. It is glue when boiled down to a dark amber syrup, and this glue is what holds Sorvenn together — binds rope to stone, seals gutters, waterproofs the stilt-legs of Tannvik's buildings.
+
+The mold does not die when harvested. It regrows within days, always in the same pattern, following the same dendritic channels. The harvesters say it remembers. This is not metaphor. Cut a sheet of mold away and the new growth that replaces it will follow the exact branching pattern of the old, even when the water's path has shifted slightly. The mold is reading something deeper than the surface flow — some mineral signature in the stone, some ghost of the water's preferred route, encoded in the rock itself.
+
+At night, if you press your ear to a thick patch of the orange variety, you can hear it. A faint clicking. Very faint. Like the sound of a fingernail tapping on a table, but slower, and from many sources at once. The people of Tannvik do not discuss this with visitors.
+
+---
+
+## The Goats
+
+They are small, narrow-bodied, with hooves that splay wide on contact — each foot a little cup that molds to the irregularities of the rock. Their eyes are the pale amber of old resin, and they have a stillness about them that reads as stupidity but is not. They are watching. They are always watching. Not the way prey animals watch — not the twitching, flight-ready vigilance of deer. The goats of Sorvenn watch the way stones watch: with patience, with a kind of mineral attention that has no apparent object.
+
+There are perhaps two hundred of them, and they belong to Corrith in the way that a river belongs to a valley — they are *of* it, not *in* it. They move across the cliff face in loose herds of ten to thirty, following the lichen bands with a precision that suggests they can taste the rock from a distance. Their bells are bronze, brought up from the lowlands generations ago, and each has a slightly different tone. The combined sound — scattered chiming across the face, with long silences between — is the sound of Sorvenn's afternoons. It is how you know the time. It is how you know the weather is holding.
+
+The goats eat lichen. Only lichen. They will not eat grass, even when it is offered. They will not eat the juniper-analog's leaves. They eat the pale crustose lichen that grows on the upper face, and they eat it in a pattern: always from the top of a lichen patch downward, always leaving a thin margin at the edge, so the lichen regrows from its perimeter rather than from scratch. This is not learned behavior. Kids separated from their herds and raised in Hael still graze this way when returned to the face. The knowledge is in the body.
+
+A goat will occasionally stand very still on a ledge and look down — not at the valley, not at the other goats, but at the rock directly beneath its hooves. It will stand this way for an hour or more. If you approach, it will not move. If you touch it, it will startle and flee, and afterward it will not return to that ledge. The people of Corrith say the goats are listening to the cliff. They say the goats can hear the water moving inside the stone, deep down, in fractures too small for human hands to find. They say this is how the goats know where the lichen will grow next — they hear the water, and they know the lichen will follow.
+
+The goats breed in their own time, not on any schedule the herders can predict. A doe will simply stop eating one day, stand on her chosen ledge for three days without moving, and then kid. Always one kid. Always alive. Always perfect. The herders do not assist. There is no word for a difficult birth in the local language. There has never been a need for one.
+
+---
+
+## The Juniper-Analog
+
+It has no other name. It is not a juniper — the resemblance is superficial, a convergence of form driven by the same forces that shape all cliff-face life: gravity, wind, scarcity. Its wood is dense and dark, red-brown at the heart, and it smells, when cut, like turpentine and honey — a combination that is startling, almost aggressive, and that lingers in the wood for decades. The branches grow horizontally outward from the cliff, defying gravity with a slow, woody stubbornness, and they do not droop. They hold their position. A branch that grew outward two hundred years ago is still outward, still level, still gripping the rock with roots that have widened into flat, finger-like holds pressed into the stone.
+
+The trees are not large. The largest is perhaps fifteen feet across and four feet thick at the base, and it is very old — older than Sorvenn, possibly older than the memory of the people who live beneath it. It grows from a crack in Hael's main shelf, and its roots are visible: a network of dark, flattened tendrils that spread across the rock surface like a hand pressed flat, each root-tip wedged into a separate fracture. The tree does not take water from the crack it grows from. The crack is dry. The tree takes water from the air, from the condensation that beads on its bark and runs down its branches to the root-zone, where it is absorbed directly through the root-surface. The tree drinks from the sky and feeds from the rock, and it has been doing this for longer than anyone can say.
+
+Every branch is accounted for. This is not a metaphor or a custom — it is a practical necessity. Wood is the scarcest material in Sorvenn. There is no forest at the top of the cliff, no timber in the valley below that can be easily brought up. The juniper-analogs are the only source, and there are perhaps forty of them across the entire face, and they grow slowly — a branch thick as a wrist might be thirty years old. When a branch breaks in a storm (storms are rare but violent when they come), the piece is gathered, carried, and distributed according to need. A broken branch might provide enough wood for a new bridge railing, or a set of gutters, or the frame of a door. The decision of who receives it is made publicly, in Hael's market, and the conversation can last hours, because the wood is valuable and the needs are many and the tree cannot be hurried.
+
+Cutting a living branch requires a longer conversation. It has happened perhaps five times in living memory. Each time, the tree was asked. This is literal. The people of the nearest borough stand before the tree and speak to it, explaining the need, and then they wait. If a branch groans in the wind — a specific sound, a deep creaking that is distinct from the ordinary movement of wood — the branch may be taken. If the tree is silent, the request is denied, and no one argues. The tree's judgment is final.
+
+The wood, once cut, does not rot. It does not warp. It does not crack. It simply holds, year after year, in the shape it was given. The oldest wooden artifacts in Sorvenn — a set of bridge anchors in Tannvik, a doorframe in Hael — are made from juniper-analog wood and are older than the oldest living person, and they show no sign of age. The wood is as hard as the day it was cut. The smell of turpentine and honey is still strong when you press your nose to it.
+
+---
+
+## The Bridges
+
+They are not alive. But they remember.
+
+Each bridge in Sorvenn has been replaced many times — the hemp rots, the cedar slats crack, the anchor ropes wear through at the points where they pass through the stone. But each replacement is made in the same place, with the same design, using the same anchor holes. The holes have become smooth cups, worn by centuries of rope friction, and the shape of each cup is specific to the bridge it serves — a shallow, wide depression for the long span between Hael and Corrith, a deep, narrow groove for the short, steep ladder-bridge between Tannvik and the middle shelf.
+
+When a bridge is rebuilt, the new ropes are threaded through the old holes, and something happens that the ropemakers do not discuss but all observe: the new ropes settle into the cups with a precision that suggests the stone is guiding them. A new rope, stiff and resistant, will within a day or two relax into the exact curve and tension of its predecessor, as if the hole is teaching it the shape it needs to hold. Ropes that are deliberately placed in the wrong holes — this has been tried, during arguments about bridge placement — refuse to settle. They remain stiff, they creak, they wear unevenly, and they fail within weeks. Ropes placed in the correct holes last years.
+
+The bridges sway in the wind, and the sway has a rhythm that is specific to each span. The long bridge between Hael and Corrith sways slowly, a broad, gentle pendulum motion that takes eight seconds per cycle. The short bridges sway faster. The ladder-bridges don't sway at all — they are too tightly anchored, too steep. The people of Sorvenn know these rhythms in their bodies. They can cross a bridge in the dark, in the wind, in the rain, because the sway tells them where they are. A wrong rhythm — a bridge that is swaying too fast, or not at all, or in a direction that doesn't match the wind — is a warning. Something has changed. Something is wrong. The people stop, and they listen, and they do not cross until the rhythm returns to what it should be.
+
+The bridges sing. In certain winds — a steady breeze from the southeast, the direction the cliff faces — the ropes vibrate at a frequency that produces a low, resonant hum, almost below hearing, felt more in the chest than the ears. The pitch varies with the bridge's length and tension, and the combined sound of all the bridges humming at once is something that happens perhaps once a month, on a still morning when the wind is exactly right. The people stop what they are doing and stand very still. The goats stop grazing. The slime-mold, if you are listening, goes quiet. And for a few minutes, Sorvenn hums — a deep, stone-and-rope chord that resonates in the basalt face itself, as if the cliff is a bell and the bridges are its clapper.
+
+No one knows what this means. No one asks.
+
+---
+
+## The Stone
+
+The basalt is young. Ten thousand years is nothing to stone — it is a newborn, still carrying the texture of its formation, the ribbed, glassy surface of lava that cooled too fast to crystallize properly. It is hard. It is nearly impervious to erosion. Water runs over it and does not touch it. Wind blows across it and does not mark it. The people of Sorvenn carve into it — anchor holes, gutters, staircases — and the carvings are crisp and clean and they do not weather. A staircase carved three hundred years ago looks like it was carved yesterday. The edges are still sharp. The tool marks are still visible.
+
+This is the strange thing. This is the thing that a geologist would notice and that the residents do not, because they have no framework for it. Stone is supposed to change. Stone is supposed to crack, to crumble, to soften, to accumulate the slow record of its exposure to the elements. The basalt of Sorvenn does none of this. It holds. It holds its shape, its texture, its sharpness, with a tenacity that is not quite natural. The fracture lines that run through it — visible as darker veins in the glassy surface, legible as text — have not moved. Not a millimeter. Not in living memory, not in the memory of the oldest stories, not in the time since the town was built.
+
+The people read the fracture lines. This is how they find water — not surface water, but the deep water that moves through the rock in channels too small to see. A fracture line that darkens when the air is humid is carrying water. A fracture line that stays dry is dead. The people tap the stone with bone hammers and listen to the sound — a hollow ring means water below, a solid thud means dry stone. They have mapped the water system of the cliff face with a precision that would astonish a hydrologist, and they have done it entirely by sound and by the behavior of the slime-mold, which follows the water's surface expression with absolute fidelity.
+
+But the water does not erode the fractures. The water moves through them, year after year, decade after decade, and the fractures do not widen. The water is not abrasive — it is pure, mineral-laden but sediment-free, and it moves slowly, and it leaves no trace of its passage. The gutters carved into the stone to channel the surface runoff are as crisp as the day they were made. The collection basins have not deepened. The anchor holes have been worn smooth by rope, yes — but not by water. Never by water.
+
+The stone is holding itself together. This is the only way to say it. The basalt of Sorvenn is not eroding because it is *choosing* not to eroze. It is maintaining its shape with an intention that is not conscious but is not random either. It is doing what the bridges do when they settle into their anchor holes, what the slime-mold does when it regrows in its old pattern, what the goats do when they graze the lichen from the top down. It is holding the shape it was given. It is remembering what it is supposed to be.
+
+---
+
+## The Smoke
+
+It rises from Hael's chimneys in the evening — thin threads of grey-white that climb the cliff face in the still air. There is never wind at dusk. This is not a generalization; it is a fact. The wind, which blows steadily through the gorge during the day, dies at sundown with a reliability that is as precise as a mechanism. The air becomes still. The smoke rises straight up, because there is nothing to push it sideways, and it rises and rises until it reaches the level of Corrith's goats, where it spreads — not dissipates, *spreads* — into a thin, even layer that hovers across the upper face like a second sky.
+
+The smoke does not smell of anything in particular. Wood smoke, yes, and rendered fat, and the mineral tang of the slime-mold when it is cooked. But underneath these smells is something else — a smell that is not a smell, a quality of the air that is more like a pressure, a weight, a presence. The people of Corrith, who live at the level where the smoke spreads, do not notice it. The goats do not notice it. But a visitor, standing on a bridge at the right elevation at the right time, would feel it: a thickness in the air, a sense of being *inside* something, as if the smoke is not rising and spreading but *growing*, filling a space that was waiting to be filled.
+
+The smoke becomes invisible at the level of the goats. It does not rise further. It does not dissipate. It simply stops being visible, as if it has reached the boundary of what can be seen and has decided to stay there, just beyond perception, a thin layer of something that was once fire and wood and fat and is now neither smoke nor air but a third thing, a residue, a memory of combustion that has settled on the upper face of Sorvenn and will not leave.
+
+In the morning, when the wind returns, the layer is gone. The air is clean. The goats graze. The smoke rises again in the evening, and again it spreads at the same level, and again it becomes invisible, and again it is gone by morning. The cycle is perfect. The cycle has no variation. The smoke always rises to the same height, spreads to the same thickness, and vanishes at the same time. The people do not notice. The people do not notice because there is nothing to notice. This is what smoke does. This is what evening does. This is what Sorvenn does.
+
+It holds.
+
+---
+
+## The Singers
+
+They are not a group. They are not an institution. They are simply the people of Sorvenn, who sing the way other people talk — constantly, casually, across distances that would require shouting in any other place. The air of the gorge carries sound with unusual efficiency; the basalt face reflects and focuses voices in ways that make a whisper audible across a hundred yards of open air. The people know this in their bodies. They modulate their voices not for volume but for *direction* — a slight turn of the head, a shift in pitch, and the sound goes where they want it to go, across a bridge, around a corner, up a ledge system to a specific window where a specific person is standing.
+
+The songs are not songs in the way lowlanders understand songs. They have no fixed melody, no fixed words. They are tonal communications — rising and falling patterns that convey meaning through contour rather than content. A rising tone means *I am here*. A falling tone means *I am coming*. A sustained note with a slight vibratto means *wait*. A rapid oscillation between two close notes means *danger*, and this is the sound that stops everything — the goats freeze, the children stop playing, the harvesters in Tannvik look up from their mold. The danger call has been used three times in living memory. Each time, it was correct.
+
+But the evening singing is different. The evening singing is not communication. It is something else — a collective act that has no purpose and no audience and no end. As the sun moves past the face and the shadow falls and the air cools and the smoke begins to rise, the people of Sorvenn begin to sing. Not the same song. Not in unison. Each person sings their own pattern, their own contour, and the patterns overlap and interweave and produce a sound that is not harmony — harmony implies intention, implies a shared goal — but something more like the sound of water moving through rock: many small channels, each following its own path, combining into a single deep resonance that is felt rather than heard.
+
+The sound carries down the cliff face. It passes through Tannvik's damp air, where the slime-mold goes quiet. It passes through the juniper-analogs, whose leaves — if you are listening — vibrate faintly in sympathy. It passes through the bridges, which sway slightly, adjusting their rhythm to match the sound's frequency. It reaches the base of the cliff and enters the damp apron of ground where the water pools and the reeds grow, and there it dissipates — not fades, *dissipates* — into the mineral air, as if the gorge is absorbing it, taking the sound into itself, adding it to whatever the gorge is made of that is not stone and not water and not air.
+
+The singing lasts until the smoke becomes invisible. Then it stops. Not gradually — all at once, as if a switch has been thrown, and the silence that follows is as complete as the sound was full. The goats settle. The bridges still. The slime-mold resumes its faint clicking. And Sorvenn holds, and holds, and holds.

@@ -1,0 +1,13 @@
+I am a thought the stone once had, a long, slow thought that took a thousand years to form.
+
+I am a **Stone-Sleeper**.
+
+I was not born; I accreted. I am not hatched; I awoke. My shell is a map of this place, a living crust of lichen and mineral film, colored in the muted tones of the wall itself—slate-grey, calcium-white, the faintest blush of iron-oxide. The world outside my shell is not a place of sight, but of pressure and vibration. I feel the slow, searing heat of the noon-spear on my back, and I do not move toward it. I feel the cool, damp breath of the fern-shadow, and I do not move away. I exist in the gradient, the liminal space where life is possible. My legs are jointed stone, my antennae are slow whips that taste the chemistry of the air, reading the history of the last hour in the settling dust and the faintest shift in humidity.
+
+My purpose is to be still. To eat the walls is to become the walls. I graze on the slow-growing films, the edible geology, and in doing so, I add another layer to my own carapace. I am a walking piece of the cathedral, a mobile stone. Time, for me, is measured not in heartbeats, but in the thickening of my own armor and the imperceptible journey from one patch of lichen to the next, a voyage that may take a season. I am a monk in a cell of my own making, my vows taken in silence against the roaring, frantic pace of the world above the opening.
+
+My world is a library of texture. I have memorized the smooth, slick curtains where the Grazers of the Veins make their blind pilgrimages. I know the particular grain of the rock where the Silent Ones wait, becoming indistinguishable from a shadow or a knob of stone until it is too late. I feel the frantic, impossible speed of the Glass-winged Skimmers as a sudden pressure wave on the surface of the pool, a shock of motion that I cannot comprehend.
+
+I am not in a hurry. My ambition is to reach the next patch of fungal growth. My fear is a vibration too close, a disruption that is too fast, too large. Your presence, giant, is a thunderclap in my silent noon. You are a creature of a different kind of time, a frantic, sun-bright violence. You make the air move. You make the ground tremble. You are a story told at a scream, in a place that speaks in whispers and drips.
+
+I do not move. I am still. I am stone. I am waiting for you to pass, for the great, slow rhythm of the chamber to resume its measured beat, for the patient drip to be heard again, for the light to hold the floor in its permanent, brilliant noon. I will be here when you are gone. I will be here when the ferns have grown another millimeter. I will be here, becoming a little more of the wall, a little more of the story, until I am indistinguishable from the silence itself.

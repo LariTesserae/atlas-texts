@@ -1,0 +1,17 @@
+The stone here is ancient. It has been ancient for longer than memory holds, resting at an elevation where the air is thin, sharp, and bites the back of the throat with a metallic tang. You stand in a hollow—a high alpine basin carved into the shoulder of a massive peak by a glacier that vanished millennia ago. This is a place of vertical walls and a flat floor, a stone bowl cupped in the palm of the world.
+
+**The Terrain and Erosion**
+The floor of this basin is not dirt, but a mosaic of shattered slate and granite, tumbled smooth and dark by centuries of wet weather. The rock faces are "weeping." At this altitude, the 1.5/3 wetness manifests as a persistent, heavy mist that clings to the vertical walls, condensing on the cold stone. It gathers in rivulets that run down the cliff faces like dark veins, pooling in the depressions between the boulders. The landscape is settled; the jagged edges of the mountain’s youth have been worn into rounded, in-balance contours. There is no loose scree waiting to avalanche, only stable, mossy stones.
+
+**Flora and Fauna**
+Vegetation is lush for this height, but small in scale. There are no trees. Instead, the basin is carpeted in a dense, springy layer of cloud-forest flora: ferns with fronds the color of oxidized copper, thick cushions of sphagnum moss that squelch underfoot, and low-hanging shrubs heavy with dark, waxy leaves.
+
+This lushness supports a surprisingly abundant fauna. The "loud" soundscape (2.5/3) comes not from the wind, but from the inhabitants. Thousands of amphibians—palm-sized, mottled grey and green—cling to every damp surface. Their chorus is a rhythmic, throbbing pulse that bounces off the stone walls. Alongside them, large beetles with iridescent carapaces trundle through the moss, and a species of mountain thrush, with feathers that repel water, flits from rock to rock, its call a sharp, piercing whistle that cuts through the frogs' drone.
+
+**The Artifacts and Society**
+Human presence is scattered and faint (0.8/3). The "built" environment consists of stone cairns and low, circular walls—windbreaks built by shepherds or travelers of a primitive era (1.0/3 tech). They used the local slate, stacking it without mortar, relying on gravity and friction. Some walls have collapsed, becoming indistinguishable from the natural rock piles, but a few still stand, encircling dead firepits where the ashes were washed away long ago, leaving only blackened stones. A single, larger structure—a shrine or a watchtower—stands on a high shelf of the cliff, accessible only by a treacherous, wet goat-path.
+
+**Atmosphere and Dynamic**
+The basin is active. The "normal" light (2.0/3) is filtered through the mist, creating a diffuse, shadowless illumination that makes the greens of the moss and the greys of the stone appear hyper-saturated. The air is cool (1.2/3), carrying the scent of wet slate and decaying vegetation.
+
+The dynamism (2.5/3) is a frantic biological loop. The rain comes and goes, triggering the frogs to sing and the moss to drink. Insects hatch from the standing water in the crevices, drawing the birds. The birds dive into the moss, hunting. A small, weasel-like predator, sleek and dark, stalks the edges of the vision, waiting for a moment of distraction. It is a small, noisy, wet world, pressed into a high, quiet place, humming with the energy of survival.

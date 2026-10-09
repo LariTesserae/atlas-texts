@@ -1,0 +1,19 @@
+The world is a ceiling, not a floor.
+
+You hang suspended—perhaps in a bell, perhaps in the belly of a station—beneath a flat, young, high ceiling of black glass only ten centuries old, sharp-edged and uneroded by time. It is continent-scale, an inverted archipelago of obsidian and basalt that caps the sphere at 1.6 elevation: not mountains rising up, but land hanging down, newly formed, its ridges still knife-cut. Below this rock dome there is nothing but water—2.7 of total presence—an endless atmospheric ocean extending downward into a hollow so vast the scale reads 2.9, large enough that its own weather should form, yet it never does. The temperature holds at 0.2: not frigid, but cold enough that sound refuses to dissipate, that molecules move in slow, obedient arcs, that every drop is a crystal in waiting. Density reads 0.1—empty, cavernous, a near-void with only occasional presences scattered like salt across a table.
+
+No plants live here. Vegetation is 0.2—no chlorophyll, no roots, no fungus clinging to seams. The world is mineral, pre- or post-biological, a place of volcanic glass and iron shavings where life has never learned to hold on.
+
+Yet fauna is 1.5—abundant. They do not swim in the water; they navigate the emptiness. Great colonies of translucent, low-metabolic creatures drift in the liquid absence, gelatinous bodies the size of airships, bioluminescent veins pulsing with cold, patient light. They are not fish. They are inhabitants of a hollow, evolved for pressure that does not press, for darkness that never comes, for sound that is constant. They move slowly, always slowly, through the 0.1 density, feeding on industrial residue and on each other in cycles that never accelerate.
+
+The sound is 2.9—deafening. Not a storm, not a crash, but a continuous, invariant roar that fills the hollow sphere like air in a lung. Machines—scattered, 0.6 in presence, industrial at 2.0—are anchored to the underside of the ceiling or float on sparse platforms in the water: factories without walls, engines that do not drive, electrified pumps that maintain the equilibrium. They do not build; they maintain. They hum at the same frequency, a drone so total it becomes the silence beneath all other sounds. You hear your own breath only because it is wrong, an intrusion.
+
+The water is not falling. There is no rain, no current, no gradient. Dynamic is 0.4—frozen in equilibrium. The liquid hangs in vast, stable curtains suspended from the ceiling’s fractures, or pools in hemispheres of absolute stillness. Erosion is 1.0: fresh, sharp, unfinished. The rock has not worn smooth. The machines have not rusted away. The fauna have not changed form. Everything is in its first state, held there.
+
+Light is normal—2.0—diffuse, sourceless, perhaps entering through fractures in the ceiling-rock where young stars burn above, casting a flat, white-blue illumination through miles of suspended water. It does not flicker. The illumination is part of the stasis.
+
+Weirdness is 0.9—unusual, but not impossible. The rules are wrong only in their consistency: a world of near-void and total sound, of abundant life that does not grow, of industrial presence that does not expand, of cold water that never freezes and never moves, under a sky made of hanging stone. Nothing conflicts. The contradiction is the rule.
+
+Built structures are scattered—single buildings like black teeth on the ceiling’s belly, partial remains of some earlier intent, occasional artifacts of steel and glass floating in the emptiness like seeds that will never sprout. They are not ruins; they are fixtures, as stable as the roar.
+
+This is the landscape of constant, deafening, empty equilibrium: a vast, high, young, submerged hollow where the ceiling is earth and the floor is absence, where the fauna drift in eternal abundance and the machines chant in eternal maintenance, and nothing—nothing—will ever erode away.

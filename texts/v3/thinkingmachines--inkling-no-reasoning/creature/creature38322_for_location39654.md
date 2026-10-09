@@ -1,0 +1,17 @@
+Here, the crust is not ground but lid—forty meters of freshly split stone, warm and porous, holding back the dead, dry sky. Beneath it hangs the Hollow, an inverted continent of ceiling, its every face turned downward like the inside of an unhatched egg.
+
+The rock is young, barely formed. Erosion is a word that belongs to other worlds; these fracture lines are hours old, maybe years, raw geology still exhaling the heat of its creation. The floor swells in slow, gentle ridges—no mountains, no valleys, no place for water to gather even in idea. The air is dense and breathless, carrying no moisture, only the chemical traces of life that refuse to pool or flow. Water exists only inside bodies, locked in tissue, never running.
+
+But absence of emptiness is not absence of life. The Hollow is saturated.
+
+Every surface is inhabited. The ceiling blooms downward with vertical forests of waxy crimson—organisms that feed on mineral seep, hanging roots reaching into the fresh calcified wounds above. They form interlocking canopies, crimson and thick, leaving no gap, no glimpse of bare stone. Between them, the architecture of occupation: tubes of calcified chitin, fibrous mats woven into streets and vaulted neighborhoods, spongy towers rising like soft cathedrals. There are no tools here, no metal, no fire—only bodies building bodies, a settlement that is also its own builder, growing upward into the ceiling and downward into the floor in one continuous, living weave.
+
+The density is overwhelming. There are no open spaces, no streets in the human sense—only passage, narrow and warm, filled with constant, silent motion. Translucent, soft-bodied creatures drift through the chitinous corridors in endless current, grazing on fiber mats, laying eggs in porous walls, being slowly enveloped by chemical hunters that require no sound to kill. The air—if air can be called that—vibrates with presence: the rustle of millions of bodies brushing past, the near-silent crack of expanding shells, the deep, metabolic sigh of spongy tissue contracting in the perpetual warmth. Silence reigns, but it is heavy, populated, alive.
+
+Heat holds steady, a gentle, womb-like equilibrium maintained not by sun but by the collective respiration of countless lives. There are no seasons, no days, no light except the faint, steady phosphorescence bleeding from the organisms themselves—pale and greenish, enough to reveal but never to illuminate.
+
+The scale is continental—thousands of kilometers in every direction, an airless, waterless ocean of biological matter, so flat and uniform that there is no horizon, only more of the same crimson canopy, more woven tunnels, more quiet feeding. The space breathes in continent-sized rhythms: slow gusts of dry air that take days to cross, carrying spores and chemical messages across the endless architecture.
+
+This is not an old place. There are no ruins because there has not been time for ruin. The Hollow is immediate—born with the crust that contains it, responding to pressure and warmth with an urgency that reads as patience. Life did not invade; it emerged, simultaneous with the rock, filling every cubic meter as quickly as the geology could provide it.
+
+Above, the crust is sealed, unbroken. Beyond, only dry void. Within, the settlement is complete—not finished, but fully present, a self-built city of flesh and fiber spreading in silent saturation across the underside of a world still forming, still deciding what it will become.

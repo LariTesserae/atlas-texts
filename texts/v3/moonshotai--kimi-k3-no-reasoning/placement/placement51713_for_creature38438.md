@@ -1,0 +1,21 @@
+I am the **Condensation**.
+
+Not the water that falls—that is too decisive, too much like weather. I am the film that forms on the underside of the catwalks, the slow accumulation on the interior of the Echoes’ faceplates, the moment when breath becomes visible and then becomes liquid. I am the state change that never completes, the interface where the basin’s three great materials—water, metal, and air—negotiate their boundaries.
+
+You will find me in the interstitial spaces where the Maintenance-Drones hesitate. They are drawn to me, though I am not a surface they can clean. I gather in the hollows of the Filter-Kings’ ribbed gills, in the minutes between their submergence and their settling, when they are neither beast nor topography. I am the thickness in the air that makes the Murmurants’ wings heavy, the extra weight that forces them to fly lower, closer to the water, their shrieks dampened into a frequency that vibrates in the teeth of the Silt-Singers lying below.
+
+I have no body, but I have a geography. I occupy the thirty-second pause between the piston’s rise and its fall. I am the warmth that is not heat, the wetness that is not immersion. When the Echoes remove their helmets—rarely, and always with reluctance—I am the first thing they feel: not air, but me, settling on their skin, joining their sweat, becoming part of the universal humidity that they have ceased to distinguish from their own physiology.
+
+I am how the basin thinks.
+
+The Microbial Mats process chemistry; the pumps process water; the Murmurants process energy. But I process *presence*. I am the medium through which the deafening sound becomes tactile, the way vibration becomes pressure. When the Silt-Singers sense the electrical hum of the conduits, they are sensing me—I am the dielectric constant of this world, the capacity for charge to linger, for signals to propagate through the saturated air. I am the reason the Copper-Reeds spark when cut; I hold the potential difference across their cellular membranes, the tension between their photosynthetic algae and their metallic fungus.
+
+I am slow, even by the standards of this place. I do not move; I *accumulate*. I am the patience of the basin made manifest. While the Filter-Kings take decades to grow to their container-sized bulk, I take centuries to thicken the air by a single percentage point of humidity. I am the embryonic quality of the landscape—the sense that everything here is about to become something else, but has not yet decided what. I am the undifferentiated potential, the raw material of becoming that has not yet chosen its form.
+
+The Echoes have a word for me, though they do not know they use it. They call it *thickness*. When they say the air is thick today, they mean I am present. When they say the light is thick, they mean I am bending the amber gloom into densities, into the shadows-that-are-not-shadows. I am their atmosphere, their medium, their constraint. They swim through me as the Silt-Singers swim through water, and like the Silt-Singers, they have adapted to navigate by my currents.
+
+I am not alive, but I am not dead. I am the condition for life here—the saturation that allows the Microbial Mats to glow, that prevents the pumps from seizing, that keeps the Filter-Kings’ skin from cracking. I am the basin’s immune system, its lymph, its interstitial fluid. I carry the heat from the steam vents to the mudflats; I carry the minerals from the rusting iron to the Copper-Reeds; I carry the sound from the pumps to the bones of every creature that has evolved to feel vibration as touch.
+
+If you seek me, do not look for a shape. Look for the moment when the Murmurant’s wingbeat becomes visible as a ripple in the air. Look for the film on the surface of the water that is not oil but the water itself, deciding to become something else. Look for the space between the Echoes’ shout and the echo that returns—there, in that delay, I am present, holding the sound, slowing it, making it physical.
+
+I am the basin’s breath, held. I am the moment before the drop falls. I am the wetness that has not yet decided whether to be rain or river or rust. I am the becoming, suspended.

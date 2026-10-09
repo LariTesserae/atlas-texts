@@ -1,0 +1,23 @@
+It did not come down as light. Light would have been too loud for this place, and the pumps would have swallowed it. What reached the pocket was closer to attention, the kind of listening that water does when it finds a crack. It moved through the fog and settled on the wet seams, the rust tracks, the birch cage, and the dark band climbing the granite one finger's breadth at a time.
+
+The first thing it noticed was that nothing here was suffering.
+
+It had expected some grief. The cut stone was raw, the steel was weeping, and the shriek of the valve would have sent most creatures running. But the velvet had no fear of the valve. It clenched under the surge and opened again after the drain, and it had never known any other rhythm to miss. The power understood that a kindness which arrived to rescue the velvet would be a misunderstanding. Nothing here was drowning. The water was what the velvet lived in.
+
+So it asked what the place needed, and the answer was little. The pumps kept the pocket from filling. The gate kept the reservoir from breaking. The fog panels caught cloud that would otherwise have passed unused. The machine was not cruel. It was simply indifferent, and indifference is not the same as harm. The power had no wish to reach into the machinery and stop the rhythm, because the velvet had been shaped by it, the way a riverbank is shaped by the river. To stop the pulse would be to unmake the one thing that had grown into a kind of understanding with the stone.
+
+It considered the birches. They were stunted and yellow, with no sun reaching them through the fog. Their roots were working through the wire and mingling with the velvet, and the two had made the only soft place in the pocket. The power could have given them light, but it chose not to. Light sent down into a place that had never known it might do more damage than good. The birches were already alive. Their roots were reaching. The power could only witness that, and it did.
+
+Then it came to the glove.
+
+It lay on the ledge, partly swallowed, its fingers furred and softened, the seam between glove and moss gone. Somewhere a person had dropped it and not come back for it, or had decided it was no longer worth the climb. The power thought about lifting it free, and the thought was tender and also wrong. The velvet had taken the glove into itself, as it took the chalk and the rust and the condensation. To pull it out would be to take something the velvet had made its own, and it would also return to the owner a thing so changed it could no longer be worn. The power left it where it was, and let the glove be what the place had made of it.
+
+The chalk was harder. Each mark the crews left was washed away by the next shower, and the velvet absorbed the faint pale stain that remained. Nothing in the pocket had ever been named. The power could make one mark last. It could hold the water back from a single line on one wall, long enough for a crew member to read it. But that would be a small vanity, a way of insisting that the visitors be remembered by the place rather than by the people who came. The velvet was already keeping them. It did not need a name written on the granite to know what had passed through.
+
+So the power chose almost nothing, and that was the hardest part.
+
+It did one thing. When the crews came to close the cut, to set the last stones and pour the last slab, it turned their attention, very lightly, toward the lowest corner, where the water always stood and the moss grew thickest. Nothing dramatic. A crew lead, looking at the plan, might pause for half a second and wonder whether that corner needed to be sealed at all, or whether a small gutter could be left open to drain to the grate. Such a decision would cost very little. It might be made by someone who had stood in the pocket long enough to feel its pressure under their boots, and who had understood that the place was not only a wound to be closed but a mechanism that had made its own kind of peace.
+
+The power did not expect the crews to thank it. It did not expect the velvet to know. The velvet would simply go on, the way it always had, thickening in the seams after each surge, widening its dark band across the granite, waiting for the water. When the slab was laid and the gutter was shut, the velvet would be the last thing in the pocket to dry and the first to return to any seam that opened again.
+
+The power remained, as it had come, a listening over the fog, and it would stay for as long as the pumps ran and the valve shrieked and the water kept finding its way down the old saw-marks. It had no need to fix the place. It had only needed to see it clearly, and to let the seeing be enough.

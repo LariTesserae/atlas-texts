@@ -1,0 +1,19 @@
+I arrive as rain.
+
+I come down through the silver ceiling in a bead of cold, one drop among ten thousand, and I make my small dimple on the surface. From inside the dimple I watch the light roll outward and fade. Then I am under, and the applause of sparks is all around me, and I am falling without any sense of falling, only a gradual loss of warmth as the water takes the rest of the air out of me.
+
+Below the first few meters the light turns blue and then green. I stop being a drop somewhere in there. The cold keeps the edges of me, but the rest loosens, and I become a particle of nothing much: a grain of dissolved silica, a flake of iron oxide, a speck of stone that the rain has carried from the cliffs. I drift with the other specks. The water is more still at this depth but it hums, and I hum too, a little, as my mass shivers with the tremor in the rock.
+
+Then the current changes. A warm column is rising from a vent on the floor, shimmering, and it lifts me with a crowd of others toward the middle water. I rise with them. I feel the heat before I understand it, a softening at the edge of my grains. The collars are here, turning slowly in the column like moths, and one of them opens beside me.
+
+Its rim is a fringe of fine filaments, and the water it draws in is my water. I am pulled through the shutter of its mouth, into a place without walls that still feels like an inside. A glowing core brightens around me. For a while I am a part of something that is digesting. I don't know what that means for a grain of stone, but I can feel the core's pulse, slow and warm, and I can feel that it is keeping time with something else.
+
+I am released. Or the collar lets go of what it cannot use. Either way I sink, and I land on the glass slope where the crust is thin, and the collar that fed me settles beside me and clings there, opening and closing against the rock, scraping a faint pale ring. I think I am that collar now. I am not sure when the change happened. I am a small disk with a fringed rim and a core that brightens when I have eaten, and I am fixed to a slope above a shelf of stalks.
+
+From here I can see the shoals turning in the middle water, their lights running tail to head in long waves. When one of them flares toward me, the report comes along the lights and reaches my flank, and I flare back without deciding to. I do not know what the flare says. It travels on, out of my reach, and the lanes open and close.
+
+Below me the stalks stand in their crowded forest, and I feel the colony begin to fold. The contraction starts somewhere far off along the shelf, moves toward me in a wave, and I fold with it, my rim closing, my core dimming, the sucking sound of a thousand filaments drawing water through me and out again. Then the vent beneath the rock thumps, deep and heavy, and the thud comes up through the stone into my disk a moment before I expect it, or a moment after the stalks have already begun. I cannot tell which of them moved first. Maybe the stone passed the pulse to the animals. Maybe the animals passed it to the stone. The question seems to sink through the water and settle into the silt with everything else.
+
+I open again. The ring I have scraped in the crust is a little deeper than it was, and it will be a little thicker next winter when the cliffs crack and the silica grows. Nothing here will remember me the way a person remembers. The layers will keep a record of the pressure I put on the glass, and that will be enough, or it will be all there is.
+
+Above, the rain goes on falling through the surface, making its sparks, and I am one body on the slope, breathing with the basin, not waiting for anything, not sure whether the pulse I feel in my own rim belongs to me or to the stone beneath.

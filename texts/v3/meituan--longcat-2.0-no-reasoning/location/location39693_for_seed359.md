@@ -1,0 +1,61 @@
+# The Sutured Garden
+
+From the outside, it looks like a sealed room. From the inside, it looks like the world forgot it was supposed to be a room.
+
+---
+
+You enter through a gap in something that might once have been a wall. The opening is not a door — doors are a concept this place abandoned long ago. It is a parting. Two massive panels of layered, hand-pressed fiber — something between paper-mâché and thin rammed earth, reinforced with a lattice of twisted plant-fiber rope — have sagged away from each other under their own accumulated weight. You duck through. Behind you, the panels may or may not have moved to close the gap. You don't look back. That would be impolite.
+
+The space you enter is roughly forty feet across and perhaps twenty feet high, though the ceiling is hard to locate. It is not a room in the architectural sense. It is a **cavity** — a space that exists because a great density of constructed things happened around and above a region of emptiness, and the emptiness was left, and the emptiness was *inhabited*.
+
+The floor under your feet is made of compressed straw-lime composite, hand-troweled in visible passes, each stroke preserved like a fingerprint in drying mud. Some sections are newer than others — you can feel the difference through your soles, the way a geologist feels stratigraphy. The oldest layers have the matte, absorbent quality of chalk. The newest still smell faintly of the alkaline binder, a dry and mineral smell, like warm concrete but sweeter, almost biological.
+
+And everything is *growing*.
+
+This is the contradiction that defines the place. The water index is near-zero. There is no free water here — no pool, no drip, no humidity you can feel on your skin. The air is dry enough that your lips begin to tighten within minutes. And yet the vegetation is lush. Impossibly, aggressively lush. It doesn't need water, or rather — it drinks something else, from somewhere else, through some process that has nothing to do with the water cycle you were taught.
+
+The green comes from structures.
+
+Every surface is covered in a living mat of small organisms — not quite plants, not quite fungi, not quite lichen, though they borrow freely from all three kingdoms. The hand-makers of this place understood that if you build the right scaffold, life will move in and *stay*. And so they built scaffolds with an almost feverish commitment, and the life moved in, and then the life became the scaffold, and then the scaffold became alive, and the distinction dissolved.
+
+The walls are studded with what the inhabitants call **bloom-frames**: open lattices of thin wooden sticks, each one lashed to the next with plant-fiber twine in a technique so simple it looks like child's work — square lashings, diagonal lashings, the kind of joints you'd teach at a scout camp — but executed with such density and repetition that the result is something else entirely. Each frame is maybe a foot and a half square, and they are butted edge to edge and lashed together and lashed to whatever backing exists behind them (stone, more fiber panels, old bloom-frames, living tissue), and the whole surface is *pocked* with small pockets, crevices, hollows, each one just large enough to hold a pinch of growing medium: a wad of dried moss mixed with ash and powdered bone and something dark and granular that might be charcoal.
+
+From every pocket, something green.
+
+Not one thing. Dozens of species, or dozens of forms that might be species, or might be moods. There are trailing things with leaves the color of oxidized copper. There are upright things with leaves like tiny green tongues. There are things that are mostly stem — thin, wiry, almost metallic-looking, bending in slow spirals as they reach toward the light sources. There are things that are not green at all but deep red, or violet, or a brown so dark it reads as black, and these tend to grow in the shadowed zones, filling the gaps between the green like mortar between stones.
+
+The light comes from the ceiling, or rather from *a* ceiling — one of several layered, partial ceilings that make up the sky of this place. Light panels. Flat constructions of thin, translucent material — pressed and dried plant membrane, stretched thin as vellum, oiled until it goes clear — mounted in wooden frames that hang from the structure above on ropes of braided fiber. The panels are not uniform. Some are yellow-white. Some are faintly blue. Some are almost orange, warm as lantern light. They overlap in places, so the light that reaches the floor below is layered and complex, full of soft gradients and penumbras, and where two panels overlap the colors mix — a warm panel over a cool one produces a light that is neither, that has a quality of *compromise*, like the light in a cathedral on an overcast afternoon.
+
+These panels are tended. You can see the ropes that adjust their height, running through crude pulleys made of carved wood — blocks with single sheaves, hand-turned on a lathe that must have been a triumph of craft in this place. Someone changes the panels. Someone cleans them. Someone replaces them when they grow too translucent or not translucent enough. The maintenance is ongoing, invisible, essential. Without it, the garden below would darken and die, and without the garden, the air would foul and the inhabitants would suffocate. The light panels are lungs. The garden is lungs. The inhabitants are the body that breathes through them.
+
+The inhabitants.
+
+You see them now. You have been seeing them without seeing them, the way you might overlook a tree in a forest if it were still enough and the right color. There are six of them visible from where you stand, and probably a dozen more hidden behind the denser growth or deeper in the adjoining cavities. They are small — none taller than four feet — and they move with the unhurried deliberation of creatures for whom urgency is not a concept. Their skin is the color of the compressed straw-lime floor, or close to it, as if they have been tinted by the substance of their own building. Their hands are large for their bodies, and their fingers are long, and their fingers are always *doing something* — lashing a new frame to the wall, adjusting a light panel rope, pressing a wad of growing medium into a pocket, pulling a small, segmented creature from the leaf-mat and inspecting it before letting it go.
+
+They have tools. The tools are simple — this is a place of no metal, or nearly no metal. A few copper things appear: thin sheets hammered flat and cut into blades, used for slicing fiber or trimming growth. A few stone things: grinding stones, hammerstones, a single obsidian flake so fine and black it looks like a wound in the air. Mostly the tools are wood and bone and fiber. Scoops carved from a single piece of softwood. Awls made from the leg-bones of something that had sharp teeth. Knives of knapped chert, held in wooden handles with fiber lashings identical to the bloom-frame joints. The technology is Paleolithic in its honesty — every tool is readable, every process visible, every joint accessible to inspection. There is no hidden mechanism anywhere in this world. Everything is *shown*.
+
+The sounds are few and specific. A low, continuous rustle from the vegetation — not wind, because there is no wind in this sealed place, but the sound of living tissue slowly growing, cells dividing, stems thickening, leaves unfurling. It is the sound of patience made audible. Occasionally, a small creature — one of the abundant fauna, and there are many — moves through the leaf-mat with a dry, skittering whisper. The inhabitants speak, but rarely, and when they do their voices are soft, almost subvocal, as if they are communicating on a frequency just above thought. The dominant sound, though, is the sound of construction: the creak of fiber rope under tension, the soft tap of a wooden mallet driving a lashing tight, the whisper of plant membrane being smoothed across a frame. The sound of a place that is always being built because building is what it *is*.
+
+And now the wrongness.
+
+You notice it first as a disagreement between what your eyes report and what your body knows. The space is small — forty feet across, you estimated, and that estimate was correct, but it doesn't *feel* forty feet across. It feels like it extends further than it should. The far wall, where the bloom-frames thicken into an almost solid mass of green and brown, seems to recede as you look at it. Not dramatically. Not like a trick of perspective. More like the wall is *patient*, and is waiting for you to look away before it moves.
+
+The depth is wrong in other ways too. Some of the adjoining cavities, visible through archways and gaps in the bloom-frames, appear to be farther away than the exterior of the structure could possibly allow. You can see, through one opening, a long corridor lined with hanging light panels that seems to stretch back thirty or forty feet — but you know, somehow, that the entire structure from outside is not that deep. The extra distance is *real* but it is not *accounted for*. It exists in the world without being owed by the world.
+
+And the growing things help. This is the part that unsettles. The vegetation is not passive. It is not merely filling space — it is *creating* space. Where the bloom-frames are densest, where the living mat has built up in layers over what must be many cycles of growth, the actual physical volume of the cavity seems to exceed the volume of the structure that contains it. The plants are not growing *outward* — there is no room for outward growth in a sealed, built environment. They are growing *inward*, into the space itself, and the space is *accommodating* them, stretching like a membrane to hold the extra density of life.
+
+This is the reality breakdown. Not a rupture, not a violence — a *stretching*. The world here is more flexible than it should be. The rules are the same rules — light falls, ropes hold, plants grow toward light — but the quantities are negotiable. Mass is negotiable. Distance is negotiable. The inhabitants seem to understand this intuitively. When they build, they build *more* than they need — extra frames, extra pockets, extra hanging ropes — as if the excess construction is a kind of offering to the space, a way of saying: *here, hold this, and in return, hold us*. And the space agrees. The space stretches. The cavity holds.
+
+One of the inhabitants notices you. It turns — slowly, with the unhurried rotation of a plant following the sun — and regards you with eyes that are dark and round and not quite the right distance apart. It does not seem alarmed. It seems *curious*, in the way that a process is curious about a new variable. It raises one long-fingered hand and points — not at you, but past you, at the gap you entered through.
+
+The gap is not where you left it.
+
+It is not gone. It is not closed. It is simply *elsewhere*, now visible in a different wall, at a different height, as if the entire cavity has turned slightly on an axis you cannot perceive. The light panels overhead have rearranged themselves — still overlapping, still layered, but in a new configuration that puts a pool of warm light where there was cool, and a zone of shadow where there was brightness.
+
+The inhabitant lowers its hand and returns to its work. The small creature in its palm — a many-legged thing with a shell like a polished seed — crawls up its wrist and disappears into the sleeve of its garment, which is woven from the same plant fiber as everything else, and which is itself faintly green, as if the garment too is growing.
+
+You stand in the Sutured Garden. You are breathing air that was exhaled by plants that were fed by frames that were built by hands that are still building. The light is warm. The rustle is constant. The walls are quietly, patiently, *wrong*.
+
+You look for the exit. The exit is there. It is always there. It is just never quite where you left it.
+
+That is the only rule.

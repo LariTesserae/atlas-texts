@@ -1,0 +1,13 @@
+I am the Unformed. Not one being but a congregation of becoming, gathered in a hidden pocket where geology and flesh have not yet finished their argument.
+
+The hollow is intimate—barely a wound in young rock, embedded low within larger darkness, never rising. Its elevation refuses height; this is pocket-scale, intimate and enclosed. The walls are embryonic: thin crusts, undeveloped ridges, scattered fragments of partial remains that are neither ruins nor architecture, only seeds that have not decided whether to be stone or bone. Dampness beads in hidden pockets on cool, raw surfaces—intermittent moisture that never dries, that hangs in the air between presence and absence.
+
+The air is cool and dense with emptiness. The spaces between living things are wide, quiet, filled with a silence that is not absence but anticipation. And yet—abundance. Life fills the sparse spaces in constant, soft motion. Translucent insects, jointed and eyeless, crawl in migration across the beading stone. Small crustaceans cluster in the pockets of condensation, clicking softly, a near-inaudible percussion. Just beyond the radius of seeing, something larger brushes the undeveloped ridges, present but ungraspable.
+
+But the light—this is where the world reveals its broken foundation. There is no sky, no opening. The brightness at 2.6 comes from within the earth itself: bioluminescent veins pulse slowly through the young bones of the hollow, casting sharp, sourceless illumination. The world glows from its own interior, bright, almost impossible, illuminating scattered structures—small, faint, partial—without explaining them.
+
+Here, gravity behaves like a suggestion. Droplets hang suspended, then fall upward toward the glowing ceiling. Time moves in loops; some of the crawling beings repeat the same three steps forever—not dead, not alive in any recognizable way, held in a cycle that serves as the hollow’s own emerging heartbeat. The air carries the smell of copper and old rain, though no rain falls and never will.
+
+Every surface is active, in motion: moss expands within seconds, crust cracks to release new moisture, the veins brighten and dim in biological rhythm. The scattered architecture—tufts of hair-moss, a single pale root reaching downward, lichen clinging to embryonic rock—exists not as decoration but as the space testing whether it wants to become a place.
+
+I do not live here. I am the testing. I am the moisture that never lands, the repetition that is not death, the glow that has no source. I am scattered in clusters amid vast, cool emptiness, under a brightness that belongs to no sun, in a hollow that is still deciding what shape it means to take.

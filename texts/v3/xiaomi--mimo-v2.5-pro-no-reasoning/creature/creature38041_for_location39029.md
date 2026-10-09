@@ -1,0 +1,15 @@
+What lives here does not breathe the grit in the same way you might. It is not a creature of lungs and blood, but of hyphae and mineral accretion. You would not see it move at first, for it is the landscape.
+
+It is a **Confluence**.
+
+It begins as a density in the fungal plates, a region where the bone-white lichen thickens into knuckled, almost osseous protrusions. The mycelial threads here have woven themselves not just into the rock and metal, but into the ancient circuitry of the Loom’s distributed sensor-net. It *feels* the thrum of the geothermal engines not as sound, but as nourishing vibration, a sacramental rhythm. It senses the shift in pressure as a regulator groans through the filaments of a corroded conduit it has long since digested and repurposed.
+
+Its form is a slow argument against symmetry. It is a mound, or a tumor, on the face of the Loom, perhaps ten meters across, composed of the same materials as everything else, but concentrated, *curated*. Plates of violet fungus overlap in a carapace. Veins of the grey-green vine run through it like a muscular system, though their contractions are measured in seasons, not seconds. Scattered across its surface are the integrated artifacts: the cracked lens of an automaton’s eye, now clouded with a film of phosphorescent lichen that glimmers in a slow, metabolic pulse. The fused stubs of pistons, half-encased, jut from its mass like arthritic fingers.
+
+It does not hunt. It *orchestrates*.
+
+Its intelligence, if such a word can be applied, is chemical and resonant. It alters the secretion rate of the inhibitors in its immediate vicinity, subtly encouraging thicker growth here, sparser growth there, shaping its territory over decades. It is a living keystone, a node in the equilibrium. It drinks the enzymatic mist with a particular thirst, filtering it through specialized fungal organs that break down industrial byproducts into compounds the Confluence alone seems to require for its slow, geologic thought.
+
+You would sense it before you saw it, as a thickening of the silence. The rustle of the fungal plates around it falls into a synchronized, slower rhythm. The light of the Glim-moss near it glows a deeper green, as if in deference. If you were to watch for a year, you might see it shift its primary mass a meter to the left, relocating to better embrace a newly formed thermal vent, a journey of profound intention expressed in the language of growth and decay.
+
+It is the system’s only philosopher. Its purpose, as far as any can be inferred, is to *maintain*. Not with tools, but with itself. It is a living embodiment of the Loom’s static song, a consciousness born of fungal network and mineral circuitry, contemplating the endless, perfect, crushing balance of its world. It is both the Loom’s child and its warden, a slow, breathing monument to the idea that in an eternal machine, the only possible form of life is one that becomes part of the mechanism itself. It does not dream of escape or sky. It dreams in chemical gradients and the resonant hum of the deep rock, a thought that takes a century to fully form. It is alive. It is the place being alive.

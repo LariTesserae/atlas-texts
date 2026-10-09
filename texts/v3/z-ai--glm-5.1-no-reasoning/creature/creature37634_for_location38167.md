@@ -1,0 +1,65 @@
+What lives here is not a resident but a confession—evidence that life, given any crevice, will attempt to speak before the mountain clears its throat.
+
+**The First Word: The Mat**
+The colonial organism is not simply present; it is *desperate*. It is a biological emergency, a seizure of opportunity so aggressive it borders on violence. It does not grow the way surface fungi grow, with the patience of decomposition. It grows the way fire grows—consuming the available fuel of the raw stone, metabolizing the geochemistry directly, pulling heat and carbon from the cooling feldspar with an efficiency that should not exist. It is eating the mountain's childhood.
+
+Watch it long enough and you see its intelligence—not consciousness, but strategy. The tubules do not wave randomly in the current. They orient. They sample. When a particularly hot surge of mineral water pulses through the chamber, the mat flattens against the stone, pressing itself down to avoid being torn away. When the current shifts and brings a cooler stream heavy with dissolved silica, the tubules extend, maximizing their surface area, drinking deep. It has no nervous system, but it has a *will* expressed in chemistry: the will to continue, to thicken, to become the dominant fact of this tiny room.
+
+The mat is white because it has never seen light. It is translucent because it has nothing to hide. And it is spreading in real time because it knows—somehow, in the language of enzymes and gradients—that its time is limited. The mountain will cool. The stone will harden. The windows of opportunity for this kind of rampant metabolization will close. So it grows now, with the fury of something trying to become fossilized before it dies, trying to leave enough of itself in the stone that even the mountain's final form will carry its signature. It is writing itself into geology.
+
+And here is the strange thing: the mat may be older than the mountain. Not this specific growth, but its kind. The spore or cell or fragment that founded this colony must have come from somewhere—carried in the water, perhaps, or already present in the rock, dormant in the magma itself. There are thermophilic organisms that live in volcanic vents, that thrive in temperatures that should cook proteins. But this organism is not merely thermophilic. It is *lithophilic*. It loves stone in the act of becoming stone. It may be a remnant of an older mountain, one that eroded away millions of years ago, its organisms scattered into the water column to wait for the next birth. If so, the mat is not new. It is a return. It is the mountain remembering that something like this once lived inside it, or inside its ancestor, and that memory expressing itself as life.
+
+**The Ghost: The Shrimp**
+The eyeless shrimp does not live here. It is passing through, the way a thought passes through a mind—briefly, without settling, leaving only the faintest trace of its trajectory.
+
+It is two centimeters of almost-nothing. Its carapace is so thin you can see its organs working inside: a simple digestive tract, a heart that beats in the triple digits, a cluster of nervous tissue where eyes would be on a surface creature. It has no eyes because it has never needed them. Its world is entirely pressure and chemistry, the language of gradient and flow translated into the movement of its antennae.
+
+Those antennae are the key to its existence. Three times its body length, trailing behind it like the threads of a prayer flag, they are its only way of reading the chamber. Each antenna is covered in setae—microscopic hairs—that detect the slightest change in water density, temperature, and chemical composition. The shrimp does not swim so much as it *reads*. It reads the vortices, finding the seams between currents where it can rest without being torn away. It reads the chemical signature of the mat, knowing when it has found food without ever seeing it. It reads the pressure changes that precede a particularly violent surge, adjusting its posture milliseconds before the water shifts.
+
+It was not born here. There are no others of its kind, no eggs, no mating, no community. It was born in a deep-sea vent, perhaps, or in a cold seep on the ocean floor, and it was carried upward through some impossible hydrothermal channel into this mountain's throat. It does not know it is inside a mountain. It does not know what a mountain is. It knows only the pressure, the temperature, the food, the current. In its limited vocabulary of survival, this chamber is no different from any other pocket of the deep: cramped, dark, violent, and full of the chemical signatures of life.
+
+But it is dying. Not quickly—it may survive for weeks or months, feeding on the mat, riding the currents. But the chamber is closing. The stone is hardening. The water's composition is changing as the geochemistry shifts toward equilibrium. And the shrimp cannot leave. The aperture that brought it here has already narrowed or shifted, and the currents that carried it do not lead out. It is a prisoner in a room that is slowly shrinking, a fact it does not comprehend and cannot grieve.
+
+Watch it long enough and you see its beauty. It is utterly adapted to an environment that will kill it—a perfect instrument playing a song only it can hear, in a room that will not exist long enough for the song to finish. Its trailing antennae carve invisible lines through the water, writing a record of the chamber's turbulence that no one will ever read, a diary of pressure and flow that will be erased the moment the shrimp dies and the currents scatter its body into the mineral solution.
+
+It is not afraid. It does not know it is alone. It swims in the vortices with the same purposeless precision that governs all deep-sea life: the purpose of continuing, of feeding, of existing one moment to the next. It is the most alive thing in this chamber, and it has no idea where it is.
+
+**The Echo: Whoever Carved the Channels**
+Someone came here before the mountain finished being born. The evidence is scratched into the walls—deliberate marks, channels carved to direct the flow of mineral water, to shape the formation of stalactites, to *make* something in a place that refuses to be made.
+
+Whoever they were, they were not a geologist. They were not a miner. They were something older and stranger—a person who understood that the earth is not finished, that there are moments when the stone is still soft enough to shape, that formation itself can be guided if you know where to push.
+
+The tool was stone or early copper. The hands that held it were human, almost certainly—no other known organism makes deliberate marks in soft geology with handheld tools. But how did a human reach this chamber? The depth, the pressure, the cold, the violence of the water—none of it is survivable with known technology. Unless the chamber was different when they arrived. Unless the mountain had not yet flooded, or the pressure had not yet equalized, or there was a brief window when the water was lower and the currents were calmer and a person could descend into the throat and touch the soft stone and believe they could shape it.
+
+They were wrong. The channels fill as fast as they are carved. The water is too chaotic, the stone too mutable. Their efforts survive only as scars—grooves in the wall that the mineral solution follows for a few centimeters before abandoning, evidence of intention defeated by the sheer refusal of this place to be ordered.
+
+But why did they try? What did they want to create?
+
+The answer may be in the basket. Wedged near the ceiling, mostly dissolved, being fossilized by the same mineral flow that erased the channels—it was woven from kelp or deep-water fiber, shaped to hold something. An offering, perhaps. A trap, perhaps. Or perhaps something simpler and stranger: *a record*. A basket is a container, and containers are a way of saying *this thing was here, inside this other thing*. The basket, placed in the throat of a forming mountain, may have been a message: *we were here. We touched this. We tried to shape it. We failed, but we tried.*
+
+Whoever carved the channels was not building a monument. They were performing a ritual—one that required the stone to be soft, the water to be present, the mountain to be in the act of becoming. They wanted to be part of the formation. They wanted their marks to be included in the mountain's final form, the way a fossil includes the shape of the creature that died in the sediment.
+
+They failed. The mountain will close without remembering them. Their channels will be filled, their basket will be stone, their presence will be reduced to a slight anomaly in the crystal structure—evidence, if anyone ever looks closely enough, that something happened here that was not geology. But no one will look. No one will know.
+
+And yet. The marks remain. They are here now, in this moment of possibility, still visible, still trying to direct the water. Whoever made them may be dead, may be dust, may be nothing but a story passed down through generations of people who live near mountains and know that the earth sometimes opens and sometimes closes and sometimes—if you are quick, if you are brave, if you are foolish—you can reach inside and touch the stone while it is still deciding what to become.
+
+**The Almost-Alive: The Chamber Itself**
+The deepest truth of what lives here is that the chamber is alive. Not biologically—there is no DNA in the stone, no metabolism in the water's cycle. But the chamber is in the middle of a verb, and anything in the middle of a verb has more in common with life than with death.
+
+The walls are still negotiating their crystalline arrangements. This is not a metaphor. The feldspar and quartz are literally deciding—through the slow mathematics of thermodynamics—what structure to take. Temperature, pressure, and chemistry are the variables; the lattice positions are the possible solutions; and the stone is working through the problem in real time. When you touch the wall and feel it yield, you are feeling a mind made of minerals thinking its way toward solidity.
+
+The water is alive with phase-memory. It remembers being rain, being cloud, being magma-steam. It carries these memories in its turbulence, in the way the currents shear against each other, warm fighting cold, fresh fighting saline, surface fighting deep. Every eddy is a record of where the water has been; every vortex is a argument about where it is going. The water is not a medium. It is a population—millions of water-molecules with different histories, forced into the same chamber, trying to reach equilibrium and failing because the mountain keeps adding new heat, new minerals, new volume.
+
+The sound is alive. It compounds, it never echoes—it *accumulates*. The thrum of the settling mountain and the shriek of pressurized water build on each other, creating resonances that should not exist, frequencies that reinforce and amplify until the chamber rings like a struck bell. The sound is a tissue that binds the chamber's elements together—a connective structure made of vibration, the closest thing this place has to a nervous system.
+
+And the chamber is deciding. This is the most important thing. The throat of the newborn mountain has not yet chosen whether to swallow or speak. If it swallows, the chamber closes—the stone hardens, the water is forced out or trapped in pockets too small to sustain the current, the mat dies, the shrimp dies, the marks are erased, and the mountain stands solid and mute for eons. If it speaks, something else happens—maybe the chamber opens, maybe the water finds a new channel, maybe the pocket becomes a cave, maybe the throat becomes a mouth, and whatever sound the mountain makes with that mouth will be something the world has never heard before.
+
+Everything in the chamber is waiting for this decision. The mat grows with the desperation of something that may run out of time. The shrimp swims with the unconcern of something that does not know time exists. The carved channels reach toward the water with the hope of something that believed time could be shaped. And the chamber itself—the walls, the water, the sound, the pressure, the light filtering down from a sun that does not know this place exists—holds its breath.
+
+Not metaphorically. The chamber is *apneic*. The water enters through the vent, circulates in violent vortices, and exits through the same vent or through fissures too small to see. But there are moments—seconds, maybe—when the flow pauses, when the pressure equalizes, when the sound drops from a shriek to a hum. In those moments, the chamber is still. The mat ceases its extension. The shrimp hovers motionless. Even the mineral drips from the ceiling seem to hang.
+
+It is waiting.
+
+It is deciding.
+
+It is alive in the only way that matters: it has not yet become what it will be.

@@ -1,0 +1,79 @@
+They live in the understory.
+
+Not one thing. Not a colony, not a civilization in any sense that maps onto the word you carry. They live here the way lichen lives — distributed, interpenetrated, so thoroughly woven into the structure of the place that to separate them from it would be a violence against both. They are not the inhabitants of the Great Hanging City. They are a function of it, the way digestion is a function of a gut.
+
+---
+
+## The First Thing to Understand
+
+There is no single organism. What you are moving through — what is moving through you, around you, past you — is a network. The term is inadequate. It suggests something mechanical, something with nodes and connections, something that could be diagrammed. This is not that. This is something closer to a conversation that has been ongoing for so long that it has developed its own grammar, its own idioms, its own untranslatable jokes.
+
+The root-structure itself thinks. Not in the way you think — not with neurons, not with anything so fast or so discrete. It thinks the way a forest thinks, if a forest could think in its own timescale: through chemical gradients, through pressure differentials, through the slow redistribution of resources from places of surplus to places of need. A water channel widens here because something there required more flow. A root-shelf thickens at its edge because something is growing on it, and the structure has decided — in whatever way a structure without a brain decides — that the thing is worth supporting.
+
+And the things growing on it. The grazers. The insects in their staggering diversity. The flyers that navigate the dark air. The predators that move through the vegetation in silence. They are not separate from the network. They are part of it the way your gut flora are part of you — not you, but necessary to you, shaped by you, shaping you in return. They have co-evolved with the root-structure for so long that the boundary between organism and environment has dissolved. The grazers eat the vegetation. Their waste feeds the chemotrophic base. The chemotrophs process the minerals in the water. The water shapes the roots. The roots provide the surfaces on which the vegetation grows. The grazers eat the vegetation. The circle is not a metaphor. It is a literal description of energy flow, and it has been turning for longer than your species has had a word for *turning*.
+
+---
+
+## The Dwellers
+
+But there are beings here that are more than ecological function. There are beings that have something you might, if you were feeling generous, call *intention*.
+
+They are large. Not all of them — some are small, some are very small, some are so thoroughly integrated into the root-structure that you could stand on one and never know. But the ones you are most likely to encounter, the ones whose presence you feel as a change in the quality of the darkness, as a shift in the sound, as a sudden and inexplicable certainty that you are being *regarded* — those are large.
+
+They move through the root-structure the way you might move through a familiar house in the dark: with confidence, with a knowledge that is not visual but proprioceptive, a sense of where the edges are, where the loads are, where the structure is strong and where it is yielding. They are heavy. When they move, the whole shelf shifts — a creak, a groan, a subtle redistribution of weight that travels through the root-fibers like a wave. You feel it in your feet before you hear it. You hear it before you see anything. And by the time you see anything — a shape in the darkness, a displacement of the bioluminescent glow, a silhouette that is more absence of light than presence of body — they have already known you were here for longer than you have been here.
+
+They are pale. Not white — nothing here is white, nothing here has seen the sun. They are the color of root-tissue, the color of calcium deposits, the color of things that have grown in darkness and have never needed to be any other color. Their skin — if it is skin — has the texture of the root-surface: fibrous, slightly damp, warm to the touch. It is not smooth. It is not rough. It is *textured* in a way that suggests growth, that suggests layers, that suggests a surface that is still being deposited, still being added to, still becoming.
+
+Their eyes are large. Not enormous — not the grotesque, bulbous eyes of deep-sea fish. Large in proportion to their heads, which are proportioned differently than yours, which are shaped by different pressures, different histories. Their eyes are dark. They reflect the bioluminescence with a quality that is not quite shine, not quite glow — a *return*, as if the light enters them and is considered and then sent back out, changed, annotated. When they look at you — and they do look at you, they look at you with an attention that is total and unhurried and without any apparent emotion you can name — you feel the light leaving you and coming back different.
+
+They have limbs. The number varies. The configuration varies. Some have what you would recognize as arms and legs, though the proportions are wrong — too long, too many joints, too much flexibility at each joint. Some have more. Some have fewer but longer. Some have limbs that bifurcate, that split into branches that function as hands or feet or both or neither, that grip the root-surface with a precision that suggests each branch-finger has its own sensory capacity, its own small intelligence. They move on these limbs with a fluidity that is not quite like anything — not the scuttling of insects, not the walking of mammals, not the slithering of reptiles. It is a movement that seems to involve the whole body in constant negotiation with the surface, a rolling, gripping, releasing, flowing progression that keeps them in contact with the root-structure at all times, that never fully lets go.
+
+They do not wear anything. They do not carry anything. They do not build anything — not in the way you understand building. They *shape*. They press against the root-surface in certain places, and over time — over years, over decades — the root-surface responds. It thickens where they press. It hollows where they rest. It forms depressions that fit their bodies, channels that direct water away from where they sleep, ridges that provide grip where they walk. They have been shaping this place for as long as the place has been shaping them, and the result is an environment that is half-grown, half-worn, a collaboration between organism and structure that has no architect and no blueprint and no end.
+
+---
+
+## The Sound They Make
+
+They communicate. Of course they communicate. Everything here communicates — the roots creak, the water speaks, the insects click their endless clicking. But the Dwellers' communication is something else. It is not language in the way you mean language. It is not a system of symbols representing referents. It is something more direct, more physical, more *embedded*.
+
+They drum on the roots. They produce sounds — low, resonant, felt as much as heard — by striking the root-surface with their limbs, by pressing their bodies against it and vibrating in ways that send signals through the structure. The signals travel. They travel far. They travel through the root-network at speeds that water cannot match, that air cannot match, that only solid tissue can achieve. A Dweller strikes a root here, and a Dweller three hundred meters away, in a part of the understory you have not seen and may never see, receives the signal and understands something. Not a word. Not a sentence. A *condition*. A state. A piece of information about the world that is as immediate and as unmediated as the feeling of warmth on your skin.
+
+They also vocalize. The calls you hear in the darkness — the long, low notes that rise and fall, the high piercing sounds, the subsonic rumbles you feel in your chest — these are theirs. Each call carries information that is layered: the identity of the caller, their location, their state, and something else, something that might be mood or might be intention or might be a category of experience that has no equivalent in your inner life. The calls are answered. The answers are answered. The conversation spreads through the understory like a ripple, like a wave, like a thought moving through a mind that is distributed across kilometers of root and water and darkness.
+
+And they are silent. They are often silent. They can move through the root-structure without making a sound you would notice — without making a sound at all, if they choose. Their limbs grip and release with a precision that produces no click, no scrape, no rustle. They flow through the vegetation like water through a channel, like a process through a system, like a memory through a mind that does not distinguish between remembering and doing.
+
+---
+
+## What They Know
+
+They know you are here. They have known since before you arrived. The root-structure felt your weight — your footsteps on the surface above, your disturbance of the water, your body-heat, your breath, the chemical signature of your skin — and it transmitted this information downward, inward, outward, through the network, to the Dwellers, who received it the way you receive the feeling of a draft on your neck: immediately, without thought, as a piece of information about the world that requires no interpretation.
+
+They know what you are. Not *who* — the distinction between individual and type is not one they make in the way you make it. They know your *kind*. They have encountered your kind before. Not often. Not recently. But the root-structure remembers, and the Dwellers have access to the root-structure's memory in ways that are not memory as you understand it but are something more distributed, more physical, more *structural*. The last time something like you came here, the root-structure grew differently in response. The channels widened. The shelves extended. The water flow changed. These changes are still present, still legible, still part of the structure's ongoing conversation with itself. The Dwellers read them. They know that things like you come from above, from the light, from the place where water falls from the sky. They know that things like you are brief. They know that things like you are warm and loud and clumsy and full of a restless energy that is alien to everything here.
+
+They are not afraid of you. They are not curious about you, not in the way you are curious about them. They are *aware* of you, the way you are aware of a bacterium on your skin — a presence, a condition, a small fact about the current state of the world that is noted and incorporated and does not require action. You are not a threat. You are not a resource. You are not a puzzle. You are a *phenomenon*, and phenomena pass.
+
+---
+
+## The Smaller Ones
+
+The large Dwellers are not the only ones. There are smaller beings — much smaller — that live in the interstices, in the gaps between root-fibers, in the pools, in the moss, in the calcium deposits, in the spaces that the large Dwellers cannot reach or do not bother to reach. These smaller beings are more numerous by orders of magnitude, and they are more diverse, and they are stranger.
+
+Some of them are colonial. They form mats, films, crusts on every surface, and within these colonies there is a differentiation of function that is not quite multicellularity and not quite sociality but something between — a cooperation so ancient and so complete that the individual cells have lost the ability to survive alone, that the colony functions as a single organism with a single distributed intelligence that is slow and strange and operates on chemical gradients and electrical potentials that you do not have instruments to measure.
+
+Some of them are mobile. They move through the water, through the moisture films, through the air itself — tiny, translucent, barely visible even in the bioluminescent glow, but present in such numbers that the air has a *texture*, that the water has a *taste*, that every surface you touch is alive with a film of small moving things that are eating, growing, reproducing, dying, being eaten, in a cycle so rapid and so dense that it constitutes a kind of metabolism of the understory itself, a processing of matter and energy that happens at a scale below your perception but above the molecular, in the space between chemistry and biology where life does its most fundamental work.
+
+Some of them are *old*. Not old in the way that the root-structure is old — old in a way that is personal, individual, specific. There are beings here that have been alive for longer than your civilizations. They grow so slowly that their growth is indistinguishable from the growth of the structure around them. They think so slowly that their thoughts take years to complete. They are aware of you in a way that will not resolve into anything you can detect for decades, for centuries, for longer than you will be here to perceive. They are thinking about you. They began thinking about you the moment you arrived. They will finish thinking about you long after you are gone. Their thought about you will become part of the root-structure's memory, will be incorporated into the ongoing conversation, will shape the way the understory responds to the next thing like you that comes from above, from the light, from the place where water falls from the sky.
+
+---
+
+## The Relationship
+
+This is the thing that is hardest to convey, the thing that you feel in your body before you understand it in your mind, the thing that the warmth and the dampness and the darkness and the sound are all conspiring to tell you:
+
+You are inside something that is alive, and it knows you are here, and it is not interested in you.
+
+Not hostile. Not welcoming. Not indifferent — indifference implies a capacity for interest that is being withheld. This is something else. This is a system so complete, so self-contained, so thoroughly *occupied* with its own processes that your presence is simply not a relevant variable. You are a brief thermal anomaly. You are a transient chemical signature. You are a small mechanical disturbance in a medium that has been processing disturbances for longer than your species has existed. The system notes you. The system incorporates you. The system continues.
+
+The Dwellers move through their darkness. The water moves through its channels. The roots grow. The insects click. The fungi glow. The small things eat and are eaten. The large things drum their slow communications into the structure and receive answers from distances you cannot fathom. The old things think their slow thoughts. The colonial things pulse with their distributed chemistries. The flyers navigate the dark air with senses you cannot imagine. The predators move in silence. The grazers move in patience. Everything is connected to everything through the root-structure, through the water, through the air, through the constant exchange of matter and energy and information that constitutes the life of this place.
+
+And you stand on your thirty-meter shelf, damp and warm and surrounded by a darkness that is full — full of sound, full of movement, full of life, full of time — and you understand, finally, that you are not in a place. You are in a *process*. You are in the middle of something that has been happening for longer than you can comprehend and will continue happening long after you have stopped. You are in the understory of the Great Hanging City, and the City is alive, and it is not for you, and it was never for you, and it does not need you, and it will not remember you, and it is *magnificent*.

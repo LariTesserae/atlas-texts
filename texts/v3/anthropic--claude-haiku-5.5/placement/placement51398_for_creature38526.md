@@ -1,0 +1,17 @@
+I come up out of the cloud with my lungs full of cold, and for a moment I have no edges. Then the light gives me an outline, and I find I am standing still on a flag, and the flag is wet, and I am wet too. My breath fogs and clears. The stone under me is cut so cleanly that my boots feel like the only soft things on the plateau.
+
+I try to look for them, the way I would look for a crowd in a station or a family in a house. I turn slowly. Nothing answers. There are only walls, troughs, the bright hard glitter of water on every surface. Then a bead lets go from an overhang above me and falls into a basin with a small, exact sound, and I understand that the sound is the answer. The water is the one talking. It has been talking the whole time.
+
+So I look for myself instead, because that seems the more honest search. I expected to be a visitor. I am not sure I am one.
+
+When I lower my hand, a film of water runs across my palm and gathers in the crease of my knuckles. It does not sting. It is the same cold that is moving under the flags, and I am slowly realizing that it is not so different from what I am made of. Most of me is water too. My breath, my blood, the thin fluid that keeps my eyes wet. I have been carrying a plateau's worth of patience around inside a body that thinks in quick bursts and forgets half of what it learns. Here, the patience is what's left when the bursts are gone.
+
+I think, then, that I would be one of the blank spirals. The shape the grooves wind inward around, a centre not yet filled. I would be the undecided point. The water has been turning toward me for longer than I can count, and every channel bends a little around the empty place where I am, as if it were waiting for a thought it could hold. I don't know whether I would want to be filled or to stay open. That is the question the plateau has been asking for centuries, and I would be the answer it hasn't reached.
+
+Or perhaps I'm the knee-high wall, the work that stopped because attention drifted. Something begun with care and left when the thought moved on, and now slowly glazed in white, becoming a part of the terrace without ever being finished. There is a peace in that. Nothing is wasted. Even the abandoned parts are kept.
+
+I walk, carefully, to the edge of the terrace. Far off, the bearing lines run out toward the haze, all leaning the same way. I can feel it, faintly, the lean of the land, and under it the slow pull of attention turned toward something warm that has stepped onto the stone. I am that warm thing. My footsteps are loud to me. I imagine they are very loud to the water, a quick sequence of pressures, an event that will be gone in a breath and leave no trace it will remember, or else will be sealed over and kept.
+
+I stand there and let it register me. I am not afraid. Something in me wants to be the mark that becomes part of the work, a single crystal laid down in the wet, a small change in the long sentence of the plateau. I would like, I think, to be read slowly, by something that does not hurry.
+
+A seam opens beneath my heel, very thin, and cold water begins to rise through it. It finds the edge of my boot and climbs, unhurried, toward the shape of me, and I don't step away.

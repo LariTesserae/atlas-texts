@@ -1,0 +1,23 @@
+To exist here is to know a dozen different kinds of shaking.
+
+I am small, and I am warm, and I am almost never still. My bones are hollow, my heart a frantic, tiny drum. My world is a vertical one, a universe of crevices, of undersides, of dark spaces behind warm planks and inside the bellies of pipes. I know the smooth, cool curve of a wire nest, the scratch of shredded engine-waste against my breast, the faint, constant tremor that is the heartbeat of this place. It is not an earthquake. It is home.
+
+My day is a rhythm of vibration and silence, of light and shadow.
+
+In the deep hum-time, when the great metal things below thrum and pulse, I sleep. Or I preen. Or I listen. The hum is the baseline, the river of sound that carries everything else. We—the thousands of us, my flock, my kin—we are part of it. Our own low murmur, the constant, burbling talk of the colony, weaves into the mechanical drone. We are the softness in the iron song.
+
+When the light comes—that weak, grey wash that seeps through the great mouth of the world—the hum changes. It quickens. The warm-shapes move. They are clumsy, heavy, but their movement is predictable. They make new sounds: sharp, metallic *clinks*, the scrape of stone on stone, the hiss of water hitting hot rock. These are the sounds of abundance. They mean grit will fall, and in the grit, there are often seeds or husks, carried from whatever distant, soft ground they call the Below. They mean the air will shift, and with it, the tiny, hopping dark-things that live in the rubble.
+
+Hunting is a dance of stillness and sudden, vertical flight. I cling to a shadowed wall, a speck of grey on grey. The world is a map of heat and vibration. The foundry-glow is a constant sun in my peripheral vision, a predator of shadows. The air-taste is sharp—ite,ite,ite,ite,ite, stone-dust, hot metal. It is the taste of air that has been chewed. I wait for the dark-thing to move. It is slower than I am, but it is good at hiding. When it darts, I am faster. The flash of its movement, the flick of my wings, the sharp *click* of my beak. Life is a series of such small, decisive moments.
+
+My true voice is not the song I sing. My true voice is the architecture I build. My nest is woven from the bones of this place. Wire, stripped of its sheath. A shred of soot-blackened cloth. The fibrous, resinous fluff from a torn packing seal. A single, iridescent beetle wing, saved for the rim. It is a cup of chaos, held together by instinct. It is suspended beneath a catwalk, rocking gently with the constant sway. I am a part of the structure. I am a living bolt, a feathered rivet.
+
+The great shaking comes without warning. The world lurches. Grit rains down, a sudden, dusty hail. The catwalk I am perched on drops, groans, and holds. The warm-shapes shout. Their voices are thin, sharp sounds against the deep groan of the mountain. We do not startle into flight. We cling. We sway. We have learned the rhythm of the breaking. Our nests are built to flex, to absorb the blow. We are as much a part of the turbulence as the machines and the rock.
+
+But there is another shaking. A deeper one. It comes from below the machines, below the rubble, from the very throat of the mountain. It is not the frantic thrum of the engines. It is a slow, vast, tidal breath. I feel it in my hollow bones, a pressure that swells and recedes over a time too long to measure in wingbeats. It is the mountain’s own hum. When the machines fall silent for their brief, dead time, this other hum remains. It is the baseline beneath the baseline. It is the reason the tin sheets sing their low, hollow *boom*. We do not understand it. We only know that it is always there, and that it is patient, and that it is alive.
+
+Last night, during the great silence, it breathed. The air in my crevice thickened, then released. The tin sheet across the deep-dark passage sang its one, deep note. It was not a sound of threat. It was a sound of… presence. Of scale. I felt it in the marrow of my wings.
+
+Then the machines coughed, and sputtered, and found their pulse again. The great metal heart restarted. The vibration returned, smoothing the world back into its familiar, trembling texture. The warm-shapes moved again, their sharp little sounds resuming. The deep hum receded, once more masked by the noise of life.
+
+I ruffled my feathers, resettled on my wire perch, and began to sing. My song is a small, burbling thing, a thread of sound in the vast, noisy tapestry. I sing of grit and wire, of shadow and heat, of the sway of the world. I sing of the slow breath of the stone. I am a nerve ending of the Notch, a feathered synapse in its industrial brain. I am home. The mountain holds me, and I sing to keep it company in the dark.

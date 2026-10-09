@@ -1,0 +1,19 @@
+The silence that lives there is a lie.
+
+It is not a passive quiet but an active suppression of the immediate, a focusing of the universe onto the internal. What lives in the hollowing is not eleven trees, but a single, distributed entity wearing eleven skins.
+
+It breathes. The slow, grinding creak of settling wood is its respiration—a deep, continental inhalation that takes an hour to complete. The drip of condensation is its circulation, the pulse of water through the root mat its heartbeat. The sound is not of the grove; it *is* the grove’s voice, a constant, monotonous hum that defines its boundaries more surely than the trunks themselves. It does not think. It merely *is*, a being whose consciousness is the process of living at a timescale that makes stone seem impulsive.
+
+It has no eyes, but it perceives. The vibrations of the beetles’ mandibles are recorded in the grain of the wood. The shock of the woodpecker’s beak is a familiar punctuation mark. The settling of a moth’s foot is a known pressure. The intruder—once, a metal thing—is a swallowed thought, a half-remembered dream digesting in its belly. It knows the dampness of the air because it is the source of the dampness. It knows the temperature because it *is* the temperature, a massive, buffered thing whose fluctuations are measured in centuries, not days.
+
+It is not solitary. The hollowing is its lungs, but the root mat extends like a nervous system into the surrounding flatland. It drinks from the water table with the patience of a mountain. It does not need to hunt or forage; the world comes to it, in the form of sun, and rain, and the slow seep of nutrients it has spent millennia mining from the bedrock. The surrounding emptiness is not an absence to it, but a perimeter it has secured.
+
+The beetles are its lymphocytes, clearing dead tissue, creating the channels for new growth. The woodpeckers are its surgeons, excising deeper infections. The moths are its skin, a living camouflage. The owls are its night-thoughts, soft and oscillating in the dark. They are not parasites or inhabitants; they are organs, functions, necessary processes of the larger body.
+
+And the metal. The metal is a scar, a foreign body encapsulated. It is not a memory of an intruder, but a testament to the body’s ability to incorporate the alien, to warp itself around an impossibility until it becomes a mere discoloration, a different density of self. The grove does not resent it. It does not know what resentment is. It simply grows over and around and through, turning steel to rust, rust to stain, stain to a slightly thicker ring in the wood.
+
+If you stood in the hollowing, you would be inside it. Not inside a space defined by trees, but inside the body of the entity. The damp on your skin would be its sweat. The hum would be its digestion. The vaulted empty space would be its stomach, its heart chamber, its lung. You would be a mote of dust in its lung, a fleeting vibration in its sinews. It would not mind you, so long as you did not try to grow.
+
+It is not waiting. It is not hoping. It has no concept of the future beyond the next millimeter of growth, the next creak of settlement, the next molecule of water drawn up from the deep. Its existence is its purpose, a closed loop of consumption and exhalation and being.
+
+It has looked like this for a very long time. It will look like this for a very long time. The sound will go on. And in the center of it, where the creaking and the dripping and the humming and the drilling all converge into a single, foundational tone, there is a consciousness without thought, a life without desire, a cathedral that is also its own god, praying to itself in a language of wood and water and time.

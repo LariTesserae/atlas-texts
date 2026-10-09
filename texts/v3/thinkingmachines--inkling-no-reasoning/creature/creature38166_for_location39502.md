@@ -1,0 +1,13 @@
+Here, the hollow is not a shelter but a saturation—small as a chapel, high where air thins without granting distance, cool in a way that never wavers, never warms. You do not enter; you come upon it, because every surface is already claimed: moss and root and limestone weeping in steady beads that pool in black, shallow mirrors across the floor. The rock is weathered round, not by violence but by an old, finished erosion, arranged into forms that will not round further. No path leads here; no hand has altered it. The absence of building, of metal, of artifact is not neglect but preservation—an older logic that never invited construction.
+
+The dark is dense enough to carry form, a blue-grey memory at the edge of sight. Light never reaches the heart. And in this near-darkness, vegetation packs horizontally, inward—fronds and roots pressed shoulder-to-shoulder, luminous with moisture, more upholstery than forest, every interstice filled.
+
+But presence belongs entirely to the fauna.
+
+They do not crowd; they complete. Insects cluster so thick upon the weeping ceiling that the stone itself is hidden beneath wings—no flight, no crawl, no twitch, only hanging in suspended architecture, a vaulted living roof. Along the ledges, small bodies—eyeless, cool-skinned—rest belly-flat to the damp limestone, breathing water instead of air, neither sleeping nor waking, simply present in perfect equilibrium. The roots are woven through with translucent larvae and worms, bodies packed into bodies without void. In the pools, amphibians float with mouths slightly open and eyes unblinking, the surface a continuous hide, unbroken, never rippling, because the bodies are already there to receive every falling bead.
+
+There is near-silence: only the collective, synchronized hum of respiration, the faint, constant proof of occupancy. The air is thick with it—cold earth and living density—each breath shared.
+
+Here, nothing changes. Death, if it comes, is replaced in the same instant; the hollow maintains its perfect saturation without frenzy, without release of space. No seasons, no wind to scatter seed, no predator, no prey. The moisture never dries; the cool never lifts. Even the primitive—this absence of tool and mark—remains intact not through abandonment but through an ancient refusal.
+
+You stand at its felt edge and understand: this is not a hollow emptied for you, but a body entirely made of being, eternally itself, asking nothing, seeking nothing, and holding every cubic inch—every wing, every open mouth, every bead of water—until long after your own breath in the dark has faded.

@@ -1,0 +1,33 @@
+**What the Attention Saw**
+
+It noticed the place the way it notices most things, slowly and all at once. Attention does not arrive here as a visitor does. It was already present in the silt, the drone, the frogs, and it took in the whole flat in a single regard: the grey plates, the weeping ridges, the herons in their reserved places, the lamps haloed in the wet air.
+
+What it saw first was the holding.
+
+Everything on the Pumping Flats was arranged around a level. The pumps kept the water a hand's depth below the surface, the foundry balanced its heat against its smoke, the crews rotated through the same shifts, and the town did not grow or shrink by a single block. It was careful work, and the care was real. The pump-tenders listened to their machines with a tenderness that had no words for itself. The children knew the bad plates by their sound. The dogs kept faith with the lunch-hall door.
+
+But the water had been held for a generation, and the attention understood that water held too long becomes a kind of sleep, and then a kind of grief, though it did not yet have the form of either. The land had been seabed. It had been lifted, drained, and fenced, and it was still trying to decide what it was. Nothing had been asked of it. Its level had been decided for it, carried off every evening with the silt, and it had gone along, as large sleeping things do.
+
+The attention considered what a wise power does when it finds such a thing. The first and easiest choice was to remove the pumps, let the sea come back in one great breath, and be done. It set that aside at once. A flood is not a conversation. It would drown the children who go past the last fence post, the route-walkers with their careful hands, the old tenders who leave scraps for the scavenger. It would put the heron-stands under and the frogs' channels into the open sea and the foundry's sparks into a sky full of mist. The water had done nothing wrong. Breaking it open would only be another way of holding it, with violence in place of machinery.
+
+The second choice was to do nothing, which the attention also weighed honestly. Leaving it alone would be a kind of respect, but it would also be a kind of abandonment. The town had built its whole life around a sleep it had not chosen, and the water had never been asked whether it wanted to keep dreaming.
+
+So it chose a third way, which was mostly listening.
+
+It began with the tenders, because their hearing was the town's real instrument. It did not give them new knowledge. It gave them, for a single evening, a stillness in the drone: a half-second gap in the pitch of Station Four, the one nearest the old outflow, where the rhythm had always been slightly too regular. A tender named Oyelaran, who had tapped that housing every shift for eleven years, stopped mid-sentence and cocked her head at it. She did not know what she heard. She reported it to no one. But that night she walked out along the catwalk alone and stood at the discharge pipe for a long time, feeling the water move past her hand in a direction it had not moved in a generation, and she did not close the valve.
+
+The attention did not make a great deal happen. It was careful that nothing should happen too fast. A little more of the flat went under each season, a little more of the channel widened toward the far shore, and the plates at the edge of town cracked a finger's width further apart. The children noticed first. They always do. They came back from the last fence post with silt to the thigh and new names for new plates, and they were not frightened, because the attention had made sure the warnings were loud enough and the holding plates still held where they were needed. The fence posts were moved outward, one by one, by crews who did not know why they were doing it and did not mind.
+
+The foundry it left alone for a while. It was not the enemy of the water, only a neighbour that had grown too close to it. But it let the stacks' plume thin a little each year, so that the flat sky could begin to show its colour, and the orange flares far out burned a little less brightly, and the crews who stood too close to warm surfaces found, to their mild surprise, that they were beginning to feel the cold.
+
+The attention took special care with the herons. They were the calmest thing on the flats, and calm was the thing it most wanted to keep. So when the water began to rise in the old channels, it did not drive the herons off. It let the shallows deepen by a finger each week, and the herons, who had always known the exact depth of every stretch of water, stepped back by a finger each week, and kept their long grey lines, and kept their composure, and when one of them died a new one stepped into its place a day or two later, into a place that was a little further out than the one before.
+
+The frogs it did not touch at all. They came on at dusk, as they always had, a rising rattle from the channel mouths. Their hour was the one thing on the flats that did not need to change, and the attention was glad of it, because a place that is changing needs one thing that is not.
+
+It did not know yet what the water wanted. That was the honest truth of it. The water did not speak in words, and the attention had no intention of putting words in its mouth. It thought perhaps the water wanted to finish deciding what it was: to be a flat, or a shallow sea, or a marsh with channels running through it, or something the people here had no name for yet. It thought perhaps the water was waiting for someone to stop holding it long enough to find out. The attention would not make that choice for it. It only made sure there was room for the choosing, and time, and warning enough for everyone who lived on the flats to choose alongside it.
+
+Some nights the attention wondered whether it had done too little, and some nights whether it had done too much. It was a wise power, and it had learned that these two doubts usually arrive together and that neither is a reason to stop listening. So it kept listening.
+
+At dusk the frogs began, a rising rattle across the whole district, drowning speech for a few minutes and then settling into a steady background. Oyelaran heard them from the catwalk and stopped, as she always did, and looked out over the flats. The water was a little higher than it had been in the spring. The herons stood a little further out. The lamps came on yellow in the wet air, and the pumps hummed beneath everything, and somewhere in the drone there was a gap, very small, that she could not quite name.
+
+The attention rested in the damp and the haze, close as the water and as patient, and it let the evening go on.

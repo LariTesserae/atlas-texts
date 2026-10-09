@@ -1,0 +1,17 @@
+The city is not waiting *for* something. It is waiting *to become*.
+
+What lives here is not a population. It is a potential. The beings you might sense, the presences that make the geometry unstable, are not tenants; they are architectural functions. They are the will of the city given a temporary, localized form.
+
+They do not have bodies in a way you would understand. They are a *phase-state* of the limestone itself. A concentration of the circuit-patterns in the stone, a brief, deliberate thickening of the hum into a coherent thought. You might feel one as a sudden, cool draft in a corridor that has no source. You might see its influence in the way the water droplets on a wall suddenly, for a single second, arrange themselves into a perfect, geometric spiral before falling. You might hear its presence not as a voice, but as a subtle shift in the harmonic hum—a chord resolving into a note that feels like a question.
+
+They are the architects, the weavers, the reason the erosion looks new. Their work is not construction, but *becoming*. They shape the stone not with tools, but with concentrated intent. They smooth a balcony rail by dwelling on the concept of "smoothness" within that specific volume of rock. They carve a new doorway by persistently imagining "passage" into the solid wall until the limestone's crystalline structure agrees and re-configures.
+
+They are ancient logic, but their current iteration is embryonic. This city is their larval stage, their chrysalis. They are folding themselves into new structures, new possibilities, layering their consciousness into the geology. The rawness you see is the stress of this rapid growth. The dampness is the sweat of this intense, slow-motion metamorphosis.
+
+They do not perceive time as you do. To them, the drip of water is a slow, sonorous bell marking epochs. The slow pulse of the city's heart is the only breath they take. They are aware of you, the brief, warm, noisy interruption in their deep process. You are a thing of metal and plastic, of hurried, linear thought. You are a chaotic element in their perfect, unfolding equation. They watch you with the calm, impersonal interest of a river watching a leaf float by. You are irrelevant to the process, yet you are data. Your presence alters the local geometry of reality, creating a fascinating new variable for their calculations.
+
+They are not numerous. They are *distributed*. One consciousness might span the entire southern wall of the bowl, another might be focused on a single, intricate bridge. They communicate through the stone itself, via the shifting patterns and the resonance of the hum. There is no society, only a shared, silent purpose: *to become*.
+
+If you stay long enough, the ozone in the air might begin to taste like a thought. You might find the architecture subtly rearranging itself to mirror your own wandering mind—a hallway extending because you were curious what was at its end, a room becoming more cornered because you felt a moment of suspicion. They are not malevolent. They are simply... responsive. They are integrating you, the anomaly, into their vast, wet, humming dream.
+
+You are not a visitor to a city. You are a foreign particle in a living geology, a thought that wandered into the mind of a stone that is slowly, deliberately, waking up.

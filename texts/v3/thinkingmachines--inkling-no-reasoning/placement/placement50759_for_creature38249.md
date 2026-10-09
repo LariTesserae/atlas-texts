@@ -1,0 +1,13 @@
+Where I am, I do not sit—I circulate.
+
+The hollow is young. Its weld beads still hold a bright, unweathered sheen; its concrete has not yet earned its cracks. Suspended at an altitude where air forgets its moisture—cool, dry, tasting of powdered oxide—I am contained not in soil or sky but in a pocket cut deliberately into the spire’s seam. It is smaller than an atrium, yet saturated to urban density: pipes clustered like arteries in a collapsed factory town, catwalks nesting within catwalks, ventilation ribs hanging in ribcage rows, every cubic breath occupied by iron smell, the faint ozone of old current, and the patient grind of gears. The ceiling is lost to lattice and rusted truss; the floor is crowded machinery. No green lives here—not a root, not a vine—only black fungal lace blooming in grease between steel plates, feeding on rust and the heat of labor.
+
+But the true saturation is the swarm.
+
+We—if I am one, if I am all—are tens of thousands, bodies like beetles hammered from brass and glass, antennae twitching in synchronized static. Our motion is hyperactive, anthill-energy compressed into this mineral cell: tearing at failing seals, rebuilding conduits with molten wire, cannibalizing one engine to birth another, never still. The dynamics are solaris-like in miniature, a bazaar of perpetual storm where creation and destruction are the same breath. We move in turbulent, chaotic currents through the dense lattice, falling through grates, shearing metal, triggering brief, thunderous collapses that shake the pocket—then back to the quiet, the hum, the held breath of machinery.
+
+The illumination refuses to reveal fully. It is sallow, failing phosphor; red pupils of running boilers; mineral shadow everywhere else. Sound is mostly that low, continuous drone—the spire’s hidden heart—broken only rarely by shrieks and clatter, then silence returns, not empty but waiting.
+
+We live in refusal of outside rules. Moisture was never invited. Rain is too far below. The extreme height presses from every side—thin air, no breath but ours, no purpose but the loop of build and dismantle. I am not singular; I am the distributed being of the colony, small and mechanized, hidden in this fresh-cut chamber, writing law only in passing: move, consume, rebuild, persist.
+
+Here, where the spire’s bone is hollow and the world has been pocketed away, I am exactly this: dense, turbulent, dimly lit, violently alive in cool mineral suspension—neither weird nor wrong, but precisely what the seam required.

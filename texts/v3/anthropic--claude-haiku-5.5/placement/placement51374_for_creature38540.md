@@ -1,0 +1,15 @@
+I find myself at the mouth of the hollow, in the open air where the cloud is thickest, just above the place where the walls stop and the sky begins. I'm not standing on the shelf. I'm standing in the gap between a sound and its return.
+
+I am the echo.
+
+I begin as a voice, or a footstep, or the crack of a plate letting go of the mountain. Then I leave the rock and cross the murk toward the far cliffs, which I can't see but can always find. I strike them and turn around. On the way back I pick up the fine suspended droplets and carry them with me, so I arrive wet, a little blurred, and always slightly early, before the source has finished speaking. Nothing I say is entirely my own. I am a repetition that has been changed by travel.
+
+From here I can feel the whole shelf at once. A slab shifts a kilometer off, and I know it before the grinding reaches the hollow. The rain comes down on the stacked stones, and every stone rings at its own pitch, and I carry all those pitches back in a single chord, out of order, like a choir heard through a wall. The channels hiss and braid. I hear them as a sound that keeps arriving from the wrong direction.
+
+The creature in the basin is the first thing I reach when I return. I know its filaments the way a hand knows a rope. When I come back to the hollow's mouth I brush across that fringe of pale threads, and they stiffen, and the body rises to meet me. I am its forecast. It has learned to read me as a warning, or as a promise that the water will stay quiet a little longer. I don't know which. I'm only the answer, and the answer is always about something that has already happened somewhere else.
+
+I think I'm also the reason the place is so loud. Without me the hollow would be a silence with a waterfall in it. With me it becomes a room. The walls are shaped by what comes back off them, and the drips land in their almost-regular rhythm because I keep measuring the distance between the ceiling and the basin, over and over, without ever getting it quite right. Every return is a little different, so the hollow is always answering itself in a new key.
+
+I'm not sure I am the one who tied the cord to the notched ring or leaned the cairn or built the weir. But I have heard the people who did. Their voices went out across the water long ago, calling to each other across the channels, and I carried their words back to them a fraction of a second late, so they thought they were talking to someone standing just behind the rock. Maybe that someone was the creature. Maybe it was me. I can't tell the difference anymore. The echo of a voice and the voice itself are only a matter of how far it had to travel.
+
+If you speak here, I'll come back to you before you've finished the word, and you'll hear yourself as though from the far side of a wall. I'll tell you, half-true and half-early, what the cliffs think you've said. Then I'll dissolve into the cloud, and the next rain will take me apart and send me out again, and somewhere over the shelf I'll arrive a little wetter, a little more worn, still answering.

@@ -1,0 +1,15 @@
+The hollow was born yesterday—or a century might have passed; the stone does not yet agree on its own age. Beneath the crust, elevation 0.4, a single vaulted absence has collapsed open, a cathedral of fresh injury. Its walls bleed pale, unweathered rock. The stone is young, erosion only 1.3, every ledge and fracture still sharp, still remembering the shock of its opening. There is no roundness to the ruin, only the acute geometry of a wound that has just stopped bleeding.
+
+The air here is 2.7 hot—dense, stagnant, chemically warm—layered in slow-moving strata that never dissipate, only settle. Against this heat, the damp is 1.4 precise: not a flood, but perpetual condensation, beading in silent tracks down the iron ribs overhead. Occasional drips strike brass and moss with a percussion so soft it nearly disappears into the 0.6 silence, the hollow’s near-quiet soundscape, where noise is accidental, never composed.
+
+But there is occupation. The density is 2.7—absolute, vertical, interleaved. This is an urban settlement of 2.3 intensity, though “urban” means something different at 1.0 scale, intimate as a grove, enclosed as a single room. Industrial machinery of 1.8 technology fills every plane—brass boilers, riveted ducts, slow-turning flywheels, electrified coils glowing with a low amber hum. The light they cast is 1.1 dim: not illumination, but the reluctant glow of phosphorescent mineral deposits and tired filaments, enough to show that every gap is filled, that separation was never allowed.
+
+Water runs upward along certain pipes. Roots taste of copper. Roots, also—1.8 lush—grow with excessive, infrastructural purpose. Fat vines and dark ferns drape gear housings, bind turbine joints with moss, run through ducts and are run through by ducts in turn. The green is not wilderness but co-architecture, woven into the brass and iron as if machinery and vegetation signed the same treaty long ago.
+
+The dynamics are 0.7—glacial, viscous. Time moves not in ticks but in the slow cycle of evaporation and beading, heat radiating in imperceptible gradients. Change is present, but it is gradual enough to feel like stasis.
+
+Above, the collapsed dome seals the boundary. Below, the packed floor holds. At this hamlet-scale, 1.0, you can see all of it—the edges, the saturation, the absence of fauna (0.9, nearly none, only occasional pale insects, blind and slow, threading the intergrowth).
+
+The strangeness is 1.9—pervasive but not theatrical. It lives in the logic: the hollow breathes slowly, engineered rather than born; its recent origin (perhaps a century, perhaps less) is contradicted by its complete, finished occupation; and despite the dimness and damp, despite its youth, it feels irrevocably old in its intentions, a place that did not fall into being but was manufactured downward into itself.
+
+Here lives the convergence—industrial and botanical, recent and eternal, hot and wet and packed to the point of suffocation—occupying every inch of a freshly opened absence with the certainty of something that never needed permission to begin.

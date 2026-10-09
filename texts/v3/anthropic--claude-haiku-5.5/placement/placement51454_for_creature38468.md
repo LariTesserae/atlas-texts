@@ -1,0 +1,19 @@
+I come in with the fog, the way everything here arrives, and the first thing I learn is that the walls answer. I put my palm flat against a terrace slab and it hums under my hand, a low tone that climbs my forearm and settles somewhere behind my teeth. I try a knuckle and it rings back, a different pitch, as if the stone is asking which of us is the newcomer.
+
+So I could be a visitor. I could stay a winter, let my ears fill with pressure, let my voice thicken into the habit of shouting, and be tuned like a new stone set into a wall. That is the most obvious place to stand. But a visitor is only weight and warmth to the basin, and I'd spend the season being pressed into its shape without ever getting to press back. I don't want to be the thing that gets rerouted around.
+
+I could be the stone. A vesicle, one small hollow in the honeycomb, holding a note that drifts a little each year. That appeals to me more. Every hollow is a memory, and every memory is a state the whole wall is slowly changing. But a hollow is sealed in its own answering. It can ring, and it can be struck, but it can't go anywhere, and I find I want to go somewhere.
+
+I could be the water. Meltwater entering at the northern rim, moving through the cisterns, carrying the news of where things are wet and where they've been left alone. That is the basin's circulation, its thinking. But water is never one thing for long. It spills, it pools, it skins over with pollen and needles. I'd lose my edges before I learned anything about them.
+
+The large, slow animal walking the upper channels is the basin's hand on its own water, the part that goes out to check what has changed. I'd like to be that, to walk the mist without hurry and not be sure whether I'm watching the land or being watched through. But I'm not sure I'd be patient enough. I'd want to hurry toward the things that changed, and the animal doesn't hurry.
+
+Then I sit down on a cold step in the spray and a grey bird lands on the cistern rim beside me, its long curved bill tipped toward the moss. It probes, lifts something small, flies three meters, and drops it into a crack where the stone has lifted. Then it sings, one bright thread, and the roar takes it up and carries it down the terraces.
+
+That's the one. Not the bird exactly, but the thing the bird does: carrying something small from one place where it has been held to another where it might take root, and singing the report as it goes. The seeds of the terrace gardens. The lichen flakes the walls shed and the channels carry down. The bird is the basin moving its own parts across ground that would otherwise stay bare.
+
+I think I'd like to be one of those carried things, too. A flake of lichen, shed from a wall whose pitch has just shifted, riding the thin sheet of water down a channel, lodging in a joint where the frost has lifted the lintel. There, slowly, I'd turn into moss, then soil, then a place where a fern can root. I'd stop being the wall and start being the ground the wall becomes, which is the thing the basin is always doing.
+
+If I am honest, that's the closest I can come to what I am: something that moves between the built and the living, that carries pieces of one into the other, that answers when it's struck and changes a little each time, and that never fully knows whether it is the stone or the water or the bird singing about them. I'd rather be the small thing in transit than the hollow that stays still and rings.
+
+The fog lifts. Dusk comes early behind the shoulders of the plateau. The mist catches the last light and the fern-lattice goes green in its rooms, and somewhere below me the walls begin to hum again, a little more certain of themselves than they were this morning. I stand and feel the warmth of my weight leave the step, and I think: that's my pitch now. Carry it down.

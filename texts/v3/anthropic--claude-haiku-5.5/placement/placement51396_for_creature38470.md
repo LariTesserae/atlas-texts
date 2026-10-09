@@ -1,0 +1,17 @@
+I would be the drop of dew.
+
+I begin on a leaf of the ground mat, in the grey hour before the sun clears the rims. I am one of thousands, pooled in the hollow of a fleshy blade, cool and heavy and not yet anyone's. The leaf tilts under my weight. Below, a forager's jaws close on the edge of the blade, and I slide along the rim into the dark of a mouth.
+
+Inside, I am no longer one thing. The forager's crop is warm and close, and I am pressed against other fluids: sap from the stem, a trace of salt from the brine rim, something sweeter from a vine. We are passed on. Mouth meets mouth in the lane, a brief touch of antennae, a shudder, and I am carried into a body I have never been in before, then another. No one keeps me long. That is the rule here. I am held only long enough to be moved.
+
+The lanes are polished like river stones, though no river ever made them. I move through them with the file, down the ramps, past a new tier still weeping salt, past a digger undercutting a raw bank of ochre clay that has not yet hardened into anything. The walls on either side smell of resin and cracking. Someone sends me a sharp little signal, a warning or an instruction, and the whole line bends slightly to avoid a fault. I do not know what the fault is. I only feel the bend.
+
+The air gets warmer as we climb toward the core. Humidity thickens. The galleries breathe around us, drawing air down through the terraces in slow cycles, and I am carried in the rhythm of that breathing. Somewhere deep in the sealed chambers, something large and pale shifts its weight, and a new corridor opens a few body-lengths from my path. The traffic reroutes. I go with it.
+
+By the time the sun is high, I am on a roof. The light is hard and white, the glare off the crust making everything shimmer. Below me the seedlings are wet from the morning's last drip, and the tenders tilt their heads toward them. A root has found a crack in the warm crust, where a fine resin is seeping, and something green has begun to spread from it. A tender lowers its mouth to the soil and leaves a part of me there. It is not a gift exactly. It is what the city does with what it carries.
+
+Then the heat comes up through the crust and I begin to leave. I rise as vapor, thinning into the thick air over the mounds, where the insects gather in their faint gold haze. I drift over the canopy, past the emergent trees whose crowns sway like sails, past the herds bending their heads through the understory. The afternoon cumulus is building. It always builds and rarely breaks, and I am part of its slow pale mass now, gathering with the others.
+
+I am not sure where I stop. The basin has been breathing me back into the sky all morning, and the sky is holding me the way the leaves held me at dawn, a weight that is not yet anyone's. Somewhere below, the lanes are still wearing deeper. The towers are still climbing. The roots are still finding new cracks. Something in the crowd of bodies is still thinking, in clay and resin and root and dew, and I am one of the few things that moves through all of it.
+
+When the cloud finally thins, I will fall again onto a leaf. The dawn will be cool and the rim will be heavy, and I will not remember this, but the lane will. It always does.

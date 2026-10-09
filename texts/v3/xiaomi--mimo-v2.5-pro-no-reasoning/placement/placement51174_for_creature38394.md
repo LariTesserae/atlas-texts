@@ -1,0 +1,33 @@
+I stand in the eastern marshes, where the terrace steps down and the warm water lies deepest. My form is low, broad, and heavy — my center of gravity barely a handspan above the water's surface, my four legs splayed wide to distribute my weight across the soft, mineral-rich ground. My body is flat, almost disc-like, covered in a chitinous carapace that is dark and smooth and perpetually slick with condensation. I am ancient. Not in the way of the stone-born, who are part of the plateau's bone; I am ancient in the way of a successful adaptation, a lineage that has persisted because it was never important enough to eliminate.
+
+I am a water-strider. Or I was, long ago, when my ancestors were small and skittered on the surfaces of ordinary pools. We were among the first to arrive, carried here by some forgotten accident — a bird's foot, perhaps, or a clump of vegetation torn free from the lowlands and deposited by a storm. We arrived small and delicate, with long, hair-fringed legs that dimpled the surface tension of water. We arrived expecting to die.
+
+We did not die.
+
+Instead, we grew. The water of Gondrem is heavy, dense with dissolved minerals, and its surface tension is higher than any water my ancestors had known. It held us more firmly, allowed us to become larger, heavier, stronger. The mineral content of our diet — the thin biofilm of iron-fixing bacteria that forms on the water's surface, the occasional beetle that stumbles into the shallows — gave our exoskeletons a metallic hardness. The roar, which drove away every competitor and every predator, left us alone. We were too small to matter, too quiet to be heard, too insignificant for the plateau to notice.
+
+And so we stayed. And we adapted. And we grew.
+
+My legs are no longer delicate. They are thick, armored, jointed like the limbs of construction equipment. Each foot is broad, a flat paddle covered in thousands of microscopic hydrophobic hairs that grip the surface tension of the water with a tenacity that belies my size. I do not walk; I *skate*, a slow, deliberate glide across the marsh surface, each leg moving in sequence with a patience that would satisfy even the stone-born. My eyes — compound, multifaceted, set high on the sides of my carapace — are adapted to the diffuse light, perceiving not sharp images but patterns of polarization, gradients of moisture, the subtle topography of the water's surface.
+
+I am not alone. My kind are scattered across the marshes in small, slow-moving colonies. We do not swarm; we do not mass. We spread ourselves thin, each one maintaining a careful distance from its neighbors, each one monitoring a particular stretch of water. We communicate — when we must — through the surface of the water itself, sending tiny ripples outward from our feet that travel through the heavy liquid with surprising clarity. The stone-born feel us as a faint, high-frequency vibration in the ground, a sensation they describe (in their tactile language) as "tickling." They tolerate us. We are part of the system. We consume the bacteria that would otherwise clog the seeps. We are food for the spiders. We are too slow and too patient to be a nuisance.
+
+My life is measured in glacial increments. I have been stationed at this particular pool — a shallow depression three meters across, fed by a slow seep from the northeast, its surface crusted with a thin film of calcium carbonate — for what an outsider would call seven years. I have not moved more than ten meters from this spot in that time. There is no need. The pool provides. The bacteria are plentiful. The occasional beetle ventures too close to the water's edge, and I am there, slow and inevitable, my legs churning the surface into tiny vortices that draw the insect toward my waiting mouthparts.
+
+I do not think in words. I think in surfaces. My consciousness is a map of tension differentials, of the way the water bends and yields and resists beneath my feet. I feel the slow pulse of the aquifer through the water's surface, a rhythmic thickening and thinning of tension that corresponds to the deep, grinding roar of the stone. I feel the mist settle and lift, each droplet that forms on the air and touches the surface a tiny event, a minuscule release of energy that registers on my legs like a tap on the shoulder. I feel the slow migration of the seep that feeds my pool, the gradual shift in pressure that will, over the next century, cause it to emerge two meters to the west of its current source.
+
+The stone-born do not notice me. I do not notice them, except as large, slow-moving regions of shadow and vibration. We coexist in the same space without interacting, like two melodies played in different keys. Occasionally, one of them will stand at the edge of my pool, monitoring the seep, updating their endless maps. I will be there, motionless on the surface, a dark, flat shape that might be a shadow, might be a stone, might be a lichen-covered chip of debris. They do not see me. I do not see them. We are both looking at the water.
+
+The roar is my silence. It is the background against which all other sounds are measured, and since there are no other sounds, it is simply the condition of existence. I have never known quiet. I have never known a world without the grinding, the rushing, the deep subsonic breath of the stone. It is not noise. It is *place*. It is the texture of the air, the weight of the light, the viscosity of the water. It is the sound of Gondrem, and I am a small, dark shape skating across its surface, patient and ancient and utterly, utterly still.
+
+When I die — and I will die, eventually, though the timeline is unclear even to me — my body will sink slowly into the water, my carapace filling with the heavy, mineral-rich liquid, my legs curling inward. The bacteria will colonize my remains, and I will become part of the biofilm, a thin, dark layer on the surface of the pool that my offspring — budding from the surface tension itself, tiny replicas of myself that skate away to find their own patches of water — will consume without knowing or caring that they are consuming me.
+
+This is the way of Gondrem. Everything is already happening. The water weeps. The stone roars. The machines cycle. The stone-born maintain. And I, small and flat and dark, skate across the surface of it all, a ripple in a pool that will be gone in a moment, while the pool itself remains.
+
+Already happening.
+
+---
+
+The plateau hums. The pools shimmer. The mist gathers.
+
+I skate on.

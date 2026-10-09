@@ -1,0 +1,29 @@
+They are not born; they are precipitated.
+
+In a place where the air is thick enough to drink and the rock is still warm from the womb of the earth, life does not evolve over eons. It condenses out of the humidity like dew on a windowpane. They have no names, for naming implies a history, and here, history is erased every hour by a shifting ledge or a burst spring. They are the **Silt-Walkers**, though they walk only when they must, and they are more often stillness than motion.
+
+To see one, you must look past the aggressive greenery, into the shadows where the moss is thickest, where the light fails completely. At first glance, they appear to be mere anomalies in the stone—clumps of dark, wet clay mixed with root fibers. But then the clump breathes.
+
+They are humanoid only in the loosest, most tragic sense. Their bodies are composed of the gorge’s own refuse: slurry, crushed fern fronds, slate dust, and the viscous sap of the strangle-vines. They possess no skin, only a membrane of compacted mud that hardens in the dry intervals and softens into ooze when the mist descends. This makes them shapeless until they choose a form. When standing, they elongate, stretching upward like taffy, trying to mimic the verticality of the walls that imprison them. When resting, they slump into puddles, becoming indistinguishable from the ground that birthed them.
+
+Their faces are smooth, featureless ovals of polished shale. There are no eyes, for there is nothing to see but gray mist and green chaos. Instead, they perceive through vibration. The constant roar of the subterranean water, the cracking of granite, the tearing of vines—this is their language. They feel the world through the soles of their feet, which are broad and flat, designed to grip the slick, unstable surfaces of the gorge floor. They can feel a rock shift three meters away before it happens. They can feel the pressure change in the air moments before a hidden seep bursts forth.
+
+They do not eat. In this hyper-accelerated ecosystem, consumption is too slow. Instead, they *absorb*. They press their porous bodies against the raw, nutrient-rich wounds in the rock face, drawing sustenance directly from the mineral leachate and the decaying matter of plants that died minutes ago. They are scavengers of the immediate present. If a fern is crushed by a falling stone, the Silt-Walker nearest to it will flow toward the debris, enveloping it, breaking it down with acidic secretions that smell of ozone and rotting leaves, integrating the energy into their own shifting mass.
+
+Their lives are brief, violent, and silent. A single Silt-Walker might exist for only a few days. They grow rapidly, fueled by the same unseen surge that drives the ferns, swelling from a palm-sized lump to a man-sized figure within hours. But stability is death here. As they grow, they become heavier, more rigid. The very weight of their existence becomes a liability in a landscape that refuses to hold still.
+
+When the ground shifts—a common occurrence, marked by the thunderous crack of settling geology—the Silt-Walkers do not flee. They cannot. Their legs, if they have formed legs, are rooted in the moment. They shatter. Not into blood and bone, but into mud and splintered root. They dissolve back into the slurry from which they came.
+
+But they do not die alone.
+
+As one dissolves, its nutrients feed the soil. And from that enriched patch, new lumps begin to coalesce. Sometimes, two Silt-Walkers will merge, their bodies flowing together in a seamless union of mud and memory, creating a larger, more complex entity that lasts slightly longer, perhaps long enough to witness a full cycle of day and night (though neither exists clearly here). These mergers are rare, accidental collisions caused by the chaotic movement of the terrain. When they happen, the resulting creature is taller, more defined, its shale-face bearing faint, swirling patterns like wood grain. It stands stiller, listening more intently to the groan of the mountain.
+
+They are aware of each other, but not in the way humans are. There is no communication, no society. Only a shared resonance. When one moves, others nearby ripple in sympathy, like ripples in a pond. They move as a single organism spread across the floor of the gorge, a distributed consciousness made of dirt and decay.
+
+Why do they rise? Why take form at all?
+
+It seems to be an act of defiance against the erasure. The gorge seeks to grind everything down to uniform silt, to wash it away into the dark underground rivers. By forming shapes, by standing upright, even for an hour, the Silt-Walkers assert a temporary order. They create a silhouette against the gloom. They leave footprints in the mud, however fleeting. They are the mountain’s attempt to understand itself. The rock screams as it breaks; the plants explode as they grow; but the Silt-Walkers *watch*. They stand in the rain, letting the water wash over their shale faces, feeling the cold penetrate their mud-hearts, witnessing the beautiful, terrible violence of creation.
+
+They are the witnesses to the factory floor of nature. They see the fern unfurl and be crushed. They see the vine snap and regrow. They see the light fade and return. And when the ground finally gives way beneath them, sending them tumbling into the churning darkness below, they do not scream. They simply let go, returning to the source, waiting to be reformed by the next pulse of the earth’s restless heart.
+
+There are hundreds of them, scattered along the length of the fissure, emerging from the damp shadows, standing sentinel over the chaos, only to dissolve again before the sun—or what passes for it—can fully illuminate their transient forms. They are the ghosts of the gorge, made not of spirit, but of the very stuff of the place: wet, heavy, temporary, and alive.

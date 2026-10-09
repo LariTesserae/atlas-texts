@@ -1,0 +1,13 @@
+Here, in the heart of a world gone still, the inhabitants are not the masters of their domain, but rather the patient weavers of its eternal twilight. To live here is to be a part of a perfect, unchanging pattern.
+
+They are the **Dust Weavers**.
+
+They are quiet beings, their bodies long and slender, shaped like a mantis but armored in a shell of polished, greyish chitin that seems to drink the dim light. Their limbs are a marvel of precision—long, multi-jointed, and ending in fine, delicate points, like a surgeon's tools or the legs of a spider. They move with a slow, deliberate grace, their steps making no sound on the crunchy floor of fossilized pollen and spores. They are not seen often, preferring to be one with the shadows cast by the great, pulsing fungal cushions. But their presence is everywhere, a silent testament to a singular, patient purpose.
+
+Their life is a ritual of arrangement.
+
+They are the sole artists of the Ossuary Garden, their art born not of imagination, but of cultivation. They tend to the crystalline lichens, coaxing the young, sharp growths into specific, intricate patterns. A Dust Weaver will spend what might be a human lifetime polishing a single shelf of lichen until its edges are impossibly sharp, its surface reflecting the faint green-gold glow like a shattered mirror. They are the architects of the small cairns, stacking the smooth mineral pebbles into perfect, gravity-defying towers, each stone chosen for its weight and texture. They weave the papery fibers of the old tunnels into delicate, lattice-like structures that serve as trellises for new fungal growth.
+
+Their technology is not one of creation, but of curation. They use the chitinous plates of the Amber Millipedes—shed after centuries of growth—as bowls and boundary markers, arranging them in circles to protect a particularly vibrant patch of purple fungus. They do not hunt; they do not build shelters. Their entire existence is dedicated to the gentle, endless task of tending to the world that is, and preserving it exactly as it is.
+
+To watch one at work is to witness a profound meditation. It will hold a single, palm-sized shard of lichen for hours, turning it over and over in its spindly claws, before placing it just so, a millimeter to the left, a degree to the right. There is no haste, no urgency. Their life cycle is measured in the growth rings of the fungal carpets, their purpose written in the slow, unchanging dance of the Glass Wasps. They are the keepers of the stasis, the quiet gardeners of a dead god's bones, ensuring that the loud, humming silence of the Ossuary Garden endures, perfect and unbroken, for all of time.

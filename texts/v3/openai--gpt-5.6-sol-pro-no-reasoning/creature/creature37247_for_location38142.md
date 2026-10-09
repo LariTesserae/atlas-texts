@@ -1,0 +1,19 @@
+What lives in the hollow is less a community than a single, scattered persistence.
+
+Most of it lies beneath the visible ground. A dark root-body threads through the seams between clay plates, descending where the crust holds warmth and spreading laterally where a trace of mineral moisture gathers. It may occupy much of the basin without possessing a center. The black mats in the cracks are its exposed surfaces: dense, folded tissues more like weathered hide than leaves. They open by fractions when the dimness is sufficient and seal themselves when the air becomes too dry. Growth is so slow that dust can polish one fold for years before another forms beneath it.
+
+The upright stalks along the scarps may be separate plants, or they may be distant expressions of this same buried life. Their bronze blades lie against jointed stems to conserve moisture. Each blade is rigid at its edges and faintly fibrous within. It does not turn toward the sky, for there is no moving sun to follow. Instead, the stalks respond to heat conducted through stone. Roots thicken toward stable warmth and withdraw from surfaces where temperature changes too quickly.
+
+Below the crust, reproduction and repair are nearly indistinguishable. A root swells, partitions itself, and waits. In time one portion ceases to exchange anything with the other, though they may remain joined by dead fiber for centuries. Blunt capsules dropped at the surface are less seeds than provisions sealed around a dormant fragment. Most never open. Those that do may wait through generations of minute cracking until they touch a seam deep enough to shelter them.
+
+Nothing here grazes these plants, pollinates them, nests among them, or feeds upon their remains. Their outer tissues are therefore not shaped by appetite. They offer no sweetness, fragrance, bright color, hook, burr, or wing. When a blade dies, it does not rot quickly. It contracts against the stem, splits into strands, and is slowly worked into the dust by repeated warming and cooling. The dead remain near the living and are eventually incorporated into the root-bound aprons beneath the scarps.
+
+If anything else inhabits the hollow, it does so below the threshold of ordinary notice: a mineral-dark film within the warmest fissures, perhaps, sustained by tiny chemical differences between stone and root. It has no movement that an eye could detect and causes no visible decay. It would be difficult to say whether such a film is many organisms or one continuous process occupying whatever narrow surfaces permit it.
+
+The smooth patch at the center appears empty because even this austere life avoids it. Its warmth is constant but offers no seam, no purchase, no retained trace of moisture. Roots approach its margin and bend aside. The bare area is therefore not the hollow’s heart in any living sense. It is a quiet exclusion around which the buried network has slowly arranged itself.
+
+There are no waking creatures concealed under the plates, no patient eggs awaiting rain, no pale burrowers moving in the deep clay. The occasional tick is only stone. The slight scrape is only one blade touching another. No awareness answers either sound.
+
+The hollow’s inhabitants do not experience stillness as deprivation. Stillness is the condition to which every part of them has been fitted. They live by retaining rather than seeking: retaining warmth, retaining minute moisture, retaining old tissues until almost nothing useful remains in them. Their migrations are measured in the extension of roots across a crack. Their seasons may consist only of slight changes in the width of those cracks.
+
+Seen all at once, they might look like a few black stains and a sparse row of dead stems. Seen across centuries, they would reveal themselves as something broader and stranger: a life that has relinquished haste, abundance, and encounter, and spread through the hollow as quietly as warmth through stone.

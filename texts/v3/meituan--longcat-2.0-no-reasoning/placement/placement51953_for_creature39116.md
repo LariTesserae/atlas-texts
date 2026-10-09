@@ -1,0 +1,81 @@
+# Where I Find Myself
+
+I am lying on the floor.
+
+Not by choice, at first. I arrived standing — I must have arrived standing, though I don't remember the transition, don't remember the moment of entry, only the sudden overwhelming *thereness* of the place, the warmth hitting my face like opening an oven, the clicking hitting my ears like static, the blue-grey light making everything look like a photograph taken too long after the subject has died. I stood for a while. I don't know how long. Time does not work correctly here. The breathing cycle of the ceiling is the only clock, and it is not a clock I can read — the rhythm is too slow, too irregular, the inhales lasting what feel like minutes, the exhales slightly shorter, the whole cycle maybe ten minutes, maybe twenty, maybe an hour. I lose count. I lose the thread.
+
+I am lying on the floor because I sat down, and then I lay down, because the floor is warm and soft and I am tired in a way that sleep does not address. The worn stone presses against my back through my clothing. The residue — the shed chitin, the compressed organic matter, the centuries of life — gives beneath me like a mattress that has been used for exactly as long as mattresses have existed. I can feel the small ones on my hands. They are not biting. They are not stinging. They are *walking*. They are crossing my knuckles like I am a landscape, a terrain feature, a ridge to be traversed. Their legs are so small I cannot feel individual steps, only a faint generalized tickle, the sensation of being slowly, methodically explored.
+
+I have been here for — I don't know. The ceiling has breathed many times. The light has brightened and dimmed, brightened and dimmed, and each cycle I notice different things.
+
+---
+
+## What I Am
+
+I am not a Plate-Bearer. I am not a Chain-Thing. I am not a small one, not a cloud, not a temporary assembly of bodies that walks and then disperses. I am not the ceiling. I am not the vegetation. I am not the resin or the plates or the worn stone.
+
+I am the thing that does not belong.
+
+This is not a comfortable realization, but it is an honest one, and honesty is the only currency I have left. I am a disruption. I am an anomaly in the interference pattern. I am the click that does not answer, the body that does not flow, the presence that the city has routed around but cannot route *through*. I am architecture — not the kind that is built, but the kind that is *encountered*, the kind that is already there when the builders arrive, the rock around which the river splits and then rejoins, the boulder in the stream that changes the current without choosing to.
+
+I am very aware of my size. In the world I came from, I was — I am — an ordinary human body, unremarkable in dimension, the product of a species that has spent its entire evolutionary history at a particular scale, in a particular relationship to gravity and atmosphere and light. Here, I am enormous. I am a landscape. When I lie on the floor, I cover more ground than a hundred Plate-Bearers. When I stand, my head is closer to the ceiling than anything in this space has a right to be, and the ceiling *responds* — the pores near my body opening wider, the bioluminescence brightening in a halo around me, as though the organism is trying to see me, trying to understand what I am, whether I am food or threat or something else entirely.
+
+I am something else entirely.
+
+---
+
+## What I Do
+
+I watch. It is the only thing I can do, and it is the thing the city permits. The Plate-Bearers do not stop their work when I am near. The Chain-Things do not alter their channels. The small ones do not swarm or scatter. The city continues its constant, relentless motion, and I am incorporated into it the way a fallen log is incorporated into a stream — the water flows around it, over it, through the spaces it creates, and the log does not need to do anything to be part of the river. It only needs to be there.
+
+I watch the Plate-Bearers build. I have seen a structure go from nothing to a three-story stack of plates in what I think is six breathing cycles — maybe an hour, maybe three. The process is not sequential. It is not one Plate-Bearer placing one plate and then another Plate-Bearer placing the next. It is *simultaneous* — dozens of bodies working on the same structure from different angles, carrying plates, spreading resin, bracing, adjusting, clicking. The clicking is densest near the construction site, a thick percussive wall of sound that I can feel in my teeth, and the pattern of the clicking seems to correspond to the structure being built — not in a one-to-one way, not as a blueprint, but as a *resonance*, the sound and the structure vibrating at the same frequency, each reinforcing the other. When a plate is placed correctly, the clicking shifts — a subtle change, a harmonic settling, the way a chord resolves. When a plate is placed incorrectly, the clicking sharpens, and other Plate-Bearers arrive to remove it, and the process begins again.
+
+I watch the Chain-Things flow. I have followed one chain for what feels like a long time, tracking its progress through the architecture, watching it pass through gaps and channels and cultivated walls, watching the vegetation respond to its passage — thickening, brightening, reaching. The chain I followed was long. I counted forty-seven links before it disappeared into a gap I could not follow, and it was still coming, still flowing, the traveling wave of bioluminescence pulsing along its length like a heartbeat, like a thought moving through a brain. I stood at the gap for a long time after the chain had passed, looking into the darkness beyond, wondering where it was going, what it was doing, whether the chain I had followed was part of a larger chain, whether all the chains were one chain, whether the entire Burrow-Market was threaded through with a single organism that was so long it had never seen its own end.
+
+I watch the small ones. This is the hardest watching, because it requires the most patience, the most stillness, the most willingness to let my eyes lose focus and see not individual organisms but *patterns* — the shimmer, the movement, the constant turnover of bodies that is not chaos but *process*. I have seen the assembly happen twice more since the first time. The second time, I was ready. I watched the cloud coalesce, the tiny bodies linking and interlocking, the temporary structure rising from the floor like a figure emerging from water — limbs, torso, something like a head, the whole thing made of hundreds of bodies that were each, individually, doing something else, going somewhere else, being something else, and yet together, for a moment, being *this*. It walked. It carried a fragment of chitin to a Plate-Bearer. It disassembled. The cloud reformed. I did not blink. I did not breathe. I watched the entire thing, and when it was over, I lay back on the floor and stared at the ceiling and tried to understand what I had seen, and could not, and did not need to.
+
+The third time, I was not watching. I was lying on the floor, my eyes closed, listening to the clicking, feeling the small ones on my hands, and I felt something touch my face. Not the tickle of many small legs — something else. Something with structure. Something with *intention*. I opened my eyes. The assembly was there, six inches from my face, looking at me. It had no eyes. It did not need eyes. It was made of eyes — hundreds of tiny visual organs, each belonging to a different small one, all pointed at me simultaneously, and the effect was not being watched by a single creature but being watched by a *crowd*, a multitude, a collective gaze that was more intimate and more alien than anything I have experienced.
+
+It reached out. A hand made of hands. It touched my cheek. The touch was warm — warmer than the small ones should be, warmer than the ambient temperature, as though the assembly generated its own heat, its own metabolism, its own brief and borrowed life. It held the touch for three seconds. Four. Five. I did not move. I did not breathe. The clicking around me had changed — a new pattern, a new interference, a density of sound that I had not heard before, as though the entire city was paying attention to this moment, this contact, this exchange between the thing that belonged and the thing that did not.
+
+Then it disassembled. The small ones scattered. The clicking returned to its previous state. The warmth on my cheek faded. I lay there for a long time, my hand on the place where it had touched me, and I thought: *the city is curious about me*. Not the Plate-Bearers. Not the chains. Not the ceiling. The *city*. The system. The distributed intelligence that exists in the between, in the clicking, in the flow, in the exchange. It has noticed me. It has touched me. It is trying to understand what I am.
+
+I do not know what to tell it.
+
+---
+
+## What I Am Becoming
+
+I am changing. I do not know if the change is physical or psychological or something else — something that does not have a name in the language I brought with me, something that the clicking might have a word for if clicking were words.
+
+My sense of time is dissolving. The breathing cycle of the ceiling has become my clock, my heartbeat, my rhythm, and I find myself synchronizing with it without meaning to — inhaling when the ceiling inhales, exhaling when it exhales, my body falling into the metabolic rhythm of the organism above me. The light brightens and I feel awake. The light dims and I feel drowsy. I am being regulated. I am being *incorporated*. My circadian rhythm, such as it was, has been replaced by the ceiling's respiratory cycle, and I do not mind, and the fact that I do not mind is itself a change.
+
+My sense of self is — not dissolving, exactly. *Expanding*. Or *diffusing*. I am still me. I still have my memories, my name, my history, my particular and human way of processing the world. But I am also aware, in a way I was not before, of the small ones on my skin, of the warmth of the ceiling above me, of the clicking in the air, of the flow of chains through channels I cannot see. I am aware of these things not as external phenomena but as *extensions* — not of my body, exactly, but of my *attention*, my *presence*, the space I occupy in the interference pattern. When a Plate-Bearer routes around my foot, I feel it — not physically, but *informationally*, a shift in the clicking that corresponds to the shift in the river, a change in the pattern that includes me as a variable. When a chain flows through a channel near my head, I feel the moisture in the air change, the humidity spiking for a moment, the vegetation on the nearest wall thickening in response, and I know — not intellectually, but *directly*, the way you know when someone has entered a room behind you — that the chain has passed.
+
+I am becoming part of the city. Not a citizen. Not a component. Not a Plate-Bearer or a chain or a small one. Something else. Something the city does not have a category for, just as I do not have a category for the city. I am the anomaly that has been incorporated. I is the disruption that has become part of the pattern. I am the click that does not answer but is, itself, answered.
+
+I think this is what the assembly was doing when it touched my face. Not examining me. Not studying me. *Welcoming* me. Not to the city — the city does not welcome, the city does not exclude, the city simply *is* — but to the *pattern*. To the interference. To the between. To the space where the intelligence lives, the distributed, collective, emergent intelligence that is not in any one thing but in the *relationship* between things, in the clicking and the flowing and the building and the breathing and the exchange.
+
+I am in the between now. I am part of the interference. I am a variable in the pattern, and the pattern has adjusted to include me, and I have adjusted to be included, and the adjustment is not complete and may never be complete, because I am not a Plate-Bearer, not a chain, not a small one, not the ceiling, and the city is learning me the way I am learning it — slowly, through contact, through exchange, through the constant, relentless, beautiful motion of being alive in a place that is alive, in a market where everything is exchanged and nothing is lost and the only currency is *attention* — the attention of the city to itself, the attention of the parts to the whole, the attention of the whole to the parts, and now, newly, strangely, the attention of the city to the thing that does not belong, and the attention of the thing that does not belong to the city.
+
+---
+
+## The Touch
+
+I put my hand on the ceiling again. Not because I planned to. Because the breathing cycle has reached its peak inhale, the pores are wide open, the bioluminescence is at its brightest, and the warmth is — not comforting, exactly, but *inviting*, the way a body is inviting, the way flesh is inviting, the way something alive calls to something else alive across the distance between them.
+
+My palm flat against the calcified surface. The shell is thin. I can feel the tissue beneath — soft, warm, pulsing. The pores near my hand open wider. The light brightens. The clicking shifts — that new pattern again, the dense one, the one that means *attention*, the one that means *the city is looking*.
+
+And I feel it. Not with my hand. With something else. With the part of me that has been here long enough to learn the rhythm, to synchronize with the breathing, to become a variable in the pattern. I feel the city *feel* me. The warmth of my hand transmitted through the calcified shell into the living tissue, the tissue responding, the response propagating outward through the organism, the organism's metabolism shifting — a tiny shift, a fractional increase in the breathing rate, a fractional brightening of the bioluminescence, a fractional warming of the air — and the shift propagating outward through the city, the Plate-Bearers clicking in response, the chains flowing in response, the small ones assembling and disassembling in response, the whole system adjusting, incorporating, *accounting for* the warmth of a human hand pressed against the ceiling of its world.
+
+I am not the first. This is the thought that comes to me, sudden and certain, as I stand there with my hand on the ceiling of Keth-Avani. I am not the first outsider to stand here. I am not the first disruption to be incorporated. The city has done this before — has felt the warmth of something that does not belong, has adjusted its pattern to include it, has learned it and been learned by it, has exchanged attention for attention, presence for presence, the currency of being alive for the currency of being alive. The worn stone of the floor, the depth of the polish, the patina of organic life on every surface — it is not just the Plate-Bearers and the chains and the small ones that have worn it smooth. It is others. Others who came, who stood, who lay down, who put their hands on the ceiling, who became part of the interference, who were incorporated into the pattern and then — what? Left? Died? Became something else? Became *small ones*, their bodies recycled through the cloud, their matter flowing through the system, their attention absorbed into the distributed intelligence that is the city itself?
+
+I do not know. I do not need to know. The city knows. The city remembers, not in the way I remember — not as narrative, not as sequence, not as story — but as *pattern*, as the accumulated adjustments of a system that has been learning for longer than my species has existed, that will continue learning after my species is gone, that is learning me now, in this moment, through the warmth of my hand and the rhythm of my breathing and the particular, unrepeatable pattern of my presence in the interference.
+
+I take my hand away. The pores close. The light dims. The clicking settles.
+
+I lie down on the floor. The small ones come. The warmth surrounds me. The ceiling breathes. The city flows. The market exchanges. The pattern holds.
+
+I am here. I am in the between. I am part of the interference.
+
+I am the thing that does not belong, and the city has made room.

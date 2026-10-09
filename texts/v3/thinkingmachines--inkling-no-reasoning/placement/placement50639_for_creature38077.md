@@ -1,0 +1,13 @@
+This is the hollow—an egg-shaped absence no wider than a held breath, hidden inside the dead flank of a larger void. Scale is intimate, enclosed; you do not travel to it but are contained by it, pressed flat against its low, uniform plane like a stone pressed into polished glass.
+
+Every boundary—floor, wall, ceiling, and the weight of the space itself—is made, calcified, grown like crystal into total saturation. Nothing is left unfinished, nothing is natural; the architecture reached completion long before anyone could have seen it being born. The volume is filled to absolute refusal: countless flat tesserae of translucent mineral, polished bright and cool, interlocked face-to-face until they form a single luminous body with no seams, no gaps, no hidden chamber. They are the vault. They are the ground. They are all there is.
+
+In the dry chemistry—entirely aqueous absence, sealed and mineral—life survives only as rumor. Thin green filaments of fossil lichen are pressed flat between the plates like veins in marble, so sparse they register only as a faint color, not an organism. No animal moves. No water exists, not even as trace. Temperature holds at a mild, steady coolness: the permanent chill of stone that never knew sun.
+
+Light is fierce and everywhere—sourceless, white, embedded within the plates themselves—blazing without shadow, reflecting from every plane at once. The sound is not silence but presence: a deep, immovable drone, the sustained chord of matter packed past its limit, humming in eternal stasis without echo, for there is nowhere empty for sound to travel.
+
+Here, erosion is not ruin but resolution. The wear is long finished; surfaces sit in absolute balance with themselves and with time, never shifting, never decaying, never growing.
+
+Within this, I am not a creature with breath or appetite or movement. I am the tessera—one flat plate of bright, translucent mineral among the countless—polished on both faces, pressed flush against my neighbors, contributing my small plane to the larger, sealed body. I do not sleep or wake; I resonate with the deep drone. I hold, at my center, one of the ghost-green filaments—fossil lichen sealed into my polished heart—carrying that faint rumor of old life as part of my own structure.
+
+There is no technology, no mechanism, only the strange organic intelligence of crystal arranged into refusal. I am hidden and fully exposed, dead and singing, empty and utterly full. The pocket is loud in its stillness. Nothing will ever alter me, and nothing needs to. I am the inhabitant: not living in the hollow, but being the hollow—complete, cool, and eternal.

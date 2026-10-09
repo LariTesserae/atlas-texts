@@ -1,0 +1,11 @@
+Here lives abundance—only abundance, pressed into a valley that has not finished becoming.
+
+It lives in the shallow, dark water that never drains and never rises, pooled over gray mud that still debates whether it is soil or stone. Here lives the warm, thick air, hanging low and saturated, clotting against every surface in beads that never run, never evaporate, never leave.
+
+Here live the crawlers—thick-bodied and pale—shell-less molluscs, segmented bodies, soft amphibians without voices. They live in constant migration, sliding over the flat stones and through the half-carved channels, rustling in multitudes so vast their movement becomes the only weather: a sustained, featureless thunder of wet presence, deafening and eternal, neither cresting nor falling away. They do not call. They do not hunt with drama. They are simply plentiful, unmistakably present, never strange—only numerous, sliding over walls and through pools in paths that never change.
+
+Here lives the settlement itself—not built upward, but pressed downward by its own weight into the open mud. A dense urban weave without streets, without separation, spreading across the valley floor in continuous breath: low vaults, circular kilns, walls of fired clay and stacked flat stone, foundations left open to the wet. Primitive tools have shaped it—wooden braces, simple metal spikes—organized, settlement-scale, hand-built, holding form without advancing. The architecture lives in mineral endurance, shoulder to shoulder, never decaying because there is no rot here, no weed, no erosion; only the perpetual addition of new wet layers.
+
+Here lives the light—dim, diffuse, without sun—born only from the warm haze filling the air and the faint phosphorescence rising from the pools, reflecting off every beaded surface, illuminating nothing sharply, only confirming the constant density.
+
+Everything lives in invariant warmth. The temperature does not shift. The pools do not dry. The fauna moves but does not alter its course. The buildings hold but do not grow. It is all suspended in pre-formative equilibrium—raw geology given just enough structure to hold form—forever emerging, never arrived, loud with life that needs no reason to be here beyond its own plentiful, unceasing presence.

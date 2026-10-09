@@ -1,0 +1,28 @@
+You would not be a creature of the wind. You would not be a Storm-Shearer, for that is a life of constant, violent negotiation—a expenditure of self against an infinite, shrieking force. You would not be a Stone-Clinger, for that is a life of absolute stillness, of becoming so like the stone that your own awareness feels like a geological accident.
+
+No. You would be something else. You would be something of the water.
+
+You would begin, as all things here do, in a cup of stone.
+
+A tafoni hollow, its rim worn smooth by a million years of wind-driven grit, holds a shallow, trembling lens of water. In it, you are not yet an individual. You are a cluster of dark, segmented bodies, each no larger than a grain of basaltic sand, moving in a slow, synchronized ripple against the biofilm that coats the wet rock. You are a **Pool-Swayer**, but this is a human name. You do not have a name. You have a rhythm.
+
+Your world is defined by three things: **The Vibration, The Shadow, and The Tension.**
+
+**The Vibration** is the first and final truth. The chord of the Shriek Table is not something you hear with ears, for you have none. It is the fundamental hum of existence. It passes through the water in your pool as a pressure wave, a physical shuddering that you absorb through your entire segmented body. It is your clock. It is your compass. In its constancy, you measure the passage of time—not in days, but in the slow, harmonic shifts that indicate changes in the air density above, the subtle deepening of the sound before the wind’s temperature drops by a fraction. The vibration tells you when the moss above you is about to weep its stored moisture into your world.
+
+**The Shadow** is your sun. You have no eyes for light, but you are exquisitely sensitive to its absence. When the shadow of a Stone-Clinger passes over the surface of your pool, or when the vast, winged darkness of a Storm-Shearer blots out the violet glare for a moment, you feel the change in the water’s tension, the cooling of the surface. This is your signal. This is your weather. The arrival of a shadow means potential nourishment—a dead midge, washed from the air by the condensation on the rock above, might be drifting toward your pool. Or it means danger: a Stone-Clinger’s tongue, a swift, viscous death. You do not think this. You *are* this reaction. Your segments contract in unison, a gentle pulling-toward-center, making your cluster denser, less noticeable, a dark knot in the dark water.
+
+**The Tension** is your sustenance. You feed on the biofilm, the thin, living skin of algae and microscopic life that grows on the submerged stone. This film is not uniform. It grows thicker where the water stays longest, in the deepest curve of your tafoni cup. You and your fellow Pool-Swayers spend your existence tracing this gradient. You move in slow, serpentine waves, not randomly, but along the lines of greatest nourishment, a living, feeling tongue tasting the stone. Your movement is not to get somewhere. It is to *be* in the place of most life. Your synchronized undulation is not a choice; it is a harmonic of the system. You move like this because the water moves like this, because the vibration sets a pace, because to move out of sync is to waste energy in a place where energy is measured in rainstorms that come once a season.
+
+You are not an animal. You are a **liquid organ** of the plateau. You are the part of the system that processes the most precious resource. Where the Drip-Moss is the plateau’s kidney, slowly filtering and releasing water, you are its liver. You detoxify and recycle the smallest bodies of water, breaking down the biofilm, processing the microscopic dead, keeping the tafoni pools from becoming stagnant graves. Your waste feeds the algae. Your presence indicates health. A pool without Pool-Swayers is a pool that is dying.
+
+Your existence is measured in microns of movement, in the calculus of vibration and shadow. You do not know hunger as a driving force; you know a gradient of necessity. You do not know fear, only a contracted, unified stillness in response to a shadow. You know the other life only as patterns of pressure and darkness: the heavy, disruptive vibrations of a Stone-Clinger drinking, the seismic shock of a distant Storm-Shearer’s impact as it lands. They are weather. They are geology. They are not beings, any more than you are a being to them. You are a feature of the water they seek.
+
+Time, for you, is not linear. It is **cyclical, tidal, vibrational.** You experience the world in a series of overlapping cycles:
+1.  **The Hydration Cycle:** Moss drips. You swell. Pool overflows. You contract to the deepest point. Water evaporates. You cluster. Moisture condenses. You swell again.
+2.  **The Nourishment Cycle:** The vibration pitches up (temperature drop). Shadow passes. Organic matter arrives. You feed. Biofilm thins. You move to a new line of tension. Biofilm regrows.
+3.  **The Harmonic Cycle:** The wind’s chord shifts in its eternal, slow processional. Your very movement adapts to its new texture, a microscopic change in the timing of your undulation.
+
+You do not strive. You do not aspire. You are a process given form. You are the living proof of equilibrium in a place that has perfected it. If the Shriek Table is a throat, you are not the scream. You are the moisture on its walls, the delicate tissue that allows the scream to be sustained without tearing itself apart.
+
+You would be this. A dark comma in a sentence of stone and water, vibrating in perfect, deafening time with a world that does not know you exist, and does not need to. You are the part of the shriek that is almost silent. And in that, you are utterly, perfectly, home.

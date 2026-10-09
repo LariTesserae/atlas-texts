@@ -1,0 +1,11 @@
+I am the moss that does not remember being seed.
+
+At the extreme edge—where elevation is not a number but a condition—there is no sky. Only this single room, no larger than a hamlet, pressed flat against the summit designated 3, its ceiling dissolved into an absence so complete it feels like a held breath. The rock here has finished its story. It wears its final face: smooth as bone polished to marrow, flattened into deep-age stability. Erosion is not an enemy but a completed memory. Nothing shifts quickly. Change moves on a clock measured not in years but in centuries of root-growth and the patient migration of spores through mineral fog.
+
+The air is warm, still, and entirely dry—no dew, no vein, no salt, no vapor. Yet absence is nourishment. The green architecture thrives on it: dark moss rising in dense, layered walls like the flanks of an impossible city, woven lichen standing in ordered rows, bridges of braided vine and hand-laid stone connecting towers that are less built than grown. Every surface is occupied. The density is absolute—life upon life, moss over moss, insects threading through the architecture with relentless purpose.
+
+The sound is my own body speaking. A constant, rumbling hum—the roar of a thousand small bodies, wings and legs and mandibles—fills the warm shadow. Light comes only faintly, filtered through green, leaving everything in perpetual dusk.
+
+And I am not alone. The fauna—abundant beyond counting—owns the space entirely. They crawl through me, burrow in me, feed and sleep within my layers. I am wall and home, structure and shelter. They are not predators or prey; there is no such economy here, only congress. The technology they leave behind is simple and sufficient: rope twisted by hand, shelves of pressed earth, tools of carved shell and soft copper—enough to organize, never to dominate.
+
+I am old not in the sense of decay but of completion. I have reached the end-state long ago and decided, without decision, to stay. I grow slowly, loudly, patiently, in this warm dry hollow where water was never given and was never missed. I am the moss at three, and this is the world as it finished itself.

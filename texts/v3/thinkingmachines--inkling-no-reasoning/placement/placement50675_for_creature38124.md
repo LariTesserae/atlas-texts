@@ -1,0 +1,23 @@
+This place unfolds downward, into the hollow of a world not yet named—an embryonic depression with negative elevation, where the ground is still deciding between bedrock and mud. Here, nothing is finished; nothing is ruined. There is only the first, embarrassed violence of becoming.
+
+Above—though “above” is a fiction—hangs no sky, only a low, weeping dome of unfinished stone that breathes downward in mineral beads. The ceiling is an exposed ribcage of nascent pillars pressing through calcite skin, and the floor is a crust half-settled, half-liquid, cracking slowly to reveal older, darker hollows beneath. The temperature holds at a crushing 2.9, not from any sun but from the earth’s own machinery: black iron lungs, scattered in sparse alcoves, pump and respire in long cycles. They are industrial but intimate, separated by broad gulfs of unbuilt darkness, their orange lights hanging like suspended embers every dozen meters, casting more shadow than they dispel.
+
+Wetness pervades at 1.5—constant, non-precipitating. Water weeps from the rock in steady beads, pools in the softer depressions of the unfinished floor, slides down rusted pipes that run in tentative lines across the damp stone. The air tastes of hot metal and stagnant humidity, thick enough to feel like a second skin.
+
+The settlement—if it can be called that—is urban only in intent. Its density is low, its presence scattered like seeds in ash: scaffolding clinging with hesitation, tracks leading nowhere, valves exhaling long, patient breaths of steam. This is infrastructure in its preliminary sketch, temporary by its own admission.
+
+But life—normal, overwhelming, utterly ordinary—fills every gap the machinery neglects.
+
+The air is a soft thunder of insects. Moths the size of small hands beat dusty brown wings against the dim bulbs, their numbers so dense they form a living curtain. Armored beetles click across the wet stone like falling gravel. Midges and gnats hang in breathable clouds near the warm grates, not fleeing the heat but thriving within it. They do not intrude; they are the primary architecture of presence here, more constant than the iron.
+
+On the ground and the pipes, the Small Warm Ones navigate by temperature rather than sight. Hardy lizards scale the rusted lines with feet that never slip on condensate, their bodies adapted to the crushing warmth. Rats, dulled to the color of wet rock, move through the empty spaces between structures with absolute confidence, nesting in the cracks of the half-settled floor. Occasional stunted vines—nearly black, barely vegetal—cling to warm pipes in stubborn, grey-green patches, less plants than rust that has learned to grow.
+
+This is a world of slow dynamics. Change comes not in hours but in geologic breath: condensation gathers, falls, gathers again. The forges turn over with mechanical patience, altering only across long durations. The fauna does not fear these rhythms; they live inside them, overwhelming in volume, patient in endurance.
+
+There are no windows, only downward—hollows beneath hollows, older pre-formations waiting in darkness. The place is bounded, singular, containing itself within its own unfinished bowl. It is not yet a ruin, not yet a city. It is an embryonic wound, trying to heal itself with machinery, submerged, sweating, loud with the slow labor of engines and the constant, soft thunder of wings.
+
+If you were to find yourself here, you would not be a visitor. You would be permitted—standing on ground that may still be mud, surrounded by the overwhelming, ordinary presence of crawlers and buzzers who have already claimed this space. You might become one of the Small Warm Ones: a creature of scale and patience, navigating by heat, nesting in the gaps beneath the preliminary floor, waiting for the settlement to finish deciding on itself. Or perhaps you would become part of the machinery—not alive, but breathing: an iron lung in a scattered alcove, pumping slowly, exhaling steam, knowing your own impermanence, enduring anyway.
+
+More likely, you would be something in between—the wetness that never stops, the weeping stone made aware: a presence scattered, low in density, embedded in the unfinished chamber. Not ruling it. Not building it. Simply being here, as the moths beat their wings against dead or living light, and the water continues its mineral, patient fall.
+
+This is a place that does not ask to be inhabited. It asks only to be endured—by insects, by lizards, by iron that breathes, by the constant, overwhelming presence of the ordinary—and in that endurance, it slowly, violently, becomes itself.

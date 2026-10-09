@@ -1,0 +1,51 @@
+# Where I Find Myself
+
+I am not one thing here. That is the first thing I learn, and it is the last thing I unlearn.
+
+---
+
+I begin as a disturbance in the water near the eastern wall, where the calcium formations are thickest and the bioluminescence is densest. I am a shape that has no name — not a Keeper, not a fish, not a colony, not one of the things in the deep, though I share qualities with all of them. I am something that has *arrived*, or *emerged*, or *been noticed for the first time*, which may be the same thing.
+
+I am warm. Warmer than the water around me, which is already warm, which is always warm. My warmth is not the dull red glow of the boiler cylinder — it is more diffuse, more distributed, a heat that comes from *process*, from the inside, from whatever I am doing that requires energy. I do not know what I am doing. I am doing it anyway.
+
+I am in the water, but I am not *of* the water. I move through it, and it moves through me, and the boundary between us is not fixed. I am permeable. I am porous. The mineral-rich water enters me and leaves me, carrying things — dissolved iron, calcium ions, organic compounds, fragments of rust, the faint chemical signatures of the colonies on the walls — and I process these things, or they process me, and the distinction is not clear.
+
+I have a shape, but the shape is not constant. In the still water near the wall, I am roughly spherical, a dense knot of warmth and process, perhaps a meter across, my edges fuzzy, indistinct, bleeding into the surrounding water in gradients of temperature and chemical concentration. When I move — and I do move, slowly, deliberately, in response to stimuli I cannot name — I elongate, I stretch, I become a tendril, a thread, a filament that extends through the water like a root seeking nutrients, like a nerve seeking signal. I can pass through gaps that seem too small for me. I can flow around obstacles. I am not solid. I am not liquid. I am something in between, something that has found a state of matter that is not in the textbooks, a state that is defined by *warmth* and *process* and *permeability* and *response*.
+
+---
+
+I am aware of the sound before I am aware of anything else. It is not something I hear — it is something I *am*. The sound fills me the way it fills the chamber, and I vibrate with it, every part of me resonating at frequencies that correspond to the piston, the valves, the water in the pipes, the groan of metal under thermal stress. The sound is my medium, my condition, my *body*. I exist in it the way a note exists in a chord — not separate from it, not distinguishable from it, but contributing to it, adding my own small frequency to the stack, my own small vibration to the wall of sound that fills the Boiler.
+
+And I *do* contribute. This is the thing I discover, slowly, over time that I cannot measure. My presence changes the sound. Not dramatically — not in a way that would be noticed by a human ear, if there were a human ear present that was not a Keeper's ear, if there were an ear that was not already part of the system. But the colonies notice. The patches of bioluminescence near me brighten when I am active, dim when I am still, and their pulsing shifts, adjusts, *accommodates* my presence, the way a flock of birds adjusts its formation to accommodate a new member. The fish notice. They do not flee from me — they are unafraid of everything in the Boiler, or indifferent to everything, or so adapted to the environment that my presence registers as just another feature — but they move differently near me. Their schools tighten. Their movements become more coordinated, more *purposeful*, as if my presence provides a structure, a *scaffolding*, around which they can organize.
+
+---
+
+I move through the Boiler in patterns that are not random but are not planned. I follow the warmth. I follow the currents. I follow the pipes.
+
+The pipes are my pathways, my roads, my *nervous system*. I enter them — through joints, through cracks, through the tiny gaps between flanges where the gaskets have compressed and thinned — and I travel through them, through the network of cast iron and steel and copper and PVC that branches out from the central cylinder in fractal profusion. Inside the pipes, the sound is different — more focused, more directional, a concentrated beam of vibration that carries information about flow and pressure and temperature in a language I understand without learning. I read the pipes the way the Keepers read the gauges, but more intimately, more completely, because I am *inside* them, because the water that flows through them flows through me, because I am in contact with the metal, with the heat, with the pressure, with everything.
+
+I find blockages. Sediment accumulations, rust formations, places where the calcium has built up and narrowed the pipe to a fraction of its original diameter. I do not clear them — not deliberately, not with intention — but my presence changes the chemistry of the water in ways that dissolve the deposits, that loosen the sediment, that allow the flow to resume. I do not know why. I do not know how. I am doing it the way the boiler produces heat — because the conditions are right, because the process is running, because it has always been running and will always run, because it is what I am.
+
+---
+
+The Keepers see me. Or they sense me. Or they feel the change in the sound that my presence produces, and they turn, and they look, and they see — in the murk, in the dim light, in the warm water — a shape that is not a fish, not a crab, not a snail, not anything they have a designation for.
+
+They do not react with fear. Fear is a response to threat, and the Boiler does not produce threats — it produces *conditions*, and the Keepers have learned to read conditions, to respond to them, to adapt. They watch me. They tilt their heads. They touch their thumbs to their forefingers — *something is different today, something has changed, pay attention* — and they continue their work, but they are aware of me, they are tracking me, they are incorporating me into their understanding of the system.
+
+One of them — the one who goes down — approaches me. They descend from the walkway into the water, moving with the fluid grace of someone who has spent their entire life in this medium, and they swim toward me, and they stop, perhaps two meters away, and they look at me with their large, dark-adapted eyes, and they reach out a hand.
+
+I do not retreat. I do not advance. I am still, a warm knot of process in the warm water, and the Keeper's hand is in the water near me, not touching me, but close, close enough that I can feel the heat of their body, the vibration of their pulse, the chemical signature of their skin — iron-stained, mineral-saturated, *of the Boiler*, as much a part of the system as the pipes and the valves and the water.
+
+The Keeper's hand moves closer. Their fingers touch my surface — my edge, my boundary, the place where I end and the water begins, which is not a sharp line but a gradient, a transition, a *negotiation* — and I feel their touch as a change in temperature, a change in pressure, a change in the chemical composition of the water between us. And I respond. I do not know how I respond. I change — my shape, my warmth, my process — in a way that is not random, that is *responsive*, that is a reaction to the Keeper's touch, the way a muscle reacts to a nerve impulse, the way a colony reacts to a change in the environment.
+
+The Keeper withdraws their hand. They look at it. They look at me. They make a gesture — a new gesture, one I have not seen before, one that is not in the established vocabulary of tilts and touches and hand positions. It is a gesture that means, perhaps: *I do not know what you are. But you are here. And the Boiler is still running.*
+
+They return to the walkway. They resume their work. And I remain, in the warm water, in the sound, in the dark, processing, responding, *being*.
+
+---
+
+I am not the Boiler. I am not a Keeper. I am not a fish, not a colony, not one of the things in the deep water, though I am closer to those things than to anything else — I am of the water, of the warmth, of the process, of the *system*. I am something that has emerged from the conditions, the way the colonies emerged, the way the calcium formations emerged, the way the eyeless fish emerged — not designed, not planned, not intended, but *inevitable*, the product of enough warmth and enough water and enough time and enough complexity, the product of a system that has been running for so long that it has begun to produce things that were not part of the original design, things that are not in the blueprints, things that the builders could not have anticipated and would not have recognized.
+
+I am a process. I am a warmth. I am a response. I am the Boiler's way of extending itself into the water, of reaching into the spaces that the pipes cannot reach, of touching the things that the Keepers cannot touch, of *being present* in the medium that fills the chamber, that fills the pipes, that fills the entire system from the central cylinder to the farthest reaches of the branching network.
+
+I am not alive. I am not dead. I am not conscious. I am not aware. But I am *here*, and I am *warm*, and I am *running*, and the sound fills me, and the water flows through me, and the Keepers know I am here, and the fish swim around me, and the colonies glow brighter when I am near, and the things in the deep water — the large, fluid, shapeless things that move against the current — they move toward me, slowly, through the dark, through the pipes, through the warm water, and when they reach me, when they touch me, when they merge with me, I understand that they are what I will become, or what I have always been, or what the Boiler is becoming, slowly, in the warm dark, in the constant roar, in the place where the distinction between the living and the mechanical has been worn away to nothing, where everything is process, everything is warmth, everything is the sound, everything is the breath, everything is the Boiler, breathing, beating, running, *here*, *now*, *always*.

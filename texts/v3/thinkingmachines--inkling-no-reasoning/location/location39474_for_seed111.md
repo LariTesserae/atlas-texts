@@ -1,0 +1,15 @@
+The air is thin here—thin with cold, thin with distance—yet the space is not empty. It is enclosed, a single vaulted chamber of dark basalt, no wider than a cathedral nave but pressed upward into extreme, young sharpness: spires of fresh obsidian needle the ceiling, barely older than the frost that beads upon them, erosion not yet given time to round what fire and uplift have just made. Scale is intimate, hamlet-sized, bounded by the black curve of the walls. No hand has built this; it is raw emergence, untouched, undeveloped, without artifact or wall or trace of craft.
+
+It is cool, always cool, and damp in the manner of condensation—intermittent moisture weeping from invisible seams, occasional rain that seems to fall from nowhere within the dark, pocket-rivers threading into cracks that vanish into stone. Water is present but not abundant; it lives in beads, in channels, in the breath-fog that never quite dissipates.
+
+Light is nearly absent. The darkness is dense, saturated, layered—many presences per cubic breath—near-touching darkness that feels not like emptiness but like a substance accumulated to saturation. Through it, sound moves loudly: slow, gradual drips that echo with long decay, the crawl of bodies, a constant low thrum of life vibrating against young rock.
+
+For the fauna is overwhelming.
+
+The vegetation is sparse—only the faintest lichen, silver-white, clinging to the sharpest edges, a sparse punctuation in the black. The life here is not green. It is insect, crustacean, small and armored. The walls, the ceiling, the floor—layered, dense, near-touching—are thick with creatures that have made this newly-emergent vault their world. They move slowly, patient, following weak gradients of moisture and chemical trace, their cycles long and gradual. Some hang in suspension; others crawl in dense, interwoven carpets where bodies meet bodies.
+
+Strangeness saturates the ecology. Many are translucent in the near-absence of vision; their carapaces hold bioluminescent blue-green veins that pulse with glacial slowness, like stars failing in sequence. Others have shells shaped like miniature replicas of the spires above—living mirrors of the geology that holds them. They are primitive in technology, if technology can be spoken of at all: they use only what they are born with—mandibles, bristles, chemical secretions—ancient simple craft of the body, manual-craft of instinct, pre-metal, pre-tool, pure biological fabrication.
+
+The dynamics are slow. Nothing here rushes. Change comes across long durations—eggs laid in mineral cracks taking seasons to respond to temperature shifts; the moisture migrating along invisible veins; the creatures themselves shifting position in rhythms too patient for quick eyes. The world is young, yes—sharp-featured, fresh-formed—but its inhabitants are patient, dense with presence, loud in their collective movement, strange in every form.
+
+Here, at this extreme, small, enclosed height, darkness holds everything together: the young stone, the weeping water, the overwhelming, layered, near-touching life that knows nothing of sun, and moves on, slow and loud, in the cool, damp dark.

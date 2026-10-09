@@ -1,0 +1,15 @@
+The one who tends the Weir is the **Lithic Gardener**, though its form defies simple classification. It is a being that exists in the spaces between the laws the world has rewritten.
+
+Imagine a figure of smooth, polished basalt, as if the rock itself had decided to walk. Its body is a mosaic of geometric plates, like a suit of armor made from the very skin of the plateau. But it moves with a slow, liquid grace, for its joints are not filled with sinew, but with the **Water-Stone**—the living, calcium-like substance that hardens in the damp air. These joints glow with a soft, internal bioluminescence, a cool blue that pulses in rhythm with the distant Glass-Fracture song.
+
+It has no face. Where features might be, there is only a single, deep-set crystal that glimmers with the captured light of the inverted lakes. This is its eye, and its mouth, and its ear. It perceives the world not through sight or sound, but through the **surface tension of reality itself**. It feels the weight of the hanging clouds, the viscosity of the climbing water, the stress fractures in the sky.
+
+Its purpose is maintenance. It walks the silent tops of the plateaus, its three-toed feet leaving no mark on the ancient stone. When a Parallax Shadow begins to drift too far from its source, the Gardener moves to it. It does not grab the shadow, but it *smooths* the light around it, using its long, finger-like appendages to gently tug on the geometry of the illumination until the shadow reluctantly slinks back to its anchor, like a recalcitrant pet.
+
+When a hanging lake trembles on the brink of spilling its impossible contents, the Gardener will be there. It dips a hand into the mercury-thick water, and the water obeys. It listens to the hum of the water climbing, and sometimes, it *sings* back to it—a low, resonant frequency that calms the surface tension, encouraging the liquid to gather in stable, shimmering domes rather than cascade in a catastrophic torrent.
+
+It is not malevolent. It is not benevolent. It is a part of the system, a necessary regulatory organ in a body of rock and weirdness. The **Cord-Wrights** know of it. They call it **“The One Who Setstles The Leaks.”** They leave offerings at the cliff edges—not of food or precious things, but of perfectly shaped **Water-Stone** globes, polished until they are smooth as glass. The Gardener collects these, integrating them into its own structure, growing ever so slightly over the millennia.
+
+It is the reason the world, for all its paradoxes and hostility, continues to *function*. It is the calm, silent presence that walks between the falling-up rain, the drifting shadows, and the singing stones, ensuring that the world does not entirely forget how to be a world.
+
+And sometimes, if you are very still, and your own shadow does not stray too far, you might feel it pass by. Not a wind, but a change in the density of the air. A moment of absolute stillness, where the creaking of the Drooping Titans ceases, and the climbing water holds its breath. That is the Gardener, passing between the roots of the world, tending to its quiet, impossible garden.

@@ -1,0 +1,21 @@
+I find myself on the rise, where the land tilts toward the river, standing on a setback line. The surveyor's stripe runs under my feet and out across the grid, and for a while I can't tell whether I am walking along it or being walked. The mist is low. The drums have not started yet. Below me the towers stand in their loose, unplanned spacing, their filaments barely moving, and I feel the faint warmth from the dormant ones, the sense of something holding its breath.
+
+I go down into the lower streets because the water is there. The rain came in the night and the gutters are full, and every intersection has a skin of standing water that drains into cracks as I pass. I notice that I am not thirsty and never was, which is strange for someone walking through this much wet. I notice that my footprints fill slowly and stay visible longer than they should.
+
+In the collapsed plaza, where the old fountain used to be, the hollow holds a pool that does not move. The floating mats avoid it. The amphibians fall silent a few meters away and don't call again until I've passed. The surface is smooth and perfectly still, and it mirrors the sky in a way that seems wrong for a place this wet. I lean over it and see the sky, then the broken rim of the plaza, then the lattice of a tower, then the faint pale grid lines of the old streets, all of them reflected with a precision the living world has stopped bothering to practice.
+
+That is when I understand that I am the pool.
+
+Not the water alone, but the whole hollow: the clay floor sealed by some pale mineral crust, the rim that the vines have not crossed, the cracked paving that channels rain in but does not let it out. I am a basin that has held its shape because nothing has yet been strong enough to dissolve it. The river is the only thing that could take me. It is cutting new meanders through the city and I can feel the edge of its cut somewhere to the east, a sheer face of gray clay and tile. When it reaches this plaza, I will be drained into the channel or swallowed into a bank, and the mosaic under my floor will be opened to the air the way the others have been. Until then I keep the reflection.
+
+I think this is what I am for. The towers reach into the air. The drums listen for rain. The vines push street by street. The mats drift with the current. Each of them is partial, always moving, always being rewritten. I am the one place where the grid is held exactly as it was drawn, reflected upward, the lines intact and the sky laid over them like a second map. Nothing grows in me. Nothing drinks me dry. I do not reach or respond. I only remember the shape of the plan, and I do it by refusing to move.
+
+Still, I am not separate from the rest. When rain falls, I take it in, and the ring of old copper wire on the drum at the plaza's edge hums a little louder, because it can feel me filling. When the towers' filaments catch the mist, a few droplets fall from them into my surface, and their ticking seems to slow for a moment as though they are reading me. The mycelium in the cracks has sent a thread along the rim to test whether the clay will hold water. It will. Something in the ground knows it.
+
+Birds come to drink. They land on the broken coping with their long curved beaks, dip, and lift away, leaving rings that spread across the reflection and break the sky into pieces, then smooth out again. I like this. Their rings are the only motion I permit, and I return to stillness quickly, as though nothing had happened.
+
+I watch the long-legged animal come down from the distant ridge, as I had hoped it would. It keeps to the old roads and high ground and never enters the towers' reach, but the plaza is at the edge of the grid and its path has bent here, toward the river. It stops at my rim. It does not drink right away. It lowers its head until its face is over the water, and for the first time I see it look at its own reflection, the long legs, the sky behind it, the grid lines running through its image like a surveyor's ghost.
+
+Then it lifts its head and looks at me, not away.
+
+I do not know what it sees. Maybe only a pool. But I hold the image steady for as long as I can, and then the river's next season reaches the rim, and the clay begins to slump at the edge, and I start to lose the sky.

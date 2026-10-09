@@ -1,0 +1,19 @@
+What lives beneath the basalt is not a single creature but a compressed community, an ecosystem arranged in skins and seams.
+
+Its most pervasive inhabitant is microbial. Dark bacterial mats adhere to fracture planes, while orange films thrive where iron-rich water passes over stone. They turn dissolved minerals into stains and slicks that resemble grease and rust. Midge larvae burrow through these films, grazing and sheltering in them; minute flatworms flatten themselves into nearby cracks whenever the chamber shudders.
+
+In the pools, amphipods crowd beneath basalt chips, hidden until a stone shifts. Water beetles move across the surface like loose black filings. During the wettest periods, other beetles emerge from narrow refuges, briefly active before cold or falling water drives them back. Springtails feed among the pale roots dangling from the roof, where each suspended droplet forms a tiny drinking place and pasture.
+
+Pale gnats rest on the roots between blasts from the fissure. Marsh spiders exploit them, fastening delicate webs between the hanging fibers where each exhalation carries prey. Their webs must endure a world that repeatedly coughs itself apart, so the spiders live by the pressure cycle: bracing through the roar, repairing in the silence.
+
+Cold-adapted frogs enter from the marsh. Gray-green and nearly indistinguishable from the moss cushions, they reveal themselves only when they call. Each waits for the hydraulic concussion to end, then releases a single note into the interval. Its white throat flashes; the sound fills the whole cavity; then the frog goes still before the next pulse. Their behavior has been shaped not by machinery, but by stone behaving like machinery.
+
+The chamber’s largest regular hunter is a small water shrew. It arrives through a submerged passage, preceded by a chain of silver bubbles. It darts among the pools, taking amphipods, larvae, beetles, and perhaps anything else it can seize before retreating. Its visits are brief and violent. Silt blooms behind it, and for a time the water holds the blurred record of its passage.
+
+Even the plants live here in fragments. Blue-green sedges guard the entrance. Small ferns occupy isolated cracks within reach of the pewter daylight. Moss survives in brilliant, dense cushions only beneath dependable drips. Fine roots descend through the roof but never reach the floor; animated by vented air, they twitch like sensory organs. Together these growths do not cover the hollow. They form green islands across an expanse of wet black stone.
+
+No large creature belongs here. Space, cold, sharp ledges, flooding, and narrow entrances exclude them. Life instead becomes small, numerous, and precisely placed: a colony in a mineral film, a swarm beneath one chip of rock, a hunter folded into a fissure, a spider suspended from a root, a frog waiting for three seconds of silence.
+
+And in a broader sense, the chamber itself seems alive. It inhales marsh water and trapped air, gathers pressure, and exhales through basalt pipes. Its pools tremble like membranes. Ice grows, breaks, and reforms around its edges. Channels clog; vents awaken; pebbles migrate and alter its voice. The organisms within it have learned its pulse, but the pulse belongs to water and stone.
+
+What lives there, then, is a society of intervals: creatures inhabiting the pauses between concussions, the spaces beneath fragments, the thin boundary between water and rock. Nothing dominates. Nothing needs to be large. In that young hollow, a drop is an event, a root is a landscape, and a moment of silence is enough room for a frog to speak.

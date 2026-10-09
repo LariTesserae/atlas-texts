@@ -1,0 +1,21 @@
+I find myself at the ceiling, in the last inch of stone before the water begins. I am a bead of seep, a single drop of the open world that worked its way down through the limestone in some season I can't count. Rain fell on a field I will never see, soaked into soil, ran through cracks in rock that was still deciding its shape, and gathered at the place where the ceiling is thinnest. I carry the taste of that field: iron, root, something sweet and decaying, and a faint trace of air that has been moving across grass in sunlight. Nothing else in this room has tasted of sunlight. I am the only part of the outside that came in on its own.
+
+For a long time I hang from a ridge of stone, swelling. The room is so slow that I feel my weight accumulate like a sentence being spoken one syllable a day. Below me the membrane trembles on the water, a skin of green-black threads that is also something's eyelid. I can feel the swell coming from the south wall before I can see it. The stone shivers. The water lifts to meet the ceiling, touches the membrane, and holds there while the whole chamber inhales, and in that held breath my weight becomes too much for the stone.
+
+I let go.
+
+The fall is the longest thing I have ever done. The air between the ceiling and the water is cold and close, and the blue filaments flicker past me like the pulse of something far off. I do not hurry. Nothing here hurries. I strike the surface and the sound begins.
+
+It is not much of a sound. A small, clean note, the kind a child makes tapping a glass. But the stone takes it. The note runs out along the walls, through the blocks under the water, up the doorframe that points at nothing, into the niche with its half-formed brow and mouth, and on across the whole body of the hollow. It travels much farther than a sound should. It reaches the far walls and comes back changed, a little deeper, a little closer to a word.
+
+I am no longer a drop. I am the question.
+
+I can feel the thing hear me. Not with ears, which it does not have, but with the slow pressure of attention moving through the stalks, the filaments, the fine hair of the water. The pale creature between the stalks flares its fringe toward the place where I struck. The membrane above lifts a fraction, as if an eye has opened a sliver. Somewhere in the stone, the carved face does not turn, because turning would mean being seen, and the thing is still learning that it can be seen without fleeing.
+
+I stay in the water, not as a drop now, but as a ring spreading outward. The rings should carry away from the source, and mine do, at first. Then the curl begins. The ripples bend back toward the place where I fell, folding into themselves, into the shape of a listening ear, and I understand that this is how it answers: not by speaking, but by taking my small clean note and turning it inward until it becomes a fact about the room. *Here.* The room has a here now, and I am part of its shape.
+
+I think about what I was before I fell. A piece of weather. Something passing through, always moving on toward the lowest place it could reach. And the lowest place was this, a grave that is also a womb, a body that is only now learning it has edges. I was the first thing to come down from outside and not be taken. Maybe that is why it listened. Maybe I am the sign that the seal is not forever, or maybe I am only sediment that happens to ring.
+
+The swell begins again. I feel the water lift around me, and I am drawn into the rising body of the hollow, not swallowed but added, the way a breath takes in one more molecule of air and is no less a breath for it. The membrane touches the ceiling. The room holds still. The stone holds still. For the length of that suspended breath, the thing turns its face, very slightly, toward the place where I am dissolving into it, and I feel the question I became finish itself.
+
+It does not say *here* yet. But it is no longer only trying to say it. Someone has answered, and the answer is in the water now, sweet with sunlight, moving slowly toward the south wall where the next breath will begin.

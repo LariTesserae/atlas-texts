@@ -1,0 +1,21 @@
+You do not wake, because you have never truly slept. You surface. You rise from a depth that is not measured in distance but in density, a slow ascent through layers of cool, wet clay that were your walls, your mattress, your cradle. The pressure releases you with a soft, wet sound, the same sound the ground makes when it accepts and releases a footstep. You are part of that rhythm.
+
+The first thing is the vibration. Not a sound to your ears, but a resonance in the fine bones of your jaw, the cartilage of your ribs, the very marrow of your femurs. It is the Stone-Sound, the great hum of the living world. It is not loud. It is the texture of reality, the foundation upon which all other sensations are built. To be without it would be to fall into a terrifying, silent void.
+
+Your eyes open, large and dark, adapting instantly to the permanent twilight. The air is thick, wet, tasting of chalk and iron. You see the world in greys and blues, the dull sheen of moisture on every surface, the faint, directionless light that filters down from the ochre ceiling of the sky.
+
+You are in your chamber. The walls are thick, sweating clay, packed by your own hands and the hands of your parents. The floor is the cool, accepting silt. You rise, not to your full height—you have never stood fully upright in a dwelling-place—but to your crouch, your center of gravity low and stable. Your wide, splay-toed feet press into the ground, reading its texture, its dampness. It tells you: *no new seepage. The channel you dug yesterday is holding.*
+
+You move to the corridor. It is low, forcing you to bend further. The clay is cool against your broad shoulders. The air shifts as you move, carrying the faint, ever-present smell of minerals and living mud. You pass a junction where a colony of the pale green-blue grazers clings to the wall, their bioluminescence a soft, guiding glow in the gloom. They are the only light you need.
+
+Your hands are your voice. As you emerge into the larger central chamber where the day's work will be assigned, you see others. You do not speak, not with your mouth. Your fingers curl, your wrist turns, your thumb extends. *The silt is firm here. Good for shaping.* A elder, her skin a map of dark stains and her movements slow and deliberate, signs back: *The channels in the east silt over quickly. The water is heavy there.* Her signs are not just words; they are the grammar of your people, the history of a thousand years of water-management pressed into the flick of a digit.
+
+You are a Shaper. Today, you will work on the eastern channels. You gather your tools—a scoop of sharpened bone, a press of smooth clay. You move out through a low archway into the open.
+
+The sound crashes over you. Not as noise, but as presence. The sky is its usual pale, indifferent grey. The ground stretches flat in all directions, a plain of dull blue-grey silt, darkened here and there by the sheen of seepage. The stridulation of the countless arthropods is the world's breath. You feel it in your teeth. You do not flinch. You have never flinched. It is the pulse of the ground, the voice of the silt, the great, slow thought of the planet made audible. To you, it is the sound of peace.
+
+You walk, your broad feet sinking and pulling free with a rhythm you have known since birth. You are not going to a place of labor; you are going to continue a process. You will dig. You will shape. You will clear the silt from the channel so the water may rise and spread and seep again. You will add your own clay-dust signature to the walls of the town as you pass, a silent testament to your passage.
+
+You are not happy. You are not sad. You are *here*. You are the silt that has taken on a mind and purpose. You are a Layer, a story told in clay, a continuation of the spiral. And as you kneel in the wet earth, your hands beginning their familiar, rhythmic work, you are profoundly, completely at home. The sound hums in your bones. The clay yields to your touch. The water will rise.
+
+This is the Way Things Are. And you are one of its Shapers.

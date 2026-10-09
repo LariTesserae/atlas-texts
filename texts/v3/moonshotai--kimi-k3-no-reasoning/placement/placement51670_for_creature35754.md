@@ -1,0 +1,21 @@
+I find myself three terraces above the Root Levels, on a staircase worn concave by centuries of hooves, though it is not yet dawn—or what passes for dawn in this place of perpetual grey. The light is neither arriving nor departing; it simply is, a pressure on the eyes that I have only recently learned to accommodate. My lungs are still learning the thinness here. They burn with a low, persistent ache, a reminder that I have not yet completed the Thinning.
+
+I am Kethan, a Lowlander who stayed.
+
+It has been perhaps six cycles since I clawed my way up the final switchback, gasping, my heart a panicked drum against my ribs. I remember the sound of my own breathing then—raucous, greedy, a thief’s gasp in a temple of silence. The Kith who found me did not speak. They simply watched, their pale eyes resting on me like stones on a riverbed, while a young woman with hair the color of old ice pressed her palm against my chest and counted the rapid flutter there. She shook her head slowly, not in refusal, but in diagnosis. Too fast, her expression said. You are still dying of speed.
+
+Now I wear the coarse weave, though it still chafes where my skin has not yet toughened. I carry a stone bowl—my own, carved badly, the rim uneven because I still rush the chisel. Inside it is a portion of rendered fat, my ration for the day, heavy and yellow-white, smelling of smoke and the deep, musky earth of the Steppe-Mothers. I am learning to eat slowly, to let the grease coat my throat against the cold.
+
+I pause on the stair, feeling the vibration. Not sound—never sound, not the way I knew it in the lowlands where words clattered like dropped stones. This is a hum, rising through the soles of my feet, traveling up the bone. One of the Silent Ones is moving below, her low-frequency call rippling through the crystalline matrix of the mountain. The stone speaks in the language of pressure, and my body, still dense with lowland impatience, receives it as a shiver.
+
+I look down. The Steppe-Mothers are moving through the Root Levels, a slow tide of grey-brown mass. Their breath rises in great, steamy columns that hang in the air like spirits. They are beautiful, though it took me time to see it—not the beauty of motion, but of *mass*, of existence so dense it warps the light around it. I watch one brush against a stone buttress, leaving a smear of snow on the rock, and I think of the lowlands, where everything I touched was either consumed or discarded, where nothing accumulated, nothing was carried forward.
+
+A child runs past me—actual running, her breath coming in quick, hot gusts that mark her as untaught, still wild. She is perhaps eight years old, and she stops suddenly, looking up at me with eyes too bright, too quick. She is curious about the stranger, the one who still smells of the outside, of urgency. She opens her mouth to speak, but an elder on the terrace above—a Cloud-Reader, thin as a frozen branch—begins to hum. A single note, sustained, that vibrates in the marrow of my teeth.
+
+The child stops. Her shoulders drop. The wildness does not vanish, but it *settles*, like sediment in still water. She closes her mouth. She breathes out, long and slow, and the plume of her breath stretches between us, a bridge of white fog.
+
+I mimic her. I let the air leave my body, not in the sharp exhalation I was taught by a world that values production, but in the slow, controlled release that the Kith practice from birth. My breath joins hers, hangs there, neither rising nor falling.
+
+For a moment, I feel it—the Long Pause approaching, not as an event, but as a gradient, a shift in the density of time. The Steppe-Mothers below lift their heads. The grinding of the mountain seems to soften. The light, the grey eternal light, presses closer.
+
+I am not yet Kith. My blood still runs too hot, my dreams are still populated by winds and rapid rivers. But here, on this staircase, holding my stone bowl of fat, feeling the hum of the Silent One in the rock beneath my feet, I am becoming something else. Not stone, not yet. But perhaps, eventually, a vein of ice within the stone—something that holds the cold, and in holding it, becomes part of the slow, patient architecture of breath.

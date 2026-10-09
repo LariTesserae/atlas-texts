@@ -1,0 +1,17 @@
+I find myself hanging from a rivet on the underside of the corrugated roof, four meters below a floor that is already sweating. The steel above me has bulged into a small knuckle of rust, and from its lowest point I am forming. I don't yet know that I am a thing that forms. I only know the cold, a pressure that gathers, and a weight that grows.
+
+At first I am nothing but a meeting of water and surface. The metal is colder than the air, so the moisture in the room comes to me and stays. I take it in one molecule at a time. I swell. The light from the caged fixture reaches me, and I become a point of blue-white, then dark, then light again, flickering with the emergency lamp's slow, uneven rhythm. Each time it dims I am briefly nothing, and each time it returns I am something again.
+
+I am not separate from what holds me. The rust that feeds the roof is in me, and so is the salt that came out of the concrete years ago. I carry them dissolved. When I dry, I will leave a thread of carbonate behind, and that thread will lengthen the tongue hanging beside me by a hair's width. So I am already building. I am a small part of the long white tongues that the wall grows downward, and of the grey and orange bands on the ledges below. Whatever I become on the way down will be written into the sump's history, one drop's worth at a time.
+
+Then the weight passes a threshold, and I let go.
+
+For a moment there is only the fall, and no sound but my own small motion. Then I strike a pipe and become a thread. The thread runs down the bare steel in a line as fine as a vein on the back of a hand, and I am the vein for a while. I pass through a cable tray, brush a sensor probe buried in the silt, and feel its needle register my warmth. The reading goes out along the wires toward a monitor on a floor no one visits. I like to think someone might see it. But the cables are only doing what they were installed to do, which is to watch for someone who is no longer here. The probe records me, and I record the probe, and the room keeps the record.
+
+Near the bottom of the riser the pump knocks. The sound comes up through the concrete and into the pipe beside me, and for a moment I shiver with it and nearly lose my shape. Then the pulse drops away and I keep falling.
+
+I land on the grating, slip through a gap, and enter the basin. The water is black and so still that it seems not to notice me. My arrival breaks the oily film, and for an instant a rainbow spreads from the place I struck, iridescent and thin, the colors sliding over each other like the bands on the ledges. Then the film closes over the spot and the rainbow is gone. The basin takes me in without changing.
+
+I think this is what I am. I am not the room. I am not the pump, or the condensers breathing, or the mat creeping along the seam in fan-shaped lace. I am a drop, one word in a grammar no one is reading, a small deposit moving from one place where cold stays to another. When the mat takes me up, I will become part of its lace. When the salt takes me, I will become part of the wall. When the light finds me again, I will shine for a moment and vanish.
+
+Above me the condensers rise to their low hum, push their cold across the coils, and fall back. Between their breaths the room drips and waits, and somewhere on the roof a new bead is already lengthening at the lowest knuckle of rust. I don't need to be finished. Nothing here is.

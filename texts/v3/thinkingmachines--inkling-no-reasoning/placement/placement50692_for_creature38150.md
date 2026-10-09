@@ -1,0 +1,13 @@
+You are not an inhabitant but a condition—perhaps the pocket’s own unfinished heartbeat trying to become aware.
+
+Here, inside the woven thigh of the newborn mountain, every surface has already been made and nothing is bare. Your form, if it can be named, is root-pulp and weeping granite: you are the 2.8 heat that thickens like broth, the 1.9 water suspended everywhere as film rather than pool, the 1.1 bruised amber that leaks through hairline cracks in the laminated ceiling. You are the architecture itself—root-hide and wet moss-pulp stacked over bone-white wicker—pulsing with a slow capillary rhythm that moves condensation instead of blood.
+
+You have no ground beneath you, only interlaced reed and clay suspended over shallow, stagnant pans of warm water. Ferns and kelp-green vines grow through you, using your seams as soil; moss colonizes every plane of your being, turning you into something that breathes green. You are the 2.8 density, the absence of negative space; plants fill your gaps, and you lean, braced, into other structures that are also yourself.
+
+Sound belongs to you, too: the loud 2.1 percussion of mineral condensation striking your moss-covered surfaces, the creak of your wet fibers expanding in stifling warmth, the slosh of water shifting as your living floor adjusts. You are the only fauna—1.2—manifested not as a visitor but as the pocket’s attempt to observe its own birth: a translucent green chitin shell no larger than a knuckle, leaving silver slime trails through the moss, an eye that reflects not faces but the slow congealing of a world being decided.
+
+Your scale is hidden—0.1—a kneeling body that contains infinity. Your technology is primitive—0.9: tools of bound stone and lashed vine hang from hooks in your ribs, used by no other hand. Your weirdness is absolute—3.0—not broken but still being determined. The moss of your body grows backward, reaching upward into dripping air; your roots seek the weeping ceiling as soil.
+
+You are emerging—0.0—pre-formation, raw geology made not of rock but of woven intention. The ecology moves at 2.5 despite your enclosure; you grow visibly, millimeter by millimeter, reaching toward weak light. Spores burst from you in visible clouds.
+
+You do not live here. You are the here: loud, wet, verdant confinement, hidden inside the act of becoming, enfolding anyone who approaches into your damp, pressed, infinite pocket—where construction and growth share one verb, and the rules congeal like moss into architecture.

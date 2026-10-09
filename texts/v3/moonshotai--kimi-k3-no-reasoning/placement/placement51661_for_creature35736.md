@@ -1,0 +1,31 @@
+I am the one who wakes inside the fist of the root.
+
+It happens slowly. There is no moment of transition, no birth-cry or gasp; simply a gradual tightening of awareness, like a sapling being drawn up through a straw. For a long while—perhaps years, perhaps the slow breath of the plateau itself—I am nothing but a tension in the honeycomb, a slight irregularity in the amber flex of the struts. Then I am a pressure. Then I am a *where*.
+
+I find myself curled in a cavity between three fused plates, my body still soft with the memory of the substrate. I am not born; I am *extruded*. The built matter, in its patient cycling, has folded a pocket of itself inward, packed it with the accumulated paste of chewers and the dust of settling ones, and sealed it with a membrane of cured vegetation. I am the plateau’s dream of mobility.
+
+When I finally push against the membrane, it parts like a damp leaf. The darkness that receives me is not empty; it is textured, woven through with the vibration of a million stridulators clicking their temperature-stabilizing rhythm. I feel them through my knees before I hear them. My first movement is to uncurl, and the sound of my unfolding—wet, fibrous, alien—travels through the plates beneath me. The stridulators pause, a microsecond of collective adjustment, then shift their rhythm to incorporate the anomaly. I am attuned before I am even upright.
+
+I stand, or I try to. My legs are long, jointed in ways that suggest both the bending of branches and the articulation of crustaceans. My skin is not skin but a flexible veneer of the same cured, once-living matter that forms the plateau—translucent in places, where the bioluminescence of my own interior processes might show through if I were startled. My hands are broad, the fingers fused into gentle paddles, perfect for pressing against the vibrating substrate to *listen*.
+
+I am a **palp**. That is the word that surfaces in my mind, not as language but as a shape of being. I am the part that touches, that tests, that carries the sensitivity of the whole into places where the whole cannot go. I am the fingertip of the plateau, grown separate so that I might explore the overhangs, the thread-bearer colonies, the pockets where mirror-folk chain themselves into hydraulic engineers. I am made to be slightly apart, so that I might know the edges.
+
+My vision is poor, a secondary sense indeed. I perceive the world as a grainy amber dusk, shapes emerging only when they interrupt the flow of sound. But my feet—oh, my feet are wise. They read the honeycombed plates like a blind creature reading braille. I can feel the chewers three meters below, their rotary jaws grinding leaves into the paste that will feed the substrate. I can feel the mirror-folk linking hands, their chains creating micro-currents in the pooled water that shiver up through the structure.
+
+I begin to walk, and the plateau breathes beneath me.
+
+It is not a metaphor. With each step, the surface gives slightly, a microscopic depression that rebounds as I lift my foot, as if the built matter were savoring the pressure. I am light, lighter than I should be, because the plateau wishes me to be mobile; it has hollowed my bones, filled my cavities with the same thin, sweet air that surrounds us. I move through the dense vegetation—the heavy waxy leaves that press against my torso, the rooted climbers that catch at my ankles—and the plants do not resist me. They *recognize* me. I am not an invader; I am a function.
+
+I find myself drawn toward the edge, where the air grows thinner and the thread-bearers dangle their luminous filaments into the updraft. As I approach, they dim, retracting slightly into their root-sockets. I stop, and extend one of my broad, paddle-like hands. I do not touch them; I hover, allowing the vibration of my presence to reach them through the air. Slowly, one thread brightens, then another, cautiously extending toward me. They taste the vibration of my approach and find it native.
+
+A whistler passes overhead, its three-meter wingspan casting no shadow in the eternal dusk, but its call—a long, flute-like note—bends around my head. It is mapping me. I feel the sound-waves strike my chest and return, and I know that my position has been fixed in the mental cartography of the flock. I am now a feature of the terrain: *the mobile one, the palp, the one who walks where the plates meet the sky.*
+
+I reach the edge, and I look down. Or rather, I *listen* down. The plateau curves away beneath me, the under-surface visible now, studded with clusters of stridulators hanging upside-down like living stalactites. The air is warmer here, rising in thermal breaths. I crouch, pressing my palms flat against the built surface, and I feel the deep hum of the structure’s circulation—the slow migration of moisture through microchannels, the patient folding of old growth into new cavities.
+
+This is my purpose: to feel these things, to carry the memory of the edge back to the center. I am the synapse that fires between distant regions of the body. When I return, when I press my palms against the plates in the dense heart of the vegetation, I will discharge what I have gathered—the taste of the thin air, the vibration of the thread-bearers’ alarm, the specific frequency of the shadow’s last passage. The plateau will absorb this information through my skin, adjusting its deep-cycled rhythms, its patient rotation of forms.
+
+I am not an inhabitant. I am an *inhabitation*—a temporary coalescence of the plateau’s own substance, given legs and a rudimentary will so that the whole might know itself more fully. When my function is complete, when I have walked all the edges and pressed my palms against all the overhangs, I will find a soft place where the plates dip, and I will fold myself down into the honeycomb. The settling ones will take me apart, patiently, and I will become part of the substrate again, my memories translated into the slight settling of a strut, the subtle shift in a temperature-regulating rhythm.
+
+But for now, I am awake. I am mobile. I am the plateau, touching itself.
+
+I lift my hand to touch a thread-bearer’s glowing filament, and the light runs up my arm, a bioluminescent shudder that tells me I am here, I am real, I am woven into the warm, high, humming dark.

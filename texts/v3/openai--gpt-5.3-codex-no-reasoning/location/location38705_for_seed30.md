@@ -1,0 +1,33 @@
+The place is not large enough to be mapped and not simple enough to be understood at a glance.
+
+You enter along a narrow shelf of dark stone, warm underfoot though no direct sun reaches it. Above, a low ceiling of cloud hangs between cliffs like wet cloth, not raining exactly, but continuously sweating. Water pearls on every edge, gathers, releases, gathers again. Threads of it descend from overhangs and vanish before they hit ground, turning to mist halfway down, as if the air is drinking.
+
+This is high country, but not sharp, old mountain-high country. The rock feels new. It has that unfinished geometry—planes that have not softened, ridges not yet taught by centuries how to crumble. Whole walls look cast rather than carved, as if some giant mold was lifted away recently. Erosion has barely begun: gullies are sketches; channels are suggestions. Even the loose stones are angular, clean-faced, fresh-broken. You can still read their fracture logic.
+
+The basin itself—roughly the size of a village square stretched into an oval—holds a shallow marsh that keeps trying to become a lake and failing. The floor rises and falls in broad, smooth pulses, no more than a handspan every few minutes. With each rise, water retreats into cracks; with each fall, it wells back up in dozens of clear boils. It is the first sign that physics here has local dialects.
+
+Vegetation is sparse and cautious. No trees. No thick meadow. Instead: tough filaments of copper-green grass in isolated fans; low pads of translucent moss clinging to seep lines; a few stiff, black reeds standing alone like antennae, each separated from the next by several body lengths of bare mineral. On the cliff base grow pale, bladder-like lichens that inflate in humid minutes and collapse when the wind shifts, breathing with the weather. You can walk ten paces on clean stone between any two plants. Life here does not carpet; it occupies.
+
+But fauna—fauna is everywhere.
+
+At first you notice only motion in the water: darting ribbon-fish in channels too small to hide them; broad-backed amphibians parked in warm puddles like polished clay; spinning wheel-clusters of insects skating circles around upwelling points. Then the air resolves: swarms of thumb-sized flyers with mirrored wings, moving in coordinated bands that flicker from visibility to absence when they change angle. Along the rock faces, six-limbed climbers cling upside down and crack open mineral blisters with delicate mouthparts. In the mist pockets, nearly invisible membrane creatures float and pulse, ringing softly when they collide.
+
+Predation is constant but not frantic. A long-necked marsh hunter stands motionless for ten minutes, then strikes with a speed that produces a sharp report like a snapped cable. Schools of needlefish split and rejoin around shadows from above. Something under the stone occasionally hums, and every small animal in the basin freezes in exact synchrony for three heartbeats, then resumes as if a signal has cleared.
+
+The soundscape is never quiet. Water does most of the work: dripping, streaming, hissing where warm rock flashes droplets into vapor, glugging from hidden conduits. Layered over this are biological noises—clicking choruses, wing-thrums, guttural calls from unseen ledges, and periodic booming notes that seem too low to be purely acoustic, felt in ribs before heard in ears. The basin has resonant frequencies, and things here use them. Calls strike cliff faces and come back altered; animals answer the echoes, not the original.
+
+Scattered through this living noise are built things, few but undeniable.
+
+A ring of waist-high pylons arcs along one side of the marsh, each a matte material that absorbs the dim light instead of reflecting it. Between pylons, nothing visible—but when mist passes through the gaps it bends, briefly revealing tensioned planes like transparent fabric under load. Near the center stands a single broken tower no taller than a house, tilted, half-sunk, its surface crawling with slow geometric rearrangements, tiles opening and closing like scales. The tower is old or simply operating on a timescale that makes age irrelevant. Small creatures nest in its seams and are not harmed by the movement.
+
+At the far edge sits what might once have been a shelter: a shallow dome, open on one side, interior lined with smooth grooves that glow faintly when thunder passes overhead. No fire pit, no furniture, no obvious door hardware. Instead, on the floor: concentric insets filled with still water that never spills even when the ground flexes. If you place a hand above them, the skin prickles. Local gravity gradients? Electrostatic architecture? A field effect not in current textbooks? Whatever technology formed this place did not impose itself against the environment; it tuned the environment like an instrument.
+
+The light never resolves into day. It is dim, amber-gray, and source-ambiguous. Clouds emit as much as they block. Rock seams give off a weak internal luminescence, especially after loud pressure events. Animal skin and wing surfaces catch and reroute available photons, so moving things are often brighter than still things. At moments the whole basin brightens for two seconds without lightning—just a coherent pulse passing through mist, stone, and water simultaneously—then returns to its soft gloom.
+
+Rules here feel stable, but not universal. Water climbs certain surfaces against gravity only when unobserved directly, then falls when glanced at from the corner of the eye. Sounds can trigger mechanical responses in the pylons; repeated notes make invisible boundaries harden enough to hold drifting debris. Heat collects in geometric patches—stand in one and your breath fogs less, step aside and it returns. The fauna has adapted exquisitely: migration paths align with field lines; mating calls are pitched to activate safe corridors through unseen barriers.
+
+Nothing about the basin feels ruined. Even the broken structures feel participatory, mid-process. This is not aftermath; it is assembly. Geology is young, hydrology experimental, ecology opportunistic and fast-learning, technology half-buried but still negotiating with everything alive around it.
+
+If you stay long enough, you begin to understand the place less as landscape and more as a test chamber for coexistence: rock becoming terrain, water becoming pattern, life becoming signal, machinery becoming weather. Sparse in matter, crowded in interactions. Small in footprint, immense in behavior.
+
+And always warm, wet air against your face, and the sense that the ground is still deciding what it wants to be.

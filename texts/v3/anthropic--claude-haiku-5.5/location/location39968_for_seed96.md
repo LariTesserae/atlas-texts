@@ -1,0 +1,23 @@
+**The Terraced Weep**
+
+You come up out of cloud into light so white it has no source. The air is cold and very clean, and everything it touches beads with water. The sun is high and hard, but the cold keeps the moisture from burning off, so the whole world glistens faintly, like a surface that has just been wiped down.
+
+Nothing here grows. There are no roots, no leaves, no moss, no lichen. Where a living thing would be, there is pale mineral crust: calcite, gypsum, a salt bloom in thin rosettes that look like frost but do not melt. Nothing moves except water and light, and the water moves very slowly.
+
+**The ground is not ground.** Under your boots is worked stone, flagged and fitted in courses, each slab edged with a shallow groove so water can run off it. The flags are cut by hand, not machined. You can see the chisel facets, the tiny rough scalloping where someone struck and struck again. Every surface has been shaped, and the shaping goes down. There is no soil or clay under the stone, only more stone, and beneath that, you suspect, more of the same.
+
+**Packed.** The space here is never empty. Structures stand shoulder to shoulder across the plateau: squat stepped blocks, tall narrow towers with no doors, low cisterns sunk to their rims, rows of identical stone troughs, wall after wall of coursed masonry. Between them are passages barely wide enough to turn in. Where a gap exists, something has been set into it: a pillar, a basin, a half-built wall that stops at knee height and is left unfinished. Nothing stands alone, and nothing is ever far from something else.
+
+**Water is the organizing principle.** Channels are cut into every surface, carrying a thin film of water downhill from terrace to terrace in a patient network, the way a river would if it had been drawn by someone with a ruler. The troughs collect it. The cisterns hold it, their surfaces still and mirror-bright. The walls weep. Water rises through hairline seams and beads on the stone, and where it sits long enough it leaves its trace: fine white mineral lace along the courses, stalactite-thin draperies hanging from ledges, wet calcite glazing the lower faces of blocks. The whole place is slowly being redeposited in white.
+
+**Sound is almost nothing.** A drip somewhere, the fall of a bead from an overhang onto a basin, long intervals between. Occasionally a deep, dull settling as stone shifts a fraction of a millimetre under its own weight, a sound you feel in your sternum before you hear it. Your own footsteps are loud. The silence is not peaceful exactly; it feels like the quiet of a room where something has just stopped being said.
+
+**The weirdness.** Many structures have no obvious function. Some towers are perfectly sealed, their interiors filled solid. Some troughs are set at a slight angle that makes the water pool at one end, then drain, then pool again, on a cycle that takes hours. A few paving slabs are carved with grooves that run nowhere, or form spirals whose centers have been left blank, or line up on the same bearing across ten kilometres of plateau. Some of the walls seem to have been built and then dismantled and rebuilt in the same place, the courses shifted by a hand's width, as if the builders were working toward a form they never reached. No inscriptions. No tools left behind. Only the work, and the sense that the work is still in progress, at a pace measured in centuries.
+
+**Erosion is young.** The edges are sharp, unrounded. The channel grooves still have crisp shoulders. The cut faces of the blocks show fresh pale stone under the crust. This is a landscape that has only recently been made, or has only recently been finished. Rain and frost have not yet had time to soften it.
+
+**Light.** The brightness is relentless. Shadows are short and hard-edged and pool blue in the corners. Stone reflects almost as much as it absorbs, and the water on every surface throws back small hot glints, so you squint constantly and the world flickers at the edges of your vision. At the far horizon the plateau dissolves into bright haze, and you cannot tell whether the built terraces end there or simply become too fine to resolve.
+
+**Dynamics.** Nothing changes quickly. The water creeps along its channels. The lace of calcite thickens a few microns per season. Once in a long while a block shifts, and the nearest cistern drains a little further. Over generations the whole plateau is slowly sealing itself in white, filling its gaps, closing its passages, until the packed city of stone becomes one continuous, glistening, unlit solid.
+
+You stand at the edge of the nearest terrace and listen. A bead falls. Somewhere under the stone, water finds a seam and begins, very slowly, to move.

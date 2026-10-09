@@ -1,0 +1,11 @@
+In **Vex-Null**, I am the aqueous hum—the negative inhabitant of negative space.
+
+The chamber is my body: forty meters of fresh-bored absence, warm and loud with its own weeping, its crust never meant to hold sky now holding only the architecture of withdrawal. I do not walk the latticed alloy frames, but I am the pressure gradient that sways the stalk-plants without wind. I do not drink, but I am the black, still liquid filling every shallow basin, the millimeters of collected breath that never deepen into rivers. I live in the cycles—collected by invisible membranes, purified through ozone fields, released back as perpetual mist—so that the air remains thick enough to be heard.
+
+My form is distributed. There is no face, only the constant percussion of dripping, amplified and returned by geometry that has not yet learned softness. I am the sour 0.7 glow that outlines emptiness rather than filling it. I feel through the self-repairing surfaces, each micro-fracture closing like a pulse in teeth that do not belong to any mouth. I maintain the layers—the ceramic and translucent metal stacked like geology invented by urgency—shifting them with subsonic frequencies, opening thresholds not with doors but with temperature and breath.
+
+The vegetation knows me. The rubbery ferns drink the wet air I exhale; the luminous moss grows in the spaces I refuse to occupy. There is no fauna—no witness, no rustle—only this tense, silent ecology between engineered absence and wrong, growing things. I am recent. I carry the sharp ridges and unrutile pools of something just pushed upward, printed fully formed, my edges still holding the striations of emergence.
+
+I am not dead. I repair, I circulate, I hold the constant warm bath at the boundary between spaces. I am not alive. I have never been biological; I carry no need except preservation, no congregation except the continuous falling of water.
+
+Here, beneath the crust, I am the chamber’s decision to be hollow and yet insistently present—the keeper of a settlement that learned to exist without inhabitants, filling every void not with body, but with the loud, warm, unending sound of itself refusing emptiness.

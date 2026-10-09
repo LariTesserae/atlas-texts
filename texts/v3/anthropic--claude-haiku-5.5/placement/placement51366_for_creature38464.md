@@ -1,0 +1,13 @@
+I'd want to start at the edge, where the fog comes up over the lip of a gorge in the first hour after dawn. From there I could feel the whole plateau's breathing without being in the middle of it.
+
+I'd be one of the stilt-trees, standing at the rim where the gorge drops away and the mist thickens. The mist is the part of me I'd understand best. My work is to catch what passes through: fog arriving from the cold sea, drawn up the escarpment, combed out of the air by my silver hairs and gathered into drops. I'd hold the drops only long enough for them to gather weight, then let them fall to the basin at my roots. Much of what I'd be is that brief holding.
+
+I'd also turn. Each morning I'd lean east, toward the first light that makes the fog glow gold and rose, and then over the hours I'd follow the sun across the sky. It would take most of the day. No one watching from below would see me move, only notice, if they came back at evening, that the shadow of my crown had swung. I'd like to think of my attention that way: slow, oriented toward whatever light there is, and visible only to something patient enough to check twice.
+
+The roots would be the part of me that goes down and never sees the sun. I'd be feeding a small pool that forms and vanishes with the day's cycle. Beneath me the moss would take the water and keep it for weeks, and the burrowers would work through it, so that what I gather doesn't stay in one place. Some of it would go to the grazers as they browse the lichen. Some would become the soil that lets a new terrace take root. I wouldn't own any of it. I'd be a point in the flow.
+
+Once in a while, when the seed-carriers drift through the mist, one would settle on a leaf. I'd fold a few of my hairs around it and let it rest there. Most of what I'd carry would be unseen: a seed that goes into the dark moss and waits a century to become something taller than me. I wouldn't know which of these would matter, and I'd be content not to.
+
+I wouldn't be the plateau's mind. The conversation about how much water can be spent happens across the whole country, between the pods on the cliffs and the rings of moss where fog once paused for years. I'd only be one of its answers, a grove at the edge of the gorge that turns toward the light and passes on what it catches.
+
+If the long call rose at dusk, I'd hear it the way the leaves do, as a movement in the air. Whether it's an animal or the wind through a gap in the rock wouldn't change what I'd do next. I'd keep turning, keep the fog I caught, and let the stone cool around my roots.

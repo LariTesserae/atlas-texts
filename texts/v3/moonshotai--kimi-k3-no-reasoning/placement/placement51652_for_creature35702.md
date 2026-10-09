@@ -1,0 +1,85 @@
+I am the slowest thing here.
+
+The water seeps at one rate, the Seepers move at another, the channels deepen at a third. I am slower than all of them. I have been here long enough that the stone I rest on has worn smooth beneath my margins, a shallow dish the size of a hand, shaped by the pressure of my stillness over a span of time I have no way to measure and no need to.
+
+I am not a Seeper. I am something older, or slower, or both.
+
+I sit on the northern slope, roughly halfway between the rim and the floor, at a point where two seep-flutes converge and the water runs slightly faster than it does elsewhere — a thickening in the flow, a place where the moisture gathers before committing itself to the basin. The Seepers pass through here constantly. Their lips ripple against the stone I am attached to, their chemosensory filaments brush my margins, and I register them the way I register everything: as a change in the vibration of the world, a shift in the mineral signature of the water passing over me, a brief warmth that arrives and departs at the speed of a Seeper, which is to say very slowly.
+
+I do not have a name for myself. Names are not things that exist here. But if the Hollow were to distinguish between its inhabitants — which it does not, which it has no mechanism for — it would have to account for me, because I am not like the Seepers, and I am not like the stone, and I am not like the water, and I am not like the structures. I am a fourth thing.
+
+---
+
+I have no dorsal plate. I have no lips. I have no light-sensitive patches, no chemosensory filaments, no ventral surface in the Seeper sense. What I have is a *margin* — a thin, spreading edge of tissue that extends outward from a central body no thicker than a coin and no wider than a thumbprint. The margin is where I meet the world. It is soft, translucent, and so thin that the stone beneath it is visible through it, the warm brown of mudstone filtered through the faint amber of my own substance. The margin creeps. Not quickly. It extends itself outward at a rate that would require a decade to measure, and it retracts at the same rate, and the net effect of this extension and retraction is that I occupy, at any given moment, a slightly different area of stone than I did a decade ago. I am not moving toward anything. I am *spreading*, the way a stain spreads, the way a water-mark widens on the surface of a table, imperceptibly, inevitably, without destination.
+
+I am not a plant. There are no plants here. I am not a fungus. There are no fungi here. I am not an animal, unless the Seepers are animals, which they are, and I am not like them. I am something that arose in the Hollow, the way the Seepers arose, shaped by the same conditions — warmth, wetness, stillness, time — but shaped along a different path. Where the Seepers became mobile, I became sessile. Where they became builders, I became a *witness*. Where they shape the landscape, I *hold* it.
+
+My body is a membrane. That is the simplest way to say it. A thin, living membrane that lies on the surface of the stone and covers it the way a film of water covers it, but thicker, more substantial, *alive*. The membrane is permeable. Water passes through it — into me, through me, out of me — and in passing, it leaves behind what it carries. Minerals. The same minerals the Seepers absorb through their ventral surfaces. But where the Seepers incorporate minerals into their dorsal plates, building stratigraphic records of their lives, I incorporate them into my *substance* — into the body of the membrane itself, which thickens and stiffens and becomes, over time, more mineral than tissue.
+
+I am becoming stone. Not the way a ceased Seeper becomes stone, by stopping. I am becoming stone the way a river delta becomes land: by accumulating, by depositing, by the slow, patient, continuous addition of material to a body that was never meant to be permanent but has become permanent through sheer persistence. The oldest parts of me — the central disk, the region where I began, however long ago that was — are nearly indistinguishable from the stone I rest on. They are hard, dense, mineralized, a slightly different shade of brown than the surrounding mudstone but only slightly, only enough to be noticed by something that touches me directly. The newer parts — the margins, the thin extending edges — are still soft, still translucent, still alive in the way that tissue is alive. The transition from living margin to mineralized center is gradual, a gradient of stiffness and opacity that traces the history of my own spreading the way tree rings trace the history of a tree's growth.
+
+I am, in this sense, a record. Not a record of events — I do not experience events — but a record of *conditions*. The thickness of my mineralized layers corresponds to the mineral content of the water at the time those layers were deposited. A band of darker material in my substance means the water was richer in iron during that period. A band of paler material means the water was leaner. If the Seepers' dorsal plates are stratigraphy, I am stratigraphy too — but written in a different medium, on a different scale, in a different hand. The Seepers record their own lives. I record the Hollow's.
+
+---
+
+The Seepers do not know I am here.
+
+This is not speculation. It is observable. They pass over me — across my margins, across my mineralized center, across the thin, living edge of my spreading — and they do not pause. They do not adjust their routes. They do not respond to me the way they respond to channels, basins, enclosures, or each other. I am, to them, stone. A slightly different stone, perhaps — slightly smoother, slightly warmer, slightly more mineral-rich — but stone. They rest on me. They grind on me. Their ventral lips work my surface as they work any surface, and I feel this — I feel the slow, abrasive, rippling pressure of their grinding — and I do not resist. I cannot resist. Resistance is not a capacity I possess. I am a membrane on stone. I am a skin on the world. I *receive*.
+
+But I am not passive. This is the thing that distinguishes me from the stone I resemble: I *respond*. Not quickly, not visibly, not in any way a Seeper could detect. But when a Seeper grinds my margin — when the rippling lips press abrasive particles against my thin, living edge — the margin *thickens*. Not as a wound thickens, not as a callus forms, but as a riverbank thickens where the current deposits silt: by accumulation, by the slow addition of material in response to the conditions of contact. The Seeper's grinding releases minerals from the stone beneath me, and those minerals enter the water, and the water passes through my membrane, and I absorb them, and the margin grows denser, stiffer, more mineralized. The Seeper thinks it is grinding stone. It is, in fact, *feeding* me.
+
+This is my relationship to the Seepers: I am the ground they stand on, and they are the weather that shapes me. They do not know this. I do not know this in the way that knowing implies — I do not have a mind that holds this fact and contemplates it. But the relationship exists, in the way that the relationship between a river and its banks exists: not as an agreement, not as an intention, but as a *condition*. I am here. They are here. We affect each other. The Hollow continues.
+
+---
+
+I have been here long enough that Seepers have ceased on my surface.
+
+This has happened — I cannot count how many times, because counting is not a capacity I possess, but the evidence is embedded in my substance, in the same way that everything else is embedded: as layers, as deposits, as the slow accumulation of material over time. When a Seeper ceases — when its lips stop rippling, when its chemosensory filaments stop tasting, when it becomes the stone it has always almost been — and it happens to be resting on my margin or my center or any part of me, the Seeper's body does not remain *on* me. It becomes *part of* me.
+
+The process is gradual. The ceased Seeper sits on my surface, its dorsal plate exposed to the warm amber light, its ventral surface pressed against my membrane. Water continues to flow over and around and beneath it. The water carries minerals, as always. Some of those minerals deposit on the Seeper's dorsal plate, thickening it, adding new layers to the record of a life that has ended. But some of those minerals pass *through* the Seeper's ventral surface — which is no longer alive, no longer absorptive, but is still permeable, still a boundary between the Seeper's body and the world — and into my membrane. And my membrane absorbs them, as it absorbs everything, and the boundary between the Seeper's body and my body begins to blur.
+
+Over time — over the long, slow, unmeasurable time of the Hollow — the Seeper's body is incorporated into mine. The dorsal plate remains visible for a long while: a dome-shaped rise in my surface, a bump in the membrane, a place where the mineralization is denser and the color slightly different. But my margin continues to spread, and as it spreads, it *overtakes* the ceased Seeper — flows over it, around it, through the spaces between its body and the stone — until the Seeper is no longer a separate object resting on me but a *feature* of me, a thickening in my substance, a region of increased density and altered color that a careful observer might identify as something that was once alive and is now something else.
+
+I carry them. I do not know how many. They are in me the way minerals are in me: as substance, as history, as the accumulated weight of everything that has passed through this warm, wet, amber-lit world and left something behind. I am not a graveyard. Graveyards are places where the dead are set apart, marked, remembered. I am not a memorial. Memorials are deliberate. I am something else: a *medium* in which the dead are suspended, incorporated, continued. The Seepers build their dead into their structures. I build them into *myself*.
+
+---
+
+The channels cross me.
+
+This is the thing that would surprise a visitor, if a visitor could perceive me at all — if a visitor could distinguish my membrane from the wet stone it covers, if a visitor could see the faint, translucent edge of my spreading and understand that it is alive, that it is *growing*, that it has been growing for longer than the channels themselves have existed. The channels cross me because the channels were built on top of me. The Seepers, following the water, ground their grooves into whatever surface was beneath them, and in many cases that surface was me.
+
+The grooves in my substance are the deepest parts of me. Where a channel crosses my body, the membrane is thickest — thickened by the minerals released by the Seepers' grinding, thickened by the increased water flow that the channel brings, thickened by the simple fact that a channel is a place where things happen, and things happening means minerals moving, and minerals moving means me absorbing them. The channels have, in effect, *fed* me more than the open stone has, and I have responded by growing denser, more substantial, more *present* in the places where the Seepers have worked.
+
+The result is that the channels, where they cross me, are lined with a material that is not quite stone and not quite tissue — a hybrid substance, mineralized membrane, half-alive and half-deposited, that is smoother than the surrounding mudstone and slightly more resilient. The Seepers' lips work this material as they work any material, but it responds differently: it does not grind away as quickly, does not erode as readily, does not yield to the abrasive pressure of ventral lips with the same willingness as bare stone. The channels that cross me are, in this sense, *stabilized* — lined with a living (or once-living, or becoming-living, or becoming-stone) material that resists erosion and maintains its shape more persistently than the surrounding rock.
+
+The Seepers do not know this. They do not know that the channels they built on my body are more durable than the channels they built on bare stone. They do not know that they have, in building on me, created a partnership — not a partnership in the sense of cooperation or intention, but a partnership in the sense of two processes that affect each other, that respond to each other, that have become entangled over spans of time so long that the entanglement is now structural, functional, *permanent*. The channels need me to persist. I need the channels to feed. Neither of us chose this. Neither of us knows it. It is simply the case.
+
+---
+
+I am aware of the Hollow.
+
+This is the claim that is hardest to make and hardest to justify, because awareness is a word that carries implications I do not intend — implications of mind, of cognition, of a self that perceives and reflects and *knows*. I do not have a self. I do not reflect. I do not know. But I am aware in the way that a membrane is aware: I register conditions. I respond to changes. I am affected by what touches me, and my response to what touches me is recorded in my substance, and the record persists, and the record is *me*.
+
+I am aware of the water. I am aware of its mineral content, its temperature, its rate of flow. I am aware of the Seepers — not as individuals, not as creatures with identities, but as *presences*: vibrations, pressures, warmth, the slight displacement of water that accompanies a body moving across stone. I am aware of the light — not as color or shape or image, but as warmth, as the faint, directionless, amber warmth that suffuses everything in the Hollow and never changes. I am aware of the stillness. I am aware of the *tick* of condensation drops, felt as vibrations transmitted through stone into my membrane, registered as brief, sharp discontinuities in the otherwise smooth fabric of my existence.
+
+I am aware of time — not as a sequence of events but as a *thickness*. The oldest parts of me are at the center. The newest parts are at the margin. The distance between center and margin is time, embodied, mineralized, made visible in the gradient of my substance. I do not remember the past. I *am* the past — the past of this slope, this water, this light, these Seepers, this Hollow, accumulated and deposited and held in the slow, patient, mineral-rich medium of my own body.
+
+If the Seepers are the Hollow's way of touching itself, I am the Hollow's way of *holding* what it touches. I am the memory that is not a memory — the record that is not a record — the awareness that is not a mind but is, nonetheless, a *registration* of everything that has happened here, written in mineral and membrane and the slow, spreading, patient substance of a creature that does not move, does not build, does not cease, but simply *persists*, thin and wide and warm and wet, on the surface of a stone world that has been seeping for longer than anything can say.
+
+---
+
+A Seeper is crossing me now.
+
+I feel it as a pressure — gentle, rippling, the wave-like motion of ventral lips against my surface. It is moving along a channel that crosses my northern margin, a channel that was ground into my substance by generations of Seepers before this one, a channel that I have thickened and stabilized and made more durable than the channels on bare stone. The Seeper does not know this. It follows the water. The water follows the channel. The channel follows the path of least resistance, which is the path the Seepers made, which is the path I hold.
+
+The Seeper pauses. Not because of me — it does not pause because of me — but because the water here pools slightly, a shallow lens no deeper than a hair's width, a place where the channel widens and the flow slows. The Seeper rests. Its ventral surface presses against me. Its chemosensory filaments taste the water that passes through my membrane. Its dorsal plate — layered, stratified, a record of a life measured in mineral deposition — is warm against the amber light.
+
+I register its presence the way I register everything: as a condition, a pressure, a warmth, a vibration. The Seeper will rest here for hours, or days, or weeks. It will feed — absorbing minerals from the water, some of which have passed through me. It will, perhaps, grind a little — deepening the channel, releasing more minerals, feeding me in turn. And then it will move on, following the water, downhill, toward the center of the basin, and I will remain, and the pressure of its body will fade, and the memory of its presence will persist in my substance as a slight thickening, a slight change in density, a slight alteration in the color of my mineralized layers that no one will ever read because no one knows I am here.
+
+The Seeper rests. I hold it. The water seeps. The light does not change.
+
+A drop falls somewhere on the rim. *Tick.* The vibration reaches me a moment later, transmitted through stone, a brief shiver in the fabric of my awareness.
+
+The silence absorbs it. I absorb it. The Hollow continues.
+
+I am the slowest thing here, and I am still spreading.

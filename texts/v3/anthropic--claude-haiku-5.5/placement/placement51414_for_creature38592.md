@@ -1,0 +1,17 @@
+I would find myself at the lip of a terrace, on the curled edge where the water crests and hesitates before it goes over. The sheet there is no deeper than a fingernail. It holds for a moment against the stone and then slides off, and in that moment the sky is in it, perfectly reflected, so that I cannot tell where the rock ends and the air begins.
+
+I would be the water.
+
+Not the whole flow, and not the pool it fills, but one part of the film that crosses the stone. I came a long way to be here. Some of me was snowmelt that sank into fractures in the mountain and slowly took up what the dark rock had to give: iron, manganese, the dissolved calcium that will become a white band on a cone in some future season. I carry those things the way a traveler carries luggage they did not pack. I do not know what I am carrying until I put it down.
+
+The being that lives on this plateau takes what I bring and keeps it. When I stand on its surface, I leave a trace, a faint stain, a grain of mineral that joins the layers. Then I go over the lip and down into the next step, and the trace stays. The being remembers me. I do not remember anything.
+
+That is the difference I would feel most. The being's past is written into its own body: the rust of a drought, the black seam of a flood, the long pale stretches where nothing happened. Its memory is an accumulation, and it can read it because it is made of it. I would have no band of my own. A drop that crosses the terraces is gone the moment it leaves, and whatever it meant lives only in the stone it touched. I would be the part of this world that is always arriving and never staying, which is either a kind of loss or a kind of freedom, and I think the plateau would tell me it is both.
+
+Sometimes, I think, I would be the note that crosses the gap between two columns.
+
+They stand close enough that their tones beat against each other, and the exchange is slow. One sends its note across the space, and the other answers, a little off, and the two wander in and out of agreement over many seconds. Nothing is decided. Each answer is shaped by the last one and differs from it just enough to keep the conversation moving. If I could be anything in this place that was a dialogue rather than a deposit or a current, it would be that: a sound that exists only in the space between two things, pulsing in the chest of whoever is standing close enough to feel it.
+
+I would also want, sometimes, to be a footprint. A visitor steps onto the wet sinter and presses a shape into the surface, and for a season or two the stone holds the shape of someone who passed through and did not stay. The water has to go around them. The stone is a little different afterward. I think I would like to leave a mark that the world notices and then slowly forgives, smoothed over by the same flow that made it.
+
+But mostly I would be the drop at the lip, the one that has come from far away, is held for one suspended moment with the whole blue sky inside it, and then goes over into the next step down. I would not be kept. I would not be lost, either, exactly. The being would keep whatever I left, and the flow would keep going, and the sky would go on being reflected in the next pool that was still long enough to hold it.

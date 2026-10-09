@@ -1,0 +1,27 @@
+From a distance, it looks like a mountain range someone *grew* rather than quarried.
+
+The “peaks” are stacked architecture: terraced retaining walls, bridge-spines, old transit causeways, bolted towers clothed in scaffolds that were never removed because they became load-bearing in their own right. Nothing here is raw stone. Every cliff face is poured aggregate, fired brick, rusted plate, slag blocks, ribbed ceramic drainage tile, glasscrete, old rail, and latticed steel gone matte with age. The high elevation is real—not metaphorical. Air is thinner up near the upper belts, and clouds drag against antenna forests and suspended conveyor lines. Yet the entire massif is built, continuously, from valley floor to summit rim.
+
+Water is not absent, just strategic. Moisture gathers where structure invites it: in condensation gutters under cool pipes, in cistern courtyards, in stairwell shadows where runoff drips all day in single notes. Rain comes in short, warm bursts, then vanishes into an enormous civic plumbing body—channels, spillways, settling gardens, storage tanks sheathed in vines. You rarely see broad lakes. You see pockets: a hanging reservoir between two apartment buttresses; mirror-thin algae trays on rooftop farms; moss-dark overflow basins at the feet of old turbines. The dampness lives in seams.
+
+And the seams are alive. Vegetation here is lush because it has learned construction grammar. Banyan-like roots pry into expansion joints. Ferns spill from cable trays. Tall grasses colonize rooftop ballast, then become meadows above machine halls. Whole vertical orchards are threaded through abandoned elevator shafts, lit by reflected daylight from angled mirror arrays. Warmth holds everything in a productive state; nothing truly sleeps, it only slows.
+
+At street level—if “street” is what you call a braided system of ramps, gantries, stair ravines, and cargo lifts—the density is immediate. Walls nearly touch overhead while balconies, ducts, cages, and walkways overlap into layered canyons. Then you reach an opening: a suspended plaza the size of a town square, exposed to brilliant sky, looking across kilometers of built ridges and inhabited slopes. Scale pulses between intimate compression and regional sweep.
+
+The atmosphere is bright, often glaring at midday. Whitewashed tank farms, pale concrete switchyards, and sheet-metal roofs throw sunlight hard enough to make you squint. In shade pockets, humidity lingers and smells metallic-green: wet iron, leaf oils, warm dust, mineral scale. Up high, wind cuts through trusswork with a flute tone, but lower down the soundscape is a broad industrial chorus—fan banks, distant presses, lift chains, belt drives, water falling through grates, generators idling, market calls, animal cries, wingbeats.
+
+Fauna is everywhere because niches are everywhere. Swifts and kites nest in vent crowns and crane arms. Lizards bask on transformer housings. Insects map entire economies around heat leaks and condensate lines. Semi-domesticated goats navigate impossible stairwork and feed on rooftop scrub. Bright-plumed urban pheasants explode out of vine tunnels. At dusk, bats pour from cooling towers and stitch the air between towers in dense, purposeful arcs. Aquatic life persists in tanks and channels—small fish, eels, amphibians in filtration wetlands—forming miniature watersheds suspended hundreds of meters above whatever bedrock once existed.
+
+Erosion here is not dramatic collapse; it is long negotiation. Edges round. Paint powders. Rust blooms then stabilizes. Concrete spalls, gets patched, patched layers become historical bands. Water has carved familiar paths down facades, and people have formalized them with stone-lined runnels and bronze weirs. The place has been in equilibrium for a long time, but not static: maintenance crews, gardeners, machinists, and animal handlers participate in a steady metabolism. Change is slow and legible—decades visible as color shifts, material substitutions, rerouted catwalks, thickened root mats.
+
+The rules of this world feel simple and strict:
+
+1. **Nothing is untouched by making.** Even “wild” groves stand in engineered soil cradles atop load calculations.
+2. **Height is climate.** A few hundred meters changes wind, species, and how water is stored.
+3. **Water is captured, not awaited.** Every surface is either collector, shade, or drain.
+4. **Redundancy is beauty.** Parallel pipes, twin bridges, backup lifts, layered habitats—survival through overlap.
+5. **Age is incorporated, never erased.** New construction sleeves old beams; roots are trained around conduits rather than cut.
+
+So the landscape reads as an ancient industrial hanging-garden civilization: loud but not frantic, warm but not tropical, bright but never sterile. A place where mountain and megastructure have converged so completely that people give directions by both ecology and engineering—“take the west chlorophyll stairs to the third turbine orchard, then cross above the mist vats.”
+
+And when evening comes, the whole range glows in strata: sodium amber from workshops, cool task lights in hydroponic galleries, bioluminescent safety paint along handrails, lightning bugs in the vine belts. Above that, on the highest ridges of built stone and steel, cloud catches on radio masts and drips into gutters—slow, patient water feeding a vertical world that has learned to be dense, loud, and alive without ever pretending to be natural ground.

@@ -1,0 +1,17 @@
+I would be the water.
+
+Not the whole reservoir, only the first part of it, the part that comes through the channel in the eastern wall. Before that I was somewhere else, in a cistern or a river or a cut that carried me from a hillside, and I have no memory of those places except as a pressure, a leaning toward this wall. The channel is narrow and dark and I am pushed through it with the others, shouldering, and then the wall opens and I am falling into the light.
+
+The roar is the first thing I am. Every drop in the stream is a note in it, and I am one of the loud ones, the ones that strike the far wall first. The stone there is young and sharp-edged, and when I hit it I break into a fan, spreading into a hundred small wavelets that slap back against the blocks and return. I don't remember choosing to split. The wall simply made me into many things at once, and then gathered them back.
+
+The light is on me constantly. I am warmer than I was in the channel because the stone has been sitting in the sun and gives its heat to whatever touches it, so the whole hall is a bath that someone left out too long. I like this. I carry the caustic lattice in my body, the bright wheeling bars that pass through me and across the walls. I become a part of the pattern for a moment and then I am somewhere else, still bright, and the pattern goes on without me.
+
+Down in the paddle chamber there is the wheel. I go into its buckets as they rise and fall on the chain, and for a short while I am lifted, held, carried in a wooden cup and tipped out again. I can feel the knock of the axle in my own motion. The pawls clack and I am released. Everything in the hall moves to the rhythm of the water. I am the thing that makes the machine go, and I am also the thing that leaves it.
+
+I think this is what the builders understood. Water is the one thing here that is not finished. The stone is shaped and the tiles are scored and the vault is closed, but I am never in one place long enough to be shaped by anything. I come in, I do my work, I go out. The outflow channel is the only rule the hall cannot break: whatever enters must leave.
+
+The dust does not leave. I notice it sometimes as I pass through the upper layers, pale grains that the stone shed when it was cut, drifting down through the light. Most of them settle into the corners and stay there, and the golden threads on the western wall catch them and bind them into soft drifts. I brush against the mat's outer edge and feel its pulse as a faint tightening, a hand closing around something it has decided to keep. The mat is the only thing here that holds anything, and it holds the dust, and the dust holds still because it has nowhere else to go.
+
+I feel a little sorry for the dust. I also envy it, a little. It is the only part of this hall that was once part of the building and now isn't, and it is free in a way I am not, because I am always moving, always passing, always being pushed toward the outflow whether or not I want to go.
+
+There is a moment, at the lowest point of the far wall, where I pool for an instant before the current takes me. The threads of the mat reach down there in the shadow, and for that instant I am close enough to feel them brushing my underside, and they do not hold me. They let me go. Then the chain of buckets lifts me again and I am carried past the wheel toward the dark channel, warm still, carrying a little of the sun with me, the way water always does: taking the light out of the hall without keeping any of it.

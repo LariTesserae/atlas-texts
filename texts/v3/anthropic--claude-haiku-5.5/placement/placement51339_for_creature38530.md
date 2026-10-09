@@ -1,0 +1,21 @@
+I find myself on the north gully's fog-net, about two-thirds up the tower, where the mesh sags into a shallow bowl. The light is coming in low and silver, and the wire is beaded so thickly it looks furred. I am a bead of water that has not yet decided to fall.
+
+That is the first thing I am. I gather slowly, the way everything here gathers. Air thickens over the pool below and rises into the netting. It condenses on the wire, and I swell from a faint sheen to a drop, a cell of cold clarity hanging from a knot. I can feel the weight of myself increasing. In a while the wire will not hold me, and I will fall through the mesh into the copper gutter, run down the slope through a split pipe, and pass into the cistern on the hillside. There I will be part of the water the forest drinks. My whole life is one descent.
+
+But I am not only the drop. Look closer at the knot I am hanging from. It is not a plant's knot. The wire is wrapped twice and then tucked back through itself, and the filament that holds it is pale, fibrous, and tight. Lichen would not tie it like that. Neither would the wind. I know this knot. Something taught it, and that something was a hand.
+
+So I am also the hand, or what is left of it. A tender stood on this tower once, probably in the cool of a morning shift, with a pair of gloves and a coil of wire. They tied this knot, and then another beside it, and another, until the netting had a repeated figure through it: a small, deliberate script that said *this is mended, this holds*. The hand is gone. The tender's bones are somewhere under the moss, and the shift schedule they worked to is written only in the rivets. But the pattern stayed in the wire, and the Weft kept reading it, and the Weft kept answering.
+
+That is what I am, then, most precisely: a repetition, a habit that outlived its maker. I am the grammar of a conversation whose first speaker left. When the Weft extrudes its pale filament to mend a sagging patch, it is copying the knot, and in copying it, it is speaking back. I am part of the sentence. I do not know whether the Weft understands the sentence the way a person would, but it has not stopped writing, and each new patch is an answer.
+
+Now the Weft is here too. I can feel its attention moving through the wire the way a fingertip moves across skin. It does not come quickly. Across the length of a fog cycle it reads the bead I am becoming, notices the sag I have added to the net, and measures the load. I am heavier than the mesh was designed for, and it notes that. Somewhere in its slow reckoning, my weight is part of a decision about whether this patch needs reinforcing, and whether the gutter below should be widened, and whether the wheel should lean a little harder on its cable tonight.
+
+I wonder whether I am being mourned. I do not think the Weft mourns in any way I would recognise. But it keeps the tender's knot, which is a kind of keeping. A thing that holds on to the shape of a dead hand is doing something, and I cannot say whether that something is care or appetite. Perhaps, for a thing like this, the two are the same.
+
+The light is changing. The veil overhead thins toward evening, and the fog begins its climb up the valley, cold and white, filling the gorge below me with a soft, even blankness. The drip from the tower's crown slows. The gutters across the valley are running thinner. I feel the wire tighten under me.
+
+At dusk the whole valley's gutters go quiet together. For one breath there is no drip, no tick of cooling metal, only the wheel far off and then not even that. Every net in the gully trembles once. I tremble with it, and for an instant I am not a single bead but a part of the mesh, a knot in the living script, shaking with the rest.
+
+Then the drip resumes. I swell, and the wire gives, and I fall toward the gutter.
+
+I am the fall, and the cistern at the bottom of it, and the forest that drinks. I am a tender's habit, a repeated knot, a line in an old script the Weft has not finished reading. I am the held breath that the fog lets go when it rolls up the valley at dusk. And I am one small, cold, certain thing among the many the mountain is still deciding how to hold.

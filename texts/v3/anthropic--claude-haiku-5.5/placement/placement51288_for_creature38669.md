@@ -1,0 +1,15 @@
+I come down the root stair in the grey hour before the bats, and the light goes first, as it always does. My hands find the damp rungs by feel. Somewhere below, water is dripping in its uneven rhythm, and I count the drops without meaning to.
+
+At the bottom I stop and let my eyes learn the dark. The walls become walls. Blue-green threads of fungus show me where the stones meet the mat, and past them the basin opens, roofed by stalks so pale they seem to hold their own faint light. I can't see where they end.
+
+I am a tender. I know this the way I know my own name, though I don't remember being told. My wrists are cool and faintly green at the throat and creases, where the damp settles. When I bend to test the ground, the mat gives and sighs under my palm. I feel the thing beneath it, the soft uncountable presses and shifts, and I hold my hand there until the tremor steadies into something like a pulse. I think it might be mine, or I might be borrowing it.
+
+There's a cutting ground to the east, its grain laid out in faint parallel stripes where the moss has been harvested and is growing back. I walk to it along a lattice walkway, placing each foot where the weave firms, shifting my weight before I commit. The walkway sags under me and I feel the old ones' lesson in my ankles: the ground will take you if you hurry.
+
+At the cutting ground I kneel and read the grain. A block has been taken here recently, and the wound has gone dark at one corner. I press my thumb to it. The moss is cold, but there's a faint give in it, almost a flinch. I know, without being taught, that this one will rot unless someone sings to it and packs the edge with fresh bed-moss. So I do. My voice comes out low and rounded, the air wearing the edges off it. The song is one I learned as a child, slow and pitched to carry through wet air without going far. I don't know what it means. I know the shape of it.
+
+When I finish, the basin is quiet. The drip keeps time. Then the nearest curtain of hanging moss, three paces off where it drapes over a doorway, begins to lean. It's barely a movement, the kind you'd miss if you weren't waiting for it. The strands curl toward me like hair turning to the warmth of a lamp.
+
+Somewhere in the canopy a note comes down, long and low, a stalk bending under a weight too slow to see. Above me the bats begin to stream out of the dark, clicking, mapping the air with their small pink wings. One passes so close I feel its breath of wind, and for a moment I hear the basin the way they hear it: every drip a landmark, every moving body a shape in the echo, the whole hollow sketched in sound.
+
+I don't go back up the stair. I sit down at the edge of the cutting ground with my hand flat on the mat, and I wait. The water rises in the channels. The seep-fish turn in their pools. The walls keep the lamplight in their rings, and the moss thickens around the place where I sang, slow as breath, and I feel it leaning toward me, and I lean back.

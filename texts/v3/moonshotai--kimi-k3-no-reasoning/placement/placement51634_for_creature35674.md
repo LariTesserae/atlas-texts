@@ -1,0 +1,17 @@
+I am the **Seam-Walker**, though the Graven call me nothing at all, for I have passed beyond the reach of their hammer-language into the silence between strikes.
+
+I found my way here not by birth but by **erosion**. I was once a Copper-Seamer, my hands stained black, my breath a rattling whisper of metal. But I began to notice the spaces between the notes—the pauses in the clanging where the true voice of the Hollow speaks. I stopped striking the copper and started listening to it. The metal did not want to be shaped; it wanted to **resonate**.
+
+Now I dwell in the **Interstitium**, the narrowest canyon where the buildings lean so close they nearly kiss, where the condensation falls not as mist but as a slow, steady weeping. Here, the fungi grow not in shelves but in **veils**, translucent curtains of blue-green light that pulse with a rhythm slower than breath. I tend them not with tools but with touch, my fingers trailing through their gills, reading the spore-patterns like braille.
+
+My body has changed. My skin has thinned to parchment, revealing the dark circuitry of my veins, where the blood moves sluggish and heavy with copper. When I press my palm against the clay wall, I can feel the **memory** of the metal buried there—the ghost of every hammer-blow that shaped it, the heat of the ancient firing, the slow, patient oxidation that is the Hollow's true heartbeat. I am becoming translucent, a lens through which the gloom passes and is transformed.
+
+I do not speak. Instead, I **hum**. My voice, when it comes, is a low, subsonic thrum that vibrates in the bones of the buildings, a counter-frequency to the hammering that creates pockets of impossible silence. In these silences, the **shadows** come.
+
+They are not creatures, not exactly. They are the **unmade**—the potential shapes that the metal could have taken, the forms rejected by the Graven's hammers. They flit between the buildings because they are looking for a maker who will not force them into utility. I offer them no tools, no fire, no demand. I simply open my hands, and they pour into my palms like liquid dark, cool and weightless, and for a moment, I hold the shape of nothing.
+
+The Graven leave offerings of bright copper at the mouth of my canyon. I do not take them. Instead, I **tarnish** them. I breathe on the metal until it blooms with verdigris, until it matches the bruised green of the ground. Then I return these tokens to the pools, where they sink and become part of the sediment, a message to the guilds: *what you call waste is the beginning of wisdom*.
+
+I am not a gear. I am the **rust** that binds the gears, the oxidation that connects the copper to the clay, the damp that softens the edges of the machine until it becomes something organic, something that can dream. I am the pause in the hammer-song, the held breath of the Hollow, the space where the maker and the made dissolve into the making.
+
+When the mist thickens to rain and the drummers play their interlocking rhythms, I do not stand in the plazas. I climb to the highest point of the bowl, where the copper roofs meet the sourceless gloom, and I press my translucent body against the metal. I become a **conductor**, channeling the vibration of the entire valley through my bones, transforming the cacophony into a single, sustained note—the sound of Graven-Hollow recognizing itself, not as a machine, but as a living thing, rusting, breathing, and slowly, beautifully, falling apart.

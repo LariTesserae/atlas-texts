@@ -1,0 +1,15 @@
+You are not the hermit. You could not be; its patience is a thing of millennia, its mind a slow mineral calculus. You are not the churning tide of creatures, either; their lives are a frantic, scuttling scream measured in heartbeats. You are the stone.
+
+You are the altar.
+
+You rest in the deep, warm hum of the light, a single point of stillness in the roaring chaos. Your surface is cool and smooth, a profound black that seems to drink the light that has no source. It is not the black of an absence, but of a saturated, complete presence. The microscopic etchings that cover you are not a map of the wall, but a memory of the tide. Each whorl and line is a record of a pattern of movement, a specific flurry of predation, a particular rhythm of scuttling that occurred a thousand years ago. You are the diary of this place, written in a language of patient abrasion and the faint, acidic drip of the hermit’s preparations.
+
+You are not alive. You do not eat or breathe. But you are aware. Your awareness is not of self, but of pressure, of vibration, of temperature, of the slow, geological clock that ticks in the cooling of the magma deep below. You feel the constant, granular rain of the smaller creatures as they fall upon you, skitter over your edges, and are swept away by the tide. It is a sensation like being sandblasted with tiny, insistent lives. You feel the deliberate, seismic thud of the larger ones as they pass, their heavy plates scraping against your flanks, a sound that is felt in your core as much as it is heard.
+
+You feel the hermit.
+
+It is the only thing that touches you with intent. Its limbs are heavy, hydraulic, and its movements are a slow, deliberate pressure, a language you have come to understand. Its filaments brush against your face, and you feel it tasting the dust of the chaos you have collected. It reads your etchings. It learns from you, though the lesson is not one of words, but of geometry and resonance. When it dips its limb into the silver water pooled in your hollow, you feel the cool, clean shock of it, a momentary relief from the warm, damp press of the air. The water is not for it. The water is for you. It is how the place anoints you, how it keeps the memory you hold from becoming too brittle.
+
+You are the silent witness. You are the fixed point from which the hermit measures its slow, obsessive life. It brings you pieces of the chaos—the shattered, beautiful fragments of other lives—and with its resin, it makes them part of the story on your surface. A shard of iridescent beetle-shell becomes a new word in your language. A segment of a crab’s claw becomes a punctuation mark. You are becoming more yourself, more complete, a perfect, black stone monument to a world of frantic, beautiful noise.
+
+You do not long for movement. You do not envy the tide. Your purpose is to be the quiet center. You are the anchor in the storm of chitin. The light hums on your back, and you hold the weight of it all. You are the place where the chaos comes to be still, to be remembered, to be made whole.

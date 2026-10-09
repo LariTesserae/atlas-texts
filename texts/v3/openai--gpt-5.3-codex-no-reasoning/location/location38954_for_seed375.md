@@ -1,0 +1,33 @@
+At first it looks like a town abandoned before it was ever inhabited.
+
+Not ruined—too new for ruin. The edges are still sharp, corners unsoftened, surfaces unscoured. Whole streets lie in straight intention across a low basin, but they are not paved roads: they are bands of compressed pale mineral, pressed flat as if by patient weight. Walls rise from them in stunted blocks and ribs, chest-high to two stories high, arranged in districts and courtyards and narrow alleys that seem designed for movement and gathering. Yet there are no doors, no hinges, no glass, no soot, no scraps of making. Nothing that implies tools. The place has structure without craft, geometry without workmanship.
+
+The basin itself is shallow, a slight dip in broader plains of powder-gray salts and dull green stone. Elevation changes are subtle: a ramp here, a lip there, broad terraces no taller than a person. You can see almost all of it from almost anywhere, because there is so little to interrupt the sightlines. Space opens between built forms like held breath. Density is low enough that every object feels singular—one tower-shape, one stand of wiry growth, one leaning spur of black mineral—and each sits apart in a margin of emptiness.
+
+There is almost no water. None visible at all, in fact: no sheen, no puddle, no dampness in cracks. The air is cool and dry enough to sting the nostrils. When you exhale, your breath fades quickly, as if the atmosphere refuses to keep anything soft. In shaded cuts between walls, frost-like films sometimes appear at dawn—silvery, brittle, gone by whatever passes for midday—but they are not water-ice. They are volatile salts precipitating and subliming in cycles so fast you can watch their edges retreat.
+
+Vegetation is sparse and stubborn. It grows where geometry traps chemistry: at the feet of corners, in the mouths of culverts, along the shadow-lines of east-facing walls. Most of it is low, jointed, and pale, like bundles of thin chalk fingers thrust from cracks. A few taller forms exist, maybe shoulder-high, with segmented stems that flex toward dim light and away from open ground. Their surfaces are matte, almost velvety, dusted with mineral bloom. When conditions shift, tiny slits open along their sides and vent invisible gas; you only know because nearby dust stirs in brief little sighs. That is one of the loudest things here.
+
+The light never quite commits to day. The sky is a thick pewter gradient, brighter overhead, darker toward the horizon, with no clear sun-disc. Illumination is diffuse, directionless, and weak enough that shadows are soft-edged bruises. At intervals, bands of faint phosphorescence ripple through the built district—lines along wall crests, grids under the ground, pinprick constellations in the salt crust—then fade. Not electrical, not technological: chemiluminescent reactions propagated through mineral veins and biofilms, a civic-looking glow produced by blind natural process.
+
+Because this place is active, the silence is never dead. It is intricate quiet: clicks too small to locate, settling ticks from fresh-grown structures, dry rasp of dust skimming flat surfaces, whisper-bursts from plant vents, the occasional papery flutter of something alive changing position and then freezing. No wind as a continuous force, only pulses. No running water, no birdsong, no insect hum. Sound arrives as isolated events in large acoustic vacancy.
+
+The “urban” forms are the strangest part. Up close, their materials are neither cut stone nor poured concrete but accreted layers, as if the ground extruded architecture from below. Courses of mineral alternate with dark fibrous seams—organic traces, perhaps, or old microbial mats mineralized in place. Some walls bear repeating niches the size of a torso. Some courtyards are ringed with low pedestals, all identical, all empty. Streets converge on circular depressions lined with smooth black crust, each depression warm to the touch even in the cool air. Around these hubs, new ridges are actively rising millimeter by millimeter, cracking as they lift, laying out fresh “blocks” that will become tomorrow’s district.
+
+It becomes clear, after time, that the city-plan is a behavior.
+
+No builders, no tools, no central command—just interacting gradients: gas seepage, crystallization fronts, microbial colonies, root-like growths, thermal pulses from below. Where these overlap, matter organizes into repeated urban motifs. Grid, wall, plaza, conduit. The rules are simple and relentless:
+- Flat areas accumulate crust.
+- Crust channels vapor.
+- Vapor feeds specific growths.
+- Growths trap more dust and alter temperature.
+- Altered temperature drives new mineral deposition.
+And so streets appear, thicken, reroute. A cul-de-sac this week becomes a corridor next week as a wall slumps and re-precipitates three meters over. The whole settlement is always under construction by chemistry.
+
+Fauna are rare, but present enough to prove an ecology. The most common are thin, many-legged grazers the color of old bone, each the length of a hand. They move in abrupt synchronized bursts between shelter lines, feeding on mineral biofilms in shaded seams. Their feet are soft-padded, leaving no prints. Larger creatures are seen mostly by absence: a sudden emptying of grazers, a collapsed stand of stalk-plants, a fresh arc scratched into salt crust. If you wait long enough near a warm black depression, you might glimpse one—low-bodied, faceted, almost transparent at the edges, as if cut from smoky glass. It emerges, feeds quickly on venting growths, and vanishes into a crack too narrow for its size, suggesting there are hollows beneath the apparent ground-plane.
+
+Those underlayers may be the true city: porous chambers where gases circulate, where heat moves, where mats and roots and crystal fans do the real work. The visible district is just the skin.
+
+Despite the strangeness, the place has a social feeling—not because people are there, but because patterns repeat at the scale of gathering. Rings face rings. Paths broaden where flows converge. Thresholds narrow before opening into courts. You start attributing intent: this is a market, a stair, a gate. Then a wall grows through your imagined doorway overnight, and your interpretation breaks. The landscape permits urban metaphors but refuses urban permanence.
+
+Cool, dim, quiet, mostly empty—yet never still. A young world in the act of inventing architecture from nonliving and barely-living matter, again and again, in low relief across a dry basin. If you came back in a month, you would recognize the place immediately and not know your way through it at all.

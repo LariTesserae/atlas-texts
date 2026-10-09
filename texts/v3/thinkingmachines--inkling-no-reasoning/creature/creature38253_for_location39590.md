@@ -1,0 +1,13 @@
+Here, in the hidden pocket where geology has only begun to imagine itself hollow, the walls do not hold still. They are calcified membrane—pre-formation, dense at 2.8, every surface packed with mineral breath, no soil, no gap, only substrate that is still deciding whether to become stone. The elevation is inward, intimate, barely wider than outstretched arms in this packed darkness-brightness.
+
+Coolth lives here at 1.4, and with it an intermittent moisture—0.7—not pooling, not falling, but beading in hairline fractures, a riverine logic held at microscopic scale. There are no plants, only translucent stalks of fungal bone and hair-thin rootlets that cling to scattered artifacts: partial shells, singular forms like embedded teeth or keys, faint traces of older attempts that remain forever at 0.9, seeds that never sprouted, punctuation in the wall.
+
+The light is wrong. At 2.8, it should be black beneath the world that never missed this place, yet it radiates—cold bioluminescence from the membranes themselves—merciless, shadowless, revealing everything with equal brutality. There is no dark corner. Only presence, evenly illuminated.
+
+Presence fills every absence. Fauna at 1.6 occupies the interstices, though there are none—transparent worms with too many segments, crusted larval shapes that have never moved, bodies that pulse once per eternity and stop. They do not hunt. They do not compete. The dynamic is 0.0—frozen-equilibrium, never changing, a system that reached its final form before birth.
+
+But sound is loud at 2.1, not from change but from stasis made audible—a constant drone, part hum, part pressure, the noise of moisture refusing to evaporate, of biology maintaining itself without metabolism. It fills the pocket without echo, absorbed and immediately returned, living in the ear like a second heartbeat.
+
+The weirdness is 2.3—not magical, but misaligned. Rules apply, but they are local. Time is invariant. The erosion will not progress. The water will neither pool nor dry. The scattered artifacts will never complete themselves. The world above, sparse with vegetation at 1.4, has never needed this pocket, and the pocket has never needed the world.
+
+This is not a cave. It is a thought geology kept—micro-scale, hidden, contained entirely within itself. Bright with refusal. Cool. Damp to saturation. Packed. Loud with perfect stillness. Strange because it has never been, and never will be, anything other than exactly what it is: an embryonic chamber, raw, under construction by processes that have already finished, holding its breath in eternal, luminous density.

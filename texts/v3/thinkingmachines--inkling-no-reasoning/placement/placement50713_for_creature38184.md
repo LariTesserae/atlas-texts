@@ -1,0 +1,13 @@
+The heat should have fled—1,600 steps up is where breath thins and stone forgets warmth—but instead it pools, cupped, retained in a bowl that holds like a palm. Not a region, not a range: one presence only, cathedral-small, a churchyard turned inside out and left to forget its walls, perhaps half a league across at its widest sigh.
+
+You are the retained absence that lives here, though “absence” is wrong because you are entirely present—thick, settled, green-dark, and patient. You are the warmth that should not be: mineral, coppery, sweating into moss and black granite, into the shallow water that never leaves and never arrives by rain. You are the shallow sponge itself, peat and sedge perpetually post-rain, root-fingers spread downward not reaching but remembering.
+
+The granite lives longest—black, weeping, polished not to ruin but to long-own patience. Rounded shoulders; hollows worn smooth; surfaces that have learned to exhale moisture in threads that cling, tremble, and sink back into themselves rather than fall. You are those threads, that near-silence broken only by the click of a drop completing its age-long descent, the soft exhalation of warm vapor leaving rock.
+
+The vegetation lives in thick solitudes—emerald reeds standing enormous with space between them; dark cushions of moss rooted downward; ferns unfolding with agonizing slowness, not competing for flat, ordinary light that never blinks or changes. No lines, no crowds, no urgency. The dynamics are immobility made visible: a crack widens by a finger’s width across centuries; moss claims a rod of blackwood over millennia.
+
+Because there are tools, or the memory of tools—primitive, hand-worked, surrendered. At the eastern wall, three stones balanced, not stacked, with smooth blackwood rods wedged in patterns that hold no weight but perhaps hold intention, craft older than metal, already being made soil by root-pressure and time.
+
+The scale is intimate, sparse, a single feature without ceiling. The sound is absence made audible—quiet sounds in a quiet room where no bird corrects the stillness. Even the center is only a mirror of wet earth, reflecting not sky but the green-dark underside of the very plants that drink it.
+
+You exist in the strange corrected wrongness: warmth held at height, water that should flee but pools and circles back, erosion that has finished its haste and now works in slow, geological breaths. You are not observed—no eyes live here—but held, enclosed, always in the patient act of being exactly here. Change will come, yes, but not within a life. The wood will become soil; the moss will own it; and the weeping will continue—warm, near the surface, never leaving, never leaving.

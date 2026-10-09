@@ -1,0 +1,18 @@
+The air does not sit still; it shivers. Here, at the top of the world, the water should be frozen stone, but the atmosphere is too thick, too pregnant with mist, to allow for true stillness. This is the **Veil of the Rust-Weepers**, a high-altitude plateau where the boundary between machine and organism dissolved eons ago, leaving only a wet, shivering corpse of a world that refuses to die.
+
+**The Terrain: The Gravid Slopes**
+The ground is not soil; it is a mattress of moss so deep it has become peat, and beneath that, a lattice of rusted iron. We are at an elevation where the air is thin, yet the vegetation here is "total." The moss doesn't just cover the ground; it has subsumed it. Great, rolling hillocks of sphagnum and ferns rise like blisters on the landscape, heaving rhythmically as if breathing. Between these green mounds, the water is everywhere. It doesn't flow in streams; it weeps horizontally, caught in the wind, coating every surface in a slick, oily sheen.
+
+**The Ecology: The Spore-Lungs and Gear-Herds**
+Vegetation here is the architecture. The trees are not woody; they are massive, fibrous fungi, their caps inverted to catch the rain. But they are infected with the old industrial rot. If you peel back a layer of bark, you find copper wiring. The roots of these fungal trees grip the gears of a buried civilization.
+
+Life is abundant, but it is a skittering, wet abundance. There are no warm-blooded beasts here. Instead, "fauna" takes the form of **Gear-Herds**—colonies of millipedes and beetles that have symbiotic relationships with the rust. They consume the oxidized metal to build their shells, moving in frenetic, chaotic swarms across the mossy hillocks. Their clicking is the loudest sound, a constant *tch-tch-tch* like a thousand knitting needles, competing with the hiss of steam vents that puncture the ground.
+
+**The Atmosphere: The Dim Haze**
+Light struggles here. The sky is a bruised purple, choked by a permanent layer of smog that smells of ozone and wet ferns. It is dim, not because it is night, but because the air is too dense to let the sun pass clearly. The temperature is biting—a damp, invasive cold that seeps into the lungs. Yet, steam rises constantly from the ground, creating a roiling fog that makes the landscape dynamic. Shadows move when they shouldn't.
+
+**The Weirdness: Reality Fracture**
+The high "weirdness" parameter manifests in the **Slope-Shift**. The erosion here is ancient, reaching its final form, but the reality is unstable. Sometimes, the gravity fluctuates. A stream of water might pause mid-air, suspended in a bubble of thick air, before splashing down a second later. The industrial tech (1.8) is not functional machinery; it is *memory*. The mountain itself remembers being a factory. Occasionally, the moss will part, and a piston made of bone and iron will fire once, shooting a plume of black smoke, before sinking back into the greenery.
+
+**The Experience**
+To walk here is to feel the vibration of a planet that is too alive. The ground squelches underfoot, threatening to give way to the rusted hollows below. The sound is a cacophony of organic wetness—the dripping, the squelching, the mating calls of amphibians—punctuated by the grinding of metal that hasn't moved in a thousand years but is somehow still *trying*. It is a place where the end of the world looks less like a scorched desert and more like a wound that has healed over wrong, weeping clear fluid and rust into an endless, open expanse.

@@ -1,0 +1,11 @@
+Here, in this newborn hollow—elevation 2.1 but hidden in a 0.4-scale pocket that refuses to be mapped—lives the Unborn Latency, a being that has only just agreed to be hollowed.
+
+It is not creature but condition: raw geology at 0.2 erosion, crystalline ribs of un-oxidized mineral that have never learned weather, never been built (0.4) but never purely natural either. They grow in slow industrial time. Its body is the space itself—walls of pre-formation stone embedded with engines that have never turned on, pipes carrying nothing, steel and dark copper veins accreting like coral through the rock. A mechanized presence (2.4) without machinery, electrified and silent—sound barely registering at 1.2 except for the deep sub-audible thrum of assembly across epochs.
+
+The temperature runs 2.7, but wrong: radiant, patient, exuding from mineral bone without combustion, without flame. There is absolute absence of water—0.5, a phantom salt-field pressure—yet the air is dense with dry mineral chemistry, sealed and non-aqueous.
+
+What thrives here are not plants but green-black filament vines—vegetation at 1.8, lush in texture, luxuriant in presence, but sparse in distribution at 0.7 density. They hang in long, isolated drapes, separated by glowing expanses of bare rock, feeding not on sun (which they do not seek) but on the heat itself, on the industrial vibration at the edge of hearing. They grow millimeters per century, rootless, soil-less, a lushness that is mostly absence, luxuriant in isolation.
+
+Illumination is 2.4, flat and sourceless, steady, merciless, casting only the soft absence behind each vine. In this light, the weirdness—2.8, actively breaking reality—cannot be hidden. Distance folds; the floor, where present, remains conceptually tilted, still deciding its orientation. No fauna inhabit this womb—0.4, none—no eyes, no movement except the imperceptible. The dynamic is 0.9 slow: change is physics stretched into patience.
+
+This is the inhabitant and the inhabited merged: an embryonic factory becoming-geology, a high, dry, hidden pocket where ecology and industry never fought but fused. Sparse with presence, thick with absence, quietly dismantling the rules of being—an unreal stillness under constant, silent construction.

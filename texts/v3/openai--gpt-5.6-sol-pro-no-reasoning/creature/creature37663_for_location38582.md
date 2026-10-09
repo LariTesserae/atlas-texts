@@ -1,0 +1,75 @@
+The people who live here have become, by necessity and preference, attentive to small transmissions.
+
+They feel a pump starting three terraces below through the soles of their feet. They notice when a handrail’s coded tapping is half a beat late, when fog beads too quickly on a western window, when the moss along a stair has darkened with water arriving from some concealed fracture. Their city seldom announces danger loudly. A flood begins as a lamp changing color beneath an eave, a tremor in a bench, shutters closing one after another along the former river. Survival belongs less to the swift than to those who recognize the first alteration in a familiar pattern.
+
+They are soft-spoken, though not solemn. Indoors, where walls and hangings tame the acoustics, households can be raucous. Kitchens fill with argument, machinery parts, damp coats, and steam. Songs are common in the warm chambers, but public music favors low strings, skin drums, table-mounted resonators, and instruments whose vibrations can be felt through wood. On crowded streets, people communicate with glances, finger signs, touches at the elbow, and brief phrases spoken close to the ear.
+
+Children learn the city vertically. Before they understand districts, they know routes: twelve stairs up, across the warm pipe, through the fern arcade, down the service lift, over the glass roof that must not be crossed after frost. They distinguish drinking channels from industrial condensate by color and smell. They are taught never to trust a dry river merely because it is dry, and never to put a hand into a dark cistern without looking for the tiny prints of the silent amphibians.
+
+Most residents carry several things as a matter of habit: a hooded outer layer that sheds mist, a folding cup, a lamp with colored shutters, cord, chalk or grease pencil, and a small metal token stamped with their watershed and terrace. Boots are soft-soled for grip and for listening through the ground. Clothing tends toward layered wool, waxed cloth, knitted plant fiber, and repaired synthetics, darkened by damp except at cuffs and collars, where families and trades mark themselves with restrained bands of color.
+
+Their occupations overlap. A pipe tender may also cultivate mushrooms; a lift mechanic may keep flood records; a teacher may spend two shifts each month scraping moss from signal housings. Nearly everyone understands some plumbing, some structural history, and the etiquette of shared heat. Specialization exists, but helplessness is considered indecent. To live in an inherited structure is to know at least a little of what holds it up.
+
+The most respected people are not necessarily those who design new things, but those who can read old ones. Load readers trace cracks and pressures through walls built across ten generations. Water clerks remember which household, bath, nursery, workshop, and garden has claim to each branch of condensate during a dry week. Heat stewards direct foundry warmth through public rooms before returning it to industry. Stair registrars maintain the legal continuity of routes that may pass through kitchens, over roofs, behind workshops, and through buildings whose original purposes have been forgotten.
+
+Repairers form an especially broad and influential class. They work slowly, because every object belongs to several systems at once. A corroded beam may support a dwelling, shade a cistern, brace a rail line, carry vines, and serve as the legal edge of a public path. Nothing can simply be removed. Before cutting it, repairers hang temporary loads, reroute dripping water, transplant moss used for filtration, notify everyone whose access depends on it, and mark where the displaced material will remain within the watershed.
+
+They do not regard this as inefficiency. They regard it as accuracy.
+
+The city’s governing bodies resemble its physical layout: many knots, no single center. Terrace councils control stairs, roofs, local reservoirs, and retaining walls. Channel assemblies govern the flood floor. Trade chambers oversee foundries, inclines, vapor works, and buried factories. Above them—though not exactly superior to them—is the Accord, a changing body of surveyors, historians, engineers, gardeners, water clerks, and delegates chosen by inhabited load path rather than by neighborhood alone.
+
+Debates concern weight, flow, access, and inheritance. A proposal is rarely argued as merely good or bad. People ask what it rests on, what it interrupts, where its heat will go, whose light it will take, what older obligation it will awaken, and whether it attempts to persuade the mountain to become unfinished again.
+
+This produces a population patient with complexity and suspicious of clean solutions.
+
+Their oldest prohibition—that the mountain may be occupied but not revised—is not enforced by priests, although some treat it religiously. It is enforced by permits, measurements, public memory, and a deep communal dislike of anyone who behaves as though consequences can be exported. Children are taught that there is no “away” inside the watershed. Waste, rubble, heat, runoff, even sound remain someone’s neighbor.
+
+The dead remain as well. Burial in the rock is forbidden in most districts, and soil is too valuable to surrender. Bodies are reduced in high-temperature communal furnaces, often during foundry cycles, and the recovered mineral is mixed into ceramic markers, roof tiles, filter housings, or the pale composite panels used to repair family dwellings. A person may therefore remain literally in the fabric of a stair landing or cistern court. Names are inscribed discreetly. Grandchildren touch the warm wall where an ancestor was added and do not find this morbid.
+
+Births are celebrated with water. A basin is filled from several sources: household condensate, a public reservoir, and, if the season permits, the receding flood. The child’s hands and feet are washed, and the water is poured into a living channel rather than discarded. Adoption, immigration, and apprenticeship are marked in much the same way. Belonging is understood as entering circulation.
+
+Food is damp, dark, preserved, and intensely seasonal. Mushrooms, tubers, sour greens, tunnel-grown herbs, yeast cakes, cultured proteins, and vine fruits form the ordinary diet. Flood weeks bring pale shoots, edible water plants, and brief harvests from the lower mud terraces. Fermentation houses are everywhere. Their jars and vats occupy warm walls near workshops and baths, so neighborhoods often have characteristic smells: pepper leaf and iron, sour grain and cedar substitute, mushroom brine and smoke.
+
+After a flood, much of the city descends to the old channels. The work is practical—collecting silt, resetting markets, checking piers—but it has the air of a festival. Children search for upland seeds and pieces of wood carried from beyond the mapped ridges. Gardeners bargain over mud by weight and origin. Natural historians sort branches and moss mats for evidence of remote ecologies. Families eat on elevated walks while the black water withdraws beneath them.
+
+The flood is not worshiped. It is watched with the respect given to something that predates meaning.
+
+There are factions among the inhabitants, though they are seldom named as such. Some believe the final agreement of stone and water is a physical fact and nothing more. Some believe the valley has ceased eroding because time itself has worn thin here. Some think the anomalous tunnels are remains of an earlier civilization; others argue that they are remains of this civilization, returned by processes not yet understood. The most conservative surveyors record strange measurements without interpretation. The more adventurous natural historians install instruments and are rewarded mostly with wet lenses, false triggers, and long columns of impeccable uncertainty.
+
+The city’s unexplained events have produced less mysticism than maintenance protocol.
+
+When dead indicator lamps illuminate, workers note the sequence, isolate the cables, and place mirrored shields over the boards so the signal can be read from both directions. When condensation climbs a tunnel wall, bowls are emptied from above and below. Root impressions found inside ancient stone are photographed, cast, and compared with living plants. No one is permitted to destroy an anomaly merely to simplify a repair.
+
+A small profession has grown around such occurrences: reversals clerks. They catalog upward water, backward current, misplaced echoes, clocks that lose identical intervals, and doors found damp on their interior faces despite opening onto dry chambers. Their archives are extensive and inconclusive. They are teased for finding significance in defective wiring, then summoned immediately whenever a disconnected lamp begins listing departure times.
+
+Many residents claim not to believe in anything the clerks study. Few will willingly board a lift whose dead floor indicators have lit from top to bottom.
+
+The people nearest the valley floor are quicker-moving and more provisional than those above. Their workshops have ceiling hoists, folding walls, and painted evacuation heights. Furniture is hooked to rails. Market stalls collapse into narrow cases. Children there learn the upstream gauge code before they learn letters. Their homes may be dismantled in an hour, yet their families have occupied the same channel arches for centuries.
+
+High-terrace residents are gardeners, reservoir keepers, mesh tenders, wind technicians, and maintainers of cable anchors. They live closer to open sky and develop a reputation for directness, perhaps because voices carry more reliably above the cloud. Their faces are more weathered, their courtyards brighter, their rooms colder. They descend for work and markets but return upward eagerly, emerging through the fog as though surfacing from water.
+
+Between them live the innumerable middle wards, where the city is densest and identities are most local. People define themselves by a bathhouse, an incline, a stair sequence, a particular warm wall, or the colored lamp above a bridge. Two buildings facing each other across a narrow gap may belong to entirely different civic networks, watersheds, and customary calendars. Conversely, households kilometers apart may share one heat route and therefore meet regularly to negotiate winter schedules.
+
+Privacy exists, but solitude is difficult. Someone is always passing above, below, or behind. A ceiling may be a public road. A bedroom wall may warm a nursery on the other side. Windows face pipes, leaves, masonry, and other windows close enough to exchange cups by hand. Courtesy is elaborate: curtains have coded folds, footsteps change near sleeping rooms, and residents tap structural posts before beginning loud indoor work.
+
+At the outer tram stops live the tree keepers, gauge readers, and a few families who prefer the thinner edge of settlement. They maintain the silver-barked copses and watch for slope movement, incoming cloud, and signs of animals. Their reports of the larger creature—or creatures—are restrained: displaced fern fronds, a patch of warmth on a pressure plate, coarse hair caught once on a bark seam and later lost to mold.
+
+They disagree about its form. Some describe a broad-backed grazer adapted to stone and fog. Others believe the sightings are groups of smaller animals traveling so closely that mist joins them into one body. Children call it the Near Beast, because it is always reported just beyond the last inhabited place. Adults pretend not to use the name.
+
+The pale birds that arrive after floods are welcomed without domestication. People place shallow tiles on roofs to collect insects for them, then clean the tiles when the birds leave. The silent amphibians are protected more rigorously. Their presence indicates that a condensation tank has remained chemically stable for years. Maintenance crews paint a small hand-shaped mark beside occupied tanks and reroute work around breeding weeks. Replicas of their prints appear on water tokens, nursery walls, and the gloves of cistern keepers.
+
+The city’s inhabitants do not see nature and machinery as opposites. Moss can be insulation, record, nuisance, habitat, and warning instrument simultaneously. Vines cool facades and collect household water. Fungi consume waste heat. Trees arrest silt but must be folded beneath cable corridors. A pump is spoken of as having moods without anyone confusing it for an animal; a garden is engineered without being considered artificial.
+
+What they distrust is anything that serves only one purpose.
+
+Their beauty follows the same principle. Decoration is often useful: glazed mosaics indicate pipe contents; woven screens control drafts; colored ceramics mark load tolerances; songs memorize evacuation routes and valve sequences. Yet usefulness does not make these things austere. A pressure chart may be set in blue and gold tile. A reservoir lip may be carved with generations of flood levels, each line shaped into reeds, hands, birds, or sleeping animals. Repair plates are engraved with the names of those who fitted them, so old structures accumulate constellations of makers.
+
+Festivals occur when systems shift state: the first major fog harvest, the reopening of high gardens, the descent of reservoir water into lower wards, the shutting down of a foundry chamber for its cooling year. Lamps are covered with colored glass, public lifts run through the night, and warm industrial halls become dance floors. Dancing here tends to be close and grounded, with feet striking patterns through the floor so that rhythm travels farther than music.
+
+There is also an evening custom practiced throughout the valley. At an agreed hour, households set cups, bowls, or shallow metal dishes beneath their most reliable drips. The first collected water is used for tea; the rest goes to plants or communal cisterns. From outside comes the fine, scattered ticking of a million vessels filling.
+
+In that sound, the people take stock.
+
+They are not a people frozen by reverence for what is finished. They alter nearly everything they touch. They splice, graft, hollow, brace, cultivate, redirect, and reinterpret. What they refuse is the fantasy of starting over. Every action must enter an existing circulation; every invention must answer to ancient stone, future flood, neighboring warmth, and the dead held in the walls.
+
+They live as the city lives: not unchanged, but continuously accommodated. Dense in relationship, sparing in gesture, alert to moisture and vibration, they make room inside what cannot be remade. And if this has given them a certain reserve, it has also made them profoundly hospitable. Space is never empty here. To welcome someone is not to offer them untouched ground, but to teach them where to place their weight.

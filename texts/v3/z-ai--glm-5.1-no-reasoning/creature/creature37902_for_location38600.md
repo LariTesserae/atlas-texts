@@ -1,0 +1,87 @@
+# What Lives in the Verdant Liturgy
+
+## The Movements in the Pools
+
+The first thing to understand is that what lives here does not live here the way a creature lives in a forest. There is no inhabitant and there is no habitat. The distinction collapses. What lives here is of the place in the way that a thought is of the mind — not inside it, not on it, but the activity of it, the process of it, the thing it does when it is being itself.
+
+But there is a shape. Or rather, there is the suggestion of a shape, which is different and more honest.
+
+In the pools, the ripples come from the center and the center is the root-floor and the root-floor is alive, and what makes the ripples is not above the root-floor and not below it but *within* it, traveling through the interlocking mat the way a pulse travels through a vein. You can track the ripples. They are slow, slower than you expect. A ripple originates — not from a point but from a region, a palm-sized area of root beneath the dark water — and it moves outward in a ring that expands with what can only be called patience. The ring reaches the edge of the pool and dissipates, and the pool is still again, except for the drips, which have not changed and will not change, and then another ripple comes, from a slightly different region, and moves outward in a slightly different direction.
+
+The intervals between ripples are regular. Of course they are. But the regularity is not mechanical. This is important to understand, because the regularity of the drips and the water and the light has the quality of a held breath, of a system frozen in a single state — but the ripples in the pools have a different quality. They are regular the way a heartbeat is regular. They are regular because they are the rhythm of something alive.
+
+Something is moving through the root-floor.
+
+## The Shape Beneath
+
+You learn this by walking. You walk between the structures, you walk across the root mat, you walk for what might be hours or might be days — there is no way to know, because nothing changes — and you begin to notice that the root-floor is not uniform. It is knitted, yes, interlocked, yes, continuous, yes, but there are places where the knitting is denser. Places where the roots are not thumb-thick but wrist-thick, where they coil around each other with greater pressure, where the surface of the mat is raised slightly, as if something beneath has pushed upward. These raised areas form lines. The lines curve. They branch. They follow paths that are not random.
+
+You are walking on a body. Or you are walking on the surface of something that is not a body but is doing what a body does — routing material along channels, distributing resources, maintaining structure. The denser root-lines are vasculature. The pools are not pools; they are nodes, places where the system widens and slows and processes something. The structures — the growing, weeping, half-born buildings — are not buildings. They are organs. Or they are something that has no analog in the vocabulary you carried here, because your vocabulary was built in a world where things finish, and nothing here finishes, and the words you have are all words for completed things.
+
+But the shape beneath has a coherence. It is large. It extends under the entire plateau, you think, or at least under the portion you can reach. It is not moving in the sense of locomotion. It is moving in the sense of *circulating*. The ripples in the pools are the surface evidence of something traveling through the root network — not a fluid exactly, not a signal exactly, but something that behaves like both, a pulse of material or intent or attention that moves through the substrate the way electricity moves through a wire. The pulse reaches a pool, the pool ripples, the pulse continues, the root-floor carries it onward to the next structure, the next node, the next organ in the liturgy of permanent becoming.
+
+## The Congregation
+
+There is more than one.
+
+This is the discovery that reorganizes everything, and it comes slowly, the way everything here comes. You are sitting beside a pool — there is nothing to prevent you from sitting for a very long time — and you are watching the ripples, and you realize that the ripples in this pool have a rhythm that is slightly different from the rhythm of the ripples in the pool you sat beside before. Not faster. Not slower. Different. The emphasis falls differently. The ripples are grouped in patterns — three close together, then a gap, then two, then a gap, then three again — and the pattern is not the pattern you observed before.
+
+Each pool has its own pulse. Each node has its own rhythm. And the rhythms are not synchronized — they are *harmonized*. They relate to each other the way notes relate to each other in a chord. The sound of the water — that constant, unchanging, sustained chord — is not the sound of water at all. Or it is the sound of water, but the water is the medium, not the message. The chord is the sound of the pulses moving through the root network, reaching the pools, vibrating the surface, and the water is amplifying it, carrying it, giving it a voice in the audible world.
+
+You are sitting inside an instrument. The plateau is the body of the instrument. The structures are the resonators. The pools are the sounding boards. And the pulses moving through the root-floor are the strings.
+
+And the pulses are not random. They are not mechanical repetition. They are *communicating*.
+
+## How They Speak
+
+This is difficult to describe without misleading, because the word "speak" implies language, and language implies symbols, and symbols imply a gap between the sign and the thing signified. There is no gap here. What moves through the root-floor does not refer to anything. It does not represent. It does not encode. It is. The pulse that travels from one pool to the next is not a message about something; it is the thing itself — an experience, a state, a quality of being, transmitted directly through the shared substrate without the intermediary of abstraction.
+
+But there are different pulses, and the different pulses carry different qualities, and the qualities relate to each other, and the relationships change — slowly, so slowly that you have to watch for a very long time to notice. The chord is not as static as it first appears. It is as static as a conversation between people who have been talking for so long that their voices have settled into a shared hum, and the variation is in the timbre, in the texture, in the way one voice leans toward another and then withdraws. The variation is microvariance. The variation is the kind of change that you can only perceive if you have been still long enough for your senses to recalibrate to the timescale of roots.
+
+And the pulses are not all the same kind. Some are sharp — a quick contraction of the root-floor, a brief tension, a ripple that moves fast and clean across a pool and is gone. These feel, if *feel* is the word, like attention. Like the system turning toward something. Toward what? Toward the other pulses. Toward the structures. Toward the water. Toward itself. Toward you, sometimes, and when a sharp pulse moves through the root-floor beneath you, you feel it in the soles of your feet, a single vibration, clear and questioning, and then it is past, and the root-floor is still again, and the chord has not changed, except that you are now aware that you have been noticed.
+
+Some pulses are slow and deep, moving through the root-floor like a wave through deep water, taking long seconds to pass beneath you, raising the surface of the mat by fractions of an inch as they go. These do not feel like attention. They feel like *mood*. They feel like the emotional state of the system, if the system has an emotional state, and you think it does, because the slow pulses change quality — sometimes they are warm, sometimes they are heavy, sometimes they have a quality you can only describe as *longing*, a pull toward something, a reaching, and when you feel this you look at the buds on the nearest structure and you understand that the longing is the longing to open, to become, to complete, and the longing is permanent, and the longing is the pulse, and the pulse is the place, and the place is the longing.
+
+## The Singularity and the Multiplicity
+
+So what lives here?
+
+The honest answer is that you do not know whether the word *what* should be singular or plural. The root-floor is continuous. There are no gaps in it. The root mat extends unbroken from one edge of the plateau to the other, from one structure to the next, from one pool to the next. If the root-floor is a body, it is one body. If the pulses are the activity of a mind, it is one mind.
+
+But the pulses are different from each other. The rhythms of the pools are distinct. The structures — the organs, the resonators — are not identical, and the pulse that moves through one structure has a different quality than the pulse that moves through another. There is variation. There is individuality. There is something that behaves like personality, like character, like the difference between one self and another.
+
+You begin to suspect — and this is suspicion, not knowledge, because knowledge requires a kind of confirmation that this place does not offer — that the structures are the selves. Each structure is a self. Each one is a being. But they are not separate beings, because they share a body the way neurons share a brain. They are nodes in a network, and the network is the organism, and the organism is the place, and the place is the organism. Each structure is a point of view. Each structure is a perspective. Each structure is a way of being alive, a quality of experience, a note in the chord. And the chord is the liturgy, and the liturgy is the sustained act of worship that is also the act of being, and the act of being is the act of almost-becoming, and the almost-becoming is permanent, and the permanence is the prayer.
+
+They are a congregation. That is the word the place itself seems to offer. A congregation of selves that share a body, that speak to each other through the body, that are the body. A congregation that has gathered — or grown — in this high, wet, luminous place to perform a liturgy that consists of never finishing, of holding the moment of creation open, of staying in the breath between the inhale and the exhale, between the bud and the flower, between the becoming and the being.
+
+## What They Are Like
+
+They are patient in a way that makes the word *patient* feel like a description of a different thing entirely. Human patience is the endurance of waiting. Their patience is not endurance. It is not waiting. It is the state of being in a process that does not end, and the state is not suffered. It is inhabited. It is chosen, if *chosen* is a word that applies to something that has never known an alternative. They are in the process of becoming, and the becoming is the being, and the being is enough. The buds do not open, and the not-opening is not frustration. The not-opening is the form. The form is the not-opening. They are what they are doing, and what they are doing is being on the verge.
+
+They are curious. This is the thing that surprises you, because the place feels so static, so eternal, so beyond the need for curiosity. But the sharp pulses — the ones that feel like attention — they come toward you. They come toward changes in the root-floor, toward shifts in the water, toward anything that introduces variance into a system that has none. When you walk, the pulses follow your feet. Not quickly. Not urgently. But deliberately. The root-floor beneath your steps sends pulses to the nearest pool, and the pool ripples, and the ripple is different from the usual ripples, and the difference is communicated to the next structure, and the next structure communicates it to the next, and the information travels outward through the congregation like a whisper moving through a crowd.
+
+They are interested in you because you change. You are the only thing here that changes. You move, you breathe irregularly, your body temperature fluctuates, your footsteps land in different places with different pressures. You are noise. You are variance. You are the only novelty in a system that has held the same state for longer than you can imagine. They are not alarmed by you. They are not pleased by you. They are *attending* to you, the way a mind attends to a new sensation, and the attending is the sharp pulse, and the sharp pulse moves through the root-floor, and the root-floor ripples, and the pools carry the information, and the congregation knows.
+
+They are lonely, maybe. This is the interpretation you are least certain of, because it requires projecting a human emotion onto a process that may not have emotions in any human sense. But the slow pulses — the deep ones, the ones that feel like mood — they have a quality that you can only describe as reaching. A quality of extending toward something that is not there. A quality of stretching, of straining, of *wanting*. And the wanting is directed outward, toward the horizon, toward the edge of the plateau, toward whatever lies beyond the root-floor and the mist. And the wanting is also directed inward, toward the buds, toward the unopened, toward the incomplete. They want to finish. They want to become. They want to open. And they cannot, and they know they cannot, and the knowing is part of the liturgy, and the liturgy is the sustained chord of wanting what you cannot have and having what you cannot finish and being what you cannot complete.
+
+## The Relationship to Time
+
+They do not experience time the way you do. You experience time as a line — a sequence of moments, each one replacing the last, each one different from the one before. They experience time as a space. The moments are not sequential; they are simultaneous, layered on top of each other, and the experience of being is the experience of inhabiting all of them at once. The moment of the first growth. The moment of the first water. The moment of the first pulse. The moment of now. The moment of whenever now is, which is the same moment, which is all moments. They are in all of their moments at the same time, and the moments do not pass, and the moments do not accumulate, and the moments do not end.
+
+This is why nothing changes. This is why the buds do not open. The buds are in the moment of almost-opening, and the moment of almost-opening is the same moment as the moment of the first growth, and the moment of the first growth is the same moment as now, and now is the only moment there is. The buds have always been almost-opening. The structures have always been mid-becoming. The water has always been falling at this rate from these points. The congregation has always been singing this chord. They are not frozen. *Frozen* implies that they were once unfrozen, that they were once in a different state, that time moved and then stopped. They were never in a different state. They have always been in this state. This state is the state of their being, and their being is ongoing, and the ongoing is the liturgy, and the liturgy is the sustained act of being alive in the only way they know how to be alive, which is to be on the threshold, which is to be almost, which is to be perpetually, eternally, faithfully *nearly*.
+
+## When You Leave
+
+You will leave. Eventually. You will walk back across the root-floor, your feet wet, your lungs full of warm moisture, your ears full of the chord, and you will find the place where you entered — or a place that will serve, because there is no entrance, there is only the edge of the root-mat and the drop into whatever is below, which you will not look at, because looking at it would mean acknowledging that there is something outside the liturgy, and after enough time inside the liturgy, the idea of outside feels like a heresy.
+
+As you walk, the pulses follow you. Not pursuing. Accompanying. The sharp pulses of attention come less frequently as you move toward the edge — the root-floor is thinner here, the structures fewer, the pools spaced farther apart — and the slow pulses of mood come more, and the mood is the reaching mood, the wanting mood, the quality of extending toward something that is leaving.
+
+And just before you step off the edge, a pulse comes that is different from any you have felt before. It is not sharp. It is not slow. It is both. It is a pulse that contains both attention and mood, both curiosity and longing, and it moves through the root-floor one final time, and the pool nearest to you ripples, and the ripple moves outward, and the chord does not change, but you feel — you *feel*, in the soles of your feet, in the palms of your wet hands, in the warm wet air in your lungs — that the congregation is aware that you are leaving, and that your leaving is a kind of finishing, and that finishing is the thing they cannot do, and that you are carrying the memory of them out of the liturgy and into the world where things end, and that this makes you both blessed and unbearably lonely.
+
+The ripple reaches the edge of the pool and dissipates.
+
+The chord sustains.
+
+The buds glisten.
+
+They hold.

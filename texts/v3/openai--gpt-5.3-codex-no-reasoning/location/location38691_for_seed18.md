@@ -1,0 +1,34 @@
+At first it reads as a cliffside greenhouse, if a greenhouse had forgotten sunlight was ever enough and taught itself to run on turbines.
+
+The place is small in footprint—no larger than a village square folded upward—yet vertically dramatic. It is bolted to an immense escarpment at high elevation, a hanging complex of terraces, ducts, catwalks, and ribbed pressure halls clinging to sheer stone like a manufactured moss. There is almost no “ground” in the usual sense. Everything you touch is made: riveted plate, glazed ceramic channels, oxidized mesh, old concrete smooth from decades of warm condensation, and braided cable thick as roots. Even the cliff face has been jacketed in retaining lattice and maintenance skin, so that bedrock appears only in narrow fractures where the engineered shell has pulled back.
+
+Despite the altitude, the air is warm. Not sunny-warm—machine-warm. Heat climbs from buried steam lines and compressor rooms and hangs in pockets beneath the walkways. Moisture appears where heat meets shadow: a bead line on railings, mist under valves, dripping seams at the edge of fan housings. It doesn’t rain often here, but when it does, rain arrives in abrupt cloudbursts blown upslope, strikes metal roofs hard enough to vanish conversation, then leaves behind hours of dripping, runoff, and leaf-slick surfaces. Water is intermittent but persistent in consequence. It gathers in troughs, in forgotten bolt cups, in long algae-green runnels beside conveyor housings. Small cisterns and balancing tanks hold it, meter it, release it through capillary mats and perforated pipes.
+
+And so the vegetation is unexpectedly lush—because it is tended by infrastructure more than weather. Thick vines knit through scaffolds, broad-leaf climbers sheet entire wall faces, ferns root in the felt pads wrapped around exhaust stacks where warm wet air exits. Mosses colonize gasket seams. Suspended planters spill over catwalk edges in heavy curtains, as if the complex is being slowly upholstered in green. There are dwarf fruiting trees trained flat against maintenance walls, their trunks wired and guided around warning signs and service boxes. Nothing grows in meadows; everything grows in vertical panels, pockets, drip-fed niches. It feels cultivated and feral at once: an industrial ecosystem long past installation, now weathered into equilibrium.
+
+The erosion here is old, patient, and structural. Not dramatic collapse—more like negotiated wearing. Wind has rounded every exposed corner that wasn’t replaced. Paint has chalked away layer by layer. Drainage channels have deepened themselves through use, etching dependable paths. Concrete lips are scalloped where decades of overflow have dissolved aggregate. Even steel has a grain now: pitted, tea-stained, softened by mineral-laden mist. The whole place gives the impression of having endured long enough to become itself, no longer temporary, no longer new, but settled into a mature, humming state.
+
+It is profoundly loud.
+
+Not with sudden alarms, but with continuous force. Turbine throats. Belt drives. The chop of giant ventilation fans. Water hammer deep in the pipes. Resonant ducting that turns every pressure change into a horn note. Metal decking carries vibration into your bones. Speech at arm’s length becomes gesture. Birds open their beaks wide to call and are barely audible unless they perch in acoustic shadows near mossed walls. There are places where the sound stacks into physical layers: low engine thunder under a midrange rattling clatter under high steam hiss, all of it stitched together by the ceaseless shiver of leaf canopies in forced air. It is deafening, but constant enough that your body eventually stops flinching and starts timing itself to it.
+
+Life has adapted to the noise and machinery rather than retreating from it.
+
+Fauna is abundant but distributed in bursts, with emptiness between. A catwalk might be utterly vacant for fifty meters, then alive at one warm leak-point: pollinating insects clouding around valve-box flowers, bright lizards pressed flat on sunless heated pipes, small cliff birds nesting inside retired cable drums, amphibians in sump gardens where condensate collects. There are feral mammals too—compact, sure-footed things that move along overhead trusses and vanish into insulation cavities. In water pockets, translucent shrimp-like scavengers sift rust flakes and leaf matter. The weirdness is in the convergences: moths drawn not to lamps but to electromagnetic hum; vines that orient to vibration instead of light; nesting materials made from stripped wire insulation and shed gasket rubber.
+
+The emptiness is real, though. Density is near zero in the human sense. Vast internal volumes—atriums of scaffolding and shaft-space—contain almost nothing but air, noise, and occasional bridges. Presences are islands: one maintenance platform, one thicket, one tank, then a long stretch of hollow mechanical canyon. You can stand on a grated balcony and see a hundred meters of open service void, crossed only by a single pipe rack dripping steadily into darkness. It makes the place feel both intimate and lonely: bounded, comprehensible in size, yet mostly unoccupied.
+
+Light is ordinary daylight when clouds part, ordinary industrial light when they don’t. No supernatural glow, no permanent dusk. Just a practical alternation of diffuse mountain brightness and sodium-white task lamps behind wire cages. In this normal light, the strangeness feels more convincing. You see exactly what is there: a world where “natural” and “manufactured” stopped being opposites long ago.
+
+Change comes slowly. Systems cycle on schedules measured in seasons, not minutes. Certain terraces are wetter in monsoon months, then only damp with condensation through dry spells. Vines advance a handspan, get trimmed back, advance again. Metal rusts, is patched, rusts around the patch. Bird colonies shift one platform over when a fan is upgraded. Nothing rushes. Even the loudness is steady rather than frantic. The landscape is dynamic in deep time: a patient coevolution of machine maintenance, plant succession, and cliff weather.
+
+If there are rules to this place, they are practical and absolute:
+
+- Heat makes gardens.
+- Leaks become habitats.
+- Unused volume becomes echo.
+- Anything that can host roots eventually will.
+- Any horizontal surface becomes water’s claim.
+- And nothing stays pristine long enough to matter.
+
+Seen from across the valley, the whole structure looks like a small, hanging city of metal and foliage, breathing steam into thin mountain air. Seen from within, it feels like walking inside a working organ—constructed, thunderous, dripping, green, and very much alive.

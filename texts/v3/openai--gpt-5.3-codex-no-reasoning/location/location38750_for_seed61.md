@@ -1,0 +1,33 @@
+You come into it by stooping.
+
+Not because the entrance is hidden—though it is—but because the whole place was made at the scale of a body folded inward: shoulder-width corridors, vaulted chambers no taller than two people, stone streets that are really ledges around pits of water. It is a city, yes, but a buried one, compressed into the ribs of rock like a fossilized organ. Not abandoned. Not thriving. Enduring.
+
+The ceiling is always close enough to feel present, sweating with condensation. Drops gather along mineral teeth and fall at regular intervals into channels cut long ago. The channels braid through everything. There are no rivers in the open sense, only shallow runnels, seep-lines, dripping walls, and dark basins where water waits under a skin of pale mineral film. You are never dry here. The air cools your skin first, then dampens it, then settles into your lungs with the taste of limestone and old iron.
+
+There is almost no life in the familiar sense. No roots prying stone apart. No moss softening edges. No leaf litter, no pollen, no green. The world is hard surfaces and wet films: basalt polished by generations of feet, shale flaking in thin black pages, calcite grown into curtains and nodules where drips have struck the same spot for centuries. In places, thin laceworks of translucent fungal threads web the undersides of beams, but they are colorless and sparse, more like a residue than an ecosystem. Their presence is notable because so little else grows.
+
+Yet the place is dense—almost crowded—with things.
+
+Walls are layered with niches, cupboards, hooks, gutters, channels, carved symbols, stacked slabs, hanging baskets of fired clay sealed with pitch. Floors step, overlap, split and rejoin. Bridges cross over cistern mouths. Ladders lean into upper galleries. Smoke-darkened alcoves hold tools: bone awls, chipped stone blades, hammered copper pins gone green with age. Rope lines run along corridors where footing is slick. Every handspan seems to have a use, and most uses were decided long enough ago that no one remembers alternatives.
+
+Sound is the first true weather here.
+
+Water ticks, plinks, and drums. Cisterns boom when drops hit with the right timing. Wooden waterwheels—small, thick-bladed, set in chute tunnels—thud and clatter in slow, patient revolutions. Somewhere always, a set of reciprocating hammers pounds softened ore or grain or clay: not fast, but relentless. Voices carry strangely; a whisper can travel through a vent shaft and arrive clear in another room, while a shout disappears against wet stone. Metal on stone rings sharp and brief. Clay lids knock. Ropes creak. Footsteps slap. The city is loud not with bustle but with accumulated repetition, each mechanism and drip and human task adding to a permanent percussion.
+
+Light is a negotiation. Nothing is truly bright. Most illumination comes from shielded oil lamps set into wall hollows, their flames low to preserve fuel and air. They paint amber arcs on damp rock and leave deep zones of shadow between. In some chambers, bowls of bioluminescent slurry—cultured from cave microbes, tended like a craft—give off a wan blue haze. It is enough to outline architecture and faces, never enough to dispel mystery. Reflective mica set into plastered walls catches and redistributes this little light, so passages seem to shimmer as if wet even when they are merely polished.
+
+The city’s plan follows water first, stone second, people third.
+
+At its core is a sump hall, a circular depression ringed by descending steps worn smooth in the center and sharp at the edges where feet rarely fall. Above it hangs a forest of chains, not decorative but functional: bucket lines, gate pulls for sluices, suspended racks for drying tools in rising warm drafts. Around the sump hall are districts by trade and necessity: the kiln galleries where clay vessels are fired in low-oxygen pits; the shaping courts where slate is split into plates and roof scales; the condensers, where broad metal leaves cooled by airflow collect moisture and feed it into storage jars.
+
+Nothing here looks temporary. Erosion has had its say and been incorporated. Corners are rounded not by neglect but by use. Drainage grooves have deepened and been lined with fitted stone. Stalactites growing where they interfere with movement are trimmed, their stumps polished by hands passing for decades. The place is old enough that geology and engineering are no longer separable.
+
+Fauna is rare but memorable. Pale cave eels—finger-thick, blind, almost translucent—appear in cistern overflow channels during certain pressure shifts. They are trapped with woven funnel baskets and treated as festival food. Tiny six-legged scavengers, shell-backed and soundless, patrol cracks and consume organic scraps before rot can begin. Once in a while a bat, black as soot and startlingly large in these tight spaces, drifts through upper shafts and vanishes. People pause when that happens. It is said bats carry news from caverns no map contains.
+
+The weirdness is not spectacle. It is rule.
+
+Water here remembers routes. Pour a bucket on bare stone and it will often diverge into the same three threads, as though guided by invisible etching. Sound here also remembers: in one tunnel, if a child taps the wall in a certain sequence, echoes answer from far off with the same rhythm two breaths later, because the chamber geometry has made an accidental instrument. There are rooms where condensation falls upward for a span of heartbeats when warm vent air pulses through. Not magic exactly—just a stable set of peculiar behaviors everyone learns young.
+
+And stability is the deepest character of the place. Seasons barely register. Temperature is consistently cool; only kiln zones and furnace alcoves offer heat. The water table rises and lowers within known limits. Mechanisms break, but in expected ways. Even stories here are less about change than continuity: who keeps which sluice, who tends which lamp route, which family maintains the chain hoists, which child inherits the right to listen at the fault-crack that hums before distant cavefalls.
+
+If you stay long enough, your sense of scale shifts. What first felt cramped becomes complete. The city is small, but nothing in it is accidental. It is an intimate urbanism of seepage and stone, loud with persistence, dim with careful fire, cool as a held breath. A place below the world that has outlasted novelty and entered equilibrium—wet, worn, densely inhabited, and utterly itself.

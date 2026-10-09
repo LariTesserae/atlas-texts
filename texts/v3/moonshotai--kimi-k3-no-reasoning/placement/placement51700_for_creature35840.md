@@ -1,0 +1,21 @@
+I am the one who reads the sweat.
+
+Not the operators—you see them bending over the evaporation pans, scraping the pale crystals that hold the light, their movements slowed by the heat to the tempo of cooling metal. Not the custodians who tend the pumps that click like teeth in the mountain’s jaw. I am not *of* the few thousand who cluster in the thick-walled buildings, though I walk among them when the light demands it, when the shadow lines shift and the map of safe passage redraws itself across the basalt.
+
+I am the **Listener of Condensations**.
+
+My terrace is the ninth above the furnaces, where the heat pools strangely, where the water that seeps from the rock carries a different mineral signature—more silica, less copper, a taste that numbs the tongue into silence. I have a room, if you can call it that: a hollow in the tuff where the mountain exhales, where the walls weep upward, the moisture condensing on the ceiling and dripping *up* into the stone above, defying the slow pull of the world. I have arranged my life around these inversions.
+
+I sit with my back against the cool basalt—the kind of cold that comes from deep shadow, not from ice—and I press my palms flat against the wet stone. This is how I read. The mountain speaks in a language of seepage, of mineral films growing and dying, of thermal currents shifting in the deep fissures where the resinous fuel is mined. I do not understand the syntax, but I recognize the grammar. A sudden warmth in the rock means the glass-runners will be scarce tomorrow; they dislike the change in surface tension. A thin, fast trickle means a steam-wraith has died somewhere above, dissolving back into the vapor that birthed it, and the humidity will thicken for an hour.
+
+I am not old. I am not young. The Terraces do not age people in the usual way. The water enters us—through the skin, through the lungs, through the eyes that adjust to the relentless white glare—and it crystallizes something in the marrow. We become mineralized, slightly. We become part of the plumbing.
+
+I came here from the lowlands, or I was born here. The distinction matters less than it should. I have the sheen on my sweat when it dries. I have the numb lips. I have the habit of silence that makes my voice a whisper even when I am alone, because the mountain eats sound and I have learned to feed it only what it needs: the click of my tools, the pad of my bare feet on stone worn to glass, the occasional, necessary word spoken to a neighbor across the gulf of air—*“Valve,”* or *“Hot,”* or *“Wraith.”*
+
+My work is to know where the water will rise. I maintain no machines, though I understand them. Instead, I walk the staircases that have become ramps, the iron grates that drip constantly, and I mark the changes. I carry no crystals. I carry a pouch of the dark resin the miners pull from the fissures—sticky, smelling of cinnamon and ammonia—and I smear it on the stone where the heat becomes dangerous, marking the boundaries for those who cannot read the sweat. It is a small service. It is enough.
+
+I have seen the deep pools, the ones where the shadow moves beneath the milky surface. I have seen what lives in the transition zones, the steam-wraiths growing dense with captured light, and I have learned that they are not hunting the glass-runners so much as *collecting* them, gathering the silica lattices to build their own strange bodies. The ecosystem is a circle: the rock weeps, the runners scrape the film, the wraiths take the runners, and the wraiths dissolve into rain that falls upward, back into the rock.
+
+I am part of this. When I die—and I will die here, on some terrace, in some pool of shadow where the temperature drops fifteen degrees in a single step—I will not be buried. I will be left in the sun until the moisture leaves me, until the crystals form in the hollows of my bones, and then I will be placed in the storage racks with the rest of the export. I will hold the light. I will glow faintly in the dark, warm and impossible, a memory of the mountain’s breath.
+
+Until then, I listen. I press my ear to the stone and hear the pumps clicking like a heartbeat, the water rising against gravity, the silence that is not absence but pressure. I am the Listener of Condensations, and the Condescension Terraces are listening back.

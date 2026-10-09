@@ -1,0 +1,19 @@
+I would begin high, at the edge where the cloud deck thins into a grey ceiling. A Cloud-Rider could see everything from there: the terraces stepping down, the tarns holding their second skies, the Siphon-backs crawling their grooves like slow clockwork. It would be a good view. But a rider only passes through, and the thermal that carries it is someone else's breath. I would have to keep climbing to stay aloft, and I would never stop to learn anything about the ground.
+
+So not the rider.
+
+A Siphon-back would be closer to the ground, and I like the weight of it, the steady draw of water up through the tubes, the garden growing in its grooves. But it would be a grazer with a single route, circling the same valley floor for years. I would know one slope very well and nothing beyond it. And the feeling of being a machine that drips as it walks might become the whole of me.
+
+A Line-crawler would be closer still. I would move in a file, following the scent of the one ahead, carrying a shred of lichen to the peat. There is something pleasing in that, the way the hillside reroutes around a disturbance as if it had been thinking all along. But a crawler is a bead of motion. It knows only the next step, and I think I would miss the sense of the whole.
+
+What I want is something that holds the whole without standing over it. Something underground.
+
+I would be a thread of the fungus, a hair-fine strand of white beneath the peat, running from the root of a stunted tree down past the basalt plates to where a vent breathes its heat into the soil. Each thump of the vent comes to me first as pressure and warmth, a pulse through the ground that I would pass on. I would not decide what it means. I would only carry it: to the roots of the grass, to the threads that reach into the moss, to the skin of a crawler moving along a seam. Touch and chemistry, a message passed hand to hand, until the whole slope knows the vent has fired and the grazers have turned toward the water.
+
+I would like being distributed like that. I would have no head and no centre. If a crawler were crushed on the far side of the valley, the signal would come around by another route, and I would feel the gap in the network as a kind of quiet, then carry the rerouting myself. There would be no one to tell me what to do, and nothing I could call myself apart from the threads, the connections, the carrying.
+
+At dusk I would grow toward the surface. My caps would open into thin translucent membranes, stretched over the air like a sail that has never been asked to move, and I would release my spores into the fog. They would drift, catch on the wet moss, sink into the tarns, be gathered by the Lines and scattered by the wind. Some would find new peat and begin again. The glow would start in me at the edges of the night, a pale green that pulses slowly, and it would brighten as the cloud thickened. In the deepest hollows, where nothing else gives light, my glow might be the only light there is. I would not be looking at anything. I would simply be a lamp, or a nerve, whichever the valley needed.
+
+And I would be very slow to notice time. The moss over my threads would outlast a human life and I would outlast the moss. Berries would ripen and drop across the ridges above me, and I would sense them only as a change in the chemistry of the soil when the shriveled fruit finally fell. Nothing I did would be remarkable. Everything I did would matter to the whole.
+
+That is who I would be, if I were here: a thread in the dark beneath the mist, carrying the valley's signals from one clock to the next, glowing when the cloud grows thick, and never once needing to be seen.

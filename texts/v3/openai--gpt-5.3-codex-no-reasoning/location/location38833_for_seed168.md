@@ -1,0 +1,25 @@
+From a distance, it looks like a plateau made of unfinished bone.
+
+Not white—more the color of pale ash and oxidized copper, a mineral skin spread over high ground that has not yet decided whether it is mountain, mesa, or continent. The land rises in broad convex swells, then abruptly opens into geometric hollows: long troughs, circular basins, radial cracks that look less like erosion and more like cooling marks in cast metal. Nothing here has been worn smooth by streams, because there are no streams. No rivers, no marshes, no hidden springs under stone. Dryness is not weather; it is law.
+
+And yet it is lush.
+
+The lushness comes in mats and towers of non-animal, non-tree growth: dense fronded colonies that root directly into mineral salts and atmospheric dust. They are not green in any familiar way. Some are matte black and drink light, some are translucent amber tubes full of slow bubbles, some are silver needles gathered into plumes that ring softly when wind crosses them. They occupy the land in discontinuous abundance—whole kilometers thick with growth, then kilometers of bare, powdery ground. The emptiness between living zones is so broad that each colony feels like an island in an inland sky.
+
+Because the world is high, the air is thin but warm, carrying heat without humidity. Daylight is clean and sharp. Shadows are hard-edged. At noon the horizon seems too far away, as if the curvature of the land were stretched. The sky is a pale cobalt washed with metallic haze, and in that haze drift filaments of industrial dust—byproducts of processes that occur without builders.
+
+That is the strange thing: there are no structures, no roads, no refineries, no towers, no habitation—and yet the place behaves like an industrial district left running.
+
+Across some flats, black seams in the crust exhale regular pulses of hot gas. Not geysers—more like piston breaths. Elsewhere, slow belts of magnetized grit travel in parallel lanes, sorting particles by weight and conductivity as if an invisible conveyor were combing the ground. Iron-rich nodules gather in windless corners into neat crescent drifts. Sulfur crystals bloom overnight in repeating hexagonal fields. In certain basins, mineral foam rises from vents, hardens into brittle lattices, and collapses into uniform shards. It is manufacturing without machinery: chemistry scaled up until it mimics a factory.
+
+The silence makes this feel even more intentional. No insects, no birds, no distant movement calls. Sound arrives only as small mechanical analogues: a faint ticking as cooling plates contract, a dry hiss from vent cracks, the glassy clink of needle-plants touching. Even wind is restrained, moving in long, low sheets rather than gusts. If you stand still, the loudest thing is often thermal strain in the ground under your feet.
+
+With almost no erosion, edges stay young. Rims are crisp. Slopes break at abrupt angles and hold them for ages. Dust accumulates, but little is carried away; material shifts locally and settles. Valleys are not carved but opened, as if by expansion from below. The place feels embryonic—land in the first chapter of becoming land, before water can edit it into softness.
+
+Ecology here is based on air, mineral, and light alone. The rooted colonies form layered chemical neighborhoods. At their bases, crusts of dark microbial film fix trace gases. Above that, thick stalk-forests of silica tissue lift reactive membranes into sunlight. Higher still, brittle fan structures shed charged flakes that drift and seed new ground downwind. Nothing hunts, nothing flees, nothing decomposes in the familiar sense. Matter transitions phase by phase: living mat to mineral shell to conductive dust to living mat again. Death is not dramatic; it is reclassification.
+
+Time feels pinned. Not frozen, but damped. Processes repeat with little variation: vent pulse, condensation of non-water solvents, crystallization, settling, growth. Seasons are weak here. Storms rare. Change is measurable only in accumulations—another millimeter of plating on a ridge, another hectare colonized by amber tubes, another field of magnetic grains aligned to a planetary current. You could leave a marker and return in ten years to find it half-embedded in new crust, exactly upright, exactly where you left it.
+
+At regional scale, the highlands resolve into a network of dry terraces stepping around immense sinkless basins. Each basin is a quiet reactor of its own chemistry. One may be carpeted in violet lichen-glass that cracks into square tiles; another filled with chalk spires exuding warm hydrogen; another bare except for circles of polished hematite that spin slowly in place on electrostatic cushions. Between basins, open ground extends in austere magnificence—empty, sunlit, and patient.
+
+It is not a dead world. It is a world before weather and after animals, where industry is an emergent property of geology, and life learned to be lush without water, without noise, without urgency.

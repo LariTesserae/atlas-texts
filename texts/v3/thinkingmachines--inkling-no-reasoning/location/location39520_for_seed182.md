@@ -1,0 +1,13 @@
+The hollow is fresh. A recent collapse—perhaps a century, perhaps less—opened a pocket beneath the old crust, not vast, not old, a single cathedral of absence with walls that still bleed pale unweathered stone. Here, below the surface at 0.4 elevation, the air is hot—2.7 hot—thick and stagnant, carrying a chemical warmth that never dissipates, only settles in layers.
+
+Water exists in pockets: 1.4 damp. Not rivers, not seas, but perpetual condensation running in beaded tracks down the iron ribs of the ceiling. Occasional drips strike the machinery with a quiet, isolated percussion—soft, almost absent—fitting the 0.6 soundscape, a mostly quiet realm where noise is accidental rather than composed.
+
+This is a settlement, urban at 2.3, packed to saturation at 2.7 density. But settlement here is vertical, interleaved, mechanized. Industrial engines—1.8 tech—occupy every plane: brass boilers, riveted ducts, slow-turning flywheels, and electrified coils that glow with a low amber hum rather than true illumination. The light, 1.1 dim, comes from these glowing filaments and phosphorescent mineral deposits along the fresh, sharp-edged walls—erosion is young, 1.3, features still acute, unrounded by long age.
+
+Every gap is filled. There is no room between presences. Pipes run through root masses and root masses run through pipes. Vegetation—1.8 lush—grows in excessive density, fat-leaved and vine-heavy, thriving on the humid heat and the nutrient runoff from the industrial substrate. Ferns drip from gear housings. Moss binds the joints of turbines. The green is not wild but infrastructural, woven into the machinery as if both systems agreed long ago that separation was unnecessary.
+
+The scale is intimate—1.0, grove-or-room scale, hamlet-sized—enclosed by the collapsed dome above and the packed urban floor below. You can see the boundaries. The hollow breathes slowly, 0.7 dynamic, in long cycles of condensation and evaporation, heat radiating in imperceptible gradients.
+
+Fauna is almost absent—0.9 rare—only occasional pale insects, blind and slow, navigating the dense intergrowth. The weirdness—1.9—pervades the logic of the place: roots that taste of copper, water that runs upward along certain pipes, a silence that feels engineered rather than natural, the sense that this pocket was not discovered but manufactured downward.
+
+It is strange, yes. Hot, damp, dark, and full—every inch occupied by industry and exuberant green, changing so gradually that to live here is to feel time as viscosity rather than flow. A small, enclosed world beneath the world, freshly opened, already completely itself.

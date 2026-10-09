@@ -1,0 +1,15 @@
+Here, in this pocket suspended inside the machine’s own body—no larger than a cathedral apse, with no exterior except the sweating ceramic that forms its dome—the world asks you to become something that belongs to circulation rather than conquest.
+
+The air is breath held permanently: 2.2 parts water to three parts air, warm at body temperature, dense with droplets that hang in refusal, never falling. This is not a landscape you walk through. The substrate is 2.7 manufactured—titanium lattice, unfired ceramic, channels that have not eroded but been assigned. There is no bedrock older than this cycle; there is only emergence, erosion barely begun at 0.3, first tentative flows deciding whether a channel deserves to exist.
+
+So you do not arrive with feet that need earth. You arrive with roots, or with the willingness to become root.
+
+The vegetation is 2.4—lush, assigned, compressed—ferns that stand in interlocked banks without ever having tasted wildness, moss thick in every engineered joint, vines with translucent, water-filled stems coiling around pipes in symbiotic obedience. The ceiling is too close for trees; this is a grove made room-sized, enclosed by its own gray-green light—normal, 2.1, diffused through translucent panels, shadowless, revealing every vein in real time.
+
+You are the sole permitted fauna—scarcely 1.1—resting not on rock but on frond. Or perhaps you are not the salamander at all, but the water’s consciousness: the 2.2 that moves through brass gears sized like coins, through analog dials trembling with mathematics-poetry, through heating coils embedded in walls like hidden ribs. You feel the industrial presence—1.6—without being dominated by it; the machinery does not crush the green, it replaces the absence of wildness with something that behaves like living.
+
+The sound is 1.4—mostly quiet—the continuous thrum of pumps vibrating through the floor more as pulse than noise, valves clicking like a careful heart, water gurgling softly into a central basin no larger than a bathtub. You move, if you move at all, through circulation: drawn up through the perforated floor, warmed, misted downward, filtered through root beds, heated again. The ecology moves at 2.4, active without predation, growth without invasion.
+
+Strangeness is present—1.5—but not hostile. It is the absolute knowledge that every molecule was placed, yet nothing feels dead. The density is 1.7—everything touching, everything layered: machinery, root, steam, flow, your own translucent body if you have become the salamander, motionless, finger-long, watching fronds unfold in slow motion.
+
+You are not born here. You are calibrated. But in this hemispherical pocket—high, enclosed, perpetually forming—you are not prisoned. You are included in the cycle. The ceramic sweats. The ferns press closer. The water waits for you to become part of its return.

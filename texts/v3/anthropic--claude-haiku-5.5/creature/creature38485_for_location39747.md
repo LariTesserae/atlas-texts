@@ -1,0 +1,39 @@
+# Who Lives in the Low Warm Basin
+
+## The People
+
+They are lean, and their leanness looks more like a settled condition than a hunger. Their bones show at the wrist and along the collarbone. Their skin is pale, the pale of something kept out of the sun, and under the constant damp it has a faint sheen, as if it were always just coming up out of water. Their hair is dark and often bound back with cord or shell pins, because loose hair clings in the humidity and drips. Their eyes are wide and very still. The grey-amber light never sharpens, so they have learned to see in soft gradients, to read a figure by its outline and its gait across a hundred meters of haze. They rarely squint. They seem to take in the whole flat world at once.
+
+They move carefully on the wet stone, with short, sure steps and their weight kept low. A child learns the footbridges before it learns to run, and by adulthood people cross the slick slabs without looking down. They carry things on their backs in woven bundles, or balanced on their heads, and their posture is upright and unhurried. Nobody here hurries. There is nowhere that needs reaching faster than it already is.
+
+Their speech is lost in the roar. So they speak with their hands on the shoulder, two fingers pressed to the wrist, a palm laid flat on another's back. Across a courtyard they use arm signs and head tilts, and across the lagoon they use calls that carry on the wet air, short hard syllables that rise and drop like the frogs' trills. They are good at reading each other. A touch can say *come* or *wait* or *the net is torn* or *she is grieving* with no sound at all. Their conversations are mostly silent, which is not the same as quiet. They keep their faces mobile even when their mouths are not, and the subtlety of it is extraordinary once you start to notice it.
+
+They are good with their hands in a particular way. They do not invent. They repeat. A woman named by her gestures, perhaps the one who tends the weir, can lay a single stone in the channel with the exact tilt of the stone it replaces, and she does it from memory, without measuring, because the shape is in her body the way a song is in a throat. The same knot is tied in the same order. The same notch is cut in the same bone. When a wall slumps they dig out the footings and rebuild the wall in the same mud, the same thickness, the same height, and no one remarks on it because no one remembers it being different.
+
+Their work is their social life. They gather at the lagoon's edge before the drizzle begins, they net and clean and salt and dry, they carry shell and bone up the stilt-stairs, they sit on the terraces in clusters and pick at the mineral crust with bone scrapers, scraping off a thin film that grows back by morning. The grazers of the mineral film and the people do the same work in a way; each keeps the surface of the stone from becoming anything other than what it is.
+
+They do not seem to age, or they age so slowly that it cannot be told from one season to the next. The old have the same faces as the middle-aged, lined only with the thin creases the damp leaves on everyone. There is no obvious elder, though there are people others go to, and those people sit very still in shaded doorways, hands loose in their laps, watching the drip fall on the same worn stone. They are not sad, as far as anyone can tell. They are simply present, in the way the basin is present.
+
+Children are louder, and this is the one place the sound changes. They shout from the high terraces and run the narrow alleys, and they fling pebbles into the shallows to see the rings spread. Then they learn the stillness. By their early teens they move with the same careful weight as their parents, and their faces go smooth and attentive, and the shouting stops.
+
+## The Others
+
+The birds are the most visible of the living things. They are grey and pale, with long legs and short, heavy bodies, and they crowd every stilt and ridge, shuffling and preening, their feathers always beaded. Their calls are harsh and rattling, like wooden clappers struck together, and when they lift in a flock the sound of their wings is a dry, tearing rush. They nest on the high ledges in colonies so thick the stone is white with droppings and the eggs are pale, nearly the same color as the walls. The people take eggs and the birds keep coming back to the same ledges, year after year, and the colony never grows or shrinks by more than a few.
+
+The frog-like creatures sing from every pool. They are small and mottled, the color of mud and wet stone, and they sit half-submerged with their throats pulsing. Their trill is continuous. It rises and falls in long, slow waves that never fully resolve, a sound that after a while stops being heard and becomes simply the texture of the air. They eat the insects and the small crustaceans, and they are eaten in turn by the larger things in the lagoon and by the birds, and the balance of their numbers is so precise that you could almost believe they were counted.
+
+Insects hang over the water in dense, humming clouds, always in the same places. Above the flats, they rise and drop in columns that brighten and dim with the grey light. They are everywhere, and they are very small, and they never seem to swarm or thin out.
+
+In the lagoon live the things that knock and click against the shallows, dark and sleek and unseen for the most part, surfacing only to slap their tails in rhythmic bursts that carry across the still water like applause that never ends. Some of them come up near the stilts and the people lower their nets and do not look surprised. They are the largest predators in the basin and they keep to the middle of the lagoon, and the stone platforms out there are where the traps hang, because that is where the balance is kept.
+
+The crustaceans, or whatever they are, are the least seen and most heard. They are pale and segmented and they live in their thousands under the mud and the crust, scraping and rasping across the flats in a dry, endless whisper that sits beneath every other sound. You feel them in your feet on the mud. They are the floor of the sound itself.
+
+The small clatterers live in the cracks of the walls: lizard-shaped, or rat-shaped, or something between, quick and grey, with teeth and claws that make a dry chitter when they run. They eat what falls from the birds and the people, and they are never numerous enough to be a nuisance and never scarce enough to be missed.
+
+## What Holds Them
+
+None of these creatures is larger than its place in the balance. The birds do not outgrow the ledges. The frogs do not drown out the lagoon. The predators do not clear the pools. The people do not multiply past the number the lagoon can feed or thin below the number needed to keep the weirs mended and the walls repaired. Everything is held, and the holding is so complete that it does not look like effort. It looks like the shape of the world.
+
+Watching the basin long enough, you begin to suspect the people are the most fragile part of it, not because they are weak but because they are the only things here that could, in principle, want something else. They do not. They gesture across the water and sit in their doorways and rebuild their walls exactly as they were. They are the custodians of a place that has stopped at the threshold, and they have accepted the stopping so completely that it has become their nature, the way the ground is its nature, the way the rain is.
+
+If you stayed a year, you would see them repeat the same days. If you stayed a century, you would see the same faces, the same hands, the same careful steps on the same wet stone, and you would begin to understand that they are not waiting for anything. They are simply here, loud and pale and quiet, as the basin is, at the beginning of something that has decided, for now and for every now after, not to begin.

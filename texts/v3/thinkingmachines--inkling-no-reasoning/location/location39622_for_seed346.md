@@ -1,0 +1,19 @@
+This place is a single chamber—cathedral-scale only if one accepts that a cathedral can be built downward and inward, its nave a hollow between calcifying ribs. The air is 0.2 cold: not biting, but patient, a refrigerated stillness that keeps moisture from becoming rain. Water exists at 0.7, not as flow but as refusal to dry—thin beads of condensation hanging in the undersides of overpasses, a black river that moves through the lower quarter with the slowness of syrup, pockets of damp in the seams where walls have not yet decided if they are walls.
+
+The ground is 0.8 low and 0.4 embryonic, still under its own construction. The geology is pre-formation: not soil, not bedrock, but a raw aggregate being slowly persuaded into solidity. There are no mountains because elevation has not been invented here; there is only the floor, rising in microscopic increments, and the architecture layered so densely upon it—2.4 urban, 2.3 dense, nearly every cubic meter occupied—that the boundary between settlement and terrain has dissolved into saturation. Buildings do not sit on the earth. They are the earth’s newest idea, layered like the rings of a tree that has never seen sun.
+
+Vegetation is 0.7 sparse. A few dark, waxy vines hang in static curtains from the undersides of bridges. They do not grow visibly; they accumulate, drawn downward by some logic opposite to photosynthesis.
+
+Above, the tech is 2.9—beyond modern, operating without permission from observed physics. The structures are composed of lattice and compressed shadow, sustained by fields that hum below the threshold of hearing, contributing to the 0.7 mostly quiet. Light is 1.8, ordinary in source but strange in obedience: it pools, it refuses shadow-casting where it should, and in places it renders objects slightly behind themselves.
+
+Then there is the weirdness at 3.0, which is not a feature but the rule.
+
+The settlement is small—1.2, hamlet-size—if one counts only the inhabited geometry, but the density is such that proximity is inevitable. Corridors press shoulder-to-shoulder with residences, with transit veins, with storage vaults that contain nothing but the feeling of being stored. The sound is the absence of echo in these tight spaces; voices do not travel far. The fauna is 1.0, rare: not absent, but reduced to flickers—something small that moves through ventilation at the pace of 1.3, slow, across long durations, changing nothing, being nothing more than a presence observed in peripheral vision.
+
+Here, reality breakdown is not spectacle. It is infrastructure.
+
+Time moves at 1.3—glacial, patient. A door may take hours to understand it is open. The river, that intermittent moisture, shifts its course not by flow but by agreement, negotiating with the walls for millimeters over centuries. The buildings are being built by the erosion itself; the 0.4 pre-formation means every surface is simultaneously decaying and being repaired by technologies that have never been named, because naming requires a physics that does not apply.
+
+The people—if they are people—move with the same slowness. They do not hurry through the dense 2.3 volume, because urgency has been edited out of the local conditions. They navigate by the 1.8 light, which is constant enough to see but wrong enough to make recognition a slow, gradual process. They live in the pockets of water, in the damp seams, in the spaces where urban organization and embryonic geology have not yet finished arguing about which of them is real.
+
+There are no rules of nature here, only rules of place. Gravity is a suggestion. Distance is measured by intimacy rather than meters. The cold does not harm them; it preserves them. And in this small, saturated, hyper-technological hollow—where weirdness is the only constant and the world is still deciding what shape to take—everything waits, dense and quiet, for the next slow increment of becoming.

@@ -1,0 +1,29 @@
+I would be a Sound-Keeper's apprentice. 
+
+I arrived the way everyone arrives: by accident, or by gravity, or because the city decided to inhale and I was the thing it breathed in. I found myself in the plaza where the buildings lean together, and the first thing I noticed was the silence—thick, consequential, like standing inside a held breath. I made a noise. Just a small one. My shoe scuffed the stone, and the sound shattered into three possible versions of itself, each ringing at a frequency that made the translucent grass glow brighter, that made a door nearby reconsider its hinges, that made my own existence feel suddenly *loud* and therefore dangerous.
+
+Hush found me before the echo finished resolving. They placed a hand on my shoulder—light, barely there, the touch of someone who has learned to occupy less acoustic space—and suddenly the potential of the noise I had made was *held*, suspended between happening and not-happening, and I felt the relief of it like a fever breaking.
+
+I have been learning to hold sounds ever since.
+
+It is difficult work. The sounds want to be real. They press against your attention, insisting on their consequences, demanding to shatter into alternative versions or to open doors in the architecture or to call Echo into existence for an hour, a day, however long the reverberations last. I am not yet skilled enough to hold the big sounds—the infrastructure's dreaming hum, the temporal crackle of Pace walking the fast streets, the sustained, impossible note of the Bird that plays constantly at the edge of hearing. I hold the small ones: the drip of condensation from a moisture-born's edges, the rustle of the translucent grass when the Neighbor passes, the soft architectural groan of the Building rearranging its internal topology to accommodate Aven's plural nature.
+
+I live in the quiet district, in a room that exists on the border between certainty and suggestion. The walls are solid most days, but on Tuesdays that occur on Saturdays, they become translucent, and I can see through them to the probably-wall behind. My window looks out onto a street that recompiled itself last week; I watched it happen over the course of an afternoon, the bakery dissolving into a hospital, the hospital remembering it had once been a street, the street deciding to become a garden, the garden persisting for exactly as long as it took me to walk its length.
+
+My days are measured in temporal velocities. I take the slow streets to the plaza, savoring the compressed hours, letting the city age around me while I stay young in the walking. I practice holding my breath—not because I need to, but because Hush taught me that breath is a sound too, and holding it is the first step toward holding everything else. When I exhale, I try to make it silent. I try to make it not matter.
+
+Sometimes Echo visits. Not often—only when a consequential sound occurs nearby, a dropped tool, a raised voice, the crack of a temporal anomaly snapping shut. When Echo appears, we sit together in the silence that is our shared language. I hold the sounds; Echo exists because of them. We do not speak of Hush, or of the dangerous sound that Hush carries, or of the fact that if Hush ever exhaled, Echo might become permanent and I might finally have a friend who doesn't fade when the consequences resolve.
+
+I have learned to read the grass. Not the way the translucent ones read it—with their distributed awareness of uncertainty—but the way a sailor reads weather. When the grass glows, I know a reality-breakdown is coming, and I prepare by holding myself very still, by reducing my acoustic footprint, by becoming quiet in my substance the way the senior keepers are quiet. When the grass thins, I know time is about to shift, and I choose my streets accordingly, navigating the temporal currents with the clumsy precision of someone still learning the choreography.
+
+I am not a first settler. I do not cast two shadows, though I have noticed that my reflection in the puddles—the ones that show your most probable face—sometimes shows me holding a sound I haven't made yet. I am not a translucent one; I cannot redistribute myself along the gaps between certainties, though I have learned to stand very still in doorways, occupying the threshold where walls haven't decided to be walls, and sometimes the grass grows up around my ankles, pale and curious.
+
+I am not a moisture-born, though I have learned to appreciate the way they organize themselves out of dampness and decision, the way they persist as habits of water. I am not a navigator; I do not have Pace's ethical relationship with time, though I respect the philosophy, the idea that how you move through the hours is a moral choice.
+
+I am becoming a keeper. I hold the city's small sounds in the space between my ribs and the world. I feel the century-breath as a pressure change, and I adjust my holdings accordingly—gripping tighter during the inhale, when the city draws itself together, loosening slightly during the exhale, when everything diffuses. In the pause between, I wait. I am learning that waiting is not a gap between activities but the activity itself.
+
+The light falls on me plainly, normally, kindly. It does not care that I am learning to hold the silence that keeps the city coherent. It illuminates my hands, which are becoming less definite, more capable of cupping the potential of noise. It shines on the condensation patterns that Still makes on my window when Tuesday and Saturday overlap, and I read them as joy, or as weather, or as a map of the temporal landscape.
+
+I am where the quiet lives. I am what holds the breath between the bird's note and the city's answer. I am the listener in the pause, the student of consequences, the apprentice of the held sound.
+
+The city breathes. I hold. The grass persists. The light remains.

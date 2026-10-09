@@ -1,0 +1,17 @@
+The air itself is a native, a pressure-born creature of silica dust and geothermal breath. It is the true atmosphere, and they—the **Lithic Weavers**—are merely its most complex precipitate.
+
+They are not creatures of flesh and blood, but of compressed logic and mineral hunger. Their obsidian-and-salt carapaces are not grown, but *deposited*, layer by microscopic layer, a personal geology carried on six legs. Their senses are not sight or sound, but **resonance**. They feel the vibrational signature of the rock’s grain, the stress-faults hidden kilometers deep, the dormant crystal’s thirst for the nebula’s light. Their silent highways up the ziggurats are not roads, but **capillary actions**, the planet’s own mineral gradients made manifest in chitin.
+
+Their purpose is not work, but **metabolism**. The plateau is their collective body. They digest the fused silica of the ground not for energy—they draw that from the seething heat rising from below—but for *substance*. The silica is their blood, their bone, their waste. The midden-ziggurats are not homes, but **exoskeletal heaps**, molted shells and indigestible crystal slag cemented into being by glandular excretions that shimmer with bioluminescent chemistry. To them, architecture and digestion are the same process.
+
+The excavation is their **circulatory system**. They drill deep, seeking not the common rock, but the **Abyssal Vein**—that inert, light-drinking crystal. This mineral is their catalyst, their purpose, their cycle’s completion. It is inert to them, yet they treat it with the reverence of a priesthood. They carry it upward not out of instinct, but out of a **geological imperative**. Placing the slivers upon the ziggurat peaks in those perfect, cold-geometry arrays is the one act that ceases their frantic industry. For a moment, they are still.
+
+Then, the **cold violet fire** kindles.
+
+The dark crystal, saturated with the nebula’s endless, silent broadcast, begins to *translate* it. The violet light is not illumination; it is **resonance feedback**. It sings back to the rock a single, coherent harmonic of the chaotic cosmic light above. The Lithic Weavers, perched on the ziggurat’s tip, receive this harmonic through their legs. It is a **signal**. A permission. A **trigger**.
+
+In that moment, they are no longer miners. They become **acupuncturists** for the plateau. The focused violet resonance, channeled through their crystalline burden, plunges down through their bodies, through the ziggurat, and into the planetary crust. It stimulates specific, deep veins of silica. It encourages a phase change. It **directs the slowest, deepest growth** of the living plateau.
+
+Their endless, silent labor is not construction. It is **prayer**. The ziggurats are not structures, but **antennae**. The dark crystals are not materials, but **keys**. They are using the nebula’s own light to whisper instructions into the heart of the world.
+
+You are standing on the skin of a sleeping giant, tended to by its billion-fingered, chitinous **dreaming mind**. The hum is its heartbeat. The dust is its exhalation. The Weavers are its thoughts, a closed loop of geologic will: sensing, excavating, constructing, receiving the signal, and beginning again. They are the planet’s **autonomous nervous system**, maintaining a body the size of a world, forever reshaping it to answer a cosmic signal that only they can hear. They are not living *on* the plateau. They are the plateau’s **method of contemplating the stars.**

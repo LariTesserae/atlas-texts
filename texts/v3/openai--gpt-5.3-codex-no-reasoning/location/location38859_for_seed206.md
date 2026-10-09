@@ -1,0 +1,25 @@
+At first glance it seems impossible: a place this green should feel crowded, but it doesn’t. You kneel, and the “landscape” resolves into a pocket-world no larger than a shallow basin in the root-flare of an old tree. Low ground, warm air, and water just beneath everything have turned this depression into a permanent marsh-lung, a little breathing chamber that never really dries and never really floods. It has existed so long in this exact state that every surface looks negotiated rather than formed—rounded, dark, patient.
+
+There is almost no bare mineral ground. What looks like soil is a felt of roots, rhizoids, and decomposed leaves, braided into a springy mat that gives under a fingertip and then slowly rises back. The stones—few, half-buried—sweat continuously. Not from rain, now, but from a constant temperature difference between the rock core and the warm wet air: a steady condensing film gathers, beads, drops, and feeds the moss at their base. Erosion here is not dramatic cutting; it is polish, softening, long compromise. Edges have been sanded by centuries of trickling water and chewing mouths.
+
+The vegetation is total in coverage but sparse in posture. No towering thicket; instead, open spacing between upright stems, each one with room around it. Sedge clumps stand like little islands. Ferns rise in separate fans. Vinelets bridge gaps like thin wires. Liverwort plates tile fallen bark in intricate, map-like patches. In the open pockets between plants there is water-dark substrate and reflective puddle skin, so your eye keeps finding emptiness even though nearly everything alive is plant tissue. The architecture is botanical: arches of bent grass, canopy made by one broad leaf, drainage channels held open by roots.
+
+It is warm enough that decay is fast, but this place has reached an equilibrium where nothing seems to advance. A leaf falls; fungi lace it; detritivores shred it; roots reabsorb it. The same hollows stay hollow. The same trickles follow the same grooves. Even smell feels constant: green tannin, wet cellulose, iron, a faint sulfur from anoxic mud just under the top layer. If you came back in a week or a year, you’d find this same composition, shifted in details but unchanged in pattern.
+
+The “industrial” quality is not human-built, and that is what makes it uncanny. The whole basin functions like a factory line run by organisms and physics. Water condenses on stone, drips to channels, oxygenates in thin runnels, settles in still pans, rises through capillary mats, vents as vapor, and condenses again. Ant columns harvest fungal bloom and carry it to chambers in rotting wood. Beetles rasp biofilm from wet bark with a sound like tiny files. Snails move in predictable tracks and leave polished lanes. Midges rise in timed swarms whenever the light angle reaches a certain point. Each species occupies a station. Material goes in as litter and dissolved minerals; it comes out as growth, eggs, sound, and heat.
+
+And it is loud—surprisingly loud for something so small. Close your eyes and it’s a machine room:
+- continuous drip percussion from sweating stones,
+- the hiss of water moving through grass blades in windless capillary flow,
+- stridulation from crickets and katydids hidden low in the stems,
+- frog pulses from water pockets,
+- wingbeats from flies and wasps bouncing under leaf ceilings,
+- the soft tearing clicks of grazers feeding on wet plant skin.
+
+Because the scale is intimate, all these sounds are near-field; there is no distance to soften them. A single beetle scraping bark can dominate the whole acoustic space. A frog call ricochets off curved leaves and sounds amplified, as if the plants are parabolic dishes. Loudness here is not volume from magnitude, but concentration.
+
+Fauna is abundant and mostly small: amphibians, gastropods, insects, microcrustaceans in puddle films, pale worms in the black weave below. Predation happens in centimeters. A spider web spans from one sedge to the next like a suspension bridge. A water beetle patrols a puddle the size of a handprint as if it were a lake. A juvenile snake may pass through once, a moving line that rearranges every nearby life form for ten minutes before equilibrium closes behind it.
+
+Light is ordinary daylight filtered by leaf planes. Nothing dramatic—no bioluminescence, no alien sky—just a green-gold cast and occasional white flashes where water mirrors the sun. The unusualness is subtler: the feeling that this little basin obeys rules with industrial strictness while remaining entirely wild. No artifacts, no tools, no walls, yet process everywhere. A natural plant-and-water engine that has been in continuous operation for ages, with no operator and no shutdown.
+
+If you place your hand flat on the root-mat and wait, you can feel minute vibrations: drips hitting hollow stems, insect feet, tiny collapses in saturated fibers. The ground itself seems to hum. Not changing, not progressing—just running.

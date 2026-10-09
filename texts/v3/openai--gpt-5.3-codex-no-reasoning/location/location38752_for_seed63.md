@@ -1,0 +1,29 @@
+You come up onto it the way you enter a kiln: not with a horizon, but with heat first.
+
+The place is high—an upland basin trapped between black ridges—and small enough that you can feel its boundaries, but dense enough that your eyes never rest on emptiness. Every surface is occupied. Not by trees, not by grasses, nothing green at all. The ground is a packed tessellation of mineral crust and old lava plates, cracked into scales like pottery fired too hard. Between the plates, seams of pale salts and sulfurous powders glow faintly in the dark, the way old bones glow under moonless skies. There is almost no free water; whatever moisture ever arrives is swallowed instantly by hot stone, or exists as brief metallic dew inside sheltered fissures, gone by the next breath of heat.
+
+Light is stingy here. The sky is not fully black, but a deep iron violet, choked with high dust that smothers stars and sunrise alike. Illumination comes indirectly: dull red breathing from fumarole mouths, bioluminescent sheens from animal skins, occasional sheet-lightning behind distant ash clouds that silhouettes everything for a heartbeat and then returns it to near-night. You navigate by temperature and movement more than by sight.
+
+And movement is everywhere.
+
+At first, in the dimness, the basin seems carpeted with stones. Then one stone shifts, and fifty shift with it. The fauna is overwhelming in number and form: layered ecologies of heat-adapted crawlers, shelled drifters, articulated burrowers, and membrane-winged gliders that never climb far because the air above is too thin and abrasive. Most are low, close to the rock, conserving moisture. Bodies tend toward ceramic textures—silicate armors, mica-like scales, matte charcoal hides veined with coppery capillaries that pulse when they vent heat. Eyes, where present, are often recessed and mirrored; many species hunt by vibration, static charge, or chemical gradients carried through warm drafts.
+
+The ground itself participates in the living traffic. Narrow runnels etched by centuries of dry granular flow—ash, powdered salts, bead-like pellets of shed shell—act like rivers without water. Things migrate along them in pulses. Predators wait at choke points where two runnels merge beneath overhanging basalt. Prey species cross in synchronized bursts, thousands at a time, making soft percussive rattling like rain on a roof, though no rain falls here.
+
+Sound overall is restrained, almost polite, but never absent. A low hiss from vents. Tick-tick contractions as hot rock cools by fractions at “night.” The brittle clatter of shells touching shells touching shells. Occasionally a deep, resonant boom from somewhere underground, followed by a brief collective stillness among the animals, as if the entire basin listens to its own foundations. Vocal calls are rare and efficient: short clicks, throat-drums, one-note whistles that carry through stone corridors. Silence here is not emptiness; it is held breath between small impacts.
+
+Because the place is old in its current form, everything looks weathered into agreement. Spires have been undercut into arches; arches have collapsed into ramps; ramps have been polished by generations of passing bodies. Erosion works not through streams but through heat stress, abrasive winds, and constant biological contact. Trails are incised into mineral crust not by tools, but by uncounted feet, claws, and bellies over long time. This gives the basin a paradoxical feel: raw volcanic ingredients arranged into mature, habitual geometry.
+
+There are built traces, but sparse and easily missed—scattered upright stones set in rings on ridge shoulders, a few stacked walls fused by heat into glassy lumps, half-buried lintels leading nowhere. No metal, no moving parts, no active technology. If there were tool-users, they were intermittent visitors or very ancient residents; their marks are now folded into animal routes and mineral accretions. One collapsed shelter has become a nesting mound. A carved channel has become a favored ambush lane. Architecture has been reclassified as terrain.
+
+The weirdness of the basin is not flamboyant; it is systemic. Life seems to run on chemistries adjacent to what you expect. Some creatures graze mineral films that regrow on warm stone overnight, fed by gases seeping from below. Others farm mats of translucent, non-plant growths—more crystal than tissue, but metabolically active, expanding in geometric fans then shattering into edible shards. Certain scavengers gather at vent mouths and stand with mouths open, harvesting dense vapors as if feeding on weather itself.
+
+Rules emerge as you watch:
+
+- **Heat gradients are borders.** Crossing a line just a few paces wide can mean moving from merely harsh to instantly lethal.
+- **Movement attracts movement.** Anything that travels alone quickly acquires followers, parasites, and hunters.
+- **Height is temporary safety.** Ledges protect from ground swarms but expose you to gliders and sudden gas releases.
+- **Stillness is camouflage.** Many bodies mimic rock so perfectly that “terrain” and “fauna” are always provisional categories.
+- **Nothing moist remains unclaimed.** A cracked shell leaking fluid becomes a violent center of convergence in seconds.
+
+Despite the hostility, the basin does not feel chaotic. It feels full—completely, meticulously full. Every crevice occupied, every thermal niche used, every cycle linked to another: venting, crusting, feeding, shedding, cracking, burrowing, hunting, cooling, venting again. A closed orchestra of stone and animal, playing quietly in a dark, hot room high above any river, where life learned to do without water and never looked back.

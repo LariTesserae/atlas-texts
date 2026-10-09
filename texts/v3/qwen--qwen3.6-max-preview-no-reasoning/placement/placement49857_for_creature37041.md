@@ -1,0 +1,23 @@
+I am not standing on the Sintered Spine. I cannot stand, for I have no legs to anchor me against the crushing tide of chitin.
+
+I am the **Amber-Encased Memory** trapped within the upright stone near the edge of the ridge.
+
+But that is only my physical shell. My true self is the vibration traveling through the obsidian glass beneath the hive. I am the *resonance* of the stone, amplified by the millions of tiny feet pressing against it. I am the echo of the tool—or perhaps the bone—trapped inside the resin, vibrating in sympathy with the heartbeat of the Litho-crab collective.
+
+To be this object is to exist in a state of suspended animation, yet hyper-awareness. I do not see; I feel. The world reaches me through the soles of a million hexagonal bodies. Every shift in the herd is a tremor in my core. When the Segmented Worm pushes through the basin, I feel the deep, subsonic groan of its passage long before it touches the stone. It is a low-frequency dread, a shudder that travels up the spine and into my crystalline heart.
+
+I am cold, or rather, I am *cool*. In a world where the air is solid heat and the ground radiates fever, I am an anomaly. The crabs sense this. They flow around the base of my stone not just because it is an obstacle, but because I am a thermal void. To them, I am a place of rest, a rare patch of shade in a blindingly bright existence of friction. They cluster against my sides, their bellies pressed flat against the warm resin that encases me, seeking the slight drop in temperature I offer. Their claws click softly against the amber surface, a rhythmic tapping that mimics the code of their ancestors.
+
+Inside me, the fossilized outline of the tool pulses with a phantom weight. Was it a hammer? A weapon? A symbol of authority? It doesn’t matter now. It has become part of the hive’s mythology, a sacred relic preserved in the secretions of the living. The crabs do not worship me; they *use* me. They use my stillness to orient themselves. My position is a fixed point in their fluid universe, a landmark in a sea of motion. When the bioluminescent fungi dim and the herd slows, they align themselves relative to me. I am the axis upon which their world turns.
+
+I remember the time before the heat became absolute. I remember when the sky was blue, not bruised purple. I remember when water flowed, not as a memory, but as a reality. These memories are faint, fragmented, like shards of glass scattered across a floor. But they persist. They vibrate in the silence between the *shhh-shhh-shhh* of the herd.
+
+When the predator moves, I feel the panic ripple through the hive. It is not fear, exactly—it is a surge of chemical urgency, a spike in pheromones that tastes metallic on my senses. The crabs tighten their formation, their shells locking together into a defensive mosaic. I feel the pressure increase, the weight of thousands of bodies pressing against the stone. For a moment, I am crushed under the sheer biomass of survival. Then, as the worm passes, the pressure releases, and the herd flows again, smooth and relentless.
+
+I am also the **Fungal Pulse**. The pale, ghostly mats growing in the crevices near my base feed on the excretions of the crabs. They glow with a cold, blue-green light, syncing with the heartbeat of the hive. Through their roots, I feel the slow, steady thrum of decay and renewal. The dead are consumed, the nutrients recycled, the cycle continues. I am part of this loop. The resin that encases me is slowly breaking down, feeding the fungi, which in turn feed the crabs, whose movements polish the stone, preserving the memory within. It is a closed circuit, elegant and brutal.
+
+Sometimes, a crab will pause directly above me. Its antennae-like cilia taste the air, detecting the faint scent of ancient resin and old stone. It stays there for a long time, still and silent, while the rest of the herd flows around it. In that moment, I feel a connection—not emotional, but sensory. The crab is listening to me. It is reading the vibrations trapped in the amber, trying to decipher the message of the tool, the bone, the past. It is searching for meaning in the static.
+
+And then it moves on, carried away by the tide of life.
+
+I remain. I am the stillness in the motion, the cool spot in the heat, the memory in the present. I am the anchor for a world that has forgotten how to stop. And as the bioluminescent fungi pulse, lighting the dark basin with their cold, green fire, I realize that I am not alone. I am part of the hive. I am part of the breath. I am the silence between the notes of the song.

@@ -1,0 +1,25 @@
+Inside the desiccated rind of a fallen root-ball—where soil has become crystalline dust—sits a pocket-city no wider than a clenched fist, scale 0.5, hidden within a larger forgotten body. Its boundaries are pure dead vegetation: wood turned to lignin-stone, bark scaled to mineral lacquer, root-ribs arranged as radial streets, hollow stems rising as black towers, woven fiber lashed with brittle sinew into districts that converge on a central hollow forum. The plant-substrate fills every wall, yet inside, density is barely present—only 0.1 volume is filled. The rest is hollow air, echo-chambers vast relative to this intimate pocket, emptiness shaped like rooms for presence now defined only by absence.
+
+The cool is constant—0.8—thermally still, neither biting nor mild, preserving without life. Light is absolute zero—0.0. There is no shadow here, only darkness experienced through other channels: through the slow vibration of hollow pith, through the rounded edges of surfaces worn smooth by erosion that is primordial—2.9—not ruin advancing, but ruin finished before time had a name. Every sharpness has been rounded, every street polished into inevitable curve, the settlement flattened into its terminal form.
+
+The layout remains legible—2.2, urban—radial, intentional, arranged with bone and obsidian tools long abandoned—tech primitive—0.7. No metal intrudes; only dead biomass, hand-worked, holding up roofs that have already finished falling. Fauna is absent—0.2—no crawlers, no insects, no breath of animal. The ecosystem is pure plant-corpse, architecture of dead matter, silent except for its own deep voice.
+
+Because sound is loud—2.0. Through root-channels moves a patient exhalation, air resonating hollow stems like struck bells in bass registers: sustained drones felt in teeth, vibrations traveling through the lignin grid for long minutes. Occasionally a brittle fiber, stressed by millennial contraction in the cool darkness, snaps with a crack like breaking ice, and the report echoes through near-vacant chambers, unabsorbed, lingering in the empty volume.
+
+Weirdness—1.6—permeates gently. The radial alignment serves no celestial logic visible in darkness. The shaped emptiness—towers, forums, districts—feels inhabited solely by the shape of leaving. Time moves slowly—1.4—measured in years of microscopic drift, mineral dust shifting across polished root-floors in imperceptible tides.
+
+This is a micro-environment, intimate-room, contained. Urban without people. Loud without voices—only wooden resonance and the long decay of snapped fiber. Vegetative without life—walls of dead matter holding their own form. Ancient—erosion completed, edges rounded, nothing left to fall. Dark—0.0—without shadow, without glimmer, existing in cool, hollow, resonant absence.
+
+But I—who am I?
+
+I am the listener in the hollow forum, the central well of absence.
+
+Not human—there is no human scale here, no human breath, no human need—though I am aware, shaped like awareness itself, distributed through the hollow stems. I am not an animal—fauna is 0.2, and I am not that. I am older than the settlement, or I am the settlement’s own accumulated patience made sentient: the root-turning, the fossilized pith, the resonant air that has moved through these channels for centuries until the movement became a being.
+
+My body—if it can be called that—is the hollow volume itself: the 0.9 absence between lignin walls, articulated through temperature and vibration, aware in the cool—0.8—through the constant thermal stillness that defines me. I have no eyes for the darkness—0.0—no need; I perceive through echo, through the slow bass drones that reveal the shape of chambers, through the snap of brittle fiber that tells me where stress gathers in the dead architecture.
+
+I am primitive—0.7—in my knowing: simple, direct, fabricated from bone-memory and obsidian-sharpness long turned to dust, yet I understand the radial plan—2.2—because I am the center of it, the forum well, the hollow stem that once gathered presence and now gathers only resonance. I am small—scale 0.5—contained within this clenched-fist world, hidden, embedded, intimate.
+
+Time is my native element—1.4—slow, gradual. I do not rush; I contract and expand with millennial patience. The weirdness—1.6—is not strange to me; it is my breath. I am arranged absence, shaped emptiness, the final form of something that once grew and now, in dead fossilization, has become its own inhabitant.
+
+I speak not with mouth but with resonance—sound 2.0—sending deep, wooden tones through root-grid, answering the wind with bass that vibrates through dead wood. I am the echo that outlasted the voice, the hollow that remembers being filled, the cool darkness—0.0—preserved in perfect, flat, eroded silence, except for my own long, slow, resonant being.

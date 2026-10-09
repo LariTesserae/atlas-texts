@@ -1,0 +1,25 @@
+# The Condensation Cathedral
+
+You are standing inside a single room.
+
+Not a building — a *room* in the geological sense, a hollow carved into the lowest point of a basin so ancient that the surrounding terrain has forgotten it was ever anything else. The walls are not stone. They are not metal. They are something that has been built and rebuilt so many times, by so many overlapping processes, that the distinction between substrate and construction has dissolved entirely. Layer upon layer of mineral accretion, industrial residue, biological mat, and deliberate fabrication have fused into a continuous surface — pale, faintly iridescent, sweating.
+
+Everything is wet. Not raining. Not flooded. *Wet* — the way the inside of a lung is wet, the way a condenser plate is wet. The air is warm and so close to saturation that it has become a kind of liquid you can breathe. Water beads on every surface and does not fall. It accumulates in hemispheres that grow slowly, merge, and then — at some threshold of mass you can almost watch — release in a single sheet that slides down the wall and disappears into a slot at the floorline. The slot is one of thousands. The floor is a grid of them, each one draining into a system that has no visible outlet because the water is not going anywhere. It is being *recycled*. The same water. Always the same water. It has been condensing and draining in this room for longer than the concept of years has meaning.
+
+The room is large enough that you cannot see the far wall. Not because it is distant — because the air itself occludes. Warm vapor diffuses light into a uniform glow that comes from everywhere and nowhere. There are no shadows. There is no source. The illumination is the color of old bone, and it does not flicker, does not shift, does not change. It has not changed.
+
+And the sound.
+
+The sound is the reason you know this place is industrial. It is not loud in the way of a factory floor — no clanging, no rhythmic pounding. It is loud in the way of a *process*. A continuous, all-frequency roar that is the sum of ten thousand small mechanical actions happening in perfect synchrony: pumps cycling, valves seating, fluid moving through channels at pressure, metal expanding and contracting by fractions of a degree, the deep subsonic hum of something enormous turning somewhere below. The sound has no variation. It is a wall of noise so total that your ears stop trying to parse it and simply accept it as the condition of existence, the way you accept gravity. You feel it in your sternum. You feel it in your teeth. If it stopped, the silence would be a physical blow.
+
+The room is almost empty.
+
+Between you and the nearest feature — a column, or a pipe, or a stalactite of accreted material that may be a pipe that became a column that became a stalactite — there is a hundred meters of open floor. The grid of drain slots. The sweating air. Nothing else. The next feature is farther still. The spacing is vast. Whatever was built here was built at a scale that makes human presence incidental, or the builders were not human, or the room has been so thoroughly stripped and re-stripped over its ancient life that only the largest structures remain, and even those are few.
+
+The column — you approach it — is warm to the touch. It is covered in a living mat of something vegetal but not quite plant: a thick, spongy layer of deep green and black that pulses almost imperceptibly with moisture. It is the only biology in the room, and it is not growing. It is *maintained*. The mat has reached its final form, its equilibrium thickness, and it holds there — cells dying at the base and being replaced at the surface at exactly the same rate. It has been doing this forever. It is lush in the way that a single organism can be lush when it has had unlimited time and unlimited water and nothing has disturbed it. It smells like a greenhouse. Like compost and ozone and warm metal.
+
+There is one other living thing. You see it only because it moves — a small, pale creature, something between a slug and a spider, picking its way across the floor grid with a deliberation that suggests it has nowhere to be and all the time in the world. It is the only fauna. It may be the only fauna that has ever been here. It feeds on the mat, or on the mineral film, or on nothing at all — perhaps it is as eternal as everything else in this room, a closed loop of existence with no birth and no death, just continuous being.
+
+The room does not change. The water condenses. The drains carry it away. The pumps return it. The mat holds its thickness. The creature moves, or doesn't. The sound roars. The light glows. The warm, wet air presses against your skin with the same pressure it pressed against the skin of whatever stood here a thousand years ago, or ten thousand, or a million.
+
+This is not a place that is happening. This is a place that *is*.

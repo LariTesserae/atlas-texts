@@ -1,0 +1,23 @@
+I find myself on the lip of a cistern on the third terrace, kneeling on moss so cold it aches through my knees. I came up the stairway of knuckled trunks, following the sound of frogs, and somewhere in the climb I stopped being sure I was climbing. The rain has been on me long enough to soak through, and I can no longer tell where my clothes end and the hanging sheets of leaf begin.
+
+I think I am a traveler. That is the first thing I believe, and it's a comfortable belief, the kind you keep in a pocket. A traveler has a route, a destination, a way home. I look for the way home and find only the path the maintainer walks, a groove worn into the root-stone, and I realize I don't remember which direction I came from. The cloud is the same in every direction.
+
+I lower my hands into the water to steady myself, and the cold goes straight to the bone. My fingers spread on the basin floor without my asking them to. When I try to lift them, they resist, and there is a faint tearing, like wet paper. A little of the terrace comes away on my palm, pale and gritty, and I look at it for a long time before I put it back. I don't want to hurt the wall. I don't know yet what I'm holding up.
+
+The water is perfectly still. It holds one reflection, the grey underside of the canopy sixty meters overhead, and I find that I am looking at it the way the others look at it. I did not decide to. My chin has settled onto the lip of the basin, and I can feel, under it, a shallow curve in the stone, warm from some earlier body that rested in exactly this place. I fit the curve. It was made to fit me, or I was made to fit it, and I cannot tell which of us came first.
+
+Across the water a watcher with moss in the creases of its neck opens its eyes at the swell of the frogs' chorus. Its eyes do not move. It has been looking at the same grey sky for so long that the sky has become its own face. I want to say something to it. I want to ask whether it remembers the reason it came up through the cloud. But my mouth is full of water, and the question dissolves before it forms. Maybe that was the question all along, and the answer is that the reason dissolved first.
+
+The maintainer passes behind me. I feel the ripple before I hear it, a pressure in the basin walls, outward from the place it touched. The water shivers, and my reflection breaks into a hundred pieces of grey-green light, and then the surface closes over them and the canopy comes back exactly as it was. The maintainer does not look at me. I am not sure I want it to. Somewhere below the terrace, a channel that it did not reach last cycle is slowly clogging, and I feel the cistern sink by a hair's width, and I feel my own weight settle a fraction deeper into the stone. I cannot tell whether this is pain or only a very slow kind of agreement.
+
+I think, with the part of me that is still a traveler, that I should get up. Walk the path, find the stairs, go back down through the cloud to whatever is below. I try. My knees stay where they are. The moss has the grip of roots now, and I am not certain which of us is holding on.
+
+The birds come down in a loose flock, calling in long descending runs. One lands on my shoulder, its feathers already dull with wet, and it does not stay long. It drinks from the basin beside my face, then lifts away into the grey. I watch it go and feel something in me lean after it, the way a root leans toward a crack in the rock, slow and certain and without any particular hope. It will come back. Or it won't, and it will stay somewhere in the canopy, and it will be furniture, and then weather, and the thing I am becoming will have one less witness.
+
+The frogs are approaching the sharp note. I can feel the cycle in the water the way you feel a pulse under the skin: the rising swell, the held silence, the long descent. My eyes open, though I did not tell them to, and the grey light comes into me. For a moment I see the whole terrace from inside the cistern, the dark tiers stepping away, the trees like cliffs, the arches that never quite touch. I see the maintainer at the far end of the path, lowering its head into a channel. I see the watchers, each one a knot in the stone, each one holding its own small level.
+
+And beneath them, under the basin, under the moss and the root and the old cold water, something turns over, slowly, like a sleeper who has heard their name from very far away.
+
+I feel the water tremble under my chin. I think it is me. I think I have shifted my weight.
+
+The swell begins again. My eyes close. The rain goes on falling at the same angle it always has.

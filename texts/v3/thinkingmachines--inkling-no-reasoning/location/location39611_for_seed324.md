@@ -1,0 +1,25 @@
+Inside the casing.
+
+That is the first thing to understand: this place is not a landscape but a pocket—one intimate room embedded in the greater body of a machine that climbs far above the visible weather, that drinks from clouds at elevations where the air should be thin but is instead soaked with condensation. The environment registers 2.3 for height, 0.5 for scale; you are in the hidden marrow of an industrial spine that has not existed long enough to round its edges. The erosion value is 0.6—fresh, sharp-featured, recently emerged. Every wall still holds the bite marks of its cutting.
+
+Everything is made. The built parameter is absolute: 2.9, total construction, no natural substrate. The floor is a single curved plate of brushed steel, riveted along a seam that runs like a sutured vein. The walls rise in tight, geometric facets—copper and lead panels, some glazed with a dull gray enamel that weeps in the cool. No rock, no soil, no bone. The temperature holds at 1.3—cool, refrigerated, kept just above the point where metal becomes brittle. You feel it in your breath; it turns visible for a second, then is swallowed by the machinery.
+
+Water is everywhere near. The parameter is 2.4—wet, post-rain, marsh-edge, but translated into the industrial tongue. The steel weeps continuously. Channels of bright copper run along the walls, carrying runoff that drips, collects in shallow gutters, and is pumped away in visible, clear tubes. The air is so saturated with moisture that it clings to the rivets in beads; you can taste it—mineral, sharp, slightly electrical. Puddles form in the low points of the floor, not stagnant but moving, always in transit toward a grate that hums with suction. The water here is not wild. It has been assigned a path.
+
+But the space is sparse. Vegetation is 0.7—nearly absent, just scattered stains of copper-oxide green that have begun to bloom in the unsealed joints, and one thin, trembling filament of moss that has found purchase in a hairline crack where condensation never dries. There are no trees, no grasses, no claim of wilderness. The ecology is abandoned to rust and drip.
+
+There are no animals. The fauna value is 0.4—nothing breathes here except the machinery, and the machinery does not breathe so much as circulate. You are alone with process.
+
+And the processes are violent in their volume.
+
+The sound is absolute: 3.0, deafening. Not a single noise but a layered assault that has become the place’s only true architecture. Somewhere above and around this pocket—though the room is too small to contain them—turbines scream in their housings, gears mesh with a grinding thunder that never resolves into silence, and pipes carry pressurized steam that shrieks through valves. The roar is constant, a physical presence that presses against your chest and renders the air thick. You do not hear the water; you see it, vibrating in its channels, disturbed by the same vibrations that threaten to shake the rivets loose. Every surface shudders in sympathetic rhythm. Speech is impossible. Even thought must be loud to survive.
+
+The light is dim—0.9—fed by weak, amber indicator bulbs set behind wire guards, and by the occasional blue-white spark of an arc flashing in a distant conduit. The illumination reveals little; it mostly creates pools of shadow between the curved panels. You navigate by the glow of running water and the dim pulse of instruments.
+
+The technology is industrial, scaled, mechanized—value 2.0. This is not sleek or futuristic; it is heavy, scaled to enormous forces, functioning with the patient brutality of production. Pumps, gauges with cracked glass, belts that vanish into dark chutes in the ceiling and floor, and the constant, vibrating logic of engines that never sleep.
+
+The dynamic is 2.3—active, never still. Water flows. Steam condenses. Gears turn. The young, sharp metal slowly, imperceptibly wears, its fresh edges being polished by the very moisture that seeks to destroy them. The place is in motion, not growing organically but being processed, like all other materials here.
+
+The weirdness is only 0.5—entirely normal, entirely explicable. This is a maintenance cavity, a lung, a tear-duct in a vast constructed body. It makes perfect sense. The only strangeness is the scale of absence: the emptiness between presences—density 1.3—where scattered instruments hang in isolation, separated by wide spans of humming steel. You move through void, interrupted occasionally by a valve, a ladder rung, a cluster of pipes. The space is not crowded; it is a hidden chamber within total design, intimate, contained, a single feature embedded in the whole.
+
+It is cool. It is wet. It is deafening. It is made, young, and utterly alone—except for the relentless, roaring machinery that has built even the air you try to breathe.

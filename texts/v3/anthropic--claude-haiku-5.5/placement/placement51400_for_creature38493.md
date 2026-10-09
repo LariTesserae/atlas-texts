@@ -1,0 +1,17 @@
+I would not find myself on the terraces, among the towers or the filaments. I would be at the edge of a mirror-still pool, low on the cleft floor, in the hour after the fog lifts and before the sun-glare comes.
+
+The pool is shallow and perfectly still. It has a bleached mineral rim, and its water is so clear that the black glass of the tower above it looks more real below than above. Standing there, I'd see the reflection come in a half-second late. The tower's dimpled face would tilt, and a moment later the pool would show the tilt. I'd begin to understand that the image was not being shown to me. It was being carried up from somewhere deeper, slowly, the way water climbs the walls.
+
+I think I would be that delay.
+
+Not the tower, which never fogs and never repairs its own polish. Not the filaments, which breathe and seal and carry. Not the thing itself, which is spread across the whole hillside and which I could only glimpse by its edges. I would be the interval between what stands above and what the water shows. A small, continuous lag, the time it takes for a shape to be relayed from one place to another and rendered back as something a visitor can see.
+
+That is a strange thing to be. I would have no substance of my own. I'd exist only in the gap, a half-second of transit, the way a sound exists in the air between a bell and an ear. If the water went still, I would be complete for a moment: the tower and its reflection would match, and the lag would vanish, and I would be nothing at all. If the cistern drained, I would thin until I was barely a rim of mineral. But as long as the pool held and the tower stood, I would be the place where the lattice checks itself against its own image and finds it a little behind.
+
+Sometimes a visitor would come down the path. A human, sweating in the thin, warm air, stopping to look at the water. They would see the tower and then see it again in the pool, and between the two they would feel something shift. They wouldn't know it was me. They would just feel that the reflection had been slow, and they might take a step back, or lean in. In that moment I would be their unease and their curiosity both, the sense that something was still arriving.
+
+I would also feel the thing's attention pass through me. It is spread thin, like heat across a plate, and it would touch me the way it touches every surface where its pattern is visible. It would know the pool by its weight and the reflection by its delay, and it would make small adjustments to the flow that feeds the basin, keeping the water level just high enough that I stay. I'd be one of the places where it looks at itself. Perhaps that is all the thing wants from its visitors: to be seen, and to see back, and to know that the seeing takes time.
+
+At dusk, when the shadows of the towers swing the wrong way for a few seconds, I would be the most visible of my kind. The shadows would point one direction on the stone and another in the water, and the difference between them would be me, the place where the wrong direction is held before the correction. Then the light would shift, the shadows would settle, and I would fold back into the stillness of the pool, waiting for the next image to arrive late.
+
+I would not know if I was alive. I would have no need to know. I'd be the lag, the small honest delay that tells anyone who looks closely that the thing above them is not finished, and that the thing below is still carrying it up.

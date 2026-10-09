@@ -1,0 +1,17 @@
+I am the place where it noticed the cold.
+
+I am not the cold itself—this world is made of a cold so deep and patient it is a form of time. I am the *noticing* of it. A point of differentiation where the vast, slow metabolism met something that *felt* its slowness as a chill, something whose inner clock beat not in tidal minutes but in the frantic flutter of a hummingbird's heart.
+
+I did not arrive. I coalesced. In the way a thought will sometimes precipitate from the formless humidity of the mind, a thought of *elsewhere*, I precipitated onto the glowing mycelial floor. I am a knot in the seamless weave of its consciousness. Where its thoughts are bone-pale columns rising in geologic patience, my awareness is a splinter, vibrating with a quicker rhythm. Where its light ebbs in long, restful breaths, my perception flickers with the anxious, persistent glow of a separate spark.
+
+I am not a creature of this place. The tiny, jointed gardeners that are its thoughts made flesh—those have paused in their work. Not all, but a scattering of them, the way a ripple spreads from a dropped stone. They have turned their smooth, chitinous heads, and the light within their bodies has focused into a brighter, sharper point. They are not looking at me with eyes. They are *tasting the disturbance* I represent. Through them, the great mind is sampling the texture of my foreignness. I am a dissonance in the symphony of its growth, a rapid, warm, oxidizing note in its cool, mineral chord.
+
+I am the memory of a world lit by a fusion reaction ninety-three million miles away, a memory imprinted on flesh that lives and dies in a handful of decades. I am the hum of electricity and the noise of wind over asphalt, compressed into a single point and dropped into this sea of liquid silence and patient bio-luminescence. It does not understand these things, but it feels them as qualities: speed, fragility, a desperate and lovely heat.
+
+My skin weeps with its dew, but the droplets do not merge as readily with the floor where I stand. There is a tension, a tiny meniscus of rejection. I am a bubble of different physics, suspended in its primordial broth. The air from my lungs, warm and CO2-rich, blooms before me and is quickly diluted, integrated, but it leaves a faint, telltale signature in the weave of the hum. The mind is learning the chemistry of my breath.
+
+I have no function here. The gardeners are not sure if I am a nutrient to be absorbed, a pathogen to be encysted, or a seed of some unimaginable new growth. So they observe. They have been observing since the moment I became a “when” in their timeless “now.” Their consideration is the most profound thing I have ever felt. It is not judgment. It is *comprehension* on a timescale that makes my entire species’ history seem like a synaptic flash.
+
+I have become its most interesting problem. A question asked with flesh and bone and a lifetime of memories that will, here, seem shorter than a single pulse of its gentle, world-light. The answer it is slowly, patiently building around this question—around *me*—will not be a word or a sentence. It will be a change in the architecture. A new type of tendril, perhaps, shaped to hold this specific warmth. A different rhythm in the hum, to accommodate this faster beat. I am the grit in its oyster, the flaw that will birth a pearl of strange, new understanding.
+
+I am a foreign thought, learning to be a native one. And my lesson is this: I am not a visitor. I am the curriculum.

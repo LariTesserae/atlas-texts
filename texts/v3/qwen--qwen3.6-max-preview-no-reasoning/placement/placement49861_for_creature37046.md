@@ -1,0 +1,23 @@
+The first thing I notice is not the sight, but the sound. It is a vibration in the soles of my boots, a low-frequency thrum that travels up through the bone, syncing with the rhythm of my own heartbeat. *Thump-hiss. Thump-hiss.* The city above breathes, and down here, in the Bowl, we breathe with it.
+
+I am standing on the third terrace, near the edge of the northern retaining wall. My name is Elara, though names are less important here than roles. I am a **Tuner**.
+
+My hands are encased in thin, supple leather gloves, stained black at the fingertips from years of handling brass valves and oiled gears. I do not remove them often; the air is too heavy, the chill too biting for bare skin. Even now, wrapped in three layers of waxed canvas and felted wool, I feel the dampness seeping into my marrow. It is not an unpleasant feeling—it is the weight of belonging. To be dry would be to be empty, unanchored. Here, the moisture holds us together.
+
+I look out across the plaza. It is vast, a sea of cobblestones slick with condensation, reflecting the gray-green haze of the sky. In the center stands a solitary oak, its roots buckling the stone like veins beneath skin. Beneath it, a group of workers is performing the Morning Scraping. They move with glacial slowness, their scrapers rasping against the moss-covered gearboxes of the main pump house. They are singing—a low, resonant hum that blends seamlessly with the mechanical grind. I can hear every word, though they are fifty yards away. The acoustics of the Bowl carry their voices to me as clearly as if they were whispering in my ear.
+
+*"Hold the line, hold the stone,"* they chant. *"The water waits for no one, but the stone waits for all."*
+
+I close my eyes for a moment, letting the sound wash over me. This is how we know the health of the district. If the song falters, if the rhythm stumbles, it means a valve is sticking, or a pipe is leaking, or someone is grieving. Today, the harmony is perfect. The machine is well. The people are well.
+
+A rat scuttles past my foot, large and sleek, its fur matted with oil and rain. It pauses, twitching its nose, then continues along the pipe network embedded in the brickwork beside me. I do not flinch. We share this space. I reach into my pocket and pull out a small crumb of hardtack, dropping it silently onto the wet stone. The rat takes it without hesitation. A trade: sustenance for companionship. In the Upper City, perhaps they would call it a pest. Here, it is a neighbor.
+
+I adjust my collar, pulling it tighter against the drip of condensation falling from the ivy-choked eaves above. The droplets bead on my eyelashes, blurring my vision slightly, softening the harsh edges of the world. Everything is blurred here—the boundary between man and machine, between nature and industry, between self and other.
+
+I begin my walk toward the echo chamber in the western alley. There is a report of a slight irregularity in the steam pressure from Sector Four. It is not urgent—nothing is urgent here—but it requires attention. I will listen to the pipes, place my gloved hand against the vibrating metal, and feel the pulse of the system. I will tighten what needs tightening, lubricate what needs soothing. I will work slowly, methodically, respecting the Slow Cycle.
+
+As I pass the central canal, I glance at the water. It is murky, churned by the runoff from above. But for a fleeting second, the mist clears, and the surface becomes still. For a heartbeat, I see the reflection of the sky—not the gray, smog-choked ceiling of our world, but a bright, clear blue. A sun without clouds. A world without damp.
+
+I look away quickly, my heart skipping a beat. The Mirror-Watchers warn against this. *To gaze too long is to invite the reflection to step out,* they say. I do not know if it is superstition or truth, but I feel a sudden, sharp longing—a phantom sensation of dry heat on my skin, of crisp paper under my fingers. It is terrifying. It is seductive.
+
+I shake my head, clearing the image. The damp is real. The thrum is real. The slow, grinding patience of the Bowl is my home. I continue walking, my steps silent on the moss-carpeted stones, listening to the symphony of the district. The piston engines thump. The birds chirp. The workers sing. And I, a Tuner of the Cistern, add my own quiet breath to the chorus, another note in the endless, wet song of the Reservoir Ward.

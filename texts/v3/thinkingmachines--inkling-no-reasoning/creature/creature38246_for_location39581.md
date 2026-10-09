@@ -1,0 +1,15 @@
+Here lives the Plate: a continental shelf of darkness spread at 1.7 elevation, neither peak nor valley, but a dark state at 2.7 scale—so broad it holds its own stillness.
+
+What lives is not built—built presence is 0.3, nearly absent—so there are no walls, no monuments, no enclosures. Instead, there is mechanized flora at 2.3 industrial presence: turbines half-buried in warm basalt, their blades turning on air that smells of ozone and mineral heat, powered not by intention but by the gradient between the 2.0 warm fractures below and the hidden cold streams far beneath. They are scattered like seeds across 1.0 density—much emptiness between them—each isolated in its own acoustic shadow, running because they have forgotten they ever served another purpose.
+
+The ground itself lives in settled erosion—1.7—worn into patience. Ridges have the rounded grammar of old mountains that have kept nothing back, flattened slowly into the plane in a long-breathed weathering that is not violent but continuous, at rest in its progress.
+
+Life is abundant—2.1 fauna—though abundance here is occupation rather than crowding. In the 0.2 light, where darkness is substance rather than absence, long translucent grazers drift near thermal vents, filtering warm mist, bodies pulsing with the only colors in this world—pale blues, sickly yellows—like stars pulled low to the ground. Smaller scavengers dart between turbine bases. All navigate by heat signatures, feeding in a constant biological pace, decomposing into the warm soil, maintaining the 1.7 dynamic activity that never sleeps.
+
+What is barely present is water: 0.6. It lives as rumor—intermittent films beading on black metal flanks at dawn, quick rain that evaporates before striking the ground, dark tongues in hidden fissures far below. Moisture collects in sheens and pockets, always retreating into the larger dryness that claims everything.
+
+The air is 2.0 warmth, rising constantly from deep fractures, never breaking sweat on skin that exists here without birth. Vegetation—1.4—is sparse but persistent: burnt purple and rust lichen staining the basalt, a filament stretching toward chemical glow, tufts at vents. Nothing tall, nothing soft. Only low clinging, scattered across the vast darkness.
+
+The sound is 0.9—mostly quiet, never silent. A low-pressure hum: machinery breathing, wind moving across settled ridges, the slow crack of cooling stone, and occasionally a turbine shifting gear with a sound like a whale exhaling underwater—deep, round, and gone before it can be placed.
+
+Weirdness is embedded at 1.0—unusual but unquestioned. The fauna do not sleep to any star; condensation pools where no vessel holds it; the machines are flora now, self-maintaining organisms in a 1.0-spread of empty space, while hidden riverine traces run far below, carrying the secret 0.6 of moisture through a world that has settled into its own form and keeps breathing in the dark.

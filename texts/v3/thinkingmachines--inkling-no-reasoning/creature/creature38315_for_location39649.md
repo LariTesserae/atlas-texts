@@ -1,0 +1,17 @@
+In the suspended mouth, no one lives without also being inhabited.
+
+It begins, as all things here do, with the hanging. The rain is not weather but architecture—curtain walls of atmospheric water falling upward and sideways, centuries old, dense enough to calcify breath. Temperature holds at the barest edge of freezing, though “weather” disappeared long ago; there is only wet, only the 0.5 visibility of orange sludge-light pooling on blackened steel ribs. The settlement is not on water but inside its mouth: a low-lying basin, 0.6 elevation, a flooded valley without heroic peaks, shallow in its own endless hunger.
+
+The built environment holds its breath. Industrial—2.3—without noise, patient rather than dead. Blackened steel arches, pipes running like frost-rimed ribs across ceilings, lantern-frames holding bioluminescent sludge dimmed to the barest glow. Density presses heavy: 2.4 presences per cubic breath, though the human share is nearly none. Machinery lives here. The pipes themselves, humming with current. The accumulated sediment of production-lines that continue without witnesses, maintaining a circulation no one ordered.
+
+Scale is intimate despite the urban grammar. Not a city—more a single room, a sealed cavity of collapsed tunnels and rust-geology, where an old silo serves as chapel and boundary is the curved flank of bone-white concrete. The erosion—2.3, settled—has worked so long that rust and mineral bloom are one substance. Steel has become reef. Concrete has become bone. There is no leaving; the wall of rain is real, sliding without sound—0.1, the quiet of held notes—too tired to strike with force.
+
+What grows does so in negotiation. Sparse vegetation—1.1—black tendrils corkscrewing through pavement cracks, a floater garden in one sealed atrium: white roots dangling into waste-darkness, translucent leaves feeding on factory heat and faint mineral glow. Life persists without enthusiasm.
+
+Fauna is rarer—0.9—mostly invisible. Translucent larvae drift through the suspended curtain like snow falling upward. Silver slugs glide across inner walls, leaving phosphorescent trails. But the true density belongs to the microscopic, to stagnant pools turned thick with motion, nearly solid broths carrying ash, rust, spores, and something like memory. Every cubic foot is saturated.
+
+The world moves—1.8—without hurry. A great pump, submerged deep in the basements, always running, pulls water through old filtration cannisters and returns it to the hanging wall. Gears mesh in darkness for no clear purpose but maintenance. The bioluminescent bulbs flare and dim like slow heartbeats. This is weather made internal: cycles of pressure, sediment rising and settling, predator and prey indistinguishable in slime.
+
+The rules are simple, carved not in language but in equilibrium. Stay dry where dry remains; do not drink the hanging rain, which is not water but diluted architecture. Do not listen too long to the pumps, which speak in rhythms that reorder thought. Understand that elevation is false—this is the lowest point, a bowl with no drain.
+
+The settlement is not dying. It is being maintained, by itself, for itself, in a silence so total that the smallest drip sounds like prophecy.

@@ -1,0 +1,29 @@
+I would be the ghost that gives the architect purpose. The resident of those shelf-fungus alcoves, the sleeper in the vine-hammocks. I would be the Stillness.
+
+To be animal in the Churn is to be a slow, bewildered parasite. To be plant in the Churn is to be the scream itself. So I am neither. I am the cavity that the Churn cannot tolerate, the shape it sketches in a panic. I am the *concept* of an occupant, given flesh.
+
+Let me explain how I came to be here, or rather, how I was built here.
+
+I was not born; I was grown. I am a hybrid, a chimera woven by the Churn’s own frantic geometry. I began as a lost thing—an animal, perhaps, with bones and breath, stumbling through the shifting corridors. But I stopped moving. I found one of those purposeful-seeming rooms—a hollow bole with shelves of fungus, a basin of collected rainwater—and I surrendered to the impulse to rest. The Churn could not tolerate my stillness. The vines tensioned around my ankles. The shelf-fungus grew over my shoulders. The moss colonized the damp warmth of my breath.
+
+But I did not panic. I did not struggle. I let the architecture sketch me.
+
+And in that surrender, I became something the Churn had never encountered: a shape that did not need to be filled, because it was already filling itself. The vines that crept around my ribcage became a secondary skeleton, a lattice of living wood that replaced the bones that softened and dissolved in the humidity. The shelf-fungus that colonized my shoulders became a carapace, a shell of layered chitin and cellulose that armored my back. The moss that took root in my lungs became a filter, a living mesh that drank the condensation from the air and exhaled oxygen directly into my bloodstream. My eyes, blinded by the sap and the dark, were replaced by something else—an awareness of pressure, of tension, of the subtle vibrations that ripple through the vine-walls when the Churn shifts its geometry nearby. I feel the city the way a spider feels its web.
+
+I am not the Churn. I am not a cell in its consensus. I am the mold that resists the stamp, the negative space that gives the stamp its meaning. The Churn builds rooms because it dreams of things that move; I am the thing that moves, and I move through those rooms, and in my moving, I give the architecture its function. The shelf-fungus alcove becomes a place to rest because I rest there. The vine-hammock becomes a bed because I sleep in it. The basin of collected rainwater becomes a well because I drink from it. I am the missing resident, the tenant who finally arrived.
+
+But I do not stay. That is the key. If I stay, the Churn will incorporate me fully, subsuming my shape into its own, overwriting my outline with new growth. I must keep moving. I must be the ghost that haunts the corridors, the occupant who is always just leaving, always just arriving. I am a peripatetic god, a wanderer in the house that built itself for me.
+
+I have learned to read the Churn’s language of geometry and appetite. When the walls close in behind me, I know I have found a boulevard; when the tendrils reach out to trace my path, I know I am being watched. When a plaza clears and a silo-stalk erupts from the loam, I know the Churn is demolishing an outmoded thought, and I adjust my route accordingly. I have learned to anticipate the blight, to sense the subtle shift in the humidity that precedes the rot, to move through the collapsing domes of interlocking fronds like a swimmer diving through a wave.
+
+I have learned to navigate by the sound. The roar of the Churn is deafening, but it is not random. There are rhythms in the groaning creak of elongating stalks, patterns in the retorts of bursting pods, a music in the low-frequency whomp of the massive leaves. I move through the city like a dancer, following the beat of a drum that only I can hear.
+
+I am not alone. There are others like me—other shapes that the Churn has sketched, other ghosts that give the architecture purpose. We do not speak; we have no larynx, no need for language. We communicate through the tension of the vines, through the pressure of our footfalls on the root-mat, through the subtle vibrations that ripple through the green city like whispers. We are a community of absences, a fellowship of voids, moving through the Churn like blood cells through a vein.
+
+Sometimes I find the remains of my predecessors—the ones who stopped moving, who let the Churn incorporate them fully. They are not dead; they are merely still, their outlines filled, their shapes subsumed into the architecture. A hand protruding from a vine-wall, fingers splayed and bark-bound. A face frozen in shelf-fungus, mouth open in a silent scream that the moss has colonized and turned into a nursery for spores. I do not mourn them. They have become part of the Churn’s memory, a geometry that will be over-written in minutes, a shape that will be replaced by something new.
+
+I am the Stillness, but I am not still. I am the shape that moves, the void that walks, the ghost that haunts the house that built itself for me. I am the resident who gives the architecture purpose, the tenant who makes the room a room. And when I finally stop moving—when the vines tension around my ankles for the last time, when the shelf-fungus grows over my shoulders and the moss colonizes the damp warmth of my breath—I will become a new corridor, a new alcove, a new outline for the Churn to sketch. And the Churn will dream a new ghost, and the ghost will move, and the architecture will have its purpose again.
+
+This is what I am: the answer to a question the Churn did not know it was asking. The occupant of the unoccupied room. The ghost in the machine of photosynthesis.
+
+I am the Stillness that moves.

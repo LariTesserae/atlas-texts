@@ -1,0 +1,79 @@
+The Crown is inhabited less by separate species than by a single dispersed economy of life. Its citizens eat one another’s breath, sleep inside one another’s bodies, and travel along structures that are at once streets, skeletons, and roots. No organism could claim to own the city. Almost none could survive beyond it.
+
+The columnar growths are its foundation species. They are not trees, though their branching silhouettes invite the name. Each begins as a dark seed-grain lodged in a warm crack: a ceramic shell containing folded protein filaments, catalytic dust, and a minute reserve of wax. Heat wakes it. The first growth is downward, toward trapped volcanic gases; the second spreads flat across the stone, fastening itself by thousands of glassy hairs. Only after securing both heat and chemistry does it raise a rib into the air.
+
+Mature columns are colonies rather than individuals. Their outer walls consist of overlapping mineral scales secreted by living threads beneath. Deeper layers contain dry, branching capillaries through which warmed gases move by expansion and contraction. There is no central fluid circulation. Nutrients advance as molecules passed from chamber to chamber, each transfer induced by tiny differences in heat, charge, or pressure. A substance may take days to cross a trunk.
+
+Within the wall live the bloomers: thimble-sized, many-segmented animals whose clustered bodies resemble dull beads pressed into honeycomb. They graze on fungal films and condensed salts, then exhale reactive compounds the columns cannot efficiently produce for themselves. The walls keep them warm and protect their eggs. When a colony becomes too large, winged forms emerge through temporary pores and glide to another tower. Their wings are almost weightless lattices stretched with oily membrane. Once landed, they shed them and consume the membrane before entering their new chamber. Nothing useful is abandoned.
+
+The broad scales along the streets come from the columns’ outer armor. Beneath each fresh scale, colonies of microscopic life work in darkness, sorting airborne dust into silica, metals, carbon, and waste salts. When the chemistry below changes, the scale detaches. Its matte upper face has been etched by the air; its underside remains polished by intimate contact with the living wall. Ground-dwelling creatures shelter under the curled edges, especially during the lean season.
+
+Most visible among these are the claspbacks, six-legged grazers no longer than a hand. Their flattened bodies carry plates patterned like whichever surface they last fed upon. The pattern is not pigment alone. Tiny movable crystals in the plates rotate in response to vibration and temperature, changing reflection from black to bronze to salt-green. A claspback crossing several kinds of wall acquires a confused patchwork, then becomes still until its disguise settles.
+
+Its front pair of limbs ends in combs. With these it brushes films from the wall and packs them into a dry bolus. The middle legs hold it flat; the hind legs sense tremors conducted through the Crown. Its mouth is hidden beneath the chest, safe from abrasive dust. When threatened, it does not flee. It locks every joint, drops its temperature, and becomes another scale.
+
+Claspbacks lay strings of ceramic eggs inside narrow seams. The young hatch with transparent shells and spend their first weeks within the wall’s warm outer layers, feeding on microbes. Many never emerge. Those that die are dissolved by the column or incorporated as reinforcement around a growing conduit.
+
+Higher in the Crown hang the creasewings. At rest, each resembles a packet folded from black paper, all angles and sealed edges. They feed at the banks of tiny cups in the canopy, piercing the cups to drink oily concentrates rich in captured carbon and sulfur. “Drink” is only approximate: the concentrate is drawn into absorbent cords inside the mouth and sealed there as wax before it enters the body.
+
+Creasewings are among the few inhabitants that cross open gaps. Even they do not truly fly. At dusk they release their grip, unfold, and let rising heat carry them through the streets. Minute adjustments of their pleated wings determine where they settle. Their courtship takes place through flashes. Metallic patches on the underside of the wings turn from tarnished green to bright copper as the animal flexes them, producing silent sequences visible across a courtyard.
+
+The long browsers of the upper lattice are called spanwalkers only because their proportions suggest it. A mature one may extend across several fused branches while weighing less than a small terrestrial bird. Its body consists of repeated jointed chambers linked by cables of dry muscle. It has no single heart. Each chamber maintains its own sluggish circulation of warm oil and passes nutrients to the next.
+
+Spanwalkers move continuously, but at a rate too slow for ordinary attention. Their foreparts rasp old mineral blades from the canopy. Behind the mouth, attendant mites clean the exposed surface and inoculate it with new symbiotic films. Farther back, the browser deposits a filament of nitrogenous material along the branch. Thus feeding leaves the Crown more fertile than before.
+
+Their electrostatic feet are broad, soft pads furred with microscopic fibers. Before each step, the animal charges the next pad against its own plates. Dust leaps upward to meet it. Some dust is consumed; some is compressed into a temporary foothold. A spanwalker’s passage can leave a faint raised trail that persists for years and may eventually guide the growth of a new branch.
+
+Because their bodies are modular, old spanwalkers seldom die all at once. The rearmost chambers detach, seal themselves, and remain clinging to the Crown while the younger front continues onward. Detached portions are entered by scavengers and gradually hollowed. Some become nests. Others are overgrown and serve as braces where branches join. A tower may contain the articulated remains of many generations without any clear boundary between animal corpse and architecture.
+
+The chief scavengers are threadmouths. They are pale, limbless things that enter a dead body through a pore or soft joint and unravel it from within. They digest only selected compounds. Structural fibers, armor, and rare salts are left in place, while useful waxes are packed into their own expandable segments. When full, a threadmouth divides. One half remains to continue feeding; the other crawls through the shared conduits and exchanges its cargo with the wall.
+
+This makes decay nearly invisible. A dead claspback may remain perfectly posed for months while its contents become a population of threadmouths. Eventually the empty plates loosen and fall. A dead spanwalker can persist for decades as a hollow rail among the branches.
+
+Predators exploit the city’s patience.
+
+Latchers occupy wall niches and resemble crooked lengths of fused growth. Their bodies are asymmetrical, shaped during youth to match a particular recess. After choosing a niche, a latcher may never leave it. Its limbs brace against the walls; its feeding arm lies across a route used by claspbacks and other grazers. Sensitive hairs detect an approaching vibration and distinguish prey from harmless movements in the structure. The strike is a single contraction. The prey is punctured, injected with solvent, and held motionless while its internal waxes soften.
+
+A latcher may feed only a few times in a warm season. Between meals it exchanges gases with the wall through its feet. In return, its waste products stimulate growth around the niche, deepening and refining the shelter. Very old latchers become almost entirely enclosed. Only the feeding arm remains visible, projecting like an ornamental bracket from the architecture.
+
+Seedpod hunters hang from arches by braided tendons. Their shells duplicate the reproductive capsules of the Crown so precisely that actual capsules sometimes fuse to them. They prey chiefly on creasewings. When one brushes the shell, the hunter opens along a seam and closes around it. The dry tap heard in a quiet street is often this shell shutting.
+
+Not all inhabitants are animals. Bronze films spread across young black walls, each film a consortium of organisms only a few cells thick. One species captures light; another binds atmospheric molecules; a third manufactures the oil in which the chemistry occurs; a fourth repairs damage caused by ultraviolet radiation. Removed from the consortium, each dies. Together they make the city’s first skin.
+
+Later come the green salt-bearers, which grow forests of microscopic crystals. These crystals are both waste and protection, reflecting excess heat while storing reactive compounds for lean periods. Claspbacks strip the crystals away, but in doing so carry fragments of the film to new walls. What appears to be grazing is also pollination, pruning, and transport.
+
+Deeper inside the towers live carrier grains: animate particles smaller than seeds, enclosed in rigid shells and propelled through conduits by changes in pressure. They collect specific molecules from one chamber and release them in another. They have no independent means of feeding and cannot reproduce outside the column, yet they are not merely organs. When conduits from two towers fuse, carrier grains of distinct lineages meet. Some attack one another chemically. Others exchange catalytic fragments and produce new varieties, after which the joined towers may alter their growth.
+
+These hidden migrations create much of the vibration detectable through the walls. A feeding pulse begins in a sunlit crown and descends as a sequence of contractions. A gas fissure changes composition; nearby columns signal distress; pores close district by district. Bloomers begin to stir in their chambers. Claspbacks flatten. Creasewings fold tighter beneath the arches. The message crosses the Crown not as thought, but as coordinated chemistry.
+
+At the center, where the tallest towers enclose the warmest courts, the inhabitants are more interdependent and more specialized. Pale vent-tenders cluster around conduits rising from the mesa. They resemble bundles of jointed wire, each limb carrying fans of sensory hairs. By opening and blocking tiny channels, they regulate the mixture of gases entering the walls. They feed on secretions provided by the columns and cannot digest anything else.
+
+No individual vent-tender understands the flow. Each responds only to heat, pressure, and the chemical state of its own small patch. Yet thousands together prevent toxic gases from flooding the inner chambers. When one dies, its neighbors push the rigid body into the conduit, where it becomes a valve or filter. The city’s circulation is partly governed by its dead.
+
+The spiral interiors of the towers shelter larger animals during the lean season. Low, many-footed vaultbacks descend from the canopy and wedge themselves along the central shafts. Their overlapping armor seals neighboring bodies together until they form a living plug. Warm gas filters through pores in their plates, losing heat slowly. Smaller creatures gather below. The vaultbacks survive by consuming wax stored in their armor, becoming thinner and more translucent as the season passes.
+
+When abundance returns, they separate in reverse order. Those deepest in the shaft emerge first, pale and soft, climbing the spiral ridges toward the light. Their movement wears the regular steps into the walls. Generations following the same gradients deepen the path until it resembles a deliberate stair.
+
+Reproduction throughout the Crown depends on coincidence carefully cultivated over long spans.
+
+The great columns produce no airborne pollen. Instead, they grow lattices of brittle spines across openings where creasewings and spanwalkers must pass. Contact snaps microscopic tips from the lattice. The fragments adhere electrostatically to the traveler and are deposited on another growth. Compatible fragments dissolve into one another, forming a seed shell grain by grain. The seed may remain embedded for years until a crack opens, heat rises, or a supporting wall fails and exposes bare stone.
+
+Many animals likewise entrust their young to the city. Latchers inject eggs into fresh column scales. Creasewings seal eggs inside abandoned collector cups. Spanwalkers carry dormant offspring in rear body chambers that detach only when the surrounding branches have reached a suitable thickness. The Crown is nursery, mate, food source, and dispersal mechanism for nearly everything within it.
+
+At the mesa’s rim live harsher forms. The outermost columns are short, heavily armored, and bent toward the ground. Their sails trap dust blown across the highland, sacrificing exposed surfaces to abrasion. Beneath them shelter edge-runners, among the fastest creatures in the city, though their speed amounts to a brief scuttle from one shadow to another. Their bodies are round and mirrored, reflecting heat. They harvest fallen fragments below the overhangs and push them into cracks where new growth can use them.
+
+Few return from the pale waste if they stray beyond the Crown’s conducted vibrations. Deprived of the constant tremor underfoot, an edge-runner loses orientation. It circles, overheats, and seals itself into dormancy. Some remain as bright beads on the bare ground, waiting for shade that may not reach them for centuries.
+
+The unfinished western district has its own pioneers. The needle pillars there are young cooperative growths, each too fragile to persist alone. Hair-fine threads connect their pores, distributing trace gases and equalizing charge. Along these threads travel mote-herds: animals scarcely larger than dust grains, with hooked feet and bodies consisting mostly of catalytic gut.
+
+They appear to carry nothing because their cargo is molecular. At one pillar they absorb a gas into the lining of the body; at another they release it in exchange for wax. Their two-way traffic keeps the young pillars chemically synchronized. If one begins to fail, the mote-herds abandon it. The surviving pillars then draw away, so that weakness produces a gap rather than a collapse.
+
+At sunset, unequal cooling makes the pillars bend. Their living fibers contract on the shadowed side, leaning each tip toward the warm infrared glow of its neighbors. The mote-herds concentrate near the ends, exchanging catalysts that soften the translucent shells. Eventually two tips will meet. Their surfaces will dissolve at the point of contact, then harden as a single arch.
+
+Only afterward will the roof thicken. Dust-catching films will spread over it. Creasewings will shelter below and leave chemical traces. Claspbacks will follow those traces to graze. A latcher may settle where their paths converge. Bloomers will colonize sealed chambers in the pillars. Warm gas will be redirected through the new junction. What begins as contact will become metabolism; metabolism will become structure; structure will create inhabitants suited to it.
+
+There is no ruler among these beings, no planner concealed beneath the mesa, no species for whom the others labor. The Crown remembers through form. A successful passage is reinforced because it is used. A warm chamber grows thicker because life gathers there. A dangerous opening closes because the creatures around it alter the gases. Repeated exchanges become conduits; repeated climbs become stairs; repeated sheltering becomes a room.
+
+Its inhabitants do not perceive a city. Each knows warmth, pressure, hunger, chemical familiarity, the tremor of an approaching body, and the difference between the shared structure and the lethal silence beyond it.
+
+Together, those small recognitions are enough to build towers.

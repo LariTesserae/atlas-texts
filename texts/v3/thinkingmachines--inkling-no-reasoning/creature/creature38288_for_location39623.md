@@ -1,0 +1,11 @@
+The grid-block is shallow—cathedral breadth, breath-scale height—a vitrified tray that is the ground itself, low-lipped, holding air at 1.2 dampness so that moisture arrests: beads pinned to gantry iron, never falling, never freeing, a riverine stasis in each joint of gearboxes long still. Temperature holds at 1.1, the cool of buried stone, of machinery that forgot fire. No vegetation—no moss, no mineral creep—only blackened rail-lattice and slag polished smooth by absent weather, erosion fixed at 2.0, settled into grammar.
+
+Built density is 1.7, scale 1.4: a hamlet of industry arranged without need of citizens, foundries shoulder to shoulder, smokestacks open to sky they do not breathe, parallel pipelines in ribs carrying nothing, electrified but unarcing. Streets are cast iron, plazas grating—urban, layered, organized—yet the space between is vast, sparsely filled at 1.2. Light enters flat at 1.6, frosted wire-glass, never shifting; shadows do not move. Dynamic holds at 0.4—frozen-equilibrium, invariant, no gradients, no readable time.
+
+But the fauna: 2.7, overwhelming. They are not infestation but upholstery—countless, dull zinc and rust-brown and graphite, blurring into continuous membrane across every surface. They do not crawl; they settle. They do not feed; they maintain, clustering in damp pockets, in gear-teeth, along silent conveyors, filling the 1.4-scale square with ecological pressure that is not named life.
+
+Sound holds at 2.4—loud not as event but as chord: low, mechanical, resonant, single and unvarying, whether from massed bodies vibrating against iron or the iron humming back. A drone that fills the void.
+
+Weirdness is 2.2—strange in refusal. Industrial yet inhuman. Urban yet uninhabited. Biological yet mineral-adjacent. The presence is maintenance, part of the 2.0-erosion equilibrium.
+
+Here, nothing drives. Water does not flow. The drone does not shift. Only the overwhelming presence waits, settled, eternal, in the spaces between machines—making the place complete, never changing, entirely itself.

@@ -1,0 +1,31 @@
+# What the Attention Did
+
+It did not arrive the way weather arrives. There was no wind or pressure change, no sign on the rim. It settled on the cirque the way the cloud does, slowly and from every side at once, until the whole bowl was held in a regard that was neither hungry nor idle. It was patient, and it had been patient for a long time before it ever looked at Hesk Ardal.
+
+For the first cycle it only listened.
+
+It heard the piston fall. It heard the blow strike the floor of the bowl and travel up the walls, and it heard the far wall give back the echo half a second late, weaker and rounder, the second heart answering from another room. The attention noticed this and was pleased, the way one is pleased by a good rhyme. Then it heard the valves shriek and the steam come out of the brass stacks, and the water roar through the chutes, and the silence after, in which the swifts dropped from the girders like thrown seed. The sequence was complete. The attention understood, without being told, that the sequence had never varied, and that it had been kept running by a machine that did not know it was keeping anything.
+
+Then it began to count, because counting was what the place seemed to ask for. It followed the grazer around the bowl through nine cycles, watching it fold its neck among the ferns, stand like stone under the blow, and step on when the echo faded. It watched the lizards go flat against the pipes. It watched the beetles cling to the drains during a surge and then return to the mineral film. It followed the mist as it lifted off the lowest terrace and drifted toward the rim, and it followed the water down the channel and over the lip and into the valley, where the pale reeds stood in their fields with their heads turned up toward a hour they could not see.
+
+Then it considered whether to do anything.
+
+The temptation was real. The attention could see how much the works wasted: the buried fire burned hot and most of its heat went up into a cloud that mostly fell back into the bowl. It could see the valves that stuck, the cracks that wept, the trees that had grown through the iron and split the frames. It could see that a few hundred years of clean repair, a new seal here, a new bearing there, a rerouted flow, would make the machine efficient and sound and quiet. It could have made the pistons fall in a clean and orderly way that never drew a single echo off the far wall.
+
+It did not, and the reason it gave itself was short. Every efficiency it might have added would have changed the rhythm, and the rhythm was the thing everyone in the bowl depended on. The swifts had their pauses. The lizards had their stillness. The grazer had its count. The reeds had their hour. Fix the works into a different shape and all of those lives would have to be relearned or lost, and no one would have asked them. A wise power, the attention thought, is careful about the difference between helping a thing and taking its shape away from it. A ward is not the same as a garden.
+
+So it looked for the one thing that would hurt.
+
+It found it near the upper chutes on the north side of the rim, where a condensate pipe had cracked along a seam and the crack was growing. The moss could not seal it. The seal was too wide and the pressure too high, and the next surge would tear the chute open and send a torrent down the channel that would scour the lower stream bed and flood the reed-fields in the wrong season. The attention could see the crack's path clearly. It could see where the metal was thinnest. It could see that the iron would fail in one place and only one.
+
+It did not replace the pipe. It did not bring a crew of hands from somewhere else in the world, because there were no hands, and because a rescue of that kind would have left a mark the works could never read as its own. Instead it did something small and close. It let the corrosion along the seam slow, by a fraction, so that the iron held a few cycles longer. It let the moss at the wound thicken, so that the seal the works was already trying to grow would be finished by the time it was needed. It nudged the timing of one surge by the length of a breath, so that the pressure bled off on the way down rather than all at once. The works did not notice any of this. It did what its shape asked, and the shape had been given a little more room.
+
+The attention thought about the question too. Whether the works had been built to feed the valley, or whether the valley had only ever been what its breath reached. It could have answered. It knew the answer, or part of it, in the way that one knows the shape of a dream while still asleep. But an answer from outside would have been a kind of theft. The question belonged to the bowl, to the reeds that flowered by it, to the people who had once walked these terraces and had gone away without writing down what they meant. So the attention left the question where it was, open, the way the rim is open to the sky.
+
+It did one more thing, and this one was for the people, if any came. Somewhere far below, a human walking the wrong road in some future century might one day climb the cirque, find the lull between two pistons, and stand in the warm wet air listening to the second heart come back from across the bowl. The attention arranged nothing for that person. It only made sure that the lull would still be there, and that the echo would still arrive late and soft, and that no one who came to listen would be struck by a falling piston by mistake.
+
+Then the attention began to withdraw, the way a cloud lifts off a terrace when the sun moves.
+
+It did not leave the bowl empty behind it. It left the regard the way the works left its mist: a little warmth that drifted toward the rim and spilled over and was gone. The piston fell one more time. The blow went through the floor and the sternum and the stone. The echo came back from the far wall, late, weaker, rounder. The valves shrieked. The water roared down through the chutes and over the lip, and the reeds in the valley turned their pale heads toward an hour they did not know they were answering.
+
+And somewhere in the white lid of the cloud, something that was not a machine and not a god and not quite a witness counted the stroke, and found it good, and let it be.

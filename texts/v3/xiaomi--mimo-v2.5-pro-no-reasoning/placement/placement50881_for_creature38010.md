@@ -1,0 +1,15 @@
+I would be a **cairn-builder**.
+
+Not by choice, or by birthright, but by a slow, inevitable gravity. I would be one of them—the chalky-skinned, silent figures—but one whose hands, through some genetic quirk or childhood exposure to a particularly resonant fissure, cannot rest. While others find peace in the gradient seeing and the bone-deep hearing of the land’s groans, my perception is… *constructive*.
+
+I would not work with words or hums. My language would be the careful, tactile negotiation of stone against stone. I would move along the worn pathways not just to traverse, but to listen *through my fingertips*. A spire that sings a certain frequency when the mist condenses upon it—a note others hear as a passive sound—I would feel as an *instruction*. That stone, that particular shard of obsidian-sharp basalt, belongs *there*, balanced upon that worn, iron-tasting pebble.
+
+My house would be no different from the others, low and huddled. But within, the slabs would not be bare. They would be covered in my silent cartography: arrangements not of maps of mist, but of *potential*. Stones sorted by their resonance, their weight, their sheen when wet. My tools would be the simplest—the same sharpened shards and pounders—but my hands would know a library of textures the others ignored. The slight grittiness of one moss-covered face versus the glass-slickness of a water-carved groove.
+
+I would be respected, but perhaps slightly feared. The others understand the language of settlement, of occupation. My activity is one of *disruption*, albeit a quiet one. To take a stone from its long, geological rest and place it in a new conversation with another—that is a kind of heresy. I am not creating a story, but I am, in my own way, speaking back to the silence. I am imposing a human rhythm, however slow, upon the geologic one.
+
+My life would be a rhythm of pilgrimage. I would walk the flat expanses, feeling the seep of groundwater through the soles of my broad feet, listening. Then, I would carry. A stone for days, or weeks, cradled in the crook of my arm, feeling its particular temperature against my clammy skin, until I found its partner. The construction itself would take longer. A day to choose the exact orientation. An hour to place it, the faint, dense *thunk* as it settles feeling, to me, like the loudest sound in the world.
+
+The other gatherers would pass by my work-in-progress without a glance, their pale eyes taking in the gradient of mist, not the geometry of my intent. But sometimes, perhaps, one would pause. Not to look at the cairn, but to feel the subtle change in the air around it—a new, tiny vortex in the mist, a different hum from the stone now that it is paired. And they might give a slow, lidless blink. Not approval. Acknowledgement. A recognition that the silence has been… *edited*.
+
+I would be the basin’s quiet anomaly. Not a creator, but a curator of resonances. My purpose would be to listen to the pressure, and to answer it, stone by stone, with a geometry of stillness. I would be the place where the plateau’s patience becomes, however briefly, *art*.

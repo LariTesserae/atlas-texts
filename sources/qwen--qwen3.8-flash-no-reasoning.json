@@ -3,12 +3,13 @@
   "requested_endpoint": "qwen/qwen3.8-flash:no-reasoning",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-10-08",
-  "date_last": "2026-10-08",
-  "texts": 180,
+  "date_last": "2026-10-09",
+  "texts": 441,
   "by_type": {
-    "location": 180
+    "location": 250,
+    "creature": 191
   },
   "evidence_grades": {
-    "event-observed": 180
+    "event-observed": 441
   }
 }

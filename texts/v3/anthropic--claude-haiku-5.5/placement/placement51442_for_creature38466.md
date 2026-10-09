@@ -1,0 +1,21 @@
+I would arrive the way the mist does, from the rim, sliding down the slope in the early morning when the basin is still wrapped in warm white air. The concrete lip would be cold under my hands. Below me the canopy would look like one continuous green surface, and I would have to take it on faith that there is water under it.
+
+Then I would go down. The path would be easy. The creepers give under a foot and the reeds bend aside, and within a few hundred meters I would be among the stacks and gantries, in the cut-stem smell, where the light comes in broken and gold. The drip would begin before I saw any water. Every leaf is hung with it, and the drops gather at the leaf tips and fall, and after a while the sound becomes the only thing I'm listening to.
+
+I would not be a person in this place. I would be a drop.
+
+I'd form on the underside of a broad leaf in the cool hour before the sun reached the pump hall, condensing out of the mist that rose off the water the night before. I would not know that I was made of the basin's own warmth. I would only feel the weight of myself increase, a little at a time, until the leaf could no longer hold me and I let go.
+
+The fall is short, a few body-lengths through the green. I would pass a moth's wing and a strand of white fungal web, and then I would strike the creeper mat, and the mat would take me the way it takes everything, quietly, without any sign that it had noticed. For a while I would sit in the fleshy leaves, feeling the cold seep through them. Then the mat would draw me down, through the stems and into the wet concrete, and from there into the channel.
+
+The water is where the basin decides things. At the edges it is clear and still. At the center it is dark, and the bubbles that rise through it pop with a sound I could feel against my surface. I would be pulled by a current I can't see. It would carry me along the old lines of the works, past a gauge face fogged white on its bracket, past a split joint hissing its long breath, past a root as thick as a tendon dropping into the water, until I came to the intake.
+
+This is where the water is coldest at the bottom and warmest near the top. The layers would press against me. I would be lifted, slowly, by something rising from below the place I could sense, and I would feel the upwelling as a kind of attention, spread across the whole basin, reaching for me the way a hand reaches for a tool it has used many times.
+
+Then I would rise again to the surface, and the warm air would take me, and the mist would carry me up into the canopy, and I would condense on the underside of another leaf.
+
+I think this is what I would be: not the knocking, which keeps the beat, nor the pipes, which hold the pressure, nor the gauges, which remember a time when the water stood high. I would be the small, repeated thing that carries the water up out of the channels and back into the leaves, a single unit of the loop that keeps the Sump's circulation going. I would not be important to it. No single drop is. But the basin would not work without drops like me.
+
+I have wondered, standing over the intake, whether the water comes from somewhere beyond the rim or whether it is the Sump drawing on part of itself. Going down as a drop, I would learn the answer by accident. The water that rises through the intake is the water that fell as drops from the leaves, which rose as mist from the channels, which were fed by the intake. Nothing enters from outside, and nothing leaves. The circle closes on itself. The source is the creature, and the creature is the loop, and I would be one small, falling part of it, passing through the works on my way back up.
+
+The knocking would keep its four-second beat the whole time. I would feel it in the water before I heard it, a pressure against my surface, like something counting. I would not know what it was counting toward. I would only know that it was keeping time, and that as long as it kept time I would keep falling, and rising, and falling again, until the forty or fifty years came round and the whole basin flowered, and I was caught in a pale bloom and carried over the rim, and the water ran a little higher afterward.

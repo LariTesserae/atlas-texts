@@ -1,0 +1,61 @@
+Before you notice them, you notice what they have done.
+
+In a junction where eleven corridors meet—a number that would be wrong anywhere else but here simply *is*—there is a sculpture. It stands at the precise center of the space, in a foot of cold, still water, and it is made from the made-material itself. Not carved. *Removed.* Someone has chipped away the negative space around a form that resembles nothing you have a name for. It is not decorative. It is not devotional. It is *demonstrative*—a proof that the stone can be shaped by something other than intention, that the resolved surfaces can be unresolved, that the architecture's final word is not the last word.
+
+The sculpture has been there for a long time. The burgundy vegetation has colonized its base, creeping up the abstracted lines in a way that suggests the sculptor anticipated this—that the work was designed to be completed by the slow chemistry of the drowning, the plant-life ascending over decades to become part of the statement.
+
+Someone made this. Someone is making things still.
+
+---
+
+They do not announce themselves. They *emerge*—a gradual acknowledgment of presence that you might have been perceiving for hours without recognizing as separate from the architecture. A shadow that does not correspond to any object. A displacement in the water that moves with deliberation rather than diffusion. A warmth that is not yours, small and localized, moving through the cold.
+
+When you finally see one, you understand why it took so long.
+
+They are the color of the water. Not translucent—they are fully opaque, fully present, fully *material*—but their materiality exists in the same spectrum as the flood. They are grey-blue, shading to grey-green at the extremities, shading to the deep burgundy of the vegetation where their skin meets the air. They are not camouflaged. They are *of* this place in the same way the water is of this place—native, intrinsic, belonging so completely that distinguishing them from their environment requires an act of attention that feels almost rude.
+
+Their bodies are long. This is the first clear fact. Long in the way the corridors are long—extended beyond any obvious functional requirement, stretched toward a purpose that the architecture understood and the body has inherited. They are perhaps two and a half meters from head to foot, though *head* and *foot* are approximations. Their forms are not symmetrical in any way you are trained to expect. They have a front and a back, a top and a bottom, but the left and the right are *offset*—the limbs (you will call them limbs) emerge at slightly different heights, the breathing apparatus (you will call it that) expands and contracts on one side only, the sensory cluster (you will call it a face, and you will be wrong) is positioned not at the apex but a third of the way down the anterior, looking always slightly downward, slightly inward, toward the water and the floor and the made-material.
+
+Their hands—their *instruments*, the extremities that interface with the world—are extraordinary. They have too many joints. This is the second clear fact. Where you have a wrist and fingers, they have a series of articulated segments, each capable of independent rotation, each ending in a surface that can grip, can cut, can sense texture, can exude the faint chemical warmth that keeps the cold at bay. You watch one of them trailing these hands through the burgundy mats on a corridor wall, and you realize it is *reading*—tracing the carved instructions with a familiarity that predates language, receiving information through a medium you cannot access, understanding the building in a way that is not intellectual but *structural*, the way you understand the position of your own limbs.
+
+There are not many of them. This is the third clear fact, and the saddest. In your journey through the corridors and chambers, you have encountered perhaps a dozen. Given the scale of the architecture—the continent of cities, the millions of cubic meters—this is a population so sparse as to be functionally nonexistent. They are not a community. They are *remnants*. The last chemical reactions in a process that has nearly exhausted its reagents.
+
+---
+
+They do not speak. They have no need to. The water conducts vibration with the patience of the drowned continuum itself, and their bodies produce sounds you feel rather than hear—a low pulse, almost below the threshold of audition, that travels through the made-material and the water and the vegetation and arrives at your chest as a pressure, a presence, a *statement of being*. When two of them occupy the same space, these pulses modulate. They harmonize. They create, in the water, in the stone, in the cold, a conversation that is not about anything because it is everything—a constant exchange of location, of state, of need, of memory, carried in a medium that has been flowing through these channels since before the word *channel* meant anything.
+
+You stand near two of them in a chamber where the water pools deepest, and you feel their communication as a warmth in your ribs, a shifting pressure that is not unlike breathing. One of them is nearer the wall with the carved instructions. The other is suspended in the open water, pale tendrils of the deep vegetation brushing its long form, the blue-green spores drifting around its sensory cluster like a halo. The one near the wall pulses. The one in the water receives. Something passes between them—not information, not in the way you understand it, but *state*. The one near the wall has found something. The one in the water has acknowledged the finding. This is all. This is enough.
+
+They have no hierarchy. They have no names. They have no history that they carry in any form you would recognize as narrative. What they have is *continuity*—an unbroken thread of presence that extends backward, through the cooling of the continuum, through the arrival of the vegetation, through the completion of the architecture, into a time when the building was not yet finished and the water was not yet everywhere and something that was not yet them was making decisions about angles and materials and purposes that would long outlast any intention.
+
+They are the children of the builders, but they do not know this. They are the inheritors of the drowned continuum, but they do not think of it as inheritance. They simply *are*, the way the water is, the way the made-material is, the way the cold is—present, persistent, part of a system that has moved past the need for meaning into a simpler, more final state of being.
+
+---
+
+They are dying. This is not a tragedy. This is not even a sadness, except to you, who carry the expectation that continuity is preferable to conclusion.
+
+They are dying the way a fire dies when the fuel is exhausted—not with a final flare, but with a gradual diminishing, a slow surrender of heat and light and the chemical exchanges that make combustion possible. Each generation of them—their generations are long, measured in the same timeframe as the spread of the vegetation, the dissolution of the stone—is smaller than the one before. Each generation understands less of the architecture, reads fewer of the instructions, maintains fewer of the systems that the building no longer needs maintained. They are a curve approaching an asymptote, a process reaching equilibrium, a reaction completing itself.
+
+They know this. You cannot call it knowledge—their relationship to their own diminishment is not cognitive—but they *incorporate* it, the way the vegetation incorporates the minerals of the made-material. It is part of their chemistry, part of their pulse, part of the low vibration that they add to the water. When they trail their many-jointed hands along the carved walls, they are not looking for instructions they can follow. They are *saying goodbye* to instructions they can no longer read, touching the language of their makers with a tenderness that requires no translation.
+
+The sculpture in the junction of eleven corridors was made by one of them. Perhaps by the same one who now stands near the wall in the deep chamber, pulse modulating, finding something that no longer needs to be found. The sculpture is not a monument. It is not a memorial. It is a *gesture*—the last creative act of a consciousness that has accepted the end of creativity, a final proof that the made-material can be shaped by hands that love it, even when there is nothing left to make.
+
+---
+
+One of them approaches you.
+
+You do not know why. Perhaps your warmth draws it—the strange, inappropriate heat of your body, a temperature that has no business existing in a place where warmth is not a property of the environment. Perhaps your movement intrigues it, the way you displace water and vegetation and spores, the way you *respond* to the continuum rather than simply existing within it. Perhaps it is curious, though curiosity implies a future in which the answer matters, and their future is a narrowing corridor with no junctions.
+
+It stops near you. Its sensory cluster—the wrong term, but the best you have—tilts downward, toward the water, toward the made-material beneath your feet. Its many-jointed hands extend, not touching you, but surrounding you, forming a geometry of attention that makes you feel, for a moment, like the sculpture in the junction—something being *seen*, being *resolved*, being understood at the exact degree your presence requires and no further.
+
+Its pulse reaches you. This close, it is not a vibration but a *narrative*—a slow, enormous communication that your body receives in pieces: the cold of the water, the age of the stone, the patience of the vegetation, the completion of the architecture, the diminishing of the pulse-makers, the arrival of something warm and brief and strange that will leave no mark on the continuum but whose presence is, for this moment, a kind of warmth that the water does not carry.
+
+It is welcoming you. Or it is mourning you. Or it is simply *acknowledging* you—the way the architecture acknowledges the vegetation, the way the water acknowledges the cold, the way the made-material acknowledges dissolution: without preference, without resistance, with the absolute patience of things that have moved past caring into a deeper, more final state of attention.
+
+It stays with you for a time. Its warmth—small, chemical, generated by a metabolism that has learned to make heat from the faintest gradients—mixes with yours in the cold water. Two presences in the drowned continuum, one ancient and one brief, both moving toward the same temperature, the same stillness, the same final equilibrium.
+
+Then it moves away. Its long form displaces the water, displaces the vegetation, displaces the blue-green spores that make the architecture visible for a moment—the ceiling, far above, carved with instructions that no one will ever read again. It departs through one of the seven corridors, and then one of the eleven, and then one of the innumerable junctions that make this place a maze without a center, a city without a purpose, a world completing its final function, which is to persist until it cannot.
+
+You are left in the cold. You are left in the water. You are left with the low vibration that is the closest thing this place has to a voice, and the drip of moisture from the vegetation, and your own breathing, which sounds massive and inappropriate and *alive* in a way that nothing else here is or will ever be again.
+
+The sculpture in the junction of eleven corridors will remain. The made-material will continue to dissolve. The water will continue to flow. And somewhere, in the corridors you have not walked, in the chambers you will never find, the last of the builders' children will continue their long goodbye—touching the walls, reading what can still be read, making what can still be made, adding their small pulse to the vibration of the drowned continuum until, molecule by molecule, breath by breath, they become the temperature of the water, and they become part of the flow.

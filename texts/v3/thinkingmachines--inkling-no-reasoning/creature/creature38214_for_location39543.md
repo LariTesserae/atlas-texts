@@ -1,0 +1,23 @@
+Here, there is no earth to stand upon—only the invitation to fall upward into root and weave.
+
+The world hangs at an absolute height of 2.4, though height here is not measured against anything so small as ground. There is no ground. There is only the Plateau: a continent-sized chamber woven entirely by hand—primitive hands, technology long settled at 0.6—using fired clay needles, bone awls, and rope braided from bark fiber. The substrate, the vaulting walls, even the sky are architecture made of living fiber: root-cables thick as redwoods, moss-membranes layered like slate, vine-lattice holding the muggy, warm-breathing air in place. It was built, and then it was left; the builders are gone, leaving behind an erosion that is not decay but weathered permanence—2.1—softened like old leather, polished like bone, holding.
+
+The scale is continental, yet the density is nearly null—0.5. For every cubic breath of this place, there is almost nothing. The vegetation does not carpet a surface; it *is* the surface, the walls, the ceiling, arranged into enormous hollow vaults—cathedral-naves of braided chlorophyll—separated by leagues of humid emptiness. You do not walk through a forest. You traverse the inside of a lung.
+
+The air itself takes days to travel from rim to rim, laden with its own slow weather: cyclonic drafts of spore-laden humidity, thermal currents rising through hollow stalks like chimneys. The temperature holds constant and warm—2.4—not comfortable, not hostile, but perpetually exhaled, the metabolic breath of the architecture itself.
+
+Water is omnipresent and invisible—1.7 wet. There are no rivers, no pools, no visible flow. Moisture beads on the undersides of suspended fern-canopies and falls in silent droplets from roots that hang like chandeliers in a drowned palace. It migrates through the plant-tissue, collected in translucent bladders embedded in the woven walls, then dripping back into the mesh in a cycle without end. The place weeps continuously, though softly.
+
+Light is dim—0.9—a perpetual twilight filtered through miles of green-black canopy, diffuse and bioluminescent. Some ancient vines glow faint amber, not to illuminate but as waste, as metabolic afterglow, casting just enough radiance to reveal that the scale is wrong, that this is not a garden but a continent suspended in its own climate.
+
+Sound, too, is nearly absent—0.5. The silence is that of enormous volume filled only with soft processes: the occasional creak of tightening fiber, the wet pop of a spore-sac releasing mist, the distant, subsonic groan of root-cable adjusting under thermal strain. No wind howls. The air moves slowly, deliberately, through the mesh.
+
+Gravity behaves with preference: pulling downward, yes, but also gently inward, so that to walk a root-bridge is to feel traversed not by earth but by the interior of something breathing. Time is tissue-deep. Some walls have grown translucent with age, allowing the distant amber glow of other vaults to shine through layers of plant-skin. Here, reality is layered: constructed, then reconstructed again by the plants that continued the builders’ logic without them.
+
+The emptiness—0.5—is not absence. It is necessary hollow, the space through which this vast, silent organism circulates.
+
+And it is inhabited—2.0. Not seen easily, but felt. Small warm bodies navigate the lattice, leaving vibrations. Insects the size of thumbs move through the root-bridges, their shells indistinguishable from the woven fiber itself—camouflaged not by color but by being physically identical to the walls, revealed only in motion. In the darker spaces between vaults, larger presences hang suspended in humid air, feeding on spores, on condensation, on silence. They do not roar. They unfold. A membrane opens. A mouth—if it is a mouth—closes softly against a leaf.
+
+This is weird—2.7—not through spectacle but through wrongness scaled up, through the understanding that everything here was made, then abandoned to become its own ecology. The rules are those of perpetual, manual maintenance made autonomous. The plants are substrate, architecture, and weather. The built environment has become wild without ever being wild. It lives, breathes, and slowly moves, maintaining itself in balance.
+
+What lives here occupies the silence, the hollow, and the weave. It is the breath that takes days to cross the rim. It is the droplets falling from root-chandeliers. It is the warmth that holds at 2.4, the glow that should not be there, the fiber that remembers being woven by bone and clay. The inhabitants are part of the architecture now—moving pieces of a constructed world that forgot it was built, and continued, in its own patient, silent, humid logic, to grow.

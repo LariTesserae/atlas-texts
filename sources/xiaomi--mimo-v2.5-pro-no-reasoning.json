@@ -1,0 +1,16 @@
+{
+  "source_id": "xiaomi--mimo-v2.5-pro-no-reasoning",
+  "requested_endpoint": "xiaomi/mimo-v2.5-pro:no-reasoning",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-10-08",
+  "date_last": "2026-10-08",
+  "texts": 750,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 750
+  }
+}

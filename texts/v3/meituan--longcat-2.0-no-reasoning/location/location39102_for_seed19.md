@@ -1,0 +1,37 @@
+# The Ossuary Shelf
+
+You are standing on a plateau that should not exist.
+
+The elevation is staggering — not in the way of mountains that rise from foothills, but in the way of a tabletop balanced on nothing. The land beneath your feet is flat. Not gently rolling, not subtly undulating. *Flat.* Flat the way a bone is flat after a river has carried it for ten thousand years and then the river dried up and the wind took over and then the wind stopped. The erosion here is so ancient that the concept of "slope" has been forgotten by the geology itself. Whatever mountains once stood here were not worn down so much as *convinced* to lie down. The surface is a dark, fine-grained stone — something between slate and dried blood — and it extends in every direction to a horizon that feels too close, as though the world has been compressed into a diorama.
+
+There is no water. Not a trace. Not a memory of moisture in the mineral structure. The air tastes like licking a battery. The coolness — and it is cool, a persistent chill that sits just below the threshold of discomfort — has nothing to do with humidity or evaporation. It is the coolness of deep shade that never ends, of a place that has been in the dark so long it has forgotten what warmth means, except there is light here. Normal light. Sourceless, directionless, the color of old paper. It comes from everywhere and nowhere, and it casts no shadow, which is the first thing that should tell you something is wrong.
+
+The second thing is the bones.
+
+They are everywhere. Not scattered — *dense*. Packed. Layered. The surface of the plateau is a mosaic of skeletal remains so tightly interlocked that in many places you cannot see the stone beneath. Femurs laid side by side like railroad ties. Rib cages nested inside rib cages, collapsed and compressed into flat, fan-shaped plates. Skulls — thousands of skulls, millions perhaps — pressed together in walls and ridges and low, rounded hummocks that rise a few feet above the general plane. The bones are not white. They are the color of the stone, or the stone is the color of them; it is impossible to tell where geology ends and biology begins. Many of the bones have partially fused with the ground, their mineral content exchanged so thoroughly with the substrate that they are becoming the plateau itself.
+
+And yet.
+
+The fauna parameter is overwhelming, and here is where the place begins to come apart.
+
+The bones are alive.
+
+Not in the way you mean when you say "alive." There is no muscle, no blood, no breath. But the skeletons *move*. Slowly — so slowly that watching any single one is like watching a clock's hour hand. A jaw opens and closes over the course of what might be a day. A finger bone curls and uncurls against its neighbor. Vertebrae shift, realign, settle into new configurations with faint clicks that you feel in your sternum more than you hear. The sound is almost nothing — a quiet, dry, intimate clicking, like someone running a thumbnail along a comb in the next room. The silence of the place is so deep that these micro-movements are the only sound, and they are not really sound so much as *tremor*, transmitted through the ground and up through the soles of your feet.
+
+The skeletons are not of any single species. They are not, in many cases, of any species you can recognize. Some are clearly vertebrate — the architecture of spine and skull and four-limbed body plan is there — but the proportions are wrong in ways that accumulate. Too many joints in the fingers. Skulls with orbital arrangements that suggest vision from directions that don't exist. Pelvic structures that imply locomotion through media denser than air but less dense than stone. And some of the bones are not bones at all — they are something harder, something with a faint internal luminescence, something that rings at a frequency just below hearing when you step on it.
+
+The density of them is such that walking requires care. You must place your feet in the gaps, and the gaps are narrowing. The bones are slowly, slowly growing together. Fusing. The entire plateau is a single organism in the process of becoming a single structure, and the process has been ongoing for so long that it is nearly complete. In the distance — and distance is strange here, compressed and unreliable — you can see where the process has finished: regions where the bone-stone has smoothed into featureless planes, where the last distinctions between individual skeletons have been erased, where the surface is as flat and blank as a healed scar.
+
+The sparse vegetation is not what you'd call vegetation. Here and there, in the deep interstices where bones have not yet fully closed, thin filaments of something pale and fibrous emerge from the gaps. They are not green. They are the color of tendon, of cartilage, of the stuff that holds bones together. They do not photosynthesize — there is no sun. They seem to feed on the slow mineral exchange happening beneath them, drawing something from the fusion process itself. They are the only growing things here, and they grow so slowly that they might be retreating for all you can tell.
+
+The scattered built structures are half-absorbed. A wall of stacked stone — clearly laid by hands, clearly intentional — rises from the bone-field at an angle, as though the ground has tilted beneath it. But the bones have grown into it, through it, around it. Femurs emerge from the mortar lines. A skull sits in the place where a window might have been, its jaw working silently. The structure is small — a shelter, a shrine, a storage room, something for one person or a few. There are others, visible at the edge of sight, similarly consumed. The builders used simple tools. The stones are hand-fitted, dry-stacked, without metal. Whoever lived here lived here a long time ago, or lives here still in some form you would not recognize as living.
+
+The weirdness is this: the place is not changing. The dynamic parameter is near-zero, and this is not the stillness of a paused moment. It is the stillness of a system that has reached its final state and is simply *being* that state, completely, with nothing left to resolve. The bones move, yes, but the movement is not progress. It is not going anywhere. The fusion is nearly complete and has been nearly complete for longer than you can meaningfully conceptualize. The clicking of bone on bone is not a process — it is a *condition*. The place is not becoming something. It is something. It has always been something. It will always be something. The light does not shift. The temperature does not drift. The filaments do not grow or recede. The skeletons do not die because they are not alive, and they do not live because they are not dead, and the distinction between those states has been eroded here just as thoroughly as the mountains were.
+
+You are standing in the oldest stable state. The end of a very long story that was also, somehow, the beginning. The plateau is a shelf — a shelf above nothing, a shelf that holds everything that ever fell. The bones are the fauna, and the fauna is the terrain, and the terrain is the structure, and the structure is the silence, and the silence is the sound of ten million jaws opening and closing in the dark, not eating, not speaking, just *moving*, because movement is what remains when everything else has been taken away.
+
+The air tastes like copper and chalk.
+
+Your footsteps leave no impression.
+
+The bones are waiting for you to lie down.

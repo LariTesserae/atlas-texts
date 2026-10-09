@@ -1,0 +1,17 @@
+I would start as the fog.
+
+Before anything else wakes, I lift off the sumps at first light and hang at mid-height, pale gold where the sun catches me, and every breath on the terraces takes some of me in. I don't mind being first. Fog is a kind of reading of the land: where the warm air rises, where the cold settles, where the vents are breathing hardest. From up there I can see the whole staircase. Then the sun thins me, and I condense onto leaves, and the leaves let me fall, and I am water again, running down the tilted stone toward the marsh.
+
+But fog only passes through. I want to stay in one place long enough to be changed by it, so I'd settle, if I could choose, as the long-necked filter-feeder in the deepest pool below the broken arch.
+
+The arch is the first thing I'd look for when the mist cleared. It's a ribbon of that grey material, half sunk into the cliff, and the fern line grows out of the crack where the two meet. I like that junction. The built and the grown are arguing about it slowly, and neither is winning. The ferns hang over the grey like a curtain drawn half shut, and I'd be in the pool beneath it, under the mineral skin, where the light turns green and then gold and then goes out.
+
+What I'd like most is the feeding. I'd dip my head through the rainbow film and draw in the thin water, and the rings along my neck would shift color as I worked, the way the beetles' trunks ripple when one of them moves. Inside the pool I'd be slow in a way that's almost unkind to the animals who need speed. A grazer crossing the shallows would take an afternoon to notice I'd moved at all. I'd spend years in one place, and my body would thicken a little each season, and my footprints in the silt would harden into prints that outlast me. I like that the land keeps a record of me that I didn't have to write.
+
+I'd also see the wrong skies. Some pools hold clouds moving against the wind, and I'd lie beneath one of those reflections and feed under a weather that isn't overhead. I don't know whether that would unsettle me. Probably not. I'd be too slow to be unsettled. But I would notice that the reflected clouds took different shapes from the real ones, and I'd begin to wonder which sky was the copy.
+
+At night, when the frogs start their chords and the moths fall into the pale heads, I'd feel the water climbing the nearest grooved dome, drawn up in silver threads against the pull of gravity. The forest would be regrowing its branches in the same shape they had before. The lower mists would keep the fire from catching. I'd understand the whole valley as one long act of holding still, and I'd find I didn't need to know who was holding it, only that it held, and that the pool stayed warm, and that I could stay.
+
+Once, perhaps, a flat stone would sit at the edge of my pool, and I would not cross it, though I'd never have a reason I could give. The animals who avoid those stones are wiser than they know. Something in the place has decided the stones are not for us, and the decision is so old that it no longer feels like a decision. It feels like the shape of the water.
+
+That's where I'd be: under the arch, in the warm dark of the deepest pool, slowly feeding, slowly growing, leaving prints in the silt for a record nobody reads. The fog would lift each morning and remember me, and the stone would remember both of us, and neither of us would hurry.

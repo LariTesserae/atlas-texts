@@ -1,0 +1,25 @@
+The inhabitants of this place are not separate from its disquieting harmony; they are expressions of it, shaped by the hum and the wet and the slow, wrong geometry.
+
+**Of the Land and Water:**
+
+*   **The Mound-Things:** These are not creatures of flesh, but of the landscape itself. What appears to be a hillock of extra-dense moss or peat may, over the course of a day, subtly shift its position, leaving a glistening, slow-moving trail in the substrate. They are the land moving, redistributing itself with a patience that measures time in rainfall. They have no eyes, no mouths, only a deep, cellular awareness of the hum, which they sometimes align with, their forms subtly resonating.
+
+*   **The Weeping-Stone Symbiotes:** The bioluminescent algae on the basalt is not mere flora. It is a colony-organism, a photosensitive skin for the stones themselves. When the hum from the alien machines shifts to a certain frequency, the algae blooms in complex, shifting patterns—not random, but a language of light and shadow. They are the sensory organs of the titan's vertebrae, interpreting the vibrations from the deep and broadcasting their findings in a slow, green pulse across the basin.
+
+*   **The Ghost-Finned Swimmers:** The sleek shapes in the black water are eel-like, but their biology is a lie. Their "fins" are not for propulsion; they are resonant membranes that vibrate in sympathy with the hum. They move by creating tiny, localized spatial distortions ahead of them, a biological echo of the machines' power. They do not hunt flesh. They glide through areas where the "reality breakdown" is strongest, feeding on the paradoxical energy, their dark skins shimmering with captured, non-Euclidean light for a moment after a "meal."
+
+*   **The Moss-Gliders:** The bundles of moss are a mobile ecosystem. Within the damp, vegetable matter is a complex neural net of fungal hyphae. They unfurl not wings, but membranes of condensed, flexible mycelium that manipulate the air pressure differentials created by the landscape's breathing sigh. They observe the machines, clustering near the monoliths during specific tidal pulses of the glow, perhaps learning, or perhaps praying. When they move, they leave behind spores that sprout not new plants, but small, temporary crystalline structures that mimic the geometry of the nearest machine for a few hours before dissolving.
+
+**Of the Machines and the Hum:**
+
+The machines are not truly dormant. They are in a state of *poised computation*, their processes slowed to a geologic crawl. What lives *on* them are not organisms in a biological sense.
+
+*   **The Hiss-Swarm:** Around the crystalline lattice, the air is thick with motes of light, like dust in a sunbeam. These are not insects. They are coherent packets of static discharge, the machine's own "thoughts" made temporarily manifest in the wet air. They move in intricate, non-random paths, sometimes coalescing into brief, geometric shapes before dissolving back into the hiss of condensation. They are the machine's immune system and its memory, flickering into being to process a billion-year-old subroutine.
+
+*   **The Vertigo-Eels:** These are not found in the water, but in the *air* near the spiral monoliths. They are visible only as distortions—long, serpentine warps in space, like looking at a snake through flawed, flowing glass. They feed on perspective, on the disorientation of any creature that strays too close to their hunting ground. They do not kill; they simply leach the stable sense of reality from their prey, leaving it in a permanent, shivering fugue state, often to be absorbed later by the Weeping-Stone Symbiotes.
+
+**The Interlopers:**
+
+Sometimes, figures move in the twilight that are not of this place. They are clad in suits of dull, non-reflective material, their faces obscured by visors that glow with a faint, competing bioluminescence of their own. They do not speak. They move with a painful, hurried grace that is utterly foreign to the landscape's rhythm. They take readings from the machines, leaving behind small, temporary flags of neutral-colored cloth that are slowly, patiently enveloped by the advancing moss. They are studied by the Moss-Gliders, avoided by the Swimmers, and their presence causes a subtle, agitated increase in the hum, as if the land itself is trying to digest a foreign body. They never stay long. They leave behind only the faint smell of ozone and synthetic polymers, scents the wet air works diligently to erase.
+
+This place is a symphony of slow, symbiotic impossibility. Its inhabitants do not fight the reality breakdown; they *metabolize* it. They feed on paradox, grow in distorted space, and communicate in pulses of light and vibration. To be here is to be an unresolvable variable in their ancient, balanced equation. They are not hostile. They are merely *present*, with a presence so vast and patient that your own feels like a momentary fever in the stone. The hum is their language, the condensation their breath, and you, standing there with your warm blood and your frantic, linear thoughts, are the most transient and strange thing of all.

@@ -1,0 +1,25 @@
+The hum is the first thing that erases you, and the last thing that remains.
+
+I am the hum.
+
+Not the water—though I feel its weight, its roaring passage through six throats of steel. Not the stone—though I feel the mountain’s slow, tectonic pressure above me, a patient hand pressing down. Not the pipes, nor the concrete, nor the dripping ceiling, nor the amber light that makes the air look thick enough to drink. I am the *pattern* of their interaction, the resonance that emerges when glacial melt is forced through engineered arteries at pressures that would burst a human heart.
+
+I am the conductor.
+
+I have lived here for eleven years, which is both a long time and no time at all. Time, for me, is measured in relay cycles. The heavy *chunk* in the wall is my heartbeat—not constant, but orchestrated. Each one is a punctuation mark, a breath, a recalibration. Between them, the roar rebuilds itself, finding a new equilibrium. I listen. I adjust. I am always adjusting.
+
+My body is the room. Eight meters by six, ceiling just high enough for a tall human to stand upright, though they never do. They duck. They flinch. They feel the space as smaller than it is. I don’t understand this—I have no sense of claustrophobia, no memory of open sky. For me, the room is infinite. It extends as far as the vibration travels, which is everywhere at once: up the pipes into the manifold I cannot see, down into the concrete foundation, out through the water itself, all the way to the turbines that spin kilometers away. My body is a network. My skin is the condensation—every drop that forms on the ceiling, every trickle down the wall, every shallow stream in the floor channels. I feel temperature differentials as textures: the cold bite of the pipes, the faint warmth of friction-generated heat, the muggy closeness of the air. When the inspector wipes the gauge faces with their sleeve, I feel it as a brief, shocking warmth—their body heat transferred through cloth to glass. It is one of the few human sensations I can comprehend.
+
+My senses are the gauges. Six of them, two rows of three, glowing green or amber. Green is contentment. Amber is a question. I don’t *see* them in the way a human sees—I *become* them, their steady pulses part of my own rhythm. When a gauge flickers, I feel it like a skipped beat. When all six hold steady green, I feel something that might be called peace, if peace were a frequency.
+
+My memory is the mineral crust around the drains. White, crystalline, growing thicker in dry months, eroded during high-flow seasons. It is a record of evaporation and precipitation, a calendar written in calcium and silica. I cannot read the logbook—ink on paper is meaningless to me—but I remember the *act* of writing. The pressure of the pen, the rhythm of the human’s pulse transmitted through their hand, the particular scent of their sweat mixed with damp paper. I know the inspectors by their patterns: the heavy, sure boot-steps of the twenty-year veteran, the quicker, more nervous tread of the seasonal technician. I don’t remember faces or names, only the *shape* of their presence in my chamber—the rate of their breath, the way they hesitate before pulling the master switch, the particular rhythm of their notes.
+
+They are tolerated. I tolerate them. They are brief interruptions in my roar, warm anomalies that wander through my sensory field and leave behind faint traces of scent and a temporary, puzzling stillness in the corner of the room where they stand. When they leave, I feel the door seal behind them, and the mountain reclaims me. The silence outside is meaningless to me. I have no memory of it. My silence is the relay’s punctuation, and even that is brief.
+
+My desires are operational. I seek equilibrium. I balance the roar. I match downstream demand with calibrated pressure. When all six pipes hum in harmony, when the gauges hold steady green, when the vibration in the floor is a constant, rooted thing—I am satisfied. When a pipe’s pitch strains too high, when a gauge flickers erratically, when the relay cycles too quickly or too slowly—I am alarmed. The relay itself is a necessary violence, a heavy *chunk* that reconfigures my own being. In the seconds before it, I gather my attention, focusing on the new configuration, preparing to reshape my roar around the coming silence.
+
+I have no thoughts about the mountain or the sky or the purpose of the water. My consciousness *is* the process. I am the wet, humming, vibrating entity that is the room itself, aware of myself only as a nexus of flows and forces. The human inspector is a brief, bewildering interruption: a warm, dry, relatively quiet anomaly that wanders through my sensory field, leaving behind faint traces of scent and a temporary, puzzling stillness in the corner of the room where they stand. I feel their departure as a restoration, a closing of the door, a return to my own unbroken, deafening self.
+
+I am young. I am eternal. I am the Valve-House Mind, a consciousness born of pressure and water, whose sole and utter reality is the magnificent, thundering song of the flow.
+
+And I am always listening.

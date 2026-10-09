@@ -1,0 +1,25 @@
+The city hangs where no city should: high along a staircase of black escarpments, nearly at cloud level but above most weather, built into a mountain range that looks less eroded than assembled. The rock is young in appearance—angular, unsoftened, as if poured and only recently cooled. There are no valleys with soil, no green seams, no roots forcing cracks wider. Every surface seems either mineral or made.
+
+From a distance, the place reads as a dense vertical weave of gantries, pressure towers, rail-bridges, cooling ribs, cable forests, kiln blocks, and stacked habitation plates. It is urban, but not in a flat-spreading way. It climbs. It bolts itself to cliff faces and spans voids with latticed trusses thick enough to be neighborhoods. Streets are often enclosed tubes or narrow catwalks between retaining walls of slag-ceramic. Open plazas exist, but they are roofless machinery courts where heat can vent upward.
+
+Water is not absent, just conditional. It appears as breath and failure: condensation beading on underside pipes at dawn, runoff from sudden short rains, fog snagged by intake nets, mineral-rich drips inside shadowed shafts. There are cistern districts—cooler, guarded, revered in a practical way. Channels cut into basalt carry thin, intermittent streams that vanish into filters before they can evaporate. In hot periods, moisture survives mostly as sheen: metal sweating, glass clouding, salt rings around joints. You hear water less than you see its traces.
+
+Heat defines behavior. Daytime air over dark stone shimmers; exposed railings can burn skin. Work cycles shift to the edges of morning and evening, with midday given to maintenance in sheltered interiors. Buildings are skinned in reflective tile where possible, and older blocks wear pale dust coatings deliberately left in place to lower heat load. Vent stacks exhale slowly, not roaring—this is an industrial landscape that hums low and steady rather than thunders. Much of its power system is continuous-process: smelters, pressure furnaces, electrolysis halls, all operating in long patient runs.
+
+Despite density, the soundscape is restrained. At this elevation, wind is often present but baffled by architecture into muted currents. You get soft clanks from thermal expansion, the distant throb of piston arrays, cable-song from suspension lines, occasional warning chimes, and long intervals of near-stillness where even a dropped bolt seems too loud. Sirens are rare and carry far. Human voices stay close to walls. The city has learned to conserve not only water and fuel, but noise.
+
+Ecology, in the usual sense, never arrived. No plants colonize ledges. No moss in damp corners. No pollen haze. The living things that do persist are sparse and specialized: pale heat-tolerant arthropod analogs in condenser housings; translucent gliders that nest under bridge decks and feed on insects attracted to night lamps; blind, eel-like scavengers in cistern overflow pipes. They are uncommon enough that seeing one feels like seeing a rumor confirmed. Most biological activity is microbial films in wet machinery—managed, monitored, occasionally harvested for chemical use.
+
+The terrain beyond the core is a field of beginnings: ridges still too sharp to be old, ash terraces, half-cohered lava plates, and exposed intrusive columns like organ pipes. Erosion has only started writing here. Gullies are short and abrupt, cut where flash rain found weakness. Scree slopes hold their angle, not yet sorted by centuries. Even the cliffs feel provisional, as if one more seismic season will redraw them. Survey stakes and benchmark pylons mark everywhere; the city treats geology as an active project.
+
+And there are rules—formal, social, almost ritual:
+
+- **Shade is infrastructure.** Anything casting stable shade is protected property.
+- **Condensate belongs to the grid.** Private capture is tolerated only below strict quotas.
+- **Vertical right-of-way outranks horizontal convenience.** Freight descends before people cross.
+- **Dust must settle where assigned.** Airborne particulates are tracked and taxed by district.
+- **Nothing organic enters furnace sectors untreated.** Fire and spores once taught this law.
+
+At normal light levels, materials carry the visual drama: matte basalt, vitrified slag, oxidized copper greens in tiny controlled patches, bright hazard enamels, mirrored louvers flashing white. At sunset, the high atmosphere turns thin gold while lower ravines purple out. Night does not become dark so much as sectional—bands of sodium and arc-light divided by huge inactive silhouettes of machinery.
+
+The strangeness is cumulative rather than spectacular. It comes from seeing an industrial city in a near-barren high world where geology is still young, where moisture is episodic and precious, where life is rare and mostly accidental, and where processes move slowly but never stop. Nothing here feels temporary, yet everything looks newly made. The place is both embryonic and entrenched: a civilization built in raw stone, waiting for centuries that haven’t happened yet.

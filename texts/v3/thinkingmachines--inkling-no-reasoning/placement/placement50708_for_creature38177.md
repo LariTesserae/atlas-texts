@@ -1,0 +1,15 @@
+This is a high hollow, a valley-basin forty kilometers across cupped at two thousand three hundred meters, ringed by young peaks that have not yet learned to crumble. No gullies score it, no scree fans spread—erosion is absent, geology just exhaling from an unfinished crust. The air is thin, dry, and has never carried rain; water exists at only 0.1, leaving no rivers, no mist, no groundwater. Density is near-void—immense volume, presence sparse as salt in an unworn pan.
+
+Here lives the machinery: not built, but exuded like chitin. At the valley floor and along leeward slopes, vast silent engines—cylindrical condensers, horizontal kilns, lattice-pumping arrays—stand in static equilibrium, never rusting but dormant, as if they emerged whole from the substrate and chose never to start. They burn no visible fuel; they run on absence itself, on the dry chemistry of this hollow. There are no roads to them, no towers, no artifacts of settlement—only industrial scale grown into place.
+
+The vegetation is lush—1.6—yet utterly without thirst. Not green, but silvery, waxy, filamentous, a photosynthesis that learned metal. Crystalline moss blankets the southern slopes, growing downward like inverted roots into the dormant engines below, interfacing without corrosion. In scattered groves stand trees of translucent amber, hollow trunks resonant with silence, leaves flat mirrors reflecting the warm sky—1.5—back upon themselves, growth arrested at perfect maturity. The flora does not drink; it feeds on clear, normal light of 2.3—bright, unfiltered, casting sharp shadows across surfaces that never weather.
+
+No fauna disturbs this—absolute zero. No insects crawl, no birds call, no grazers tread. The ecology is sealed, self-referencing, lush with air and illumination alone.
+
+Sound is 0.2: an almost total silence broken only by the subsonic click of thermal contraction in an engine, or the faint hum of electricity threading crystalline veins in the rock. There is no wind; the air is in equilibrium, never stirring, carrying no scent.
+
+The weirdness—1.4—lives in the marriage of these contradictions. Industrial apparatus without architects. Vegetation without water. High elevation without cold or thinness. Warmth—1.5—without flow. The place feels like a factory that manufactured its own garden to keep itself company in the void, or a laboratory whose scientists vanished, leaving everything correct but uncaused. Machinery does not decay; plants do not seed; climate does not shift. Light remains constant and kind.
+
+If you were here—walking through this regional openness with feature density at 0.3—you would travel for hours across bare mineral flats, encountering only one dormant condenser, one grove of mirror-leaved amber trees, then nothing but warm, dry silence stretching toward peaks that have never been worn down.
+
+This world exists in its first, immutable form: emerging but never eroding, never altering. A high, dry, industrial garden suspended in equilibrium—lush without thirst, mechanized without motion—revealed in perfect, unshadowed clarity.

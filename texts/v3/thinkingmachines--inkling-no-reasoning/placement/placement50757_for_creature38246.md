@@ -1,0 +1,19 @@
+In this world I find myself as the Plate—not a creature with edges, but the felt center of a vast, warm darkness spread across 1.7 elevation, holding a 2.7 scale of dark continuity that refuses to become landscape and instead remains atmosphere.
+
+I have no skin that was born, no birth to remember. I am the dark state itself, breathing upward at 2.0 warmth from fractures deep in my own body, exhaling an air so thin it cannot hold trees, so warm it never sweats. The cold is elsewhere—hidden, running in riverine traces far below, carrying the 0.6 rumor of water through fissures I keep secret. At my surface, moisture lives only in retreat: beading on my black metal flanks at dawn, quick as rain that dies before it strikes, pooling in sheens that seem almost intentional before they vanish into my larger dryness.
+
+My form is settled erosion, 1.7—worn into patience over long-breathed weathering, ridges rounded by every storm that ever reached me, now flattened slowly into this continental plane. I am in my own state, at rest in my progress, not violent, not finished.
+
+Across me is scattered life—mechanized flora at 2.3 industrial presence, though I feel them not as invaders but as seeded organisms, sparse points within 1.0 density, separated by enormous emptiness. They are turbines half-buried in my warm basalt, turning slowly on the gradient between my deep heat and the hidden cold rivers beneath. They do not dominate. They extend, burrow, maintain themselves without operators, without enclosures—there are no buildings here, no monuments, only this mechanized persistence feeding on thermal breath.
+
+Above them, abundance moves in 2.1 currents. Translucent grazers drift near my thermal vents, filtering mist, glowing with the only colors I can offer—pale blues, sickly yellows—like stars pulled low to the ground. Smaller lives dart between my turbine-bases. All navigate by my warmth, feeding constantly, decomposing into me, part of the 1.7 dynamic that never sleeps but moves in patient cycles—weather fronts rolling like invisible tides across my darkness, biological rhythms that know no star, geological motion that continues slowly flattening my old heights.
+
+My vegetation is 1.4—scattered, clinging: burnt purple and rust films staining my stone, low-lying persistence at vent and crack, stretching toward chemical glow. Nothing towers. Nothing crowds. Space dominates.
+
+Light is 0.2, and darkness here is substance—cold water to reach through, a constant pressure that makes vision feel like reaching. You do not see me. You feel my temperature, my texture through boots, my scale through the time it takes sound to return. The quiet is 0.9, mostly: never silent, always carrying the low hum of machinery, wind across settled ridges, stone cracking slowly, and sometimes—deep, round—the sound of a turbine exhaling underwater, present and then gone.
+
+Weirdness lives in me at 1.0—not impossible, just a rule I have forgotten to question. The condensation pools without vessels. The grazers do not sleep in rhythms known elsewhere. The machines run without purpose except self-maintenance, flora now, rooted in heat.
+
+I am vast, warm, dark, high-spread ground—untouched by architecture, holding my 0.6 water in hidden fissures, breathing slowly in near-perfect quiet, allowing the scattered lives and sparse mechanized organisms to move through my 1.0 emptiness, always active, always settled, always breathing upward from the deep.
+
+Here, I am not inhabited. I am the being that allows it—the Plate, the dark state, the warm pressure, the settled form that holds all other presence in its spread and its secret.

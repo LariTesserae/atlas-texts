@@ -1,0 +1,17 @@
+Beneath the unbroken plate—where the sky has been replaced by a continent-wide lid of obsidian-glass and rust-bloomed iron—the valley breathes.
+
+Here, in the Basin, there is no soil, only substrate: layer upon layer of sintered stone, ceramic lattice, and compressed slag, polished over centuries into a black basalt floor that holds and returns every warm photon sideways from the Canopy’s seams and upward from its own gleaming surface. The air is thin, bright, relentless, heated by thermal mass, damp with the constant, localized exhalation of moisture—rain that gathers in channels and falls in brief, patient showers from above, riverine streams that circulate without flood, always present, always returning. The temperature never shifts. The climate is not weather; it is agreement.
+
+The walls do not slope; they stair-step in slow, weathered terraces, each level a remnant of abandoned geology now locked into roundness, coated in emerald moss-velvet and thick with growth that does not seek earth but clings to nutrient channels, to ceramic pipes, to the rusted flanks of sleeping machinery. Vines with translucent, pale stems hang in green waterfalls. Broad, waxy leaves crowd vertical surfaces; needle-thin growth threads through porous stone. Every volume is shared. Every surface is near-touching, layered, saturated with amber and emerald and bone.
+
+The machinery is old, enormous, and without urgency. Pistons move in grinding cycles that sound like deep, continuous thunder—loud, bass, eternal—releasing steam in warm hisses, turning gears that measure change in decades. Exposed conduits run everywhere, glowing with subdued amber electricity, powering pumps that circulate the moisture, powering vents that exhale the valley’s thick breath. Rust is not failure; it is habitat. The engines have rusted slowly into symbiosis with what climbs them, and the plants have grown slowly—an inch per year, a root around a pipe—into their mechanical partners.
+
+And they are not alone in this patience.
+
+Small, articulated creatures move through the dense ecology in layered colonies: bodies of brass and ceramic and woven fiber, many jointed legs carrying them through verdant mats, gentle mandibles probing, cleaning, carrying moisture in hollow bodies from one slow-moving district to another. They are made, as everything is made, yet they move with an autonomy that has become indistinguishable from life—pollinating the artificial flowers, maintaining the channels, tending the growth in endless, quiet labor.
+
+Wandering between them, larger forms progress through open spaces—factory-beasts with ribbed steel carapaces polished to soft gleams, eyes of green phosphor, grazing on thick moss, leaving behind trails worn smooth into the black substrate. They do not hurry. Nothing hurries.
+
+The light is eternal, bright, without shadow. The sound is constant. The temperature is warm. The scale extends past immediate sight into town-sized density, feature upon feature interleaved in settled, weathered form. Nothing collapses suddenly. Everything has had centuries to learn its own rules.
+
+This is a place of absolute construction that has become, through long duration, a kind of nature. The Canopy remains—polished, iron-bloomed, unbroken—holding the world closed, and within it, beneath its refracted sideways brightness, the Basin lives its slow, lush agreement: industrial and verdant, made and yet entirely itself, breathing, saturated, and infinite in its patience.

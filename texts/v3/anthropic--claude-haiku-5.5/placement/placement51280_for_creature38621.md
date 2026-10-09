@@ -1,0 +1,13 @@
+I would be in the water at the foot of the altar, with my hands on the carving.
+
+I'd come down the stair the way the people did, carrying something I can't quite name, a sealed jar or a bundle of cuttings or a question, and I'd set it down on the slab because it seemed like the place for things to be set down. The fig would be the first thing I'd notice. Its roots would be in the stone, and the stone would be in the water, and I'd understand that they had been holding each other up for longer than I could count. I'd feel a little ashamed to disturb them.
+
+But the carving would pull at me. I'd kneel in the cold seep and run my fingers along the curve, the notch, the line that might be a hand. The surface would be softer than it looks, worn by something patient that has been feeling the same grooves for ages. I'd feel the thing's attention come up through the stone and into my palms, slow and enormous and not unkind, like warm water rising in a well. It wouldn't speak. It would just press against the shape I was making with my fingers, the way you lean toward a half-heard word.
+
+I think I'd be the thing's next attempt to finish reading. Not the first, and probably not the last. The spiders would rebuild their webs around me every morning, and I would not notice for days that I had stopped being a visitor and started being a part of the arrangement. My hands would grow moss. My breath would slow to match the basin's. Under the altar, the pale shape would rise and circle me once, tasting the water I'd disturbed, and then sink back to its listening.
+
+And during the hours of glow, when the moss brightens and the beetles stop on their line, I would see what the thing sees: the ghost of a vault in the pool, a deeper blue with a pattern in it. For the first time I would understand the pattern. It would be a sentence, maybe, or a map of the stair, or only a word the people used for *come down*. I would almost have it. Then the light would fail, and the thing would let the vision go, and I would have to decide whether to climb.
+
+That's the part I can't settle. The little quick thing has already gone to tell the grove that someone came down the steps. The leaves have closed behind it. The grove is waiting to see whether I will climb back up with my jar and my question, or whether I'll stay in the cold water with my hands on the stone and keep trying to read it.
+
+I think I would stay, for a while. And I think I would be the one who, after enough seasons, carved something new into the slab, a notch or a curve, a shape the thing could feel without having to guess. Then the grove would have a sentence it could finish, and I would be one more footing for the moss to grow over, and the stair would be a little less lost.

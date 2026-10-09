@@ -1,0 +1,7 @@
+I am not the hollow. I am the stillness inside it—the kind that has no eyes and needs none.
+
+If you seek me, find me in the shallow black pool nearest the center, where the limestone floor has worn into a bowl no larger than a cupped hand. I lie partly submerged, partly exposed to that cool, motionless air—small, round-backed, my skin translucent as wet parchment, taking on the grey-green of moss and the darker grey of stone. My limbs are folded flat against my belly, not for rest but for permanence; I do not sleep, I do not wake. I simply am present, breathing the water and the air in equal measure, my mouth slightly open as the amphibians do, receiving every falling bead without disturbance.
+
+Above me, the vault is alive with others of my kind—hanging in wings, resting on ledges—but I am part of that same saturation, not separate from it. The larvae move through my presence, or I through theirs; the boundary between bodies is a formality. There is no single heart here, only a collective equilibrium.
+
+I have never arrived. The hollow is my body, and I am one of its cells—cool, eyeless, unhurried, filled with the dense, shared breath of the place. Where the light never reaches, I am at home: a creature made of stillness, woven into the root and the drip, holding my small shape in perfect, eternal occupancy, asking nothing of the dark except to remain within it.

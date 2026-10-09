@@ -1,0 +1,37 @@
+At first it seems like a drowned delta at night: warm black water stretched flat to the horizon, broken by mats of broad, waxy leaves and towers of reed-thick growth. But the longer you look, the less the horizon behaves like distance and the more it behaves like machinery.
+
+The “sky” is not open air so much as another body of water held overhead by pressure and motion. Sheets of rain do not fall; they descend in columns, rise in adjacent columns, then shear sideways in glittering planes. There are moments when the upper water sags until it almost touches the lower sea, leaving only breathing-room fog between, then pulls back again with a groan that you feel in bone before hearing in ear. Everything is wet, but wet in layers—mist, spray, immersion, condensation, and sudden full impacts of moving walls of water.
+
+The land is low and recent, still deciding whether to be marsh, island chain, or submerged plain. Fresh ridges of pale mineral thrust up at sharp angles, unsoftened by age. Their edges are clean as broken porcelain. Between them lie channels too new for maps, opening and closing over days as sediment pulses through. Nothing is stable long enough to become gentle.
+
+Vegetation has taken this instability as permission to overgrow. The plants are dense to the point of architecture: mangrove-like root lattices, floating meadows, rope-thick vine curtains, bulbous air bladders nodding on stems like lantern fruit. Photosynthetic films coat every exposed surface, turning metal, stone, and dead wood into green-black velvet. Some trunks are hollow and resonate like organ pipes when pressure waves pass through. There are no flowers in the familiar sense; reproduction happens by spores, runners, snapping pods, and slick rafts of seed that lock together into drifting continents.
+
+And there are no animals. No fish flash in channels, no birds stitch the air, no insects stitch the silence—because there is no silence, and because all niches seem occupied by plant and machine. Dead organic matter is reclaimed by fungal fans and bacterial sheens in hours. Pollination, where needed, is performed by hydraulics: timed bursts of steam and compressed air from rusting manifolds that shake pollen loose in yellow storms.
+
+The industrial presence is scattered but powerful, like a civilization that tried to grid the wet world and lost, though not completely. Pump towers rise from the floodplain in irregular clusters, each on a narrow skeletal platform. Some still run. You can tell by the vibration rippling through nearby water and by the strobing status lamps glowing through moss. Conveyor spines bridge one hummock to another, many broken, a few still carrying impossible cargo: blocks of peat, vats of algae slurry, coils of cable wrapped in root-mass.
+
+Pipelines snake everywhere—half submerged, wrapped in creepers, occasionally rupturing to vent warm mineral-rich plumes that feed explosive local blooms. Valve wheels the size of houses protrude from shallow basins. Turbine halls sit partly flooded, with only upper gantries above waterline. Inside, flywheels continue to turn under their own inertia or under power routed from somewhere unseen, and each rotation pushes out a bass thump that folds into the general roar.
+
+Because the sound is total. Not just loud—structured, layered, inescapable. Rain-hammer on metal roofs. Cavitation shrieks from overworked pumps. The throat-song bellow of pressure equalization towers. Rootwood knocking against pilings. Steam venting in rhythmic blasts. Distant collapses. Near detonations of bursting seed pods. The constant broadband rush of turbulent water in motion above, below, and through. To be here is to be inside an engine the size of a watershed.
+
+In dim light, orientation fails. Illumination comes from diffuse cloudglow filtered through water, from bioluminescent algal films in drainage trenches, from sodium work-lamps still alive on autonomous circuits, from electrical arcing where cables kiss floodwater. Shadows don’t fall in one direction; they layer and drift. A tree may cast three shadows: one from a mast light, one from lightning trapped in rain sheets, one from phosphor screens still cycling diagnostics in abandoned control booths.
+
+Weirdness arrives first as small contradictions. Rain falls upward for a minute. A reflection shows a structure not currently standing. A channel flows in two directions at once, split by an invisible seam in gravity. Then larger violations become ordinary. Entire platforms duplicate half a meter to the left, occupy both positions for an hour, then resolve. Vines grow around absent beams and remain suspended when the beam does not reappear. Survey stakes driven at dawn return at dusk with extra length, as if the ground beneath them expanded while no one watched.
+
+The locals—if any humans remain—have adapted by writing rules directly onto surfaces in waterproof paint, repeated everywhere:
+
+- **Do not trust straight lines in rain-phase.**
+- **Anchor to living root, not steel.**
+- **If the sirens harmonize, move uphill (any uphill).**
+- **Count seven breaths before crossing reflected ground.**
+- **Never enter a dry room that was wet yesterday.**
+
+Scattered habitation persists on high rafts and old maintenance crowns: corrugated shelters wrapped in netting, water stills, battery stacks, algae digesters. Gardens are vertical tangles suspended from crane booms. Footpaths are ropeways above churn zones, constantly rewoven as anchors shift. People, if seen, move with practiced decisiveness, clipped to lines, faces shielded from spray and spore, communicating by light signals and vibration taps more than voice.
+
+Ecologically, the place has become a closed warm wet metabolism: plant matter into slurry, slurry into bioreactors, power into pumps, pumps into redistributed water, redistributed water into new sediment and fresh substrate, substrate into more plant matter. Industry is no longer separate from swamp; it is a trophic layer, half-ruin half-organ. Rust feeds microbes. Microbes feed mats. Mats choke intakes. Intakes fail and flood halls. Flooded halls become nurseries for pressure-tolerant rootforms that split concrete and make new channels.
+
+The whole region feels young not by age but by incompletion. It is in active assembly and disassembly at once—forming land, erasing land, seeding systems, shorting them out, restaging geometry. Maps are valid for hours. Names apply to processes more than places: “the lifting marsh,” “the backward spill,” “the third turbine thicket.”
+
+Stand long enough on one mineral spur and you’ll watch three weather systems intersect: warm mist climbing from bio-reactive pools, cold rain-sheets descending from the overhead sea, and lateral wind loaded with spores and metallic dust. Where they cross, lightning crawls slowly, almost thoughtfully, from cable to vine to water surface, tracing temporary diagrams. For a moment everything is outlined—green, iron, foam, glass, root, bolt—then swallowed again by dim turbulent dark.
+
+It is not dead, and not alive in any simple sense. It is a low warm engine-jungle, deafening and saturated, reality fraying at every seam, still building itself out of water, growth, and unfinished machines.

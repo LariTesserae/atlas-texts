@@ -1,0 +1,23 @@
+**What Lives at Hesk Ardal**
+
+The works lives there. Everything else lives inside it.
+
+It breathes. It takes the warm air through the intakes on the uppermost terrace, the way a lung takes in weather, and the breath is cooled and squeezed and let go. Its heat comes from a buried fire beneath the lowest step, and that heat is its blood, carried up through the vents in a slow tide. It sweats. Every pipe bundle beads and runs, every condensate drain gurgles, and the sweat collects in the tanks and comes back out over the rim as the only thing it gives away. It has a heartbeat, and the heartbeat is the piston. One stroke every several minutes, a blow you feel in the sternum, and then the echo off the far wall arriving half a second late, weaker and rounder, like a second heart answering from another room.
+
+It also heals. Nobody tends it, but it mends itself the way an old body does, with crude and sometimes wrong methods. A valve seizes and the corrosion eats the seized metal until the valve moves again. A pipe cracks and weeps, and the moss creeps into the wound and knits a grey-green seal over it. A surge flushes the rust out of a chute and carries the debris down the channel. The works does not know it is repairing itself. It is only doing what its shape asks, and some of what its shape asks happens to keep it alive.
+
+Its tissues have been colonised, and it lets them be. The ferns root in its seams and pry its plates apart, and the vines pull its cranes out of true, and the trees swallow its rolling mills in rings of wood. Moss furs its dials until the readings are only shapes. None of this stops the machine. It is more like a slow graft, the works and the forest growing into one another until the boundary between them is hard to find. The trunks that carry the ghosts of gearwheels are the clearest sign of it: a tree holding an iron wheel inside its wood, turning nothing, still part of the mechanism.
+
+The creatures that live inside it have learned its rhythm and fitted themselves into the gaps.
+
+The swifts are the most visible. They rise in the long quiet after each blow, when the air still rings and the thermals are still rolling up the walls, and they drop back into the lull that follows the valves. Their colonies pack the gantry lattices by the thousand, but between the colonies the air is empty, and the empty air is theirs too. They use the pauses as much as the girders.
+
+The lizards bask on the warm pipes between cycles and go still when the stroke comes, flattening against the metal until the concussion passes. The beetles, slate-coloured and wet-looking, cluster around the condensate drains and feed on the mineral film the water leaves behind, and when a surge comes through they cling and wait.
+
+And then there is the grazer.
+
+It moves through the fern-shade of the lower terraces, a broad, slow animal with a hide the colour of lichen on wet stone, and a neck that folds and unfolds like a crane's, so it can strip the crowns of the broad-leaved ferns without ever leaving the cover of the leaves. It is not hurried. It follows a route that loops the whole bowl, across all nine terraces, and the loop takes nine cycles to complete. It has learned to count the pistons. When the blow comes it lowers its head and stands with the stillness of a stone until the echo fades, and then it moves, one step and then another, so that its passage through the ferns is paced by the heartbeat of the thing it lives inside. It does not seem to notice the works at all, and yet it has never once been caught in the path of a falling piston, so the works, in its way, must have made room for it.
+
+Downhill, past the rim and the mist and the spill of cold water, the reed-fields grow in the valley. They are the works' furthest dependents, and they have never seen it. Their stalks are ghost-white and tall, silent in the wind, and they flower only in the hour of the day when the pistons fall, so that every bloom is timed to a stroke that happens a long way above them, in a bowl they cannot see. The reeds have no idea what they are answering. They only know that the water tastes of iron, that the cloud is somewhere up in the white lid, and that the seasons are kind when the heartbeat falls in their hour.
+
+Whether the works is meant to feed them, or whether they were only ever what its breath happened to reach, nobody knows, and the works is not telling. It goes on, breathing and sweating and healing and falling. Every few minutes the piston drops, the echo comes back late, the valves shriek, and a fine warm mist lifts off the lowest terrace and drifts toward the rim, where it spills over the edge and is gone, the way breath goes out of a sleeping body and into the cold.

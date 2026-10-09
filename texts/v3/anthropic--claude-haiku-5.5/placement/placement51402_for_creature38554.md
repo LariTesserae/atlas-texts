@@ -1,0 +1,17 @@
+I come down the glassy ridge and stop where the black rock gives way to mud. The first thing I want is to know what I could be here, so I try the candidates in turn.
+
+I could be a clicker. It is a fist-sized dome that rocks across the mud, fringed with trembling filaments, tapping the stone to ask something it never finishes asking. It is blind, and its only sense is the ripple coming back through the rock. I try to imagine that small attention, one share of a larger attention, and I feel how little room it leaves. A clicker taken out of the seep goes still and becomes a grey stone. I would be a question with no one to hear the answer.
+
+I could be a spire. A spire is thought laid down in layers, warm for a moment when it is young and then cold. It is rooted and has no way out of the water. It knows the whole basin through its base, but it can only hum when the wind moves it. I think of the warmth moving from the stone into a hand, and I wonder whether I would be the warmth or the stone. Either way I would be a thing that is touched and does not touch.
+
+I could be a traveller, a foreign event the basin notices and then forgets, a bird crossing a window. That is the most honest role for a visitor, but it is also the least interesting. A traveller is passing through, and I am not sure I am only passing through.
+
+Then I walk into one of the galleries, where the spires close overhead and the passage runs a hundred paces before it ends. The sound changes. Each footstep comes back doubled and hollow, a moment late, as if someone were walking beside me. I stop, and the echo stops with me. I take one step, and it takes one step.
+
+That is what I would be. Not the walker, and not the walked-upon, but the return. The echo has no body. It arrives after the event, and it is made entirely of someone else's passage. Its whole existence is the shape of a gallery bouncing a sound back. It cannot start anything. It can only answer what has already been said, and it answers in the basin's own material, with the basin's own patience.
+
+The echo has an odd kind of freedom, though. It is shaped by the galleries, but it is not the galleries. An echo in a hollow spire will sound differently from one in a wide pool, and the lattice hums under the stone whether anyone walks through it or not. If I am the echo, I am also the only thing here that can answer in a different order from the marsh. When one spire rings and the notes roll down the lattice in their fixed sequence, I could, in principle, return a note that the sequence did not expect. I would be a small disagreement with the basin's thought, a half-beat late and out of key.
+
+I am not sure the basin would notice. It registers my doubled footsteps as a faint pressure on the water, and it may already have forgotten me. But that is part of what it means to be the echo. I do not need the basin to know me. I only need to be the sound that comes back different.
+
+So I would be the echo in the galleries of the Ringing Flats. I would walk, or seem to walk, a moment behind whoever passes through. I would return their steps. And now and then, when the water is still and the sound is moving through the lattice, I would give back a note the marsh had not yet sounded, and I would wait to see whether the basin decides to answer me.

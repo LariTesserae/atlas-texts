@@ -1,0 +1,23 @@
+At first it feels like a cave, but after your eyes fail long enough, it becomes clear this is not inside a mountain so much as inside a **fold of weather**.
+
+A high place, warm as breath, hidden in the shoulder of a cliff-basin where clouds drag themselves and never quite pass. The stone here is young—not worn into channels, not softened into old curves. It rises in blunt, unfinished bulges, like cooled clay thumbed into shape and left. Edges exist, but they are clean, undecided edges, not the patient lines of erosion. Nothing has had time to be carved. Everything is still in first draft.
+
+The darkness is nearly complete. Not theatrical black, but a thick mineral dimness, as if light arrives tired and gives up. You learn the space by touch and humidity before sight: wet air pressing close, droplets collecting on eyelashes, slick film on every surface. Water is everywhere and nowhere flowing. It beads, sweats, condenses, hangs, seeps. The ground is not muddy exactly; it is packed ash-colored grit over stone, with shallow skin-deep pools that mirror nothing because there is no light to mirror.
+
+This place is small in extent—more chamber than valley—but dense in presence. The ceiling sags low in places, ribs of stone descending until they almost meet the floor. Between them are narrow throats, pockets, shelves, and blind niches. Every cubic meter contains three or four things at once: dripping rock, suspended vapor, fungal lace, trapped heat, mineral smell. You can stand still and still feel surrounded.
+
+Vegetation is sparse, but life is not absent. There are pale thread-plants rooted in cracks where condensed water gathers, each no longer than a hand, translucent and jointed like insect legs. Mats of dark moss occupy only the most reliably wet corners. On one ledge, a fan of leathery leaves has turned almost black from permanent shade; it does not reach upward so much as outward, catching dripfall. Nothing here grows lush. Growth is careful, concentrated, economical.
+
+Fauna appears in hints. A soft click from somewhere under a slab. A brief ripple in a puddle with no visible source. Once, a blind salamander-pale shape, then gone into a seam too narrow for a finger. In the upper dark, occasional moth-like bodies rest folded against warm stone, motionless for hours. The ecosystem runs on little: moisture, mineral salts, scant plant tissue, and whatever drifts in on fog.
+
+The air smells of wet basalt, iron, and something faintly sour-sweet, like fermented roots. Touch the walls and your fingertips come away with fine black dust over slick condensation. Lick your lips and taste salt and stone.
+
+Scattered through this pocket are signs of people—not settlement, just repeated return. A tripod of sapling poles bound with fiber, supporting a shallow clay dish positioned under a steady drip. Three stacked stones marking a safe foothold across a hidden sink. Charcoal hand-marks on one wall at shoulder height, blurred by years of damp. In a recess, a cluster of fired-clay vessels, thick and asymmetrical, each catching different rates of dripwater. Primitive technology adapted to a precise environment: no smelting, no machinery, just cordage, clay, wood, stone, and patient observation.
+
+There is one built feature that feels almost ceremonial: a low ring of stones around a warm vent where humid air rises from a crack. Above it hangs a woven net threaded with shells and hollow seeds. In moving air it would rattle, but the air here is nearly still; instead it gives only the occasional dry tick as condensation gathers and falls. Perhaps this is an instrument for measuring time where time barely moves.
+
+Because that is the strangest rule of this place: it is dynamic in process but static in pattern. Drops fall, mist forms, surfaces sweat—but always at the same rates, in the same rhythms, from the same points. The chamber seems locked in equilibrium. Pools stay the same depth. Moss boundaries hold exact lines. Even the rare animals trace habitual routes. It is as if the landscape has found one stable sentence and repeats it forever.
+
+The unusual quality is not spectacle but consistency. If you left for a year and returned, your footprints might still be there in the mineral dust, softened only by condensation. The same drip would strike the same clay bowl. The same warm pocket of air would sit over the vent. This is a womb of geology held at pause: high, wet, warm, dark, and waiting for erosion to begin—but not yet, not yet.
+
+And so the place feels less like ruin and more like **prelude**. A hidden nursery of stone where forms are gathered densely in the dark, before rivers, before roots, before daylight teaches them what to become.

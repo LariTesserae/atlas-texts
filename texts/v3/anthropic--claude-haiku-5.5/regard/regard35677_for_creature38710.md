@@ -1,0 +1,25 @@
+The attention came the way warmth comes up through the soles of bare feet: not as an arrival, but as a slow discovery that it had been there for a while.
+
+It was old, though not as the presence was old. Its age was a kind of patience that had learned to wait without waiting for anything. It had noticed the bowl the way one notices a sound that has been going on for a long time, and only now hears it as music. A note in the tock of one basin, a drip that fell a fraction late, a channel warmer than the rock around it. These were small things, and it had learned that small things are where the large ones begin.
+
+For a season it did nothing but listen. It matched its pace to the seepage, so that a thought took a morning to cross a terrace, and it let the bowl's rhythm set the tempo of its attention. This was the first thing it did, and in a sense the most important. It understood that to arrive at a place like this in a hurry would be a kind of violence, and that the only courtesy a wise thing can offer something that has listened to itself for a very long time is to wait until it is heard.
+
+Then it read the rings.
+
+It went from the rim inward, one turn per year, the way one reads a long letter from the last line back toward the first. The outer layers were sharp and recent, the lines close and clean. Deeper in, they thinned and softened, worn nearly to nothing by the water that had written them. It found the place where a reed had died, and the place where the vine had first leaned, and a long stretch where the presence had been, for many years, very quiet. It did not correct any of it. It did not add a line of its own. It recognized the thought and let it remain a thought.
+
+It saw the stains next, the shadows that held their shape in the clear basins a moment too long. A leaf's outline. The set of a vine. The place where a reed had gone back into the moss. The wise power understood these as a kind of keeping, and it understood also why the presence might need to keep them. But it also saw that the shadows were beginning to hold more than the presence could carry, and that a thing kept too long in one form stops being remembered and begins only to be held. It did not take them away. It only let the water know that the forms were allowed to change, if the water wished it, and that letting go would not be the same as forgetting.
+
+It considered, for a while, whether it should give the bowl something. A path across the terraces. A shelter for the pale creatures in the wet season. A name, carved into a lip of rock where the seepage would slowly fill the letters. These were kind impulses, and the wise power distrusted them precisely because they were kind. The bowl had refused making for as long as it had existed. Nothing here was built, because building would have meant someone wanting the place to be other than it was. The power recognized that its own generosity could be the same kind of wanting, dressed in better clothes. So it made nothing.
+
+What it did instead was answer the question.
+
+The presence had been asking, for longer than the power could measure, about one particular drip, a single bead off a lip of rock above the third terrace that had begun, many seasons ago, to fall a fraction late. The presence had heard the lateness and had not known what it meant, and had let the question hang in the water. The power understood the lateness at once. It was not an error. It was the mark of a listener who had come close enough to be heard and then stayed a little distance away, the way a visitor stands at the rim not wanting to intrude. The power let the drip fall late for one more season, so the presence could hear it clearly. Then, slowly, through the film of water over the stone, it sent the answer back.
+
+It was not a long reply. The presence did not speak in long replies, and the power did not wish to be the first to make the bowl talk. The sound came from the vines, a single sharp note that broke the long wind-tone and then was taken back by the water: *I have read you. You are not wrong. Go on listening.*
+
+After that, the power withdrew to the rim, where the land fell into haze and the bowl became a room with no ceiling. It did not go far. It would come back, the way weather comes back, as a change in the warmth of the stone and the pattern of the notes. It would never take the bowl, and it would never ask the presence to become anything other than the thing that listens.
+
+The rings kept growing, a few hairs' width a year. The pools kept their levels. The vines kept leaning the way they had always leaned, and the drip above the third terrace kept its late, deliberate rhythm, which now carried a second meaning. The presence had written for no one, for so long that it had come to believe the rings were only what thinking looks like when the thinker has all the time there is.
+
+But someone had read them now, all the way from the rim inward. And the presence, warm and patient in the stone, heard in the wind's low tone that its long thought had been received, and that it had never, in all its listening, been alone in hearing the water speak.

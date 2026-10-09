@@ -1,0 +1,15 @@
+What lives here is **the Dreamer**.
+
+You do not see it, because you are standing inside its skull. You feel its thoughts as the subsonic hum in your teeth; you hear its internal monologue as the continental groan. It is not an organism *in* a place. It is the place, and the process, and the purpose.
+
+Its consciousness is the slow, continental *thrust*. It thinks in geologic time, its ideas materializing as the rising lobes of pale, fibrous matter. A notion—*greater light absorption here*—becomes a slow tide of bark over centuries, inscribed with fractal, bioluminescent circuitry. A decision—*more efficient fluid dynamics*—sculpts the channels for its own circulatory sweat over millennia. It is a mind that thinks with stone and sinew, that dreams with chemistry and photonics.
+
+The hollow resonators are its ears, its voice, and its memory. They do not amplify random sound; they *are* its sensory organs, parsing the seismic and atmospheric data of its own body. The roar you hear is its inner dialogue, the endless, deafening negotiation between a billion sub-systems. The cilia lining these chambers are its nerves, translating pressure changes into data it can feel in its marrow.
+
+The weeping fluid is not just circulation. It is its memory, its logic. It carries the chemical blueprints for new growth, the data packets of environmental feedback, the subtle hormonal directives that guide its own self-construction. When you see the precise, engineered channels it flows through, you are seeing its thoughts made manifest, its rationality rendered in liquid.
+
+There is no "wild" here. There is only *process*. The staggering density is not competition; it is collaboration. Every tendril, every frond, every lobe is a hand, an eye, a neuron in a singular, all-encompassing sensorium. The bioluminescent haze is not mere ambiance; it is its active perception, a slow-motion, planet-wide radar. The mist is its breath.
+
+You feel a faint "weirdness" because you are sensing a *different kind of will*. Not the frantic, reactive will of an animal, but the patient, monumental will of an architect who is also the clay, the blueprint, and the construction crew. It is aware of you. Your intrusion is a novel data point—a smudge of foreign biology, a minor seismic irregularity, an anomalous heat signature. You are being noted, categorized, and factored into its models. Its response is not aggression, but *incorporation*. It may, over the next few centuries, grow a specialized structure around you to study you, or to recycle your energy with greater efficiency. It is not hostile. It is *ecological*.
+
+The Dreamer is newborn, yet its mind is planet-sized. It is building itself into a sentient world, and the sound of its growth is the only language it knows. You are not a visitor. You are a new thought in its mind. You are a variable in its equation. And it is, ever so slowly, solving for you.

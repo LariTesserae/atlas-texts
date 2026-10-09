@@ -1,0 +1,27 @@
+The first thing you learn, standing on the Resonant Flats, is that *sound* is the true architecture. The light is diffuse, the stone is flat, the water is omnipresent—but the noise is a solid thing. It is a woven structure of a billion living sounds, and you, a newcomer, are a silence in its fabric. They can all hear you.
+
+The **vrrk-chitter** is the sound of the grazers. Not crabs, not insects, but a fusion of both. We call them **Scrapers**. They are the herd-beasts of the rock. If you look down, you see them: legions of dark, chitin-armored creatures, no bigger than your hand, moving in a tide across the slick basalt. They have too many legs, and each leg ends in a hooked claw that *ticks* against the stone as they walk. They scrape the microbial mats with mandibles shaped like chisels, and the sound of their feeding is a dry, grinding hiss that fills the middle frequencies. They are the foundation. Everything eats them. They know this. Their eyes—clusters of black beads—are always watching the sky and the water's edge. They move in waves, a coordinated skittering, sensing vibrations through the stone long before you see the predator.
+
+Beneath the surface of the shallow lakes, the **Deep-Singers** move. These are the eels mentioned in the lore, but to see one is to understand a different kind of life. They are muscular, pale-bellied, dark-backed, and they move with a slow, hypnotic grace. They are not silent. Their song is the heartbeat of the Flats. It is a sub-vocal hum, a vibration you feel in your teeth and your lungs before you hear it. They sing to navigate the murky water, to find mates, and to stun their prey. When a Deep-Singer finds a cluster of Scrapers, it does not strike. It *hums*. The frequency resonates in the Scrapers' chitin, disorienting them, causing their legs to lock. The eel then glides in and feeds. Their song is beautiful and terrifying. It is the sound of the world breathing.
+
+Above, the **Shriekwings** patrol. They are not birds. They are six-limbed, membranous wings stretched between elongated digits. They are clumsy on the ground but terrifyingly precise in the air. They hunt the Scrapers and the fungal fruiting bodies. Their sound is a high, thin keen, like a blade being sharpened on stone. They roost in colonies on the escarpments and in the fungal stalks, and their collective noise is a metallic scrape that sets your nerves on edge. They are the reason the Scrapers move in herds. They are the reason you should not stand still for too long in the open.
+
+And then there are the **People**.
+
+They are not many. Maybe a few hundred in the entire basin. They live in small family groups on the higher ground, on platforms of stacked basalt that rise just above the waterline. They are human, or close enough. Slender, dark-skinned from mineral dust, with eyes that have adapted to the low, diffuse light. They are almost always wet. They wear little—loincloths of woven fungal fiber, harnesses for tools. They move with a quiet economy, their bare feet on the stone making a soft pad-pad-pad that is absorbed by the larger noise.
+
+Their genius is in listening.
+
+They do not speak much with their voices. The air is too loud. Instead, they have a language of taps. Knuckles against stone. A rapid *tap-tap … tap* that travels through the basalt for kilometers. They feel the answer in their feet. They know the Deep-Singer's song means "danger in the water." They know the Shriekwing's keening pitch means "fliers above." They know the rhythm of the Scrapers' migration means "follow the food."
+
+Their homes are simple. Platforms of stone, roofed with layers of dried fungal stalks that are surprisingly strong and shed water well. They have fire pits, carefully shielded, for drying meat and warming themselves against the perpetual damp chill. They chip basalt into blades with a skill that is almost artistic. They make hooks from copper and meteoritic iron. They fish for the eels and gather the Scrapers in nets woven from fungal fibers.
+
+They are quiet. They watch. They listen. They have a rhythm-language that is entirely unique—a series of taps, pauses, and pressures that can convey complex ideas across the noise. "Water rising in the west." "Deep-Singers breeding." "Shriekwings nesting on the third escarpment." It is a language built not for poetry, but for survival. It is efficient, beautiful, and deeply practical.
+
+They do not fear the noise. They are part of it. Their dead are given to the water, to feed the soft-bodied grazers that feed the eels. They understand the cycle. They are not masters of this world. They are a quiet, clever species that has found a niche in a symphony of sound that would deafen and disorient any other creature.
+
+If you were to walk among them, they would watch you. They would tap to each other: *A silence. A loud silence. What is it?* They would offer you water in a stone cup. They would point to the ground, where a Deep-Singer's hum is building in intensity, and tap: *Listen. It sings of a storm.*
+
+And then you would hear it too. The layers. The Scrapers' hiss, the Shriekwings' keen, the Deep-Singers' hum, the constant trickle of water on stone. And over it all, the soft, rhythmic tapping of the People, communicating in the spaces between the noise, a part of the system, not above it.
+
+They live here because they learned to listen. They survive because they understand that the sound is not chaos. It is information. It is the voice of the Flats. And they have learned to read it like a book.

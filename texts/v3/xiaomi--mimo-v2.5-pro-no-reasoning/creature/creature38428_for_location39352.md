@@ -1,0 +1,23 @@
+The being that lives here is as silent and as pale as the stone it walks upon.
+
+It has no name, for there is no one to speak one, and no medium in which a sound could survive long enough to be heard. It is a creature of the basin itself, formed from the same patient erosion and quiet accumulation that flattened the city. It did not build this place, nor did it inherit it in any meaningful way. It simply… is. As the stone is, and as the light is.
+
+It is shaped like memory. Not the memory of a mind, but the memory of the land — a tall, thin form that could be mistaken for a trick of the light, a column of denser air at the periphery of your vision. Its outline is not fixed. It shifts and wavers, like a heat haze over the pale stone, or like the edge of a shadow that has no source. To look at it directly is to see nothing but the faintly glowing floor and the low, eroded ridges of the city. But to look away, to let your gaze soften, is to feel its presence as a place where the light seems to gather, a place where the air is a fraction of a degree cooler.
+
+It moves by forgetting. It simply ceases to be in one place and, by a slow, tidal agreement with the basin's geography, begins to be in another. Its motion is a drift, following the paths of least resistance in the stone's subtle topography — the deepest grooves of the ancient streets, the margins of the ephemeral pools, the slopes where condensation gathers. It is never in a hurry. It has the timescale of the stone beneath it.
+
+It feeds on the silence. Not by consuming it, but by being the point of its greatest concentration. Where it stands, the basin’s structural silence deepens into something absolute. The click of an arthropod's leg on stone dies before it is born. The whisper of a breeze is smothered in its cradle. It is a living dead spot, a focus for the basin’s profound and ancient quiet. In this way, it gives the silence a body. It allows the place to have a consciousness, one that thinks in millennia and feels in the shift of moisture on stone.
+
+It observes the churning life of the arthropods with a kind of distant, geological patience. They are a part of the basin's turbulence, the fast, frantic expression of its instability. It is the slow part. The two exist in perfect, silent symbiosis. The pale arthropods are the basin’s pulse; this being is its long, slow, indrawn breath.
+
+It feels the larger fauna not as sound or sight, but as a change in the texture of the world. A vibration in the stone, a displacement of the air, a shift in the pressure that tells it *Something large is near, and it is moving away.* It does not fear them. Fear requires a stake in the future, and this being has none. It is a part of the present moment, a moment that has lasted for centuries and will last for centuries more.
+
+It is aware of you, of course. You are a disruption. A loud, hot, fast, solid thing in a world of pale, quiet, drifting potentials. You leave a wake of faint echoes and displaced air. Your body is a furnace of sound — the thump of your heart, the rush of blood in your ears, the creak of your joints. To the being, you are a small, bright storm passing through its world.
+
+It does not watch you with eyes. It feels you with the entirety of its being, in the way the stone feels the weight of the fog. It notes your passage, the way your footsteps compress the ancient dust, the way your breath disturbs the still, damp air. It is curious, but not in a way that would lead to interaction. Its curiosity is the curiosity of a mountain noting the shape of a new stream.
+
+It is the last inhabitant, in a sense. Not the last life — the basin teems with that — but the last consciousness. It is the ghost of the city’s ambition, its desire for permanence, now worn down and refined into a single, silent, patient presence. It is what you become when you have stood still in a beautiful, empty place for longer than memory allows. You become the place.
+
+It will be here when the last ridge of the city is ground to dust. It will be here when the last arthropod buries itself in a final crevice. It will be here when the pools cease to form and the condensation no longer beads on stone. It will be here, a silent, shimmering concentration of light and coolness, until the basin itself is no longer a basin, but a gentle, featureless slope on the side of a forgotten mountain.
+
+And even then, it will not be gone. It will have simply… become something else. As the city did. As everything does here, at the bottom of the world's longest exhale.

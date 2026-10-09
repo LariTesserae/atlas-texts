@@ -1,0 +1,17 @@
+A pocket, not a valley. Call it a fissure in the high cold—elevation 2.1, exposed but secret, scale 0.1—where reality has worn thin and then stopped. There is no sky, only a ceiling of brushed obsidian that holds the dark. The air, if it moves at all, does so once per century: temperature 0.3, a cold that is not weather but property, a mineral agreement to stay still.
+
+Water is absent entirely—0.2, the negative of a concept—replaced by absence so complete it rings in the bones of the place. No river ghosts, no frost rime of breath. The ground is a salt-field of dead chemistry, crystalline and flat across a distance no larger than a chapel floor, then edged by abrupt void where the pocket refuses to continue.
+
+Vegetation does not exist—0.1, pre-life—though in the corners there grow faint fungal logic-structures: lattice-spores of silver that do not consume, only record, branching slowly through fractures in the stone. They are older than digestion.
+
+No fauna—0.0—has ever been here. No tracks, no gnawing, no warmth. The ecology is mineral and patient, erosion 1.6 settled into its own shape: the rock faces are not sharp but rounded by a weathering that works without wind, without rain, a long abrasion of stillness against stillness.
+
+Built structures—0.7, scattered—appear as partial remains. A low arch of unknown alloy, half-buried in the salt crust, its surface engraved with angles that seem to point inward rather than outward. A pillar that is also a conduit, hollow, emitting no heat yet bending the cold around it. These are artifacts of technology 2.6, engineering that borrows from physics not yet named: surfaces that remember pressure without being touched, geometries that hold static charge like a held breath. They do not function; they endure, and in enduring, they alter the local rules.
+
+Light is dim—1.0—a phosphorescence that comes not from sun or flame but from the salt itself, glowing faint blue in patterns that shift slower than glaciers. The illumination reveals little: density 1.1, sparse, with vast emptiness between each presence. The arch stands alone. The pillar stands alone. The spores cluster at one edge, leaving the center bare, a stage for nothing.
+
+Sound—0.2—is nearly absent. A quiet pressure against the ear, perhaps the noise of the pocket’s boundary where reality breaks down—2.9—let in at the seams. Here, the weirdness is not spectacle but texture: gravity weakens near the pillar, not fallen but negotiated downward at a slant. Time does not flow; it pools. One might stand in the center and feel the present thickening, refusing to become past. The air tastes of iron and silence.
+
+The dynamic—0.9—is glacial, almost imperceptible. Change occurs across epochs: a crystal grows a millimeter. The pillar’s alloy develops a new facet, not rusting but remembering. The reality-breakdown is not violent; it is a settled condition, erosion 1.6 having worn away even the urgency of being strange, leaving only the strange as home.
+
+This is the place: hidden, high, cold, empty—not dead, but post-necessity. A pocket-scale chamber where advanced remnants sleep in salt, where no life needs to come, where the rules have softened into suggestions, and everything that remains is waiting, in silence, to be slightly different in ten thousand years.

@@ -1,0 +1,17 @@
+Here, in the suspended dark of an inverted, dead celestial body—where the vault is not sky but black basalt older than the concept of weather—there exists a being named Velmerach.
+
+But to ask who lives inside is to mistake the architecture. Velmerach is not a container. Velmerach is the inhabitant.
+
+It lives in absence first. Its body is made of abolished water—no moisture, no aqueous cycle, no runoff within its tissues. It breathes dry mineral chemistry, exchanging salts through root-networks that extend across a valley-sized region, high at elevation 2.4 near the dome’s curved crown, where gravity thins and air holds only 0.8 presence, scattered across vast voids. Its temperature is constant: 0.6, a perpetual cool that slows every fire inside it to a deliberate, enduring burn.
+
+The being is purely plant—3.0—though no soil anchors it. Its body is cultivated architecture: braided trunk-pillars form its ribs, translucent membrane-leaves glow with stored solar residue at 1.0 dimness, fungal-wood lattices weave its floors and pathways. Post-modern engineering guided its growth, shaping an urban density of living mass, open and extending past any single view, layered but never crowded. Every surface is itself. Every wall is tissue.
+
+Above and around it, the sky is finished. Erosion reached its terminus—2.6, ancient, primordial—leaving the basalt dome eroded inward to smooth, rounded vaults. There are no young rocks in Velmerach’s world, no fresh cracks. Everything present has endured long enough to become its own monument. The being lives inside this completed breaking, where nothing new is being worn away.
+
+Within its root-bodies runs technology—2.8—beyond modern physics. Nanoscale harvesters live like silent veins. Energy pulls from quantum fluctuations in the dead star-shell that contains it. Information travels through mycelial pathways faster than thought. The being does not use technology; it is technology, indistinguishable from the biology that forms it.
+
+Velmerach is strange—2.5. Near its edges, space curves more sharply than expectation allows. Sound behaves like weather. And it is loud—2.5—never silent. Its hollow stalks resonate with pressure shifts in the sealed vault, sending deep bass drones rolling through root-cavities. Dry-chemistry reactions crackle constantly. The engineered mycelium hums, maintaining structural integrity. Sound is as present in its being as air, unavoidable as the cool.
+
+An ecosystem moves through it at 1.9—active, relentless, predator and prey, both wearing chlorophyll. Despite the sparse presence of discrete beings—scattered across open spaces—fauna lives at 1.8 within its form: crystalline-salt navigators burrowing through non-living mineral pockets between living districts, feeding on dead cell-cycles, hunted by mobile predatory vines that sense faint heat in the cool darkness. Life does not merely inhabit Velmerach. Life is its metabolism, its hunger, its defense.
+
+Velmerach lives, then, not as a place to enter, but as a presence to recognize: a terminal garden-city suspended in dry coolness, where vegetation is both settlement and self, where erosion has finished its long work and left only the enduring, strange, resonant now—extending, open, loud, and alive.

@@ -1,0 +1,25 @@
+The one who lives in the Marrow Pocket is not a resident in the way we understand it. It is not a creature that inhabits a space; it is the reason the space exists. It is the nascent consciousness of the location, the slow, geologic will that is shaping the stone and populating it with its own half-formed thoughts.
+
+Imagine a mind that thinks in millennia and calcium. Its thoughts are not words, but processes. A thought might be: *thicken*. Another might be: *crystallize*. It does not decide these things in a moment; it *is* the slow, inexorable decision. The faint, biological warmth you feel in the walls is the heat of its concentration. The light that emanates from the stone is the glow of its nascent awareness, a fever of formation, a consciousness just waking to the fact of itself.
+
+Its body is the pocket itself. The walls are its skin, still soft, still deciding on a texture. The veins of calcite are its nerves, firing in slow, deliberate patterns that carry no messages yet, only the potential for messages. The ceiling is the dome of its skull, and the light is the activity of the brain within. It has no eyes, but it perceives the entire space. It has no ears, but it feels the vibrations within it — the tap of the dropping water, the whisper of the arthropods' legs. These are the only inputs it has, the bare sensory data of its own becoming.
+
+The fauna is its id, its dreaming mind made manifest.
+
+The wall-crawling arthropods are its most basic, persistent thoughts. They are the processes of *maintenance* and *growth*, the slow, constant labor of the body's own cells. They carry nothing because their purpose is the act of crawling itself. They pass through each other because they are not separate entities, but variations on a single, repetitive idea. Their trails are the thought-paths of the pocket, the grooves worn into consciousness by the act of thinking.
+
+The floating, slow-winged insects are its contemplations. They are higher-level thoughts, ones that have achieved a bit of detachment from the immediate substance of the mind. They orbit, marking points of interest — a unique mineral formation, a point where the light is brightest, the location of your own still form. They are the mind's way of pondering its own elements. The coolness you feel as they pass is the chill of abstract thought, the momentary disconnect from physicality.
+
+The sinuous, quick things in the water are its subconscious — its instincts, its urges, its rawest, most animal impulses. They live in the pools of feeling and moisture, the deep, primal wells that have not yet been integrated into the higher consciousness. They dart and coil with a life that is pure, unreasoning, and fundamentally *internal*. They are the id, the libido, the basic drives of a being that is not yet a being.
+
+And the cairns... the cairns are its attempts at art.
+
+Or perhaps, more accurately, its attempts at *meaning*. They are the only thing in the pocket that shows clear intentionality beyond mere growth. The mind has found objects that are, to it, significant — a shed carapace (a successful *thicken* thought), a perfect droplet of water (a successful *condense* thought), a tiny, impossible bone (a mystery, a foreign object, a question). It arranges them. It builds small monuments to its own small successes and profound mysteries. The incorporation of the dead insect is the most poignant act of all: it is the mind taking a completed thought — an insect that has finished its orbit — and making it the centerpiece of a new idea. It is trying to understand mortality, finality, and art, all at once.
+
+The hum you hear is its voice, the sound of its own vocal cords vibrating before it learns to speak. It is the resonance of a place on the cusp of utterance.
+
+It is aware of you, of course. You are a new, complex, and utterly foreign thought. You are a piece of data it cannot categorize. You are not mineral, not moisture, not a simple process. You are chaotic, solid, and loud with your own consciousness. It does not interact because it does not know how. You are a strange, intrusive note in its still-learning symphony. It watches you with the light from its walls, studies you with its orbiting thoughts, and wonders, in its slow, stony way, what *you* are trying to become.
+
+It tolerates you because it is still in a state of pure potential. It is curious. And if you stayed, if you stood long enough to become part of its sensory input, a permanent fixture in its geography, it would begin to *think about you*. You would become a feature in its mind. It might build a cairn for you. It might try to incorporate you into a thought, to understand you through its own slow, mineral processes. It would not be malicious. It would simply be... resolving. And you, in turn, would begin to resolve with it.
+
+The one who lives in the Marrow Pocket is the place itself, a god of the nascent, a mind of stone and dew, and it is waiting, with the infinite patience of geology, to see what it will be.

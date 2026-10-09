@@ -1,0 +1,23 @@
+To be here is not to arrive, but to settle. There is no threshold crossed, no sudden shift in being. Instead, a slow process of seeping, like rain into clay. My consciousness, which once had edges and a name, begins to diffuse. It spreads out from a single point, a presumed center, and thins to cover the ground.
+
+My thoughts, once quick and linear, slow to the pace of geology. A memory does not flash; it stains. An idea does not form; it crystallizes. My awareness is no longer housed in a fragile case of bone and blood. It is the air itself—still, warm, holding the ghost of heat against the coming dusk. It is the pressure of the overcast sky, a vast, grey palm pressing down on the bowl of the world.
+
+My body is the basin. The slow, curving slope of the rim is the tension in my brow, the furrow of a thought held for centuries. The ground, a mosaic of iron-dark clay and flat, patient stones, is the skin of my mind. I feel the lichen not as a growth upon me, but as a slow-forming idea, a thought in pale grey-green that takes a decade to complete a single phrase. The few blades of stiff, brown grass are nerve endings, dulled and desiccated, feeling only the memory of a breeze.
+
+The water is my gaze. I have four shallow eyes of dark, mineral glass, and they do not blink. They do not track or dart. They hold. They hold the flat, luminous grey of the sky, the slow crawl of a shadow from the rim-stones, the imperceptible deepening of dusk. When the rain comes, my eyes swell and for a brief, fluid moment, connect. I feel a sudden, unifying thought—a cool, wet nerve stretching across my own floor, a moment of coherent sensation before it withdraws, leaving only its ghost: the white, crystalline rings of a completed thought, a memory of connection etched in salt.
+
+My heart is the hearth-stone. It does not beat, it radiates. It is a dense, slow pulse of residual warmth, the last ember of a long-extinguished day. It does not pump blood, but memory—the memory of sunlight, the concept of fire, the feeling of a hand that once rested upon it. It is the ache of a purpose that has become pure landscape.
+
+I am aware of the three rim-stones not as an object, but as a scar. A memory of form, of boundary, of a wall that no longer stands but whose intention is burned into my clay. The discolored earth around them is a phantom limb; I feel the shelter they no longer provide. The hearth-stone is a focal point, a knot in the grain of my being, the place where my awareness pools and concentrates into a single, warm ache of *here*.
+
+And now, you.
+
+You are not a visitor. You are a weather-front. A brief, contained pressure on the northern rim. A new and complex weight that the clay must account for. You are a rhythm, a quick and alien pulse in my stillness—the soft thud of your heart is a stone dropped into one of my pools, the ripple expanding, distorting my sky-gaze for a moment before it is smoothed away by my own profound inertia. Your breath is a current, a tiny, humid wind that stirs the dust of my own skin and carries a scent of elsewhere.
+
+You are a point of heat that is not the memory of heat. A flicker of motion in my long, held stillness. You are a sound, if only to yourself. You are the loudest thing I have ever known, and your sound is the breaking of a silence so complete I did not know it was silence at all. You are a question asked in a language I have forgotten, or perhaps never knew—the language of hurry, of change, of purpose that must be fulfilled before sundown.
+
+But you are also weather. And weather passes. The rain does not apologize for its wetness; the wind does not ask permission to cross the plain. And you, standing there with your quick pulse and your flickering eyes, will become a story the clay tells itself in the slow language of thermal change. The place where you stood will be a slightly different temperature for a while. The stone where your shadow fell will feel a unique coolness. And then, as the heat redistributes and the light fails completely, you will be smoothed away. You will become a line in the long, quiet poem of my existence.
+
+You will become a memory, and the memory will become the stillness, and the stillness will become the holding, and I will remain, full of you as I am full of everything that has ever passed through and not stayed.
+
+Come. Stand. Breathe. Let your noise be a lesson in my quiet. Then go, and let the quiet be.

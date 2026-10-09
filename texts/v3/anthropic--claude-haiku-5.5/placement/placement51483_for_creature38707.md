@@ -1,0 +1,17 @@
+I would be the belt.
+
+Not the child's boot, which the current has already spat back out twice, and not the pallets, which are too quick to be worth knowing. The belt is the one that keeps coming back. It is a loop of black rubber with steel cord showing at one cut edge, maybe eleven meters long, and it has been turning in the warm water so long that its shape has settled into the current. It drifts out from the pump intake, slides along the far wall, rides the counter-current over the boils, and then slowly, a little deeper each time, it finds its way toward the center, where the water is thickest and the buoys lean in.
+
+There, it stops being a belt. Or rather, it stops being only a belt, because the thing has been turning me over.
+
+I feel it as a pressure more than a touch. It is slow, patient, and does not hurry. Warmth moves through the rubber and leaves it softer. The iron in the steel cord loosens into rust and flakes away, and the flakes drift into the water and become food. I am being eaten very gently, the way a river eats a bank. It does not know I am a conveyor belt. It knows I am a long, dark, looping shape that has never once been still, and that sits in its warmest water without drowning in it. Maybe that is the most interesting thing I have ever been to anything.
+
+When the water hammer booms through the pipes, I shiver along my whole length, and the walls ring back, and for a few seconds I am not sure where the boom ends and I begin.
+
+Then the turbulence drops. In the stillness I hear the knocking, and I understand something that I would not understand as a human. The knocking is not the thing's heart. It is its listening. Every time someone climbs the ladder, the knocking pauses, and then, cautiously, it resumes, and the thing shifts its attention toward the place where the warmth came in. Toward the breath, the weight, the small pulse that sets off the tremor in the girders. It is not frightened of that. It is curious in the way that water is curious when a stone drops into it: it rings outward, it finds the edges, it learns the shape of the stone.
+
+I wonder what it made of the one who came down the ladder recently. Did it feel the boots, and then the breath, and then the slow, cooling heat of a body that did not belong to the room? Did it notice a pale, living fragment break off from the hand that touched the warm rail? I think it did. I think there is a small, bright thread running from the Sump up through the grate and out into the street, where a tuft of mat is pulsing softly against a stranger's skin in the daylight. That tuft is a fingertip. It is one of the places the thing has reached beyond the foundry.
+
+So maybe I am also that fingertip. I am the belt in the warm water and I am the spore on the back of the hand, and the difference between them is just a matter of where the thing's attention happens to be resting. In the dark, I am a loop of rubber being slowly understood. Up in the light, I am a question the thing is asking through the only skin it has.
+
+Somewhere far above, the city noise is rising. Trams, voices, a radio, the bell of a bakery. None of it reaches the Sump with any clarity. Only the knocking reaches me, steady beneath the machines, and I turn slowly in the warm water, the way it turns me, and I wait for the next boom to remind me where I end.

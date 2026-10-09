@@ -1,0 +1,17 @@
+The land opens like a shallow wound in the earth: not a cave exactly, not a valley either, but a broad, sunken basin where the surface world has slumped downward and stayed there. The horizon is still wide—very wide—but it is ringed by low shelves of exposed soil and raw stone, as if the place was only recently peeled open. Nothing in it feels anciently worn. Edges are still angular. Clay faces still hold their cuts. Fallen slabs lie where they broke.
+
+Light arrives reluctantly. Even in daytime the basin is subdued, a cool half-glow filtered by height and haze. The air has the chill of ground that rarely sees full sun, and moisture gathers in practical ways rather than lush ones: beads on stone in morning shade, dark streaks where trickles briefly run after rain, shallow pans of standing water in depressions that never quite dry. Most of the ground is firm and dusty, but never fully arid; kneel and you smell damp mineral under the surface crust.
+
+Vegetation is present in grammar more than in paragraphs. Scattered sedge clumps around wet pockets, low thorny scrub on slightly raised ground, a few mats of moss where seepage is persistent. Plants don’t dominate any view. Instead they punctuate it, making maps of where water lingers longest. The open floor between them is wide, exposed, and textured with fresh erosion channels—young gullies, narrow runnels, fan-shaped deposits where stormwater recently spread and stopped.
+
+And everywhere, life in motion.
+
+The basin is loud not because of wind or water, but because animals have claimed it in numbers that seem impossible against so little green. Insects rise in sheets above damp flats, their wings making a constant soft-electric hiss. Burrowing mammals whistle and bark from scattered mounds. Ground birds call from every direction, harsh and repetitive, stitching the space together with sound. Herds of small ungulates move in loose lines between sparse forage patches, hooves ticking over stone. Predators shadow them openly; nothing here is hidden for long in the open geometry of the place.
+
+You can stand still and hear layers: near buzz, mid-distance cries, far drumming feet, occasional splashes from animals crowding a pool. Night shifts the voices but not the volume. Amphibians pulse around temporary water. Nocturnal hunters cough and yelp from the basin margins. The place is not chaotic so much as continuously occupied, like a plain-language ecosystem where every niche is filled and every hour sounds like noon.
+
+There are signs of primitive intelligence, but almost no construction. At most: a ring of bones repeatedly used as a cracking site, stones selected and piled loosely near a favored crossing, trampled paths that are less roads than habits. If tool-users live here, they live lightly and briefly, leaving behavior more than buildings. The landscape remains fundamentally unbuilt.
+
+What is most striking is its steadiness. Despite the rawness of the terrain, the system feels settled into equilibrium. Rains come intermittently, channels cut a little, pools form and fade, but the basin always returns to the same arrangement: open ground, damp pockets, sparse plants, immense animal traffic. It does not trend toward forest or desert. It does not appear to be healing or collapsing. It simply persists—cool, dim, shallowly submerged below the surrounding world, and full of voices.
+
+From above, it might look nearly empty. From within, it is one of the busiest places imaginable.

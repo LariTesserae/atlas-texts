@@ -1,0 +1,31 @@
+The **Chord-Mothers** live in the space between the quartzite’s ringing frequency and the human threshold of pain. They are not insects, though they shed their skins like cicadas; not mollusks, though they calcify their soft parts into flutes. They are what happens when vibration learns to want.
+
+An adult Chord-Mother is a colony of seventeen to forty individual **resonators**—organisms resembling translucent, segmented reeds, each the length of a man’s arm, clustered around a central, pulsating sac of frozen air. They cling to the underside of the larger scree stones, their bodies fused with the ice that binds the slope. They do not move as animals move. Instead, they flex their chitinous segments in precise opposition to the mountain’s eleven-second pulse, creating harmonic interference patterns that carve out pockets of silence—zones where the roar drops to a manageable whisper.
+
+These pockets of silence are their nests, and their hunting grounds.
+
+The Chord-Mothers feed on the **Resonant Scree’s** microscopic fauna: ice-mites that graze on the crystalline films, and the occasional blind, flightless midge that hatches in the brief, illusory warmth of the mist. But their primary sustenance is acoustic. They absorb the mountain’s song through their calcified bodies, metabolizing the vibration into a slow, honey-like substance that hardens into the amber-colored **tuning crystals** that stud their colonies. These crystals, when struck by the light, emit a counter-frequency that the Chord-Mothers use to communicate across the slope—not with sound, but with the absence of it, cutting holes in the roar that spell out territorial boundaries and mating availability.
+
+Their life cycle is synchronized to the mountain’s frozen equilibrium. When the pulse swells, they contract, compressing their bodies to increase their density; when it fades, they expand, becoming nearly liquid, seeping into new cracks to colonize fresh surfaces. They are the only things here that appear to move, yet they move so slowly—advancing perhaps a centimeter per decade—that the eye refuses to register their progress.
+
+Beneath the Chord-Mothers, in the deepest interstices where the mist pools into a gel-like consistency, live the **Grief-Worms**. These are the true natives, the organisms that existed before the slope achieved its current stability. They are blind, limbless, and soft-bodied, resembling pale, segmented ropes of tissue that exude a solvent capable of dissolving the cryogenic glue. They are the reason the scree does not compact into solid rock: their constant, chemical burrowing maintains the voids, keeps the drum-skin of the slope taut.
+
+The Grief-Worms are dying.
+
+They cannot tolerate the Chord-Mothers’ silence. The interference patterns that the Mothers create are toxic to the Worms’ nervous systems, causing them to seize, to calcify, to become part of the scree they once maintained. Where a Chord-Mother colony establishes itself, the Grief-Worms retreat, leaving behind hardened, dead zones where the stones lock permanently, where the ice thickens beyond equilibrium. The mountain is slowly sealing itself, note by note, as the Mothers expand their territories.
+
+High above, the dark specks that wheel against the bleached sky are **Shatter-Ravens**—creatures of cartilage and hollow bone that have learned to surf the pressure waves of the mountain’s roar. They are not quite physical; their feathers are a lattice of frozen mist, their flesh barely denser than the air. They feed on the Chord-Mothers’ tuning crystals, diving into the silence-pockets with wings tucked, snatching the amber formations in their beaks and climbing back into the killing light before the harmonic resonance can reassert itself and shake them apart.
+
+The Shatter-Ravens are the only things that break the monotony of the eleven-second pulse. Their attacks create sudden, arrhythmic silences—gaps in the song that cause the entire slope to shudder, to adjust, to sing a corrective note that sends cascades of dust sliding down the angle. For a moment, the frozen equilibrium falters. The Chord-Mothers scream—a sound like tearing metal—and the Grief-Worms surge forward, flooding the vacated space with their solvent, desperately trying to reclaim the territory before the Mothers can recolonize.
+
+In these moments, the mountain becomes a battlefield of frequencies.
+
+The rarest inhabitant is the **Eleventh Listener**, a solitary, humanoid figure that may be a single entity or a succession of individuals who have achieved the same state. It stands in the mist, naked to the cold, its skin glazed with the same ice that binds the scree. It does not move. It has learned to match its internal resonance to the mountain’s pulse, becoming a node in the acoustic web, a place where the song folds back on itself and intensifies.
+
+The Eleventh Listener is not alive in the biological sense. Its heart does not beat; its lungs do not draw breath. It has become a tuning fork of flesh, sustained by the vibration it channels. The Chord-Mothers avoid it, their silence-pockets breaking against its presence like waves against a stone. The Grief-Worms gather at its feet, drawn to the null-point of its metabolism, thriving in the microscopic warmth generated by its perfect stillness.
+
+It is said that if the Eleventh Listener ever moves, the Resonant Scree will collapse. The equilibrium depends on its immobility, on its willingness to stand forever in the brilliant, deafening mist, serving as the mountain’s anchor. It has no eyes—it wept them away centuries ago—but it sees through the song, perceiving the entire province of slopes as a single, sustained chord.
+
+And it is waiting for the chord to resolve.
+
+The fauna of the High Cataracts exist in a web of acoustic dependency, each species a note in the frozen symphony, each trying to modify the tune without breaking the instrument. The Chord-Mothers build their silences. The Grief-Worms dissolve the stone. The Shatter-Ravens steal the harmony. And the Eleventh Listener holds them all in suspension, a living frozen point around which the world vibrates, waiting for the final, cracking release that will send the whole slope tumbling into the valleys that do not exist.

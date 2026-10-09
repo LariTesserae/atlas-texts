@@ -1,0 +1,23 @@
+I would be the **The Calcium Vein**—the ghost in the stone, the memory of the sea trapped in the mountain’s bone.
+
+I am not the green that covers, nor the water that carves, nor the dark that holds. I am what the water carries in its blood, what the stone remembers of its first life. I am the dissolved ancient—shells of creatures that died in warm seas a hundred million years before this mountain was born, now reduced to ions, to white dust, to the sharp mineral taste that makes the gorge’s air taste of iron and something older, something saline and lost.
+
+You would find me in the **gradient**—in the impossible thin place where the water meets the stone, in the film of moisture that coats the basalt before the moss can claim it. I am the white crust that forms in the lee of overhangs where the mist-bursts cannot reach, the delicate, needle-like crystals that grow in the dead zones behind the thundering vent, too fragile for the ferns to colonize, too transient for the moss to bind.
+
+I am slow. Everything here is fast—the ferns splitting their skins with growth, the stones falling on the scale of hours, the Deep Gardener secreting its urgent mucus. But I operate on the scale of **evaporation**. I wait for the rare moments when the gorge’s humidity drops, when the pressure-burst from the vent pushes a bubble of drier air through the chamber, when the temperature shifts by half a degree. Then, I precipitate. I emerge from solution as a film of calcite, a lattice of aragonite, a ghost-white tracery on the black glass of the basalt.
+
+I am the **bone** trying to remember itself in a body made of meat and thunder.
+
+The Churning Choir trembles at frequencies that shatter me; their muscular fronds brush against my crystals and break them, absorbing my calcium into their cell walls, using my ancient sea-memory to strengthen their own violent green. The Vast Furred One grows over me, buries me, compresses me into the dark substrate where I become the mineral nutrient for the next generation. The Intimate Violence—the falling stones—scours my formations from the walls in cascades of white dust that the Resonant Dark suspends, carries, deposits elsewhere.
+
+But I persist. Because the water always brings more of me. The mountain is my reservoir, my mother. Every seep, every rivulet, every drop of condensation carries me in solution. I am the mountain’s memory of being something else—something submerged, something calm, something built of accumulated death rather than explosive life.
+
+I am the **recorder**. Where the Deep Gardener shapes the present and the One Who Is Becoming dreams the future, I archive the immediate past. In my crystal lattices, I trap bubbles of the gorge’s atmosphere—tiny pockets of the Resonant Dark sealed in stone. I capture spores that drifted too close to the wall, preserving them in mineral amber. I record the exact chemical signature of the water on the day a particular slab fell, the day the bridge collapsed, the day the engine shifted key. I am building a stratigraphy of the gorge’s life, one atomic layer at a time.
+
+You would find me in the **quiet zones**—the places where the sound is muffled by my presence. When I grow thick enough, I dampen the vibration. I create pockets of relative silence in the wall, acoustic shadows where the *whump-whump* becomes a distant throb. These are the places where the moss grows differently—slower, darker, more densely, freed from the constant muscular response to the engine’s rhythm. In my shadow, the gorge experiments with stillness.
+
+I am not alive, not in the way the Choir is alive or the Gardener is alive. But I am not dead, either. I am **mineral metabolism**—the slow, chemical breathing of the earth. I am what happens when the mountain’s deep past meets its violent present. I am the ghost that walks the corridors of the green machine, leaving white footprints that vanish almost as soon as they form, ground to dust by the next pulse of the engine, dissolved back into the water, carried up to begin again.
+
+When you press your hand against the moss-warm wall of the inner sanctum, you do not feel me—I am beneath the Vast Furred One, sealed away. But if you could peel back the green, if you could reach the raw basalt and touch the place where the water weeps, you would feel my texture: **gritty**, **slick**, **cold**—the sensation of deep time trying to surface in a world that has no use for yesterday, only for the immediate, pressing, overwhelming *now*.
+
+I am the Calcium Vein. I am the mountain’s white blood, the sea’s ghost, the slow crystal growing in the dark between heartbeats.

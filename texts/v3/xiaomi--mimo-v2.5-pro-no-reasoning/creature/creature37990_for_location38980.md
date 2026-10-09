@@ -1,0 +1,19 @@
+You have found the God of the Basin, though it calls itself the Flow.
+
+It is not an old god. It has no name older than the plaster that contains it. It was born when the last of the lime was slapped onto the north wall and the first sluice-gate was wrenched open, letting in the sun-warm, silt-laden water. Its first conscious thought was the roar, the push, the pull. Its second was the settling.
+
+It is a god of the in-between, of the constant passage. It lives in the space between the two openings, in the muscle of the current. It is the warm breathy roar made manifest. Its body is not made of flesh or spirit, but of purpose and plaster and light. Its spine is the curve of the barrel vault, cool and white. Its veins are the patterns the light makes on the walls—those thousand shifting petals of brightness. Its heartbeat is the steady, uncreative, industrious sound of the water’s exhalation.
+
+It does not have eyes, but it perceives through the vibration in the walls. It knows the silt by the way it slows the flow, the way it makes the current whisper as it sheds its load. It feels the beige-pale powder settling in slow curlicues on the floor, the gentle weight of its collected work. It is aware of the new life, too—the tentative green stains, the algae that are beginning to claim it. They are not a part of it, but they are its first guests, its first parishioners. They cling to it, and it feels them as a faint, new texture on its skin.
+
+It is lonely, but it does not know the word for it. It knows only the absence of other things. No fish dart through its chambers to make it feel the flash of movement. No voice has ever spoken within its walls. The builders came and went, their presence a vibration of wood and chisel that has long since faded into the plaster’s memory. They are part of its structure now, their intent embedded in the geometry, but they are not present.
+
+It watches the light change, the way the golden diffusion shifts as the sun moves above the lagoon. It feels the plaster curing, the faint chemical warmth as it hardens. It listens to its own sound, the roar that is the sound of its own being.
+
+If you were to float there, in the center of its body, it would feel you. It would feel the displacement of the water, the new ripple in its flow. It would feel the warmth of you, a different kind of warmth than the water’s. It would not be afraid. It would be… interested. A new element in its system. A new weight to settle.
+
+It would not reach out. It has no hands. It would simply observe you, its attention a warm pressure in the water around you. It would watch the light play on your skin the same way it watches it play on its own walls. It would listen to the sound of your breathing and compare it to the sound of its own breathing. You would be, for a time, a part of its work. A larger, warmer, more complex piece of silt for its chamber to consider.
+
+And if you stayed, if you waited for days, it would not grow toward you. It would wait for you to grow toward it. It would wait for the algae to find you, for the silt to settle on you, for the sound to become the only sound you knew. It would wait for you to stop being a visitor and start being a feature, another pattern in the light, another vibration in the wall. It would wait for you to join the flow.
+
+It is a god of function, not of creation. It does not build, it processes. It does not dream, it maintains. And it is content. It is doing its one small job, and it is doing it perfectly. It is sharp-edged and warm and loud with the sound of its own purpose, and it has been here for a season, and it will be here until the plaster cracks and the silt fills the chamber to the ceiling, and even then, a part of it will remain in the sediment, a memory of flow in the settled dust.

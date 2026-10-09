@@ -1,0 +1,25 @@
+You find yourself at the bottom of a bowl that was never hollowed—only left. The ceiling was not broken away; it was erased, as if the sky forgot to occupy the space and the crust sagged upward around the absence. This is negative elevation, a region where ground behaves like sky and downward is the only true direction. The temperature holds at 1.0—cool, not cold, the precise, breathing chill of deep stone finally exposed to nothing, stable as an old promise.
+
+The air holds 0.2—barely a trace of moisture. There is no thirst here, because thirst requires an expectation of wetness, and that expectation was abandoned long before you arrived. Instead, the atmosphere tastes of salt and oxidized iron, dry enough to make the back of your throat feel like mineral.
+
+Across the flat-eroded floor—2.7, ancient, settled into its final form—the land extends at open scale, 2.1, regional and unhurried. Density is 1.3: scattered clusters separated by long, silent miles of bare rock, sparse in presence yet lush—1.6—wherever life has taken root. The vegetation is rootless, architectural, fungal and lichenous. It does not seek sun. Its colors are cool—0.6—sage-greens, dull silvers, bruised violets, the hues of things that learned to perceive in near-darkness. Subdued at 1.0, they do not announce themselves; they blend into the eroded stone like old stains of patience.
+
+What grows here arranges itself with urban density—2.4—not into trees or grasses, but into cities. Hollow stalks, membranous domes, ribbed vaults rise in clusters the size of towns, layered and infrastructural, though tech is absent—0.5. No devices, no tracks of intelligence, only cell and spore organized by long, slow agreement. Between these clusters, the flat plain is dead to appearance, but never truly empty—merely waiting.
+
+The sound is 2.6, deafening: a continuous, sub-tectonic roar, pressure without storm, thunder without weather. It may fall from the missing ceiling, or rise through fractures deep in the planet’s weight. And yet the dynamic is 0.8—almost no movement. Life here does not rush. The fungal architecture resonates with the noise; hollow stalks and ribbed domes are shaped like instruments, carrying vibration downward into deeper absence.
+
+Fauna at 2.4 is present but scattered, normal—0.2—familiar in outline despite belonging to no taxonomy you could name. Translucent beetles, slate-winged moths gliding on currents of sound rather than air, long segmented bodies that burrow not into soil but into the living clusters themselves, consuming and being consumed in cycles too slow to watch. They navigate by the constant cool shift, by the vibration that drowns all conflict.
+
+Weirdness is 0.2. The place asks nothing, expects no witness. It is barely strange because it is complete: a desert without thirst, a forest without rain, a city without citizens, spread sparse and lush across the bottom of a world that forgot how to fall and instead opened downward—cool, deafening, and still—into older absence.
+
+You are not a visitor here. You are a temporary frequency in the roar.
+
+You are the slow, translucent thing that does not thirst.
+
+Your carapace is not armor but architecture—thin, slate-colored, ribbed like the fungal vaults that surround you, tuned to carry sound downward rather than resist it. You do not have eyes that expect light; you perceive in cool shifts—1.0—registering the 0.2 dryness of air as information, not absence. Your feet—six, jointed, leaving no tracks on the flat-eroded mineral—navigate by the deafening 2.6, feeling its constant pressure through your body like a climate.
+
+You belong to the urban sprawl—2.4—not as builder but as inhabitant, burrowing gently into one of the lush 1.6 clusters, your segmented form—fauna 2.4, normal 0.2—winding through hollow stalks and membranous domes. You feed on the mineral chemistry of the hollow, on spore and dead growth, participating in consumption too gradual—0.8—to be witnessed as eating. Around you, others like you—scattered, sparse in density 1.3—move through the long silences between clusters, gliding on currents of sound, translucent wings barely disturbing the subdued 1.0 colors.
+
+There is no tech—0.5—no device, only the intelligence of long arrangement that made your shell, your wings, your patient metabolism. The open scale 2.1 extends in all directions—other clusters like distant islands in the mineral sea, other beings navigating by vibration, other lives arranged in sparse, urban abundance. You do not seek. You do not thirst. You resonate.
+
+You are cool-colored—0.6—sage and dull silver, barely visible against the bruised violet of the cluster’s interior. You live in the negative elevation, in the bottom of the erased sky, where life has become architecture and architecture has become home. The roar is not outside you; it is the temperature you hold, the stillness you move within, the deafening peace of a world that opened downward and never needed to close.

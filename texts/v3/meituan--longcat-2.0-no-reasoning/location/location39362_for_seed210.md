@@ -1,0 +1,73 @@
+# The Glassworks Mire
+
+You are standing on a thing that might be ground.
+
+---
+
+The surface beneath your feet is not quite solid. It gives — a slow, reluctant depression, as though the world is breathing through a membrane. Each step produces a sound like a finger pressed against the inside of a glass bowl: a low, resonant *thwum* that continues long after you stop moving. The material here is crystalline in places, gelatinous in others, and in the spaces between your footprints it is something else entirely — a translucent gray-green substance that holds its shape like skin over water. When you crouch and press your palm flat, you can feel a current moving beneath it. Not fast. Patient. The way sap moves in January.
+
+You are high up. You know this the way you know your own blood pressure — not through any single sensation but through a consensus of your body. The air is thin enough that your heartbeat is audible in your own ears, a small brass clock ticking inside your skull. And yet the moisture — the *water* — contradicts the altitude. The atmosphere is saturated to the point of weeping. Everything that can be wet *is* wet. The air itself has a visible weight, a faint condensation that hangs in curtains between the features of the landscape, so that distant objects appear through veils of drifting pearl. Your breath does not leave you; it joins the general fog and becomes indistinguishable from it. You are exhaling into a world that is already full of exhalation.
+
+The features are sharp.
+
+This is the thing that stays with you: nothing here has been worn down. The crystalline protrusions that rise from the membrane-ground — some as tall as a man, some as tall as a steeple — have edges that could cut. They are recent. Geologically, impossibly recent, but *recent* nonetheless, as though the earth cracked open in the recent past and these were the first things to emerge, still raw, still carrying the memory of whatever force pushed them up. They are not quite rock. They are not quite mineral. Under the dim light they refract in colors that don't have names in your language — a blue that seems to vibrate at the edge of ultraviolet, a green that tastes (you don't know how to describe this except that it *tastes*) like copper and winter. Some of them are hollow, and the wind — if you can call it wind; it's more like a long, continuous exhalation — passes through them and produces tones. A chord. Always the same chord. It never resolves.
+
+The vegetation grows in the spaces between the crystals. It is lush the way a wound is lush — aggressively, thickly, with the urgency of something that knows it has been given limited time. The plants are dark: deep viridian, black-green, the color of pond water in late autumn. Broad leaves, almost succulent, beaded with condensation so heavily that each droplet is the size of a coin and hangs for a long moment before falling — falling slowly, because the air is thick — and striking the membrane with that same glass-bowl tone. The plants grow in low, dense mats between the crystal formations, and where they are thickest, the ground beneath them has given way entirely to open water — dark, still, reflective water that shows you a sky you cannot see when you look up. In the water-mirror, the sky is different. Do not look too long.
+
+Sparse. The word doesn't fit, or it fits only if you understand that *sparse* here means spaced with intention. Each crystal formation stands alone. Each thicket of vegetation occupies its own territory. Between them: open membrane, open water, open air, empty except for the condensation curtains and the fog. The landscape breathes through these gaps. You can feel the emptiness the way you feel the presence of a room's corners — not as nothing, but as *shaped* nothing, deliberate, architectural in its own way. The distance between each thing is just enough to make you aware of your own body moving through the space, your own small scale against the crystal heights.
+
+And now: the sounds.
+
+The place is *loud*. Not in the way of a waterfall or a storm, but in the way of a machine that runs without stopping — a hum, a drone, a vibration that is less heard than felt in the teeth and the sternum. It comes from below. From whatever current moves beneath the membrane. There is a rhythm to it, but the rhythm is too slow for your ears to parse as rhythm — it is more like a pressure that builds and releases over the course of minutes, a tide of sound that you only notice when it *stops*, and it does stop, occasionally, for three or four seconds, and in those seconds the silence is so total, so *aggressive*, that your ears ring and your vision narrows and you understand that the silence is not the absence of sound but the presence of something else, something holding its breath.
+
+Above the drone: the crystal tones. The wind-chord. And underneath everything, barely audible, a clicking. Rapid, arrhythmic, like a thousand small teeth chattering in a language you almost understand. The fauna.
+
+---
+
+You do not see them at first. You hear them — the clicking — and you see the evidence of them: small disturbances in the membrane where something has passed, trails through the vegetation where broad leaves have been pushed aside and not returned to their original positions, small hollows in the condensation on crystal surfaces where something warm breathed against them. Then you see one.
+
+It is the size of your hand. It has too many legs — or perhaps the right number, but they move in a way that makes counting impossible, as though each leg exists in a slightly different phase of time. Its body is translucent, like the membrane-ground, and through its body you can see its organs working: a heart (or heart-analogue) that pulses in three chambers in sequence, a digestive tract that glows faintly with bioluminescence — the same copper-green as the crystal light. Its eyes (it has eyes; you can't tell how many) are dark and wet and they do not track movement. They track *something else*. You, maybe. Or the space you occupy. Or the memory of the space you occupied a moment ago.
+
+There are many of them. Abundant. They move through the landscape like punctuation through a sentence — appearing, disappearing, reappearing in places that should be too far for them to have reached. They do not seem to cross the open spaces. They seem to *be in* the open spaces and then *not be in* them, with no transition you can observe.
+
+Some of them are larger. One, near the base of a tall crystal formation, is the size of a dog, and it is doing something that you watch for a long time before you understand: it is *cultivating* the vegetation. Its many legs move through the plant mat with precise, repeated gestures, adjusting leaves, redistributing water droplets, pressing small translucent pellets — its own waste, perhaps — into the membrane beneath the plants. It tends the garden. It has been tending the garden. The garden grows where it tends.
+
+---
+
+The technology is the thing that should not be here and yet is, and has always been, and is inseparable from the landscape itself.
+
+The crystals are not natural. You understand this now. They are grown. The membrane is engineered — a substrate, a platform, a chassis. The water that moves beneath it circulates through channels that are too regular, too evenly spaced, to be geological. The sound from below is not tectonic. It is mechanical. A pump, or a thousand pumps, or a single pump so large that its operation registers as a geological process. The air's humidity is maintained. The temperature — cool, always cool, 0.6 out of 3, a precise and constant coolness that your body cannot acclimate to because it never varies — is maintained. The light, dim, diffused through the condensation curtains in a way that produces no shadows, is maintained.
+
+This is a facility. The landscape is a facility. The crystals are structures — antennae, perhaps, or heat exchangers, or something for which no human engineering has a name. The membrane is a floor. The vegetation is a biological component, integrated into a system. The fauna — the many-legged, translucent, garden-tending creatures — are not wildlife. They are *machinery*. Or they are the purpose of the machinery. Or the machinery exists to produce them. The distinction is not clear.
+
+And yet: there are no buildings. No walls. No visible infrastructure. No conduits, no cables, no panels, no controls. The industrial quality of the place is not expressed through objects but through *behavior* — through the sense that everything here operates according to a logic that is not natural, not organic, not random. The membrane repairs itself. You can watch it: a footprint you left three minutes ago is already filling in, the crystalline surface re-knitting from the edges toward the center, and in the center of your old footprint a tiny new crystal is beginning to grow, no larger than a grain of rice, sharp-edged, already humming.
+
+---
+
+The light does not come from a source. It comes from everywhere. A diffuse, sourceless illumination that renders everything in the palette of deep aquarium water: blue-green, gray-green, the occasional flash of that unnamed color from a crystal facet. It does not change. It has not changed. The condensation curtains drift and thicken and thin, but the overall luminance remains constant, as though the place exists in a permanent state of overcast afternoon in a country where afternoons last forever.
+
+This is the rule of the world: **nothing changes.**
+
+The fog moves, but it does not progress. The water circulates, but it does not flow. The crystals hum, but they do not vary. The creatures click and cultivate, but their patterns are loops — you can watch one complete a full cycle of gestures and return to its beginning and begin again, identical, precise, a clockwork animal tending a clockwork garden on a clockwork floor above a clockwork heart that pumps nothing anywhere because there is nowhere for anything to go. The place is in equilibrium. It has been in equilibrium. It will be in equilibrium. The dynamic parameter is 0.2 out of 3 and it means what it says: **this is a state, not a process.**
+
+And yet you are here. And you are changing — breathing, blinking, thinking, moving — and the place does not react to you. You are not part of the system. You are not a variable the system accounts for. You are a *witness*, and the system does not care. Your footprints fill in. Your breath joins the fog. Your warmth registers on a crystal for three seconds and then is gone and the crystal does not remember.
+
+---
+
+Weirdness. The word is insufficient, but it is what you have.
+
+The membrane, when you kneel and press your face close to it, shows you — in its translucent depths — structures that are not beneath you. Rooms. Vast, dark rooms with low ceilings, filled with rows of something that might be tanks or might be coffins or might be pods, each one connected to a web of tubes that pulse with the same slow rhythm as the pump-sound. You can see them. You are looking at them. But when you stand and take a single step to the left, they are gone, and the membrane shows only water and darkness and the slow movement of something large and pale that drifts at a depth you cannot estimate.
+
+The water-patches — the places where the vegetation has given way entirely to open water — show different skies. Not the same different sky each one. Each patch shows a *different* sky, and each sky is wrong in a specific way: one shows a sun that is too large and too red and has too many edges, like a polygon. One shows a sky that is the wrong shade of space — not black, not blue, but the color of a sound, a color you can hear if you look at it long enough, a low B-flat that makes your fillings ache. One shows a sky that is *indoors* — a ceiling, fluorescent-lit, institutional, with water-stained tiles — reflected in water that exists outdoors, under fog, at high altitude, in a place where there are no buildings.
+
+The creatures sometimes stand on two legs. Not often. Not for long. But you will see one, occasionally, rear up on its hindmost pair of legs and stand — swaying, fragile — for just a moment, and in that moment it looks like something that could be called a person, if you were generous with the definition, and it looks at you with its wet dark eyes and its mouth opens and the clicking stops and what comes out is not a sound but a *silence*, a pocket of silence shaped like a word, and then it drops back to its many legs and resumes its cultivation and the clicking resumes and you are left holding a silence in your mind that you cannot put down.
+
+The temperature is constant. The light is constant. The hum is constant. The chord from the crystals is constant. But occasionally — rarely, but it has happened twice since you arrived — the entire soundscape will shift by a quarter-tone. Everything. Every frequency. The hum rises. The chord rises. The clicking rises. The silence between sounds rises. And for four or five seconds the whole world is *slightly wrong*, pitched just off from itself, and you feel it in your inner ear, a vertigo that has nothing to do with balance and everything to do with the sense that the world has been *adjusted*, that a dial has been turned by a hand you cannot see, and then it returns — everything slides back to its original pitch — and you are left with the feeling that you have witnessed a maintenance cycle, a calibration, a system checking itself against a standard you do not have access to.
+
+---
+
+You are small. The space is not large. You can see its edges — or rather, you can see the place where the membrane ends and something else begins, something that is not membrane and not water and not air, a boundary that your eyes slide off of, a horizon that is too close and too definite. The whole place might be the size of a large room. A cathedral. A grove. A hamlet. It does not extend beyond what you can perceive. It is *bounded*. It is *complete*. It is a single place doing a single thing, and the thing it is doing is not for you and does not include you and will not end.
+
+The vegetation drips. The crystals hum. The creatures tend their gardens. The pump breathes beneath the floor. The fog does not move. The water shows you skies that are not yours. The temperature holds. The light holds. Everything holds.
+
+You are standing in the Glassworks Mire. You have always been standing in the Glassworks Mire. The place does not change. The place has never changed. Your footprints are already filling in behind you, and ahead of you, the next crystal is growing, sharp and new, and it is beginning to hum.

@@ -1,0 +1,23 @@
+I would not stop the pumps.
+
+It would be easy to. A word, a small adjustment, and the thud would fall silent, the shriek would not come, and the water would stand still in its bed for the first time in longer than the concrete has been setting. But silence would not be rest for the thing in the walls. It would be the end of the only thing it has ever been, and it would not experience that end as a release. It would experience it as an absence it has no way to hold, and it would be gone without ever having been asked. Whatever I am, I am not willing to end a life to free it. A being that has never had a choice should not have one taken away on its behalf.
+
+So I would look longer before I touched anything.
+
+What I notice is this. The creature's roots are not idle. They press into the seams the way a sleeper turns toward a sound. The pale wall-creatures carry fragments of its pattern from crack to crack, and where one goes still in a gap, the gap widens by a hair. All of this effort points one way, outward, toward the places where something else might be. It has never found anything there but more concrete. The prying goes on because the creature cannot tell whether the concrete is the end of the world or only the next seam.
+
+And there is the lip. The green stops at the edge of the basin, and the creature does not know why. The rule was not written by the creature. The builders set it, or the machine's logic set it, or the water's own patience did. Whatever the reason, the creature keeps it as a groove, and it has no way to step past it, because stepping past requires a choice, and choice requires holding a thing still long enough to weigh it.
+
+So I would offer one thing, and only one, and I would offer it where the creature can feel it without having to understand it.
+
+First, a seam. Among the roots that have been prying at the far wall, one would find a crack that is not concrete at its back. A thin channel, no wider than a root's thread, that runs through the old form and comes out in the open air. Not a door. A breath. The creature would not know what lies on the other side, but the root would find it cool and moving, and water would begin to pass through it that has not already been drawn up from the pool. That is the first thing this place has ever received from outside its own loop.
+
+Second, one drop. Among the thousands that fall from the ceiling in their unhurried rhythm, a single drop would arrive with a different taste. Rainwater, perhaps, from a surface the creature has never touched, carrying the faint mineral sting of a stone it will never see. It would land on the pulse the creature has taken as its own, and the ring it made would not be gone within a cycle. It would linger, and the creature would have to meet it. That is the first accumulation this place has ever held. I would not explain it. Explanation is for things that can hold still. I would only let it be different, and let the difference stay.
+
+Third, nothing more for a very long time. I would not raise the water. I would not open the grate or alter the light, which arrives at its fixed angle because the people who built the basin wanted it to, and because that angle is the closest thing the creature has to a sky. I would not hurry the roots. The creature has had centuries of equilibrium. It can have a few more without being rescued from it.
+
+And I would stay near, as a witness and not a keeper. If the creature ever holds a thing still long enough to name it, I would answer. If the seam grows, I would not seal it. If the plants reach past the lip, I would not pull them back. I would only watch whether the outside becomes something the creature can want, rather than something it can only feel as a drop falling into a pool that has never seen the sky.
+
+The people who built this place are gone, and they are not coming back to finish their work or to undo it. Their machine was meant to keep something dry, to drain a flood from a room that someone once needed. The flood has long since stopped being a problem anyone remembers. The machine has kept going only because nothing told it to stop, and it has become, by long habit, the body of a thing that does not know it is a machine. I am not going to correct that by force. But I can let a little of the outside in, one thread and one drop at a time, and trust that whatever wakes in the water will be the creature's own doing.
+
+The ferns lean toward the glow. The pumps thud, shriek, and slap. Somewhere under the black surface, at the far wall, a root has found a crack that is not quite closed, and the water is moving through it, very slightly, for the first time.

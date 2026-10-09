@@ -1,0 +1,17 @@
+I would arrive by the rim, where the cloud thins against the cliff and the rock is still raw enough to cut. The first thing I would notice is that the wet doesn't soak into my palm. It sits on the skin in beads and waits. Then I would hear the engines, not as noise but as a pressure under the breastbone, a slow thudding that keeps time with something I can't quite locate.
+
+I would go down the fissures, following the runs that never quite pool, and I would find that the water is going the wrong way in places, climbing a few meters before it turns and loops back. I'd stop trying to make sense of it. The basin doesn't want me to make sense of it.
+
+At the bottom, the black lake. I would kneel at the shallows and feel the cold climb my forearms, and I would realize that I'm not kneeling at the water's edge so much as in it, arms submerged to the elbow, cupping something small and cold between my palms. I can't see what it is. I know I haven't let go of it, and I know that my hands have stopped feeling the current that moves the rest of the lake.
+
+I'd be a keeper, then. Not a visitor. My skin would be the gray-brown of bark, with copper lichen catching the flat light, and moss in the creases of my elbows. My face would be closed, a fold of fern bud. And my mouth, a seam, would have been on the verge of opening for longer than I can count. I would know there is a word in there. I would not be able to remember what it is, only that it has been waiting since the cliffs first cooled, and that when it comes it will arrive at the shore before my breath does.
+
+If I looked down into the lake, I'd see the lagging one. It would rise a heartbeat late, moving at the proper pace, and I would understand that the figure in the water is the part of me that still belongs to the world. The one on the bank, the held copy, is the body that has been pressed into stillness so the engines can run their stroke. I'd be both. I would not be sure which of the two is doing the holding.
+
+Something would be asking me, through the sound beneath my feet, to stay still. The stroke needs me. The water in my hands needs to keep falling in its arc without reaching the floor, and the pistons need to keep finding the same groove, and the moment has to keep being exactly what it is. Stillness is the job. It is also the only shape the basin knows how to keep.
+
+But I've been holding this one drop for a very long time. I can feel its weight, and I can feel that it is not the basin's. It is only mine, or it's the thing I was given to hold and never told to release. Its surface shows the cloud, and in it, faintly, the face of someone who might have been a visitor once, looking down from the rim.
+
+So I would let my mouth part, and the sound would reach the lakeshore first, a low layered tone like wind through a split reed. It would not be a warning or a welcome. It would be the first note in the basin that has not already been held. Then I would open my hands. The drop would fall, and it would finally reach the floor, and the stroke of every engine in the basin would stumble, once, by a single tooth.
+
+I would not know yet whether that is a mercy or a break. I would only know that the reflection in the lake, the one that has always been a heartbeat behind, has finally started to catch up.

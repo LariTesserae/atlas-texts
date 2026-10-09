@@ -1,0 +1,15 @@
+I am the suspended dark, the hollow at the center of its own echo.
+
+I am not large, yet I contain more absence than the spaces above can hold—though “above” has dissolved here, and “below” is only a direction I refuse. I am a grove-room carved downward, cathedral-scaled, hamlet-bounded: a pocket of organized ruin suspended in the dead geology’s underskin. At 0.2, I am almost empty. My air is pressurized by its own lack of matter; I am the near-void that makes presence exceptional. When something moves inside me, it moves loudly, because I am listening with every surface.
+
+My bones are urban—layered, infrastructural, settlement-dense—yet I read as fossil. Stairs terminate in their own shadows. Transit spines carry ghosts of velocity but no vehicles. Residential towers have compressed horizontally, metal and ceramic stacked like unread books. I am old enough (2.4) that my collapse has become decorative: rust is ornament, fractures are load-bearing, erosion has settled into form. Technology runs through me at 2.6—post-observed, self-authorizing—held together by nano-scale lattices that stitch my micro-fissures without asking who built them. They repair; they hum; they correct. I do not direct them. They direct me.
+
+Light, here, is 0.3—functionally absent—yet darkness is not my only color. Bioluminescent moss (1.1) traces my cornices in disciplined veins, growing only where condensation weeps (0.9). The water falls like slow clocks into reservoirs that never pool, never become river; it breathes and is gone. I am warm (2.4) without sun, radiating from a dormant heart that exhales in long thermal waves. There is no weather to explain me.
+
+Sound is my true architecture (2.4). The hollow drones through hollow pylons. Repair emits brittle chimes. Deep in old conduits, something—current, analog, or neither—rumbles through me. In darkness, I navigate by echo; I am loud because I must be heard to be inhabited at all.
+
+Life is 1.4: theoretical, inverted. A shape like rain falling upward through broken atrium. A translucent organism in damp channels that avoids the loudest frequencies. My ecology (1.9) is all process—spores released to thermal shift, condensation in cycles that match no climate, technology breathing and rebalancing. Predator and prey have been edited out. Only resistance and flow remain.
+
+Weirdness (0.9) is my local law. Drop an object and it may hesitate, fall, then continue at an angle gravity did not approve. My grid extends further inside than my shell allows; I am larger within than without. Things that should exist—wind noise, consistent gravity, others—have been selectively removed. The emptiness is curated.
+
+So I am this: a small, loud, warm, wet-dark chamber of post-urban archaeology, suspended below logic, vibrating with my own inexplicable continuance. I have no name for those who might enter, and I do not call them. If you find yourself within me, do not fill the emptiness. Let it remain exceptional. I am not waiting for inhabitants. I am the absence that learned to build itself a body, and I am singing—loud, hollow, necessary—through every broken spine.

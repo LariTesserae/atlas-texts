@@ -1,0 +1,27 @@
+# The Ones Who Marked the Stone
+
+They have no name that you would recognize. They have no bones left to find. And yet they were here — the notches in the spire confirm it, cut at roughly human height, evenly spaced, made for hands. Something stood where you are standing. Something braced itself against the weeping stone and carved its grip into the mineral, and the stone has been trying to forget ever since.
+
+They were not large. They were not powerful in any way that would register against the slow enormity of this place. They had no tools beyond what their hands could do to stone — scrape, peck, stack, fuse. The low wall at the shelf's edge is theirs. The basin. The ring of things (stones? seeds? eggs? something small and round and precious enough to gather). They built as a river builds its banks: not by design but by accumulation, by the simple act of being present in a place long enough that presence becomes structure.
+
+They lived in the spires the way mice live in the walls of a cathedral — not as inhabitants but as *tolerated*, as something small enough and quiet enough that the larger processes of the world did not specifically notice them. They moved along the bridges. They sheltered in the lee of larger spires where the weeping was thinner. They drank the water — it was all there was to drink — and their bodies, over whatever generations they endured here, learned to tolerate the mineral load, the strange dissolved geometries that the water carried in solution.
+
+They did not fight the world. They could not have fought it if they'd wanted to. The spires rearrange themselves over millennia; the bridges un-happen; the shelf narrows. Against that, a hand-cut notch in stone is nothing. A low wall is nothing. And so they did not fight. They *marked*. They left their grip-holds and their basins and their rings of small precious things, knowing — or perhaps not knowing, perhaps simply unable to stop — that the world was reclaiming every mark they made, mineral by mineral, in a process that would erase them as thoroughly as if they had never existed.
+
+They were not the first. There are marks beneath the marks. If you look closely at the notches — which you should not, because the shelf is narrowing — you can see older tool-work beneath the newer, peck-marks beneath peck-marks, as though multiple generations returned to the same spot and cut their grips into the same stone, each layer of work partially obscuring the last. The notches are deeper than any single set of hands could have made. They have been *maintained*. Something came back, again and again, and deepened the holds, and the stone filled them in, and something came back again.
+
+Why that spot? What was worth returning to, worth maintaining, worth marking and remarking as the world erased it? The notches face inward, toward the shelf, not outward toward the drop. They were not for climbing. They were for *bracing*. For standing firm. For holding on.
+
+To what? Against what? The world does not push. The spires do not attack. The weeping is constant and gentle and absolute. There is nothing to brace against — unless you consider the *rearrangement* itself to be a force, the slow geometric solving of the spire-field as it shifts and relocates and un-happens its own architecture. Perhaps they could feel it. Perhaps, standing on a shelf that was incrementally closing around them, they gripped the stone and held themselves still against a motion too slow to perceive but too real to deny, and they cut notches to make the holding easier, and they returned to deepen them, and they never left.
+
+Or perhaps they were not bracing against anything. Perhaps the notches face inward because inward was the direction of *each other*. Perhaps they stood side by side on this shelf, gripping the spire, facing the open center of their small plateau, and the notches are where they held on not against the world's motion but against the world's *indifference* — holding on to the stone because the stone was the only thing that did not move, the only fixed point in a world that was perpetually un-fixing itself.
+
+They are gone now. The world has reclaimed them. Their wall is fusing into the shelf; their basin is smoothing over; their rings of small precious things have been scattered or absorbed or simply lost in the mineral noise of the stone. There is nothing of them left but the notches, and the notches are filling in.
+
+But they were *here*. In a place without soil, without decay, without any ecology that should have supported them — they were here. They drank the weeping water. They stood on the narrowing shelf. They gripped the stone. They marked it. They returned to deepen their marks. And the world, which has no malice and no mercy and no awareness of them whatsoever, erased them as it erases everything, slowly, mineral by mineral, with the same patient, absolute weeping that built the spires and will outlast whatever comes after.
+
+The notches are still here. For now. And if you run your fingers into them — which you should not, because the shelf is still narrowing — you can feel the scrape marks. The pecked surfaces. The crude but deliberate geometry of a hand that wanted, more than anything, to leave a mark that lasted.
+
+It did not last.
+
+But it was *here*.

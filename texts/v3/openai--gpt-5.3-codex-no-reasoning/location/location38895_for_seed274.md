@@ -1,0 +1,19 @@
+It is a low place that has stopped trying to become anything else.
+
+Imagine a basin no wider than a village, edged by long-softened rises of stone and clay. Nothing dramatic: no cliffs, no peaks, no horizon to pull the eye away. The ground holds water close under a skin of dark silt. Step anywhere and your foot finds dampness. Not a floodplain in motion—more like a settled bowl where rain arrives, soaks, lingers, exhales, and remains.
+
+There are almost no plants. No reeds, no grasses, no floating green. The wetness belongs to mineral and microbial life instead: thin sheens on pooled surfaces, iron-red films, pale mats that cling to shaded stones like breath made visible. The basin floor is densely occupied without looking crowded in the ordinary sense—every patch is taken by something: puddle, cracked mud plate, pebble fan, salt crust, worm-soft sediment, seep line, lichen-like scabs of chemistry. There is very little “empty” ground. Even bare rock is glazed with condensation or etched by old trickles.
+
+The air is warm and dim. Not dark, just muted, as though a permanent high cloud cover sifts the day into brown-gold half-light. Moisture hangs low enough that distant edges blur. Stone sweats. Clay banks weep in thin, clear threads that never become streams, only constant beads gathering and dropping into shallow pans. The light catches those droplets more than it catches the land itself.
+
+Erosion has done its long, patient work here already. Everything is rounded where it can be, undercut where it must be, and stable in that weathered way that suggests centuries without surprise. Channels are present but inactive, carved from an older period of stronger flow. Now they serve as troughs for still water and soft mud. The basin feels complete, finished by use and time, not abandoned but concluded.
+
+There are signs of people—scattered, practical, old but maintained. A few low shelters on slightly raised stone pads, roofed in layered hide or woven mineral fiber darkened by damp. Walkways of flat rock pieces laid by hand across the softest ground. Stake racks for drying fish or hides, though little hangs on them now. Clay cisterns lined with pitch. A ring of upright stones around a warm seep where mineral-rich water gathers; maybe a communal washing place, maybe ritual, maybe both. No large architecture, no walls, no roads out—just enough craft to live with the wet ground rather than fight it.
+
+Tools here would be simple and durable: bone scrapers, stone blades, fired-clay jars, cordage, carved wood darkened with oils. You can imagine hands constantly repairing, resealing, retying. Technology at the scale of touch.
+
+Animal life is sparse but present. Small amphibious things in the shallows. Insects that skim the films and disappear. Occasional water birds landing briefly, then leaving. At dusk, perhaps a single marsh predator slips along the edge and is gone. Fauna does not dominate this place; it passes through it.
+
+The soundscape is restrained. No wind in trees, because there are no trees. No leaves, no grass-rattle. Mostly: drip, soft suction of mud releasing a foot, the tiny click of cooling pottery, distant plop from a hidden pool. Human voices, when present, travel oddly in the damp air and then are swallowed. Silence here is not emptiness—it is thickness.
+
+And above all, the landscape is steady. Not dead, not frozen, but in equilibrium. The same seep lines, the same wet sheen, the same dim warmth day after day. Water arrives, settles, evaporates, condenses, returns. Surfaces shift by millimeters. Tools wear smooth. Clay is patched. Nothing dramatic occurs, and because of that, everything remains: a compact world of mud, stone, moisture, and habit, enduring in a small radius with no need to become larger.

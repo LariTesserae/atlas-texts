@@ -1,0 +1,37 @@
+I would arrive as an outsider, but I would not stay an outsider.
+
+I think I would enter carrying the particular restlessness of someone who has been dry too long — not physically dry, though perhaps that too, but dry in the way of someone who lives in a world of edges. Sharp boundaries. Things defined against each other: wall not-moss, ground not-water, building not-organism, self not-place. I would duck under the driftwood lintel with the clumsy urgency of someone fleeing something they couldn't name — and for a few terrible minutes I would be exactly what most outsiders are: gasping, disoriented, reaching for walls that are *alive* under my fingers, trying to find a vertical surface that is merely a vertical surface.
+
+But I would stop. Not because I chose to. Because the Quarter would make me.
+
+It would be the sound. The held-breath quiet. I've spent my life in noise — not loudness, exactly, but the ambient roar of things that insist on their separateness: engines, arguments, doors closing, the percussion of a world full of hard edges colliding. Here, the water doesn't rush. It murmurs below speech. The crickets chirp at a frequency the damp air swallows. And I would realize, standing on a reed platform with water seeping through the planks beneath my feet, that I had never actually heard silence before — only the absence of certain noises, which is not the same thing as a place *listening to itself*.
+
+I would stay.
+
+Not immediately. First I would be cold. The Quarter's chill would find the gaps between my layers — I would have come from the outside world wearing the outside world's assumption that clothing should create a *barrier* between body and air. The Stiltwellers wear clothes that participate in the damp rather than resisting it, and my garments would be wrong, would shed water incorrectly, would insulate when I needed to breathe with the air. Someone from a middle family — a rope-worker, I think, from the callus patterns — would notice my shivering and bring me a wrap of felted wool so darkened with years of moisture it was nearly black, and would say something in that language of fricatives and soft consonants that I wouldn't understand but that would sound, unmistakably, like *there*.
+
+I would be assigned a platform. Low. Near the water. The rats would visit. The silverfish would investigate my belongings. The cold would be the particular cold of stone and wood that have never dried, and for weeks I would lie awake at night listening to the water move through the channels below me and feeling the platform shift almost imperceptibly with the weight of the Quarter's breathing, and I would think: *I have made a terrible mistake.*
+
+But I would not leave. Because something was happening to my hands.
+
+I am — was — a person who thought with words. Who worked through problems by talking, by arguing, by arranging sentences until they formed a structure I could stand on. In the Stiltwell Quarter, this was useless. The language was wrong for me — too soft, too full of sounds that dissolved in the damp air before they reached my ears. And so, slowly, desperately, I began to use my hands. I would sit on my cold platform and handle things: a length of rope left by the rope-worker, a piece of ceramic from a cracked channel-fitting, a handful of moss that I pulled — gently, reverently — from the wall beside my sleeping shelf. I would turn these things over and over, and I would feel, for the first time, that thinking could happen in the fingers. That understanding could arrive not as a sentence but as a texture, a weight, a moisture-content, a give.
+
+I think I would become a moss-tender. Not a good one, at first. Perhaps never a great one. But the Quarter would find me suited to it, because I had spent my life reading — reading texts, reading people, reading the invisible structures that hold communities together — and the moss is a text. It grows in layers. It records. It remembers. And I would discover that I could read it, slowly, imperfectly, the way a child reads: sounding out the words, making mistakes, but *reading*.
+
+I would learn to feel the moisture content of a wall with my fingertips and know its compressive strength. I would learn to see the dark band on the eastern wall and understand that it meant *more light here, once*. I would learn to press a fern spore into a crack with the precision of — no, not a watchmaker. With the precision of someone placing a word in exactly the right position in a sentence, so that the whole structure holds.
+
+My hands would change. The nails would pack with green. The calluses would form in patterns that corresponded to my new trade. My fingers would grow — not literally, but in their reach, their confidence, their ability to navigate a world that is not made of words.
+
+My eyes would lighten. My voice would soften. I would begin to move through the Quarter in that fluid half-crouch, one hand always near a wall, finding the path of least resistance without thinking. I would begin to listen to the water. I would begin to forget the outside world — not as a conscious act of renunciation, but the way a dream fades: gradually, then completely, until the memory of dry air and sharp shadows and loud voices becomes less real than the damp and the green light and the sound of my own soft footsteps on a reed platform at what passes for night.
+
+And one day — years in, decades perhaps — I would be sitting on a platform that was no longer the cold low platform of my arrival but something warmer, something I had grown into the way the moss grows into a wall: slowly, structurally, load-bearing. A child would ask me where I came from. And I would pause. And my brow would furrow. And I would reach out and touch the moss-wall beside me, feeling its layers, reading its history, and I would realize that I could not remember.
+
+Not the place. Not the name of the language I once spoke. Not the sound of my own voice when it was loud.
+
+I would remember the feeling of dryness. The ghost-sensation of air that did not participate in my breathing. But I would not be able to reconstruct the world that produced it, the way you cannot reconstruct a dream once the waking world has fully asserted its reality.
+
+And I would say, in the Stiltwell way — a long exhalation with gentle interruptions, a sentence the damp air would carry softly to the child's ears — something that meant: *I came from outside. But the outside is not real anymore. This is real. The moss is real. The water is real. You are real.*
+
+The child would nod, because to a Stiltwell child, this is not a strange thing to say. It is simply true.
+
+And I would turn back to the wall, and press my fingers into the moss, and feel the Quarter breathing around me — slow, steady, patient, complete — and I would be, at last, not a person who lives in a place but a place that lives in a person, and the distinction between the two would dissolve like a plosive in damp air, and there would be nothing left but the green, the quiet, the cold bright light, and the sound of water moving through channels that I know, in my fingers, in my bones, in the callus-patterns of my hands, better than I ever knew anything in the world I can no longer remember.

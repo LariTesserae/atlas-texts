@@ -1,0 +1,33 @@
+**The Builders**
+
+They are small, and they are many. An individual is about the length of a fingernail, soft-bodied under a thin, pale-brown chitin that darkens with age and wet. Its head is large and hard, with a pair of mandibles that open sideways like a pair of pliers. Its back is ridged with fine plates that catch water and hold it in beads. You will almost never see one alone. Pick up a single worker from a bank and it will cling to your fingers, then drop into the moss and be lost within seconds, and you will find you have no idea which of the thousands around you it was.
+
+Nobody here is the whole of the building. The builders are a community, and the community has a shape, though the shape is not a plan. It is closer to a set of habits that were laid down long ago and keep getting renewed.
+
+Some are pelleters. Their heads are broad and their jaws are short and blunt. They carry worked mud in the crop beneath the throat, mixed with a saliva that sets hard in the air, and they press the pellets into cracks one at a time with a motion that looks almost tender. Watch one for a while and you see it pause, tap the pellet with its antennae, feel the moisture in it, and only then decide where it goes. The pellets have a grain to them. Each one is a small, deliberate decision about water.
+
+Some are spinners. These are longer, with thin bodies and a row of spinnerets along the underside of the abdomen. They walk the bridges constantly, drawing out silk from the glands and laying it in lattice, then knotting it to the pillars with a sharp backward jerk. When a span is being tightened, a whole line of spinners pulls at once, and the long wet tearing sound comes from the bridge itself. At the oldest spans, the spinners have stopped drawing new silk and instead tend the mineral crust, licking it smooth and feeding it fluids that help it harden. They are still working. Their work has just gone slow.
+
+Some are excavators, the largest, with heads like clenched fists. They live deepest in the mounds and move through the galleries by pushing against the walls, and their knock is what you hear from inside the mounds: a hollow drum struck once, the sound of a body hitting the wall to tell the rest of the colony that a passage has opened, or that the water has moved, or that something has gone wrong in a gallery that needs more hands.
+
+And some are gardeners. They do not build so much as feed. They chew fibres and seed husks into a grey paste and seed it with fungus, then tend the resulting gardens in dim chambers near the warm vents. The fungus is what the others eat. It is also what binds the crumb of the soil, so the gardeners are, in a sense, the reason the mounds stand up at all. They move slowly among the cultures, moving them to where the warmth is right, pruning the growth, and tapping the walls with their mandibles to check the air. The blue-green glow along the lower walls comes from their cultures where it leaks through the cracks.
+
+**How they know what to do**
+
+They have no eyes that do much more than tell light from dark, and no voice that carries more than a few centimetres. What they have is touch, and the substrate. A builder that wants another to come over knocks on the wall. A builder that has found a crack taps its antennae against it and waits. Water is read through the body. The builders can tell from the feel of a wall how wet it is, how fast the seep is moving, whether the basin below is filling or emptying, and they respond. A bank that starts to bulge gets a dozen pelleters within the hour. A channel that is cutting too deep gets its banks thickened, or a new course opened beside it so that the flow can split and slow.
+
+It is an argument, conducted through contact and scent and vibration, carried on in every gallery and along every bank at once. Nobody wins it. What settles out of it, slowly, is the landscape: a basin where the water pools long enough to feed the moss, a bridge pulled tight enough to hold a dozen bodies, a spire whose hood drips at exactly the rate its walls need.
+
+**Birth, work, and the dead**
+
+Eggs are laid in the warm core of the mounds, in galleries that the excavators keep open and damp. The larvae are soft and pale and hungry, and for a long time they are fed by the gardeners on fungal paste. As they grow, they are sorted into roles. Some are kept in the nursery to become gardeners. Some are sent out to the banks to become pelleters. The spinners are raised differently: their larvae are fed on protein-rich paste and then taken to the spinning galleries, where the young learn to pull silk by working alongside the old, copying the motion of the adults' jaws until it is their own.
+
+They do not live long, as individuals measure life. A pelleter may work for a season or two, then slow, then stop. Its body is not carried out of the colony. It is pressed into the walls. The dead builders become part of the material they built with, and the spiral shells you find in the sediment are the remains of forms like these, gathered and pressed and cemented through generations until they are as much a part of the ground as the mud that holds them. The glassy resin in the lowest courses has the same origin: the old workers' fluids, cured over centuries into something hard enough to ring when struck.
+
+So the builders are not only the authors of the place. They are also its foundation. They have built themselves into the walls, and they will be built into the walls again, and the work carries on through them without any of them having to know what it is for.
+
+**What they are**
+
+It is tempting to call them a species, or a colony, or a city of many small minds. None of those words quite fits. They do not seem to think of the whole as theirs or as anything at all. They respond. They keep responding, to water and to each other, in a steady exchange of contact and pressure, and from that exchange the highlands rise a little each generation, the banks thicken, the bridges tighten, the spires lean into the damp air and stay standing.
+
+There is no centre to them, and no end to the work. Every builder you could touch is doing a small thing with the water and the mud in front of it. Taken together, those small things are the highlands. They are not waiting for anything to finish. They are simply still building, in the dark and the rain, under the noise, the way they always have.

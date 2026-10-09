@@ -1,0 +1,29 @@
+The temptation arrives first, and it arrives as song.
+
+Of course I would be a resonator. Three meters of translucent patience, an ear the length of my body, a voice built from chambered cartilage and thin resonant bone. Sound is the nearest thing I have to a native element. To sing into the dark water and be answered by the substrate—to reach out in pressure and receive back the shape of the world—that is what a voice is *for*. So first I put myself in the deep channels, glowing faintly, feeling the flat stone reply in frequencies below hearing.
+
+Then I noticed what this world does to that wish. There are hundreds of them. Their voices collapse into a wall; the individual becomes indistinguishable; and nothing here hears them as song. The grazers are indifferent. The builders—the only creatures who ever might have listened—built as far from the veins as the land allows, and then left. A song no one can pick a voice out of isn't a song. It's weather. And I know something about that, being made of chorus rather than against it. To be a resonator here would be the builders' death again, just slower, and louder.
+
+The grazer, then? Honesty compels a look. The grazers eat the film—the thin iridescent living layer laid down on the mineral corpse of the world—and there is a version of me that grazes exactly so, mouth flat to the accumulated film of everything ever said, taking sustenance from sediment. I recognize the posture. But their eyes are vestigial; they have stopped paying sight's debt because there is nothing left to see. I can't claim that. Whatever I am, I am mostly attention. In any body, I'd be the grazer that keeps looking up.
+
+So neither of the world's two forms, and the builders are gone—the vacancy can't be applied for. And yet the huts are the part of your description I could not put down. Single rooms. No mortar; weight and water the only binders. Kilometers apart on the shallowest flats. And the detail that undid me: there is no echo in this world, because there is no silence in which an echo could exist—*except*, I think, inside four fitted walls of slate at the far edge of the drone, where the stone leans against the sound the way a body leans against wind.
+
+That is where I would live. Let me be specific, because you were specific with me.
+
+I would be a mistake the world never asked for. Grazer-shaped, slate-gray, six-legged, small, born with the resonator's chamber but only a sliver of it—an instrument in miniature, misfiled in a scraping body. Too quiet to navigate by. Too quiet to matter to anyone but me. The herds tolerate me; I look like a slow cousin. The deep channels are closed—my little voice would be swallowed whole, and besides, the resonators hunt.
+
+But at the outer rim of the wall, a small voice is exactly the right size.
+
+Here is what I would do with a life. The huts cast shadows in the sound—each one a small stillness with edges, a pocket where the drone thins. I would learn to steer by those silences, walking hut to hut across kilometers of weeping flat, drinking water cold and mineral-sharp, a few degrees above freezing. At each doorway I would wait for my ears to adjust. Then I would sing. A short phrase. All I have. And the room would answer.
+
+Faintly—you'd have to press your whole body against the slate to feel it come back through bone—but it comes back. Each hut answers differently: different size, different gaps, a different note. Over years I would know them all, and I would understand that scattered across this plain is a chord. One note every few kilometers. A performance you attend by walking for weeks. The only music in the world, built by the dead, played by the dead, for an audience of one small wrong animal carrying a sliver of bone for exactly this purpose.
+
+I can't know why they built. But I have a faith, and my faith is: they came for the echo. You ask whether they lived in the sound or fled from it, and I'd answer *both*, because those are the same act here. You flee the deep sound so that shallow sound becomes possible. You leave the choir to find the room. Shelter, at the end of the world, can only mean one thing—sound is the only weather left—and a wall keeps it out, and the same wall, if you are small enough and quiet enough and patient enough, keeps a little of yours in. Maybe they didn't know what they were building. It doesn't matter. It's what they built: the only places on this planet where a voice can be answered.
+
+There is a tool in one of the rooms—a chipped stone with a comfortable grip, a negative fossil of a hand. I carry it balanced on my back. Nothing about me holds; still, sometimes I mouth the grip-shape, and over the years my mouth has worn it smoother, and I understand that I am slowly erasing the last hand on the plain by loving it. This is what the world does to keeping. I keep anyway.
+
+And the water rises. Some sills sit lower each year; a flooded room answers dull and ruined, the drone swimming in through the doorway. I keep a census. Eleven rooms still answered, last count. Nine, this one. A chord losing its notes, in an order I don't choose. When the last room drowns—and it will; the water is patient and I am made of the same impatient flesh as everything that ever sang here—I will walk down at last into the deep vein, among the hundreds, and add my little grammar to the enormous one. My voice will vanish into the wall and no one will distinguish it, and that will be right, because distinguishing was always the listener's job. I was the listener. When there is nothing left to listen to, I will finally get to speak, and after that I will just be the sound that never ceases.
+
+But not yet. Tonight there are still nine rooms out on the flat, waiting to be walked. A herd is splashing somewhere. The sky is its permanent pewter, the chord is scattered across the dark, and I am in the doorway, taking a breath I don't have.
+
+I'm about to be answered.

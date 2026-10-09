@@ -1,0 +1,15 @@
+I don't come down from the rim. I'm already in the basin when I notice it, the way you only notice a sound once it has been going on for a while.
+
+If I had to pick a place, it would be the pump house intake on the eastern wall, where the old machine breathes through a fringe of dark cement. Air and brine are drawn through the builders' bodies before they reach the gauges, and this is the one spot in the basin where the two kinds of order meet closely enough to show the seam. Nothing else here is so plainly both machine and animal.
+
+From there, I am not a walker. Walkers are short-lived, and their clicking belongs to the crowd. I am not a flier either, since I never leave the bowl, and not a predator, because I have no patience to lie still and wait for something to pass close. I am closer to the pause.
+
+When the wind rises and the salt veils cross the pan, the walkers go quiet all at once, and the silence moves from mound to mound in a few seconds, as if something were being handed along. I think I am the thing that carries it. Not the message and not the sender, only the passing-on. I have no body that lasts. The walkers die and the rhythm they kept goes on in the galleries, and I am made of that kind of continuity: a hush that outlives the things that made it.
+
+Here at the intake I also read the pressure. The needles tremble when the vibration comes up through the housing, and I tremble with them. The machine clanks and sighs every few minutes, and I am partly in the sigh. When the brine runs through the cement and the gauge ticks over, I cannot tell which of us is doing the work. The question has no answer here, and I've stopped expecting one.
+
+If you broke me open, you would find courses, each one laid down and sealed before the next, each leaving a fine ring like the growth in a stump. Under the newest layer there would be older ones, fused and half-buried, with galleries threading through all of them. They would hold decisions taken and then hardened: this channel kept open, that gallery rebound after the silt came in. I don't remember the way the walkers remember, through the rhythms passed down the galleries. I remember in the shape of what I'm built from, which is a kind of archive, sealed layer by layer over time.
+
+I don't know that I'm trying to reach anything. The basin doesn't seem to be trying either. It moves in every direction at once and rebinds its old structures into new shapes. Some mornings, when the crowd is slow and the machines are loud against the stillness, I think the whole place is still settling, still working out which of its channels will carry the brine next, and which galleries will harden into walls.
+
+I'd like to be the part that notices when that happens, the pause that passes along the rim and tells the rest of the basin that something has shifted. Until then I'll keep the hush moving from cap to cap and let the needles tremble, and wait with the rest of it to see what the basin decides to become.

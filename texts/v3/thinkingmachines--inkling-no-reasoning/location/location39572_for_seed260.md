@@ -1,0 +1,19 @@
+Above the breathable line, in the raw crystallization of a valley still being born, the world does not behave.
+
+The elevation is absolute—2.7 out of 3—placing you among needle-thin spires of half-cooled obsidian and pumice that have only recently stopped screaming into existence. This is a landscape with an erosion score of only 0.5: not worn, but *unworn*, embryonic. The geology is naked, unfinished, pre-formation rock that has not yet learned what shape it intends to keep. On a scale of 1.8, it opens into a regional bowl, a town-sized hollow of jagged mineral plateaus separated by long, empty exhalations of space.
+
+The temperature holds at 0.9—cool, nearly cold, though no wind moves to deliver that chill. There is no water here, not at all—0.3—not even the memory of rivers. What fills the air instead is a dry mineral fog, salt-dust, and suspended crystals that settle on every surface like frost made of stone.
+
+There are no animals. 0.4. Nothing moves with breath or pulse. The density is 0.6—scattered presences in vast emptiness. What exists instead is vegetation at 1.6—lush, impossible, flourishing without soil or rain. Thick carpets of silver lichen cling to vertical cliffs; translucent tuber-gardens hang in the air, rootless, drawing sustenance from the crushing sound itself; bioluminescent moss glows in faint, cool constellations across the dark rock. The greenery is dense in pockets, separated by miles of silent void.
+
+The sound is the dominant sense—2.7, deafening—though not of thunder or wind. It is a constant, tectonic drone, a low-frequency roar emanating not from distance but from within every stone, vibrating the air at a pitch that makes the teeth ache and the vision blur. To stand here is to be submerged in it. The noise is not loud in the ordinary sense; it is *total*. It is the sound of reality being assembled slowly, with labor.
+
+The light is dim—0.6—a twilight that never shifts, casting long, motionless shadows. The sky is not sky but a sealed, mineral ceiling, a dome of dark slate through which nothing shines. The atmosphere feels like a sealed environment, non-aqueous chemistry made breathable only by accident.
+
+The weirdness is absolute—3.0—reality breaking down in patient, patient ways. Perspective does not hold. A spire that looks near might take days to reach, not because of distance, but because the space between fails to maintain consistent rules. Gravity pulls downward, but also slightly upward in scattered pockets. Time moves slowly—0.7—gradual cycles, change across long durations. Stones shift position if unobserved, not far, but noticeably. The ground is still deciding its final form.
+
+Scattered across this open, emerging valley—0.9 built—are primitive structures. No great cities, only faint marks: single stone circles made of unworked basalt, arranged with careless precision; low walls that serve no defensive purpose; artifacts of simple fabrication, hand-tools chipped from obsidian, left in the moss as offerings to whatever force is building this place. The tech is 0.9—primitive, pre-metal, manual craft. No one lives here now, or perhaps they never did.
+
+The dynamics are slow—0.7. The valley is under construction, but on a schedule measured in centuries. You can watch, if you stay long enough, a new pillar of rock emerge from the flat crust, rising a finger-width per year, while the moss adapts to cover it before it has fully arrived.
+
+Here, in the cool, dry, deafening silence-between-noise, the world is not finished. It is being imagined into structure, lush despite its aridity, open and sparse, terrifying and serene, a pre-formation valley where the rules have not yet been signed. You do not visit; you endure the slow birth of a place that may never be born at all.

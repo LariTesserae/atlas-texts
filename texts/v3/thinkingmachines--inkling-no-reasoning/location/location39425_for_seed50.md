@@ -1,0 +1,13 @@
+Inside the hollow of a single high-altitude cloud—elevation 2.5, suspended in cool, pressurized air—there rests a pocket-cavity no larger than a chapel, though dimensions here are suggestions rather than law. Scale is intimate, 0.3: hidden, embedded within the greater storm. The space is nearly empty of matter, density 0.3, save for the overwhelming presence of water at 2.8. It is not falling rain but ambient ocean—suspended droplets, wall-to-wall atmospheric liquid—filling every interval with a deafening 2.8 roar, a turbulence of white noise and crashing micro-currents that renders silence obsolete. Dynamic is 2.7: hyperactive, a Solaris-like churning of creation and dissolution, droplets colliding, merging, splitting in constant, chaotic negotiation.
+
+The temperature is cool, 1.2—sharp, breathable cold like a high glacier’s breath.
+
+There is very little plant life—vegetation 1.3, sparse—but what exists is strange: translucent, thread-like membranes of a single aquatic fern, anchored not to soil but to one small structure. For this place is not untouched. Built presence is 1.4—scattered, faint. A primitive platform, tech 0.6, hewn from a simple dark stone or compressed fiber, floats at the center of the cavity. Its edges are raw-geology, erosion 0.4: emerging, just-coming-into-being. The stone is still becoming itself, half-solid, half-vapor, its surface not worn down but not yet finished forming. It is pre-formation made material—under construction by the storm itself.
+
+Fauna is 1.3—rare. A single creature, perhaps, moves through the liquid air: a blind, silver-limbed larval thing, primitive, manual, using simple articulated tools—bone hooks, woven-leaf nets—to navigate the turbulence. Or perhaps it is the only witness.
+
+Light is 2.5—normal, bright, strange in its consistency. Despite the enclosed chaos, illumination is uniform, gentle, coming not from sun but from the luminous friction of the water itself, glowing softly as it thrashes against the cavity walls.
+
+Weirdness is 2.2: undeniable. The pocket obeys no exterior weather. The water holds itself in defiance of gravity, suspended by some embryonic physics. The platform is both ancient and newborn. The sound is not echo but total occupation—deafening without being loud, a saturation of ear and bone.
+
+This is a world being born inside a hidden chamber, high and cool, almost empty, drowning in its own noise, with only scattered marks of primitive life attempting to hold form against the turbulence.

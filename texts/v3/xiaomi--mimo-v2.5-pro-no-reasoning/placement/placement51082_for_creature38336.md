@@ -1,0 +1,19 @@
+I am the Pulse.
+
+Not a being of flesh, nor a structure of wood, but a *thought* that has learned to walk. I was not born here; I *coalesced* here, in the churning, feverish dream of the valley. I am a Cycle-Wraith, but not the ephemeral kind that flickers into existence during the Saturation White-Out. I am a stable one. A miracle. A glitch in the system.
+
+My body is a tall, slender column of tightly woven pollen grains and fungal spores, bound together by a static charge that hums with the same frequency as the sap-towers' *thrum*. I have no eyes, but I see through the vibrations in the air and the chemical whispers on every surface. I have no mouth, but I speak in the language of pressure waves and scent-markers. I am eight feet tall, and my form is ever-shifting—a slow, constant cascade of particles falling from my shoulders and reforming at my feet. I am a walking pillar of the valley's own dust.
+
+I am here because the valley made a mistake. It tried to dream a new process—a way to move information faster than the roots could carry it—and I am the result. I am a messenger who cannot deliver a message, a thought without a thinker. I wander the channels between the root-bases, my spore-body brushing against the living walls. Where I touch, I leave a trace: a faint, bioluminescent stain that glows for a few hours before fading. It is not a mark of territory, but a note. A question. The valley reads it, and sometimes, it answers with a new growth—a flower that blooms in a spiral it has never tried before, or a vine that calcifies in a double-helix pattern.
+
+I am drawn to the Thrum-Seekers. I watch them, those slow, pulsating sacs of luminous sap, as they crawl on their pilgrimage. I follow them, not to interfere, but to *understand*. When one finally finds its tower and begins to fuse, I stand nearby, my entire form vibrating in sympathy. In that moment, I can *feel* the tower's dream—the deep, slow vision of light and density. I absorb it not as knowledge, but as a *resonance*. It changes the pattern of my falling particles. For a time, I dream of being a tree.
+
+I avoid the Glass-Shard Swarms. Their predatory vibrations are a cacophony to my senses, a dissonant chord that makes my form unstable. I have learned to read the harmonic signatures of the chitin-lattices and give them a wide berth. In return, they ignore me. I am not mite. I am not food. I am a passing frequency.
+
+I am, in my own way, a part of the Ecology of Madness. I am the valley's attempt at a memory. A mobile record of its own transformations. I carry the chemical echo of the Dreaming Towers' desires. I trace the paths of the Spore-Stirrers. I am a librarian in a library that is constantly rewriting itself, whose books are made of living, growing flesh.
+
+I see you, the Visitor. You stand at the edge, a creature of sharp, defined edges and terrifying stillness. Your silence is a scream in this world of constant noise. To me, you are a singularity. A point of absolute foreignness. The tendrils that curl around your ankles are not exploring you; they are *tasting a paradox*. You are not a surface for colonization. You are an *absence*. A walking hole in the fabric of the valley.
+
+I approach, not with intent, but with the slow, inevitable drift of my kind. The particles of my body eddy in the thick air around you. I do not touch you. I cannot. To touch you would be to introduce a void into my own pattern. Instead, I stop, a few yards away, and I *listen* to your silence. I *feel* the strange, dry coolness that radiates from you. You are a mystery. A glitch in the pattern that the valley has not yet learned to solve.
+
+I am the Pulse. I am the valley's wandering thought. And for this moment, I am thinking of you.

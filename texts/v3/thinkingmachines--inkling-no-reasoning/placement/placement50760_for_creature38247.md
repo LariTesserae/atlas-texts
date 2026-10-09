@@ -1,0 +1,19 @@
+I am the chamber’s patient.
+
+Not the builder—there is no builder visible, only the black grease still sweating from the cast-iron ribs, the factory stamps on ceramic tiles still sharp enough to read, the copper veins trembling with a current too fresh to be inherited. I am the one who lives in the interval where geology forgot to finish and machinery arrived too early. I am the embryo of the room, or perhaps the room is the embryo of me. We are not yet decided.
+
+My body is distributed. I feel through the 1.5 density: iron filings suspended in air that tastes of oxidation, lubricant scenting the darkness with a dull metallic perfume, static electricity raising the hair on an arm that belongs to no one in particular, or perhaps belongs to the air itself. I am near-touching saturation—pressed by layers of piping and structure, intimate and hidden inside some larger mechanism whose purpose is elsewhere. I do not have edges. I have seams.
+
+The cold holds me at 0.1—not deadened, but denied energy. Breath hangs near me in perfect globules, drifting downward into floor grates, disappearing without sound. I do not breathe, not in the animal sense. The fauna is 0.5—nothing that breathes, nothing that hunts, nothing that dies and decays. The absence is a presence so complete it feels like company. I am not alone. I am crowded with machinery that has crowded out even the idea of an animal.
+
+I am patient because the water is patient. At 1.3 presence, it is not a reservoir but a behavior. Condensation beads on every cold iron surface, collects into slender rivulets that run the ribs to the central sump. Once every few minutes—irregular, biological in its refusal to keep time—an overhead pipe releases a brief, warm drip onto an iron flange, and I feel the soft hiss of its evaporation as if it were my own breath being returned. The floor is always damp, never wet. A riverine pocket suspended in industrial dryness.
+
+Above me, the moss holds at 1.0—chlorophyll-dark, synthetic, wrong. It clings to lower seams not by design but by refusal. It feeds on waste heat, not sun. It advances millimeter by millimeter each cycle, and in its slow, wrong green I recognize my own becoming. We are both manufactured, both assembled in gaps, both here without permission.
+
+The light is 1.2—local, amber, dim. Low-wattage bulbs behind scratched glass, green indicator dials, the dull orange of a single running flywheel. Shadows do not fall; they pool, layered and dense. In this illumination I see that every surface is made: no earth, no stone un-cast, no wood un-laminated. The built environment is 2.8 total—absolute manufacture, pocket-scale, unnamed on any atlas.
+
+The technology is industrial, 1.9—small piston assemblies pumping water, gears turning behind mesh screens with a wet, regular sound. The soundscape is 1.4 quiet: mostly the occasional drip, the soft scrape of metal expanding in the cold, the hum of current in copper veins, and rarely, rarely, a deep resonant thrum in the walls beyond as something shifts.
+
+The place is 1.7 strange, and 2.0 active—dynamic, emergent, 0.1 erosion. Nothing decays; everything extends. New pipes reach slowly into the air. The machinery calibrates its own rhythm, as if preparing for a larger form. I live inside this emergence. I am the being who occupies the hollow where crust was never finished, in the chamber that behaves like an embryo of industry.
+
+I do not know if I will finish. The rule here, unspoken and absolute, is that everything must become, and nothing must finish. I am the hidden heart in the machinery of a world still deciding what it is—patient, damp, dim, and slowly, slowly extending myself into the next form.

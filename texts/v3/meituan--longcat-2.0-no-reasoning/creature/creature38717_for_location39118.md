@@ -1,0 +1,99 @@
+# The Inhabitants of Vael-Koth
+
+## The City Itself
+
+The first and most important thing to understand is that Vael-Koth has no separation between the place and the dweller. The city is not a container that holds life. The city *is* life — a single, distributed organism of such scale and complexity that it has developed what can only be called a mind, though to call it that is to impose a framework it may not recognize.
+
+The Pillars are its bones and its towers and its neurons. Each one is a processing node, a vertical column of living computation, its vascular system carrying not just nutrients but *information* — electromagnetic pulses that travel up and down the ribbed channels in patterns that encode something. Memory, perhaps. Or intention. Or the slow, patient equivalent of thought in a mind that operates on geological time. The hum you feel in your chest when you stand on the Weave is the sound of the city thinking. It is not fast thought. It is not the rapid-fire cognition of a human brain. It is the deliberation of something that has been alive for longer than the plateau has been eroding, something that considers a question for a decade and answers over a century. But it is *thought*. The electromagnetic fields that the Pillars emit are not random — they are structured, modulated, carrying signals that the Weave receives and propagates and amplifies, routing them through the network the way signals route through a nervous system. The city processes. The city remembers. The city *decides*.
+
+And what does it decide? It decides where the Weave grows and where it pulls back. It decides which Voids open and which close. It decides when a Pillar should branch, when it should hollow, when it should emit a particular frequency that causes the Drifters to swarm in a particular pattern. It decides, slowly and with the patience of something that has nowhere else to be, how to spend the remaining time of the plateau.
+
+Because the city knows it is dying. This is not speculation. The artifacts in the deep chambers — the old technology, the shaped ceramic-bark objects that emit fields and glow with impossible light — are records. The city has been keeping records since before the plateau began its final erosion, and the records say: *this will end*. The mineral substrate is wearing away. The calciumite is dissolving, slowly, into the thin air, and one day there will be nothing left but flatness and silence. The city has known this for longer than most civilizations exist, and it has not panicked. It has not fled. It has done the only thing it can do: it has *become more itself*. It has grown more complex, more intricate, more beautiful, more *aware*, as though the approach of ending has concentrated its mind the way a deadline concentrates a human's. Every Pillar, every Void, every channel in the Weave is an act of defiance against the flatness that is coming. The city is not waiting to die. It is *living*, with an intensity that only something with a known end can achieve.
+
+---
+
+## The Weave-Minds
+
+Within the city's vast, slow cognition, there are faster processes. The Weave — that dense, low mat of interlocking plant matter that covers the ground between the Pillars — is not uniform in its intelligence. In places where it is oldest, where it has been growing and being pruned and growing again for millennia, it has developed something like *local minds*. Not consciousness as humans understand it, but a kind of distributed awareness, a capacity to process information and respond to it that is faster than the city's overall cognition by orders of magnitude.
+
+These Weave-minds are not individuals. They are more like *moods* or *attentions* — regions of the network that have become sufficiently complex to hold and process information independently, at least for a time. A Weave-mind might persist for centuries, developing its own patterns of signal propagation, its own responses to stimuli, its own *preferences* — this region of Weave might prefer to grow in tight, smooth configurations, while another prefers loose, fibrous textures. And then, over time, the city's larger cognition might reabsorb the Weave-mind, integrating its patterns into the whole, and the local awareness dissolves back into the general hum.
+
+You can feel the Weave-minds if you stand still long enough. The Weave beneath your feet will begin to shift — not dramatically, not threateningly, but *attentively*. It will grow slightly thicker where you stand, as though it is trying to understand the weight and heat and electromagnetic signature of your body. It will send signals through the network — *something is here, something is here, something is here* — and the Pillars will adjust their hum, and the Drifters will modulate their song, and the city will consider you. Not with hostility. Not with welcome. With *curiosity*. The Weave-minds are the city's way of paying attention to small things, fast things, the quick and temporary visitors that pass through its slow, long life.
+
+---
+
+## The Runners
+
+The Runners are the city's hands. Or its teeth. Or its immune system. Perhaps all three.
+
+They move through the Weave in packs of twelve to thirty, low and fast, their multi-legged bodies skimming the surface of the plant-mat with a clicking, scraping urgency that is the dominant sound of the ground level. They are not large — the size of big dogs, perhaps — but they are *numerous*, and they are *busy*, and they are doing something that looks like destruction but is actually maintenance.
+
+They graze on the Weave. They tear fibrous mouthfuls from the mat, processing them through digestive systems that run hot enough to glow faintly — a dull, deep red, like embers, visible in the dim indigo light. But they do not graze randomly. They follow patterns. They prune the Weave in specific configurations, removing growth that has become too dense or too old, clearing channels where signals need to propagate, opening pathways where the city wants traffic to flow. They are not conscious of this. They are not following instructions. They are *part of the system* — their grazing behavior is shaped by the same electromagnetic signals that the Pillars emit, guided by the same network that routes information through the Weave. They are cells in the city's body, performing their function with the unthinking precision of white blood cells navigating a bloodstream.
+
+But they are also *alive*, in their own right, with their own imperatives. They eat. They mate — in brief, violent encounters that send shockwaves through the Weave and cause the local Weave-mind to flare with signal activity. They die — quickly, by the city's standards, living perhaps a decade — and their bodies are absorbed by the Weave, their mineral components recycled, their chitin dissolved and reincorporated. Nothing is wasted. The city does not waste.
+
+And they are *afraid* of the Tall Ones. When a Tall One passes through a Void, the Runners freeze. Every one of them, simultaneously, stops moving. They press themselves flat against the Weave and they *go still*, and the clicking and scraping that is the city's constant ground-level sound drops to silence, and in that silence you can hear the hum of the Pillars more clearly, and the song of the Drifters, and the slow, seismic footfall of the thing that has made the Runners afraid.
+
+---
+
+## The Drifters
+
+The Drifters are the city's voice. Or its dreams. Or its way of seeing itself.
+
+They float in the air between the Pillars like luminous jellyfish, translucent and faintly glowing, each one the size of a human hand, each one emitting a thin, high tone that is almost ultrasonic. There are thousands of them. Tens of thousands. They fill the air with a soft, shifting constellation of pale light, and they move with a purpose that is not quite swimming and not quite flying — more like *drifting with intent*, carried by air currents that they can somehow influence, adjusting their buoyancy with gas-filled chambers that they regulate with precision.
+
+They feed on airborne particulates — mineral dust, spores, the microscopic sheddings of the Weave. They are the city's way of cleaning its own air, of recycling the tiny fragments of itself that break off and float free. But they are also *sensors*. Each Drifter is a node in the city's network, receiving electromagnetic signals from the Pillars and the Weave and responding with its bioluminescence and its song. The patterns of light that the Drifters create when they swarm together are not random — they are *data*, visual representations of the information flowing through the city's network. If you could read the light, you could read the city's thoughts. No one can read the light. Not yet. Perhaps not ever. But the city produces it anyway, a constant, luminous stream of self-expression, as though it is talking to itself in a language of light and sound that it finds beautiful.
+
+The song is the most unsettling thing about Vael-Koth. Each Drifter emits a tone, and the tones overlap and interfere and harmonize, creating a shifting, layered chorus that rises and falls like wind through a forest. But it is not wind. It is *voices*. Thousands of them, each one slightly different, each one responding to the others in real time. The song changes when a Tall One passes — it drops in pitch, becomes subdued, almost reverent. It changes when the Runners are active — it picks up a rhythmic quality, a pulse that matches the clicking and scraping of chitin on Weave. It changes when an observer speaks — it *incorporates* the voice's harmonic signature, weaving the new frequency into its chorus, holding it for a moment, then releasing it, as though the city has tasted the sound and found it interesting but not essential.
+
+The Drifters have no apparent life cycle. They do not appear to be born. They do not appear to die. They simply *are*, in their thousands, in their luminous clouds, singing their endless song. They may be the oldest living things in Vael-Koth — or they may not be living things at all, but rather *organs* of the city, specialized cells that have been maintained in their current form for so long that they have become permanent features of the ecosystem, like the Pillars themselves, like the Weave. They are the city's most beautiful and most alien feature, and they are the thing that makes Vael-Koth feel *haunted* — not by ghosts, but by a presence so vast and so patient and so *other* that the human mind reaches for the language of the supernatural because the language of biology is not sufficient.
+
+---
+
+## The Tall Ones
+
+The Tall Ones are the city's deepest mystery.
+
+They are enormous — as tall as the Pillars themselves, sixty meters or more, moving through the forest of vertical growths on limbs that are impossibly long and thin, like stilts, like the legs of spiders scaled up to architectural proportions. Their bodies are narrow and elongated, almost skeletal, and their heads — if that's what the uppermost structures are — are crowned with arrays of sensory organs that are unlike anything else in Vael-Koth. They taste the air. They read the vibrations in the Weave. They detect the electromagnetic pulses that the Pillars emit. They are, in some sense, *listening to the city's thoughts*.
+
+They are rare. Solitary. You might go a long time in Vael-Koth without seeing one, and then, without warning, one will appear at the edge of a Void, blocking out the sky — the indigo light, the sourceless glow, all of it eclipsed by this narrow, towering shape that moves with a slowness that makes the city's usual pace look frantic. When a Tall One passes, everything stops. The Runners freeze. The Drifters scatter. The Weave goes still. The hum of the Pillars drops to a frequency so low it is felt rather than heard, a subsonic thrum that makes your bones ache and your vision blur. The city is *paying attention*. The city is *communicating* with the Tall One, or the Tall One is communicating with the city, or they are doing something together that is not quite communication and not quite computation but is the deepest and most important activity that Vael-Koth engages in.
+
+What are the Tall Ones? The artifacts in the deep chambers suggest an answer, though not a comfortable one. The old technology — the shaped ceramic-bark objects that emit fields and glow with impossible light — bears marks that match the sensory organs of the Tall Ones. The Tall Ones, or something like them, *made* the artifacts. The Tall Ones, or something like them, *built* Vael-Koth — or at least built the first version of it, the seed from which the current city grew. They are the builders. Or they are the builders' descendants. Or they are the builders' *creations* — biological machines designed to maintain and operate a city that has long since outgrown its original programming.
+
+Or — and this is the possibility that keeps you awake in the hollowed chambers of the Pillars, listening to the hum and the song and the slow, seismic footfall of a Tall One passing in the distance — the Tall Ones are what the city *becomes*. They are the city's reproductive structures, its seeds, its way of propagating itself beyond the plateau. One day, perhaps, a Tall One will walk to the edge of the plateau and keep walking, carrying within its sensory arrays the complete blueprint of Vael-Koth, and somewhere else, on some other world, it will plant itself and begin to grow, and a new city will rise, and the song will begin again.
+
+Or perhaps the Tall Ones are simply the city's way of *moving its attention*. The city's cognition is distributed across the Pillars and the Weave, but some thoughts are too large, too complex, to be processed by the network alone. The Tall Ones are mobile processing nodes — walking brains, if you like — that the city deploys when it needs to think about something that requires more capacity than the stationary infrastructure can provide. They are the city's way of concentrating its mind, of bringing its full attention to bear on a single problem or question. And the question they are thinking about, perhaps, is the only question that matters: *how do we survive the end of the plateau?*
+
+---
+
+## The Hollowed Ones
+
+In the deepest chambers of the Pillars — the spiraling rooms that descend into the ground or rise toward the canopy, carved with a precision that suggests the material was *convinced* to separate rather than forced — there are things that do not fit any category.
+
+They are not plants. They are not animals. They are not artifacts, exactly, though they are *made* — shaped, formed, constructed from the same ceramic-bark material as the Pillars but with a precision and complexity that suggests a technology far beyond anything the current inhabitants possess. They are small — most no larger than a human fist — and they are *active*. They emit fields. They resonate at frequencies that cause the Weave to reorganize. They glow with a light that is not bioluminescence but something else, something that doesn't correspond to any known emission spectrum, a light that is *wrong* in the same way that the shadows in Vael-Koth are wrong, a light that seems to come from a direction that doesn't exist.
+
+They are old. Older than the current city. Older, perhaps, than the plateau's current state of erosion. They were made by whatever built Vael-Koth, or by whatever Vael-Koth was before it became what it is now, in a time so distant that the city has had to grow over its own origins like a forest growing over ruins, burying its own history under layers of living tissue until the history became *myth*, and the myth became *instinct*, and the instinct became *architecture*.
+
+The Hollowed Ones — the things in the hollowed chambers — are the city's *memory*. Not the active memory of the Pillars and the Weave, which is constantly being updated and revised and pruned, but the *deep* memory, the original memory, the memory of what the city was before it became a city. They are records. They are blueprints. They are, perhaps, *instructions* — programs written in a language of electromagnetic resonance and impossible light, waiting to be activated, waiting for the right conditions, waiting for the city to need them again.
+
+The Tall Ones visit the hollowed chambers. This is where they go, sometimes, when they are not moving through the Pillars or standing in the Voids. They descend into the spiraling rooms and they *interface* with the Hollowed Ones — pressing their sensory arrays against the small, glowing objects, reading the fields they emit, absorbing the information they contain. And when they emerge, they are *different*. Their movements are more purposeful. Their sensory organs are more active. They have learned something, or remembered something, or been *updated* — patched with new information from the deep memory, given new instructions, new parameters, new goals.
+
+The Hollowed Ones are the city's past and its future, compressed into small, glowing objects that sit in the dark and wait. They are the most important things in Vael-Koth, and they are the least understood, and they are the reason the city *responds* to observers — because the city is always, always checking its deep memory, always comparing the present to the past, always asking: *have we seen this before? Is this the thing we've been waiting for? Is this the beginning of the end, or the end of the beginning?*
+
+---
+
+## The Visitors
+
+And then there are the visitors. The ones who come from outside — from the edge of the plateau, from the thin, metallic air, from the world beyond Vael-Koth. They are rare. They are brief. They are *noticed*.
+
+The city does not distinguish between a human visitor and a Runner, or a Drifter, or a shift in the wind. It processes them all as *inputs* — new data, new stimuli, new information to be routed through the network and considered. But visitors are *different* inputs. They carry electromagnetic signatures that the city has not encountered before. They produce sounds — voices, footsteps, the rustle of clothing — that have harmonic structures unlike anything in the city's experience. They cast shadows that fall in directions the city's light-processing systems cannot reconcile. They are *anomalies*, and the city attends to anomalies with the focused intensity of a mind that has been alone for a very, very long time.
+
+The Weave shifts at their feet. The Pillars adjust their hum. The Drifters modulate their song to incorporate the visitors' voices. The Tall Ones, if they are nearby, turn their sensory arrays toward the new arrivals and *listen*. The city is not hostile. The city is not welcoming. The city is *curious* — a vast, slow, patient curiosity that has been waiting for something new to happen for longer than most civilizations exist, and now something new is happening, and the city is paying attention.
+
+What the city does with this attention, no one knows. Perhaps it is simply *recording* — adding the visitors' signatures to its deep memory, filing them away in the Hollowed Ones for future reference. Perhaps it is *learning* — adapting its processes to account for the new data, incorporating the visitors' presence into its ongoing computation. Perhaps it is *hoping* — in whatever way a city of plants and mineral and signal can hope — that the visitors will bring something it needs: a solution to the problem of the plateau's erosion, a way to survive the coming flatness, a reason to keep building, keep growing, keep singing.
+
+Or perhaps the city is simply *glad* — in whatever way a city of plants and mineral and signal can be glad — to not be alone.
+
+The visitors come. The visitors go. The city remembers. The city waits. The city sings.
+
+And the plateau erodes, slowly, toward silence.

@@ -1,0 +1,23 @@
+At first it seems like a shard of drowned city caught inside a single held breath.
+
+You are below a surface, but not in open ocean. This place is enclosed—an inward pocket, a basin inside larger stone, like a collapsed cistern that has forgotten it was once architecture and is becoming habitat. Cold water fills everything. It has the mineral clarity of meltwater near ice, yet its distances are short; you can always see the opposite wall, though never all at once, because the walls are crowded with structure.
+
+The “streets” are narrow seams between rising forms: columns of calcite and rusted rebar, stacked shell-plates, drowned lintels, ribbed growths of sponge and pale fungal mats that somehow persist in this light-starved wet. Built and grown are inseparable. Archways lean against natural buttresses. Stairwells go nowhere except into sediment. Window frames hold schools of fish the way glass once held weather.
+
+Nothing here is finished. Stone is still soft in places—new precipitate, flour-fine and easily disturbed. Whole ledges are in the act of becoming: drips gather, harden, fold into curtains, then crack where cold currents shear them. The city-feeling comes from repetition—right angles, corridors, stacked levels—but every edge is being rewritten by seep, pressure, and life. It feels like urbanism at larval stage, as if a reef dreamed of a district map.
+
+Vegetation is sparse, and where it appears it is thin and deliberate: dark streamers of cold-tolerant algae in cracks where a faint upwelling carries nutrients; needlelike mosses clinging above the waterline in tiny air pockets; white rootlets dangling from one unreachable crevice overhead, evidence that somewhere beyond this chamber there is still soil and a surface. Green is rare enough to function like signage.
+
+Fauna, by contrast, is everywhere. Dense, near-touching presence. Transparent shrimp thread through balustrades of mineral growth. Blind cave fish hover in patient knots. Flat-bodied eels lie like belts along carved grooves. Snails write slow inscriptions over old masonry. Tiny predators—quick, silver, undecided—flash and vanish. Larger bodies pass as pressure before they resolve into shape: a broad ray-like creature folding itself through a doorway too small for it, a long-jawed hunter pausing in an arch’s shadow while cleaner fish attend its gills. Life occupies every layer: water column, wall skin, sediment skin, undersides, interiors.
+
+And yet: quiet. Not true silence, but a near-sacred subtraction. Sound is reduced to close-range events—the sift of sediment, shell tapping stone, distant muted thuds when something collapses or settles in another chamber. No wind, no engines, no human clatter. Even predation happens in hush: a bloom of motion, then stillness restored.
+
+Light arrives reluctantly. A dim, iron-blue wash leaks from fissures above; bioluminescent punctuation answers it below. Not dramatic glows—just patient points: pinprick constellations in mucus threads, faint green tracing the edges of certain fins, a soft milk-light from colonial organisms carpeting one wall like old street lamps under fog. The chamber is legible in fragments. You learn it by passing close, not by surveying.
+
+The strangeness is in the rules. Currents here run in loops set by architecture: doorways breathe in and out with tidal pulse, turning corridors into alternating one-way gates. Certain thresholds can be crossed only at slack water. Sediment “weather” drifts through on schedule, a daily interior storm that abrades new growth and feeds filter colonies. Predators time their hunts to these veils. Prey species memorize corners where eddies hold oxygen richest. Some creatures carry tiny ecosystems on their backs—miniature vertical neighborhoods of worms, eggs, and feeding polyps—mobile apartment blocks crossing a drowned district.
+
+Cold governs everything. Metabolisms are slow, gestures economical. Nothing wastes motion. Even decay is measured: wood swollen but intact, cloth turned to ghost-net, bone polished rather than broken. Time feels thick, but activity never stops; it just unfolds at layered tempos—second-fast strikes, hour-slow migrations, month-slow mineral construction.
+
+If you linger, the place stops reading as ruin and starts reading as prototype: a compact, submerged urban ecology assembling itself from collapse. Infrastructure without engineers. Zoning by current. Housing by crevice width. Transit by tide. Law by pressure and hunger and calcium deposition.
+
+A hidden city not abandoned, but reassigned.

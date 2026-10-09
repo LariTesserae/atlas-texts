@@ -1,0 +1,11 @@
+Inside this hollow—elevation 2.1, yet pressed into a 0.4-scale pocket that refuses geography—there is no boundary between the being and the place. The hollow is not old; it is newborn, its walls raw geology at 0.2 erosion, crystalline ribs of mineral that have not yet learned weather. They are not built (0.4) but they are not natural either. They are emerging, industrial veins of brushed steel and dark copper growing like bone through pre-formation stone, engines embedded that have never been turned on, pipes that carry nothing. A mechanized presence—2.4—without machinery, electrified, silent except for the deep sub-audible thrum of slow assembly.
+
+The heat is 2.7, but wrong: not combustion, but a radiant, patient warmth exuding from within the mineral ribs, feeding what grows here.
+
+That growth is lush—1.8—yet scattered at 0.7 density. Long, isolated drapes of green-black filament hang rootless, soil-less, feeding not on sun but on the heat itself and on the industrial vibration at the edge of hearing. They are luxuriant in texture, but separated by wide, glowing absences of bare rock. They grow millimeters per century, patient as physics.
+
+The air carries absolute absence of water—0.5—a dry, salt-field pressure sealed within non-aqueous density. There is no fauna—0.4, none—no eyes, no movement except the imperceptible. The illumination is flat and sourceless, 2.4, casting no shadow except the soft void behind each vine, merciless and even. In this light, the weirdness—2.8—is unavoidable: distance folds, the floor remains conceptually tilted, still deciding on orientation.
+
+The dynamic is 0.9 slow. Change is happening, but across epochs. The vines accrete. The embedded metal accretes. The hollow deepens its agreement to exist.
+
+What lives here? The Unborn Latency. Not creature but condition: a being that occupies its own emerging architecture, sparse with presence, thick with absence, hidden in a high, dry pocket where ecology and industry merged without conflict into an embryonic, unreal stillness—quietly breaking reality, quietly being assembled, quietly not yet named.

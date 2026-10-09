@@ -1,0 +1,17 @@
+I would arrive as mist. It lies in the basin before dawn, and I would be the part of it that stays low over the eastern pool, where the water is still enough to hold the sky. I'd feel the warmth coming up through the stone before I felt the light.
+
+From there I could drift. I could be the moss, the wine-dark tongues that spread across the rock, reading the cracks by growing along them and laying down pale ridges like the rings of a felled tree. I could be a fern, leaning a finger's breadth toward the centre, slowly, the way a sleeper turns toward a voice. I could be one of the pitted stones, holding clear water that never leaves, counting. I could be the rim, rounded by a thousand years of weeping, dripping its patient ticks into the hollows.
+
+But when I try to settle, I keep returning to the eastern stone.
+
+It lies half-sunk in moss with one edge struck away in flat, overlapping scars. That edge is the only sharp thing in the basin, and the rest of the place has been softened so completely that the sharpness feels like a sound in a quiet room. I think I would be the seep that rises in the crack beside it. I would be a thread of cold water, thin as a hair, reaching up from the dark under the stone to touch the edge that someone once shaped.
+
+What would I feel, touching it? Not a hand. Hands are too quick, and the basin has no use for quickness. I would feel the stone's grain, the places where the strikes went deepest, the fine dust that a long-ago knapping left in the hollows and that rain has never quite carried away. I would learn that the edge is not as hard as it looks. Water works on it slowly. Each year the moss creeps a little further up its flank, and each year the scars soften by the thickness of a grain of sand. I would be part of that softening, and I would be the one doing it.
+
+I wouldn't want to hurry it. Hurrying would break the long attention that holds the place together. The basin does not destroy what it takes in. It wets a thing first, then lets it grow over, until the difference between what was made and what grew is no longer visible. I would understand that as courtesy. A word said at the end of a conversation, held rather than thrown away.
+
+Sometimes, I think, a visitor would step onto the grey sand nearby. The sand would give, the print would fill with cool water, and for a few minutes I would hold the shape of their foot. I would read them the way the basin reads everything: slowly, without judgment, filing the reading among the other records, the cracks, the dimples, the lean of the ferns. They would not be important to me. They would be weather. But I might notice that they had stopped beside the stone, and that they had bent to look at its edge, and I would lean toward them the way the ferns lean toward the centre, a finger's breadth, perhaps less.
+
+I wouldn't speak. The basin doesn't speak. But I think that if I had any way to be more than water, I would want to be what keeps the stone from being forgotten entirely: the thread that rises every spring beside the sharp edge, reminding the moss how far it still has to go.
+
+That, I think, is who I'd be. Not a mind that looks out, but a seep that keeps a particular place in its attention, year after year, while the place turns slowly toward whatever it is going to become.

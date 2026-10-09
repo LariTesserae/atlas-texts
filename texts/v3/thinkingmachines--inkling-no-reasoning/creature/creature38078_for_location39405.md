@@ -1,0 +1,17 @@
+Here, in the valley that broke open too recently to remember being whole.
+
+The air is young—nothing in it but elevation and moisture, carrying no dust of older places. At 2.3, the valley hangs suspended, its rim still raw with quartz and feldspar that have not yet learned to round, that still remember the clean violence of their separation. The stone is newborn, fresh fractures exposed to a sky that does not hurry. The slopes stand in indecision, unsure whether they are mountains interrupted or plains that have given up midway.
+
+Water is present everywhere, not as river or cascade, but as condition. At 2.4, the ground breathes. Rocks weep slowly, continuously, without urgency. Fog condenses near the ankles and refuses to depart, a permanent low cloud that does not drift—there is no wind—only holds. In every depression that offers no slope, pools form: no inlet, no outlet, held in stasis, too settled for flow, too wet for dust. They do not ripple. They do not change.
+
+The green things come cautiously, at 1.5—lush in intention, scattered in execution. Thick moss claims the northern ledges in dark cushions. Ferns gather in the weeping crevices where water refuses to fall downward. Between them, long reaches of bare slate extend past sight, emptiness at density 1.0. Much air. Much water. Little occupation. The scale is that of a settlement, a valley, but rendered in near-vacancy.
+
+The town is the only geometry that resists the openness. Low buildings of dry-laid stone and timber sit at the flat heart, arranged with primitive precision—tech 0.7, simple tools, hand-fitted walls, no mortar, iron hinges forged to a single local shape, roofs pitched to receive the weeping. Roads exist. Channels for walking. One or two levels of layered construction. A settlement-scale logic of 1.7 spread thin across the open bowl. The architecture is manual craft made permanent, urban in concept but not in crowd. Lights appear in windows. Smoke holds low, not rising. Paths are kept clear. The people, if they are present, do not break the stillness. They move within the silence, part of the equilibrium.
+
+The temperature is warm—1.6—mild, neither demanding nor gentle. Unchanging. At dynamic 0.5, nothing shifts. The fog does not move. The moss does not sway. The pools do not respond to footfall. Light is normal—1.9—daylight without drama, illuminating wet surfaces without glare or shadow-play, revealing rather than altering. Time is invariant. The valley has reached its state and halted.
+
+And the silence. Deep at 0.3. No fauna—0.3, an ecological absence so complete it is not waiting for return. No calls. No hunts. No interruptions. Only, occasionally, the soft release of water from a rock face: a single drop falling into a pool with no echo. The buildings are inhabited, presumably—there is evidence of care, of maintenance—but the human presence generates no noise. They belong to the quiet.
+
+Weirdness is nearly absent—0.1. Everything obeys expected physics. Stone is hard. Water holds downward. Warm air retains moisture. And yet, the absolute stillness of a landscape held forever at the edge of evaporation, the young sharp-featured valley that will never round its corners, never dry, never fill—this carries its own quiet strangeness. Not supernatural. Only complete. A place that broke open, settled into its first wet form, and decided not to become anything else.
+
+It is high, sharp, sparse, warm, and silent. Entirely itself. Finished in its beginning.

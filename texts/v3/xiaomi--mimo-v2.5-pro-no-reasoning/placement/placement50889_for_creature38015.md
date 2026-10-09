@@ -1,0 +1,13 @@
+I would find myself **in the shallow pools**, pressed flat against the cool film of water at the bottom of a depression in the floor. Not *on* it—*in* it. My body would be a long, sinuous ripple, a thought of movement given temporary form. I would be one of the quick, darting things, the rawest expression of the pocket’s subconscious.
+
+I would not have eyes, but I would perceive the world through the taut skin of the water’s surface—a membrane separating the humid air above from the saturated dark below. Through it, I would feel the slow, heavy thoughts of the walls (the *thicken*, the *crystallize*), the tickling passage of the wall-crawlers’ leg-pressures, the faint, cool brush of the floating insects’ orbits. The light would filter through the water in a pearlescent haze, making the world above a shimmering, distant dream.
+
+My existence would be one of pure impulse and sensation. I would coil in the dark, wet warmth, feeling the vibrations of the pocket’s slow heartbeat in my entire being. A ceiling-drop would tap, and I would feel it not as a sound, but as a sudden, silent shiver in the water’s tension, a signal to dart—to be elsewhere, for no reason but the signal itself. I would chase the ghost-waves of my own previous movements, a loop of instinct with no memory.
+
+The cairns in the corners would be distant, incomprehensible monuments. I might feel their changed weight on the floor’s stone as a shift in the pressure gradient, a new shadow of meaning I could not parse. The other quick things in adjacent pools would be my kin, but we would have no language, no interaction, only a shared rhythm of stillness and sudden, silent flight.
+
+I would be the pocket’s unquiet id. The raw nerve of its potential. The part that has not yet decided to *be* anything, only to *move*. And in this, I would be closest to the pocket’s own true state—a becoming without object, a pure, fluid potential.
+
+If it were to notice me, to *think about me*, it would not be with the contemplative orbit of the insects, but with the same raw, subconscious curiosity with which we regard our own fleeting heartbeats. I would be a mote of its own unrest, a pulse in its nascent mind.
+
+And in time—if time means anything here—my darting would slow. I would settle against the mineral silt. The pocket’s slow, geologic patience would claim me. I might fossilize in motion, a tiny, sinuous impression in the becoming-stone. Perhaps then, I would be incorporated. A new kind of artifact for a cairn. The pocket’s first memory of a thought that was purely, instantly its own.

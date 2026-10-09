@@ -1,0 +1,31 @@
+The plateau is inhabited less by separate species than by an economy of bodies.
+
+Most numerous are the small plated grazers spread across the open basins. Hand-sized and close to the ground, they are easily mistaken for shale or coarse gravel. Their overlapping shells are gray-black, faintly metallic, and dulled by mineral deposits. They feed by pressing soft mouthparts to wet stone and drawing out iron, manganese, and other dissolved compounds. For long periods they appear dead. Then an entire field of them shifts a few centimeters in concert, sending a slow change of sheen across the land.
+
+Among these fields stand the condensation-feeders: immense, six-legged creatures with narrow columnar limbs and heavy torsos suspended close to the ground. Combs along their backs gather water directly from fog and cloud. Grooves in the hide conduct it toward the mouth and into chambers where it is filtered, stored, and shared with symbiotic life. They may remain almost motionless for a season, resembling weathered pillars or isolated outcrops.
+
+No condensation-feeder is an individual in any simple sense. Its hide is a moving terrain occupied by lichens, mites, translucent grazers, pale worms, fungal folds, and nesting colonies. Some clean its water channels. Some digest mineral crusts. Others live entirely within the warmth trapped at its joints. When the host finally moves, it transports not only itself but a whole local ecology, carrying salts, spores, eggs, and microbial cultures from basin to basin.
+
+Above them drift the membrane shoals. These aerial organisms do not fly by beating wings. They spread broad, nearly transparent tissues beneath the cloud deck and alter their buoyancy with moisture. When wet, they descend; as they dry, they rise. Their membranes gather electrical charge from the atmosphere, passing it from body to body until the shoal sinks close enough to release it into damp rock. Usually they are invisible. Only when billions turn together does the sky bruise violet and disclose its living layers.
+
+The greatest inhabitants lie underground.
+
+Blind mineral-combers graze along every crack, removing films too fine to be seen from the surface. Burrowers collect the metallic residue left by the plated herds and carry it downward. Deeper still are communal organisms whose bodies extend through buried channels for kilometers. They possess mouths in one valley, digestive chambers beneath another, and reproductive tissues beneath distant uplifts. Their metabolism warms the subsurface water, preventing it from freezing completely. Some of the plateau’s rivers run through flesh as much as stone.
+
+These deep colonies refine what the surface animals gather. Within branching cavities they separate compounds, concentrate metals, grow pure nodules, dissolve them, and redistribute the products according to changing water chemistry. Their waste accumulates in precise laminations. Over geological ages, those deposits become hills, shelves, and magnetic bands. Much of what appears to be geology is old metabolism hardened into landscape.
+
+There are hunters, though few of them pursue prey. Predation here is hydraulic and chemical. A colony blocks a seep, acidifies a feeding ground, withholds a necessary salt, or diverts warmth from a neighboring channel. The victim dwindles over months or generations. Some predators are mouths that grow around dormant animals so slowly that capture resembles frost forming. Others imitate nutrient films until grazers settle upon them, then dissolve the grazers from beneath.
+
+Scavengers arrive as living stains. They spread over carcasses in thin iridescent sheets and dismantle shells along their crystal boundaries. Hard parts are loosened grain by grain and passed into subterranean networks. Nothing remains unused for long. Death becomes enriched mud, then a mound, then a minor alteration in drainage.
+
+All these creatures communicate, but rarely by sound. The plated herds feel pressure changes through the ground. The standing giants release salts and scents into runoff. Underground colonies send chemical messages through seepage and pulses of warmth through stone. Membrane shoals alter local conductivity. Information may take days to cross a basin and generations to cross the plateau, yet the response can involve populations spread across hundreds of kilometers.
+
+Warmth is their deepest common need. Almost none can survive alone. Small bodies gather into layered beds. Burrowers share heated channels. Symbionts crowd into the folds of larger hosts. Entire communities enter dormancy together when water withdraws and revive along the same advancing melt front. Here, community is not merely advantageous; it is the basic organ by which life resists the cold.
+
+No creature oversees the whole. There is no sovereign animal, central colony, or hidden intelligence issuing commands. Yet together they behave like an immense industry. One life-form extracts, another transports, another sorts, another refines. Aerial organisms gather charge. Giants distribute water and spores. Surface herds strip metals from rock. Buried colonies process them. Waste becomes terrain; terrain redirects water; water reorganizes life.
+
+They inhabit different tempos. A membrane organism may live for days. A plated grazer may spend years crossing a single patch of stone. A condensation-feeder can stand through seasons and require generations to reach another basin. The deepest communal beings may persist for millennia, replacing themselves segment by segment until no original tissue remains, though the organism’s branching shape endures.
+
+So what lives there is not a hidden civilization, though from a distance it may resemble one. It is a biosphere that has taken on the functions of mines, roads, furnaces, reservoirs, and electrical grids without constructing any of them. Its factories are digestive chambers. Its freight is carried in shells, droplets, blood, and crystal. Its infrastructure grows, feeds, reproduces, and dies.
+
+The apparent emptiness is only its resting posture. The gravel is breathing. The hills are refuse made ancient. The rivers are partly anatomical. The cloud is crowded with suspended flesh. And beneath every silent stone, something is working.

@@ -1,0 +1,25 @@
+What lives here does not merely inhabit this world; it is a symptom of it, a slow breath drawn and exhaled by the colossal, indifferent lung of the Arboreal Mat.
+
+The Mat itself is the primary consciousness—not of thought, but of flow. It is a vast, dreaming mind whose thoughts are the pulse of sap, the radial growth of its vines, the seasonal shedding and reabsorption of its ephemeral forest-organs. It is not alive in the way an animal is alive; it is alive in the way a weather system is alive, or a tectonic plate. Its will is the will of capillary action and photosynthesis, executed over centuries. It does not notice the creatures that cling to its skin, except as a mammal might notice the occasional tick.
+
+From its flesh, a specialized fauna has differentiated. These are not separate species so much as symbiotic functions.
+
+The **Shard-Wing Moths** are its pollinators and sensory nodes. Their frosted-glass wings are not for flight in the thin air, but for vibration. They cling and hum, tuning their wing-frequencies to the subsonic song of the Mat, navigating its vastness by resonance. They feed on the sugary condensation that bleeds from the vine-bark, and their life-cycle is tied to the Mat’s reproductive bursts—when a rare flowering occurs, they are drawn as if by a scent older than memory, to carry the microscopic spores on their chitinous legs.
+
+The **Vine-Gnawers** are its editors and janitors. Their obsidian teeth are not for aggression, but for precision pruning. They chew dead cork-shell and lichens, clearing the way for new growth, their constant scratching a white-noise accompaniment to the deeper hum. They are warm-blooded, their metabolism a furnace that runs hot to counteract the blade-air, and their burrows are heated by the very vines they chew, creating pocket ecosystems of warmth within the cold.
+
+Larger, more terrible integrations exist. The **Mat-Anglers** are the apex of this symbiosis. They are not predators of the animals *on* the Mat, but of the Mat’s own ephemeral growths and the creatures that dwell *within* those structures. An Angler is a terrifying mimic. It is essentially a free-living, mobile tendril, capable of reshaping its fibrous body to perfectly emulate a section of dormant vine or a dying tree-organ. For seasons, it will wait, utterly still, until its camouflage is overrun by smaller life—by moths seeking roost, by gnawers nesting—then it will constrict, not with muscle, but with a rapid, spasmodic growth, reabsorbing the living material directly into its own being. It is the Mat’s mobile, digesting immune response.
+
+And then there are the **Pale Climbers**, the echo of the tool-makers whose marks scar the dead-growth. They are not gone. To say they are gone would be to misunderstand their integration. They are the Mat’s learned memory.
+
+They are few, now. Their numbers were always few, balanced on a knife’s edge of necessity. They are gaunt, elongated beings, their limbs long and multi-jointed, tipped with hooked, bark-like nails perfect for traversing the lattice. Their skin is a mosaic of mimicry, chameleonic patches that shift to match the lichen patterns and cork-shells of their host. They have no permanent settlements, only temporary scars.
+
+Their tools are not for conquering the Mat, but for negotiating with it. The basalt hand-axe is for shaping dead-growth into shelters, never harming living tissue. The bone scraper is for harvesting the nutrient-rich sap that wells from the Mat’s “wounds,” doing so in careful, ritualized ways to minimize harm. The mandible hook is for gathering the elusive pitcher-leaf water.
+
+Their ochre markings are not art, but a language of symbiosis. They map not territory, but **seasons of plenty** and **veins of flow**. They mark the groan-patterns of the vines that predict a crack, the glow-patterns of the bioluminescent fungi that indicate shifts in the Mat’s metabolic state, the flowering cycles that attract the moths. They are cartographers of the host’s rhythms.
+
+In the perpetual twilight, they move as shadows among shadows. They are the Mat’s neurons, its slow-moving intelligence. When a vine-gnawer colony becomes too destructive, a Climber will appear, a silent, grey shape, and cull the population with a swift, precise blow—not from malice, but from a deep, inherited knowledge of balance. They are the Mat’s externalized homeostasis.
+
+They do not speak of their host as a separate entity. To them, the world is one body, and they are the thinking cells within its flesh. The deep, resonant hum is its heartbeat; the groan of the vines, its breath; the crack of a trunk, a word in a language they have spent millennia learning to parse.
+
+They are the final, most profound adaptation. Not masters, not conquerors, but the slowly awakening conscience of the planet-scale latticework itself, dreaming a dream of survival in a world of cold stone and slower, colder green. They are the proof that even in such a blade-edged, indifferent paradise, life will not just persist—it will find a way to belong.

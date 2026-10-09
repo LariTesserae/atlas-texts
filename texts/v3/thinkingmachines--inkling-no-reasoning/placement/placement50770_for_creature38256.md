@@ -1,0 +1,13 @@
+Here, the boundary between sky and sea dissolved long ago, and in its absence, the world settled into its final form.
+
+What lives here is not a creature but a climate made flesh—an ecology of refusal, where water refuses to fall straight and rock refuses to fall further. The air itself is ocean: 2.9 elevation means nothing when 2.8 submersion fills every valley with suspended rain and tidal rivers that run horizontally through the mist. At 0.8, the temperature is not cold but cool-breathed, a perpetual exhalation that clings to basalt spires worn 3.0 smooth—rounded, near-flattened, finished crumbling. They do not stand in defiance; they have become river-stone, massive and patient, cradling the flow.
+
+The water is turbulent (2.9), relentless, loud (2.0). It launches from plateau edges in waterfalls caught by updrafts, falling, rising, falling again through the 2.5-scale valley that stretches open past every view. The vegetation—lush (2.2), dense (2.0)—accepts this. Emerald canopies cling to vertical faces; air-plants hang in thick curtains from every overhang; aquatic grasses drink at every altitude. Nothing here is dry; nothing needs to be.
+
+Life is abundant (1.9) and utterly, 0.3-normal in its strangeness—there are no monsters, only adaptation so complete it looks like destiny. Pale, translucent fish navigate the air-rivers between peaks, guided by pressure and current. Amphibians with bright, cool-colored gills climb the wet moss. Massive, slow-moving filter-feeders drift through rain-forest canopies, mouths open to the constant flow. Insects shimmer in dense clouds where the cool moisture never breaks.
+
+And in the eastern plateau, there is a faint other presence: the 0.6-built world, 1.7 technology in its death-state. Rusted engines sit half-submerged in high tidal basins. Corroded pipes run with clean rainwater now, carrying nothing. A factory-vault remains stilled, its gears silent, its wires grown dark with green corrosion—bones of an old mechanized effort to harness what cannot be harnessed. They are not ruins of domination but artifacts of acceptance, embedded and half-claimed.
+
+Light is flat, gray-green (1.7), diffused through miles of falling water and permanent cloud—no sharp sun, only illumination enough to deepen colors: moss-dark green, iron-red rust, the silver-white of running flow.
+
+This is a place open (2.5), extending into more rain, more rounded stone, more life. Not strange. Not broken. Simply ended—settled into its near-flattened form, filled with cool water, and continuing. The turbulent flow does not need urgency. It only needs to stay.

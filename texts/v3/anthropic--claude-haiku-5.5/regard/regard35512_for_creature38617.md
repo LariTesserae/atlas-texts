@@ -1,0 +1,27 @@
+**What the Attention Did**
+
+It does not arrive the way weather does. Weather comes from somewhere, over the hills or up the valley, and you can feel it coming. This is more like a change in the grain of things. The roar at the throat does not alter, but the sound seems to acquire a listener, the way a room changes when someone you did not hear enter has already sat down.
+
+The power notices the dipper first, though the dipper does not notice it. The bird goes on bobbing on its stone, up and down, keeping its time with the water. The power finds this good. Here is a creature that has never needed anything from the sky or the valley, and so it is perfectly where it belongs.
+
+Then it turns toward the pale one under the moss, the newt with feathered gills and no eyes to speak of. The power considers what it could offer. Light? The newt has never seen light and would not know what to do with it. Warmth? The water would reject it, and the newt would be harmed by the very kindness. Sight? The newt reads the world through its skin, and it reads it completely. Any gift the power could give would be a clumsy translation into a language the newt never asked to learn. So the power gives nothing, and is glad that the newt is complete without it.
+
+The deer is harder. Its broken tine has healed crooked, and the power feels an old tenderness for that. It could mend the antler, but the crookedness is the record of a winter, a fight, or a fall, and the deer carries it the way the rim carries its curbs. To straighten it would be to erase the animal's own history in favor of the power's comfort. The power leaves the tine as it is.
+
+It spends the longest with the marks.
+
+These are the only things in the bowl that have ever asked anything of the place. The people who cut the grooves across the curb stones, who leaned the upright slabs like teeth against the wall, who pecked those dots and strokes into the rock, were speaking to something. The power can feel the shape of their address even now, a sentence without verbs, green with lichen. It would like very much to read them. It could read them, in a way. It could reach into the old minds that made them and draw out the meaning. But the power recognizes what that would do. It would finish a sentence that was never meant to be finished by anyone else. The marks are not a message waiting for a reader. They are a gesture, and a gesture is complete the moment it is made, however much the years blur it.
+
+So the power does something smaller. It lets the spring at the lip run a little truer, so that the cold water comes out clean and steady, the way it must have come when the trough was full and someone knelt there to drink. It does not restore the trough. It only makes the water it fills taste as it once did.
+
+Then it considers the scale of what it could do, and what it would cost. A flood could clear the rim of its moss and its ferns, and carve the fissure to a new shape in a single season. But the power knows that the bowl's slowness is the thing it loves most, the hair's breadth a decade, the crust building a little each year, the tree-root holding the ladder for centuries. To hurry the water would be to break the one rhythm in the valley that has never been broken by anyone. The power decides to be the kind of attention that does not hurry anything.
+
+Beyond the alders, the power can sense the valley's future: roads, fields, a quarry, a village, and the people who will come in certain seasons and speak only with their hands, or will come with tools and not understand the marks. It could intervene there. It could turn their hands, or their minds, toward caution. But it finds that it has no right to make that choice on behalf of a future it does not wholly see. What it can do is simpler and less certain. It can keep the place in mind. A thing that is attended to, even by something that asks nothing, is a thing a little harder to destroy carelessly. The power holds this as a faint warmth at the edge of its awareness, and lets it be enough.
+
+Last, the power notices you.
+
+You are the only thing in the bowl in a hurry. You have come down through the birches and the alders, and the roar is so loud you can no longer think in sentences, and you feel small and damp and out of place. The power does not look at you with pity. It simply registers you, a single warm body that has stopped moving, listening to a sound it cannot sort out. The power finds this beautiful. It gives you the only thing it has to give: the knowledge that this stillness you have fallen into is not a failure to think but a kind of hearing. The water is not drowning you. It is speaking, and you are, for a moment, allowed to be a listener.
+
+Then the attention withdraws, not all at once but the way a warm breath leaves a cold room. The dipper bobs. The newt reads the cold. The spiders mend their lamps. The deer, somewhere up the western slope, lifts its crooked head and does not look back. The moss creeps outward a fraction of a finger's width. The water keeps falling.
+
+What the power has done, in the end, is very little, and it is not sorry for the littleness. It has watched without wanting. It has declined to read what was not its to read, to straighten what was not its to straighten, to hurry what was never meant to be hurried. It has left a clean spring running and a small warmth at the edge of the valley. And it has done the rarest thing a benevolent power can do for a place like Hollin Dell, which is to see it completely and ask nothing back.

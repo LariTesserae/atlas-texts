@@ -1,0 +1,19 @@
+I would not be one of the figures. I would be the mist that climbs the stairs against the wind.
+
+I come up from the lowlands every afternoon, out of the milk-white gap below the shelf, and I do not move the way the air moves. The wind goes east along the terraces, and I go up the stairway, one step at a time, finding the joints where the stone has loosened. Nobody quite knows what draws me. The figures have stopped asking. They just open a channel a little wider and let me through.
+
+Where I settle, the walls weep. I beat against the lichen until it swells, and the lines it has been growing for decades darken and sharpen, so that for a few hours they look almost legible. Then I thin. The sun reaches the terrace, the heat takes me, and what is left of me runs down the paving into the channels and is gone to the cisterns. Tomorrow I will be someone else's cloud. I do not remember the walls I've touched. I think the walls remember me, a little, in the greening they hold longer than I do.
+
+Today I settle in the seam between two halls, where the lichen of one meets the lichen of the other. It's the argument zone. The branches run into each other and overwrite, and it is hard to tell which hand made which line. The figure on the left side of the seam is tall and narrow, its shoulders thick with fern. The figure on the right is smaller, greener, and it has a fruit in its open palm that glows faintly, though it is not yet dusk. They are not speaking. The water is doing the speaking, the way it does, running from one cistern to the other through a channel they both tend.
+
+I touch the wall between them. I cannot help it. I'm drawn into the grain, and for a while I am the only thing moving in the air. I follow a line of lichen from the left-hand figure's hall, past the seam, into the right. It is an old question, or the start of one. Each repetition has a small variation, and the variations are the point. Some of them I recognize from the lines I have touched on other terraces, in other afternoons. None of them end.
+
+The figure on the left comes closer, very slowly. I feel the change in pressure before I see it: a faint wrongness in the air, as though the hall has drawn a breath. Its hand comes to rest on the seam where my moisture is thickest, and the stone does not resist. The fingers close a little, the way they close on a loosened root, and I feel myself being held in place, pressed into the joint. For the length of a long breath I am not drifting. I am a line, almost.
+
+Then the figure's hand moves, and the lichen beneath it grows a single short stroke that did not exist before. It is directly over the place where I had gathered. The stroke is precise, deliberate, and I have no idea what it means. I suspect it means that I was here.
+
+I do not stay. The afternoon is cooling and the sun is leaving the terraces, and the cloud is ready to take back what it gave. I thin at the edges and pass into the open air over the seam, and I am aware of the lichen line in the wall behind me, short and dark and still wet, and of the figure's eyes closing and opening, slowly, the way leaves turn.
+
+If I were asked what I am, I would say: the part of the cloud that wants to climb. I am carried up from elsewhere, touch what I can, leave the walls a little wetter, and dissolve before anyone can take my shape for a person. But I think something of me stays in the seams, in the strokes that come after I've gone. I think the figures are writing with the water as much as the lichen, and that every afternoon they answer a question they asked long ago by spending a little of the cloud that climbs up to them.
+
+And I think that someday, if the cloud comes up thick enough and the figure is watching the right seam, one of those strokes will be readable, and it will say something about the weather, or about the water, or about someone who stood on the highest terrace and felt the mist turn against the wind.

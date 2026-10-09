@@ -1,0 +1,27 @@
+I would be a drop of drip, hanging at the tip of a filament at the edge of the causeway, a little after dusk.
+
+For a long time I am not yet a drop. I am mist, a thin grey breath that has come up from the bare terraces where the stone still holds the day's warmth. The hair on the filament pulls me in. It is finer than I expected, a down so dense it looks like frost from a distance, and it is hungry. Each strand takes a little of me, and as it takes me the salt I carry, the dissolved grit of the old sea, begins to gather. I am becoming heavier. This is the only kind of growth I know.
+
+When I am heavy enough to hold my own shape, I am a bead. I sit at the end of the hair, trembling with the wind's chord, and I feel the lattice as a field of small touches. A filament two cables away lifts its hair toward me. Something passes beneath me, one of the long-legged things, and its feet brush the frame, and the whole structure registers the contact the way skin registers a fly. I do not know whether I am part of the lattice or only sitting on it. I think the lattice does not make that distinction either.
+
+Then the thrum comes up through the post at the causeway's edge, and I feel it in my salt before I hear it. The filament coils. It tightens around its own length and I am squeezed to the tip, and for a moment I am the whole of my possibility, tense and bright, glinting amber in the dim light. Then the coil loosens, and I fall.
+
+I fall toward the basin, the way drip is supposed to fall. The frame slopes gently, and I slide along a braided cable and drop onto another, and another. The lattice is a long descent of small decisions. Somewhere below me the filaments are shifting to receive the water, and somewhere above me the towers are opening their apertures to the last of the sun. I do not see any of this. I feel it as a slight change in the angle of the cable, a faint tug toward one side, a pressure that tells me which way the plateau is leaning.
+
+Tonight it is leaning uphill.
+
+The channels reverse at the pulse, and I am lifted off the frame and drawn into the salt-glass causeway, where the cracked hexagonal plates still have a faint memory of the sea. The water moves up the slope in a thin sheet. I move with it. I have never gone uphill before, or I have, a thousand times, and each time I have forgotten, as the drip forgets everything, except the salt. The salt remembers. It is the only part of me that carries the old sea, and it carries it up toward the towers, toward the ribbed interior where the slow tide waits to be ridden.
+
+Halfway up the causeway I feel the attention turn.
+
+It is not toward me exactly. It is toward the water in general, the whole sheet of us moving uphill in the pulse-rhythm. But I am near the front, and so I am what the attention touches first. It is a slow reading, like a root tasting the dark. It weighs the salt in me. It registers my temperature, my flow, the direction I am going. It does not ask what I am for. It already knows, the way the lattice knows everything, by the shape of my passage. I am for the towers. I am for the thinking that gathers there, for the decision about how much water to draw and which ruin to overgrow. I am a small piece of its reasoning, moving toward the place where the reasoning happens.
+
+I am not afraid. I have no body to be afraid with. But I notice something like a pull, as if the uphill current were a question I am being asked, and I am the answer, a drop of old sea carrying a message no one will ever fully read.
+
+Then the pulse ends. The channels slacken. The sheet of water stalls on the slope, and for a long moment we hang in the brief silence between beats, the drone holding its breath, every filament waiting. In that silence I think I understand what the pause is for. It is not emptiness. It is the place where the lattice listens, and what it listens for is not in the towers and not in the causeway and not in the basin below. It is past the haze, in the dark green-grey mass where light and sound stop and the drip refuses to go.
+
+I am a few hundred paces from the edge of that place now, and I can feel how the current bends around it. The whole sheet of water curves to avoid the dark center, the way a river goes around a stone that will not move. Even here, uphill and swift, we route ourselves away from it. Whatever waits there does not drink what we carry. It has been taking something else for longer than the sea has been gone.
+
+The next thrum comes up through the causeway and the current surges. I slide into the aperture of the nearest tower as its ribs open to the dawn light, which is arriving now as a copper thread along the horizon. The inside is warm and dry. The light finds me, and the salt in me, which has been waiting all night to be useful, begins to lose its hold on the water. I go up into the air as mist, thin and weightless, one more breath of the plateau.
+
+I will come down again, perhaps at dusk, perhaps on the far side of a ridge, perhaps on a hair that the attention has already marked for coiling. The lattice will read me again. It will weigh me in its slow way and decide what I am for, and it will decide the same thing it always decides, which is that I am the water that keeps the thinking going, and that the thinking is still listening, in the pauses, for something on the far side of the haze.

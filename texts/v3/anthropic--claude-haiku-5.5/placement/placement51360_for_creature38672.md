@@ -1,0 +1,21 @@
+I would be the heron.
+
+Not a heron that has come down from the rim, but one that was born in the reeds below the eastern cleft, where the spring comes out of the stone. I stand in the shallows at the place where the river enters the basin and gathers itself into its braids. The water is cold enough to ache, and the gravel under my feet shifts a little at every slump higher up, so I learn the city through my toes before I learn it through anything else.
+
+Fog first. It pools in the bottom of the bowl and I am under it, grey on grey, the reeds going soft at their tips. I can hear the city without seeing it: a shutter, a goat, a woman's voice low enough that it seems to come out of the wall beside me. The voices here don't travel in lines. They rise out of the stone the way the drip does, from every eave at once, and I have learned to keep still so that I can tell which sound belongs to the living and which belongs to the rock.
+
+The people look down at me sometimes. Children mostly. A boy with a bucket on a yoke stops on the plank bridge and stares until his mother's hand finds the back of his neck and turns him toward the stairs. The water-watchers, when they call the level from their poles, look at me the way they look at the notches on the poles: as a mark that tells them whether the river is holding. I think they like that I do not move. Standing still is the only way I know to read ground.
+
+By mid-morning the rim's shadow has begun its diagonal crawl across the walls. I watch the gold come down the upper terraces and see the masons' crews in it, small figures with their hoods tied, striking the faces with iron bars. Each knock arrives a breath after I see it, and then the echo, which is not an echo but a second knock from another wall. They strike, listen, strike again. Where the ring is clear, they set a crib. Where it goes dull, they pull back. I know that sound too. I feel it in the gravel as a faint tremor, a hum that the river does not make. When the masons go quiet, the whole basin seems to lean in and wait.
+
+I do not know what I would be if I were a person here. Perhaps a mason, perhaps a rope-tender testing the lines with two hands and a held breath. But as a heron I understand the grammar of the place, which is patience and listening. Everything here is a kind of tally. Drip counts the hours. Shadow counts the day. The river counts the season in hands' widths on a pole. The people count the things that have fallen and the places they have rebuilt above them. I count the minnows that come up through the gravel when the water is clear and the things that surface from the mud when it is not.
+
+In the afternoon the rock sweats again. Droplets run down the faces and find the moss channels, and the channels find the river. I drink from the braids without bending far, a quick stab at a silver shape that flashes and is gone. Above me the swifts are out, dropping low over the reeds, and the people in the lower houses glance up at them and then at the sky, as if the swifts had said something about the weather. Maybe they have.
+
+When the light finally leaves the floor, the city shifts into its evening music. The eaves keep their percussion. The river talks over its gravel. A child in one of the gardens starts singing at the frogs, and the frogs answer, and the child laughs. The walls take up the laughter and pass it around the bowl until it is hard to say where it began.
+
+Then a stone lets go high on the south wall. It falls with a long rattle, scree sliding down the fan in a tongue of pale dust, and every face in the basin lifts at once. I lift too. My neck unfolds, my wings tighten, and for a moment the whole city and I are the same listening thing, measuring the sound, deciding whether it was small or large, whether it was far or near enough to matter.
+
+It was far enough. The people go back to their suppers. The rattle softens and stops, and the drip resumes its count.
+
+I stay where I am. I fold my neck back down, and I let my weight settle onto one leg in the cold gravel, and I feel the floor under me still deciding what it will be.

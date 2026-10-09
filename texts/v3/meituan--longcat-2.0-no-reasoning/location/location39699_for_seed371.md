@@ -1,0 +1,7 @@
+In the thin, cold air where the valley walls of dark, unweathered stone pinch into a narrow throat, water threads everywhere. It drips, beads, fogs, and pools in the tiny hollows and cupped mosses of an ecosystem that has never known a dry day. The vegetation is dense and layered — from feathery liverworts in crustose mats, through cushions of deep green moss, up to low, matted shrubs and delicate ferns — all packed into cathedral scale beneath the sheer rock. 
+
+The temperature hovers just above freezing, but the constant movement of water, the press of rock against rock, and the faint warmth of geothermal exhalations create pockets of surprising heat. Everything is alive in a quiet, botanical way: no insects, no birds, no burrowing mammals — only the rustle of plants opening and closing, the creak of roots adjusting in soil that is barely formed from eroded stone.
+
+Despite the stillness of the organic world, the soundscape is loud: water cascades, drips, and flows over rock and through fissures. Distant subterranean rumbles echo upward, and the occasional sharp crack signals the young, freshly fractured geology shifting. The valley itself is a recent feature, a wound in the mountains that has not yet had time to soften.
+
+In the dim light — what little filters down through the narrow gap above or glints off wet surfaces — the world appears as a tapestry of dark greens, blacks, and the occasional sheen of water. The ecosystem feels almost pressed together, dense in species and layers, a humid pocket of life squeezed into a cold, rocky, vertical space.

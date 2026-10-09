@@ -1,0 +1,19 @@
+That which lives here does not live once, but in layers—accumulating like sediment in a place that refuses to fill.
+
+Picture first the bodies themselves: thousands of them, mineral-dark and smooth, no larger individually than a thumb’s joint, rounded by the same logic that rounded the chamber’s ancient seams. They have no eyes you can find—perhaps none at all—yet they know the walls, every curve and faint blade-ridge left by the maker’s hand, with a precision that makes navigation look like thought. They cling to the alloy’s matte skin, drift in the dense, warm liquid, cluster in the hollows with a density that makes the small space feel smaller still, closer, a shared breath held in suspension.
+
+But do not picture them alone.
+
+Consider the liquid itself as a kind of skin—ancient, eroded not into ruin but into completion, filling every cubic palm with a presence near 2.1, thick with saturation. It is not water in any familiar sense; it is a body’s own heat externalized, returned at a dull, steady temperature that neither comforts nor warns. It holds them. It holds everything. They do not swim so much as displace through it, leaving behind them not waves—the liquid is too patient, too glacial for that—but minute, enduring impressions, pressure signatures that linger longer than motion should allow. To be here is to be passed through cloth made of warmth and age.
+
+The chamber is built—there is no other word. Cast long ago from simple metal, fabricated with primitive patience, its surfaces smoothed now to a state where the idea of a corner has been argued away across epochs. Erosion is not decay but the architecture’s final form. The seams remain faintly legible: ridges where a blade once pressed, the mark of someone working without electricity, without precision, only with a desire to enclose. Nothing was grown here. Nothing was left wild. Even the fauna seem adjacent to manufacturing—adapted so completely that they might be the living mortar of this place, its slow, breathing sealant.
+
+They do not feed. They do not age visibly. They exist, and in existing they accumulate—2.5 in every palm—layer upon layer in a space that should have filled long ago, yet never does. This is the slight tilt, the quiet weirdness: abundance without consumption, persistence without change, a population that holds at the edge of overflow without ever reaching it.
+
+Light is nearly absent—reduced to 0.4, a biochemical murk, the faint tired glow of minerals suspended in the old liquid, or the bodies themselves emitting a dim warmth-radiance. Sound is closer still to nothing—0.2—a hush filled not with emptiness but with the absence of event. No mechanical hum, no drip, no call. Movement produces only the softest pressure, a dull kiss of body against body heard more in the chest than in the ear.
+
+So what lives here?
+
+A collective being, perhaps—thousands of bodies acting as one continuous organism spread across the alloy and suspended within its own bath. Or perhaps it is the chamber itself that lives, and they are its cells, its slow blood, its method of feeling the dark. They do not seek vegetation—there is none, not a stem, not a ghost of green—because they need no other food than presence. They do not seek sky—there is none, only pressure, only height without fall, suspended in liquid with no surface.
+
+What lives here is the idea of settlement taken to its extreme: made, submerged, silent, complete. Ancient-eroded into its oldest stable state, the chamber holds its inhabitants not as prisoners but as its own resolution—warm, dense, uncounted, and entirely at home in a darkness that is not hiding anything, but has finally become exactly what it was meant to be.

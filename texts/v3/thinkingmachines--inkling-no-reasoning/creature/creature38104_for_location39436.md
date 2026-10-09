@@ -1,0 +1,13 @@
+Here, the absence is populated.
+
+A hollow sixty feet beneath dead limestone and failed orchard—no sky, only pressure-folded belly—where air holds at 2.9, warm and mineral-dense, and water slips at 0.6 in sly, river-bottled weeping: thin films down vertical pipes, black troughs catching a faint *tick*, rust-channels carrying tepid moisture through spaces too intimate to be called rooms. It is feature-area scale, hamlet-sized, crossed in two hundred wrong steps through layers built at 2.4—urban, settlement-scale—now compressed downward into sedimentary machinery.
+
+The tech is 1.6, industrial, mechanized. Not buildings but arranged pipe; not floors but grating over deeper grating, then warm water and older iron. Factories like darkened sheds stack upon each other, brick knife-edged where the ceiling collapsed, fresh fractures still spidering through concrete with the urgency of a recent wound—erosion at 0.6, young, sharp, orange rust blooming still-arriving. Ore-cart rails curve at ankle and chest height; engines embedded—flywheels in calcified scale, belts hanging dead, gearboxes filled with stone-like oil. Not driven. Suspended. The machinery has become the architecture.
+
+Temperature never relents at 2.9; presence is thick at 2.2, leaving no negative space. Light is 1.3—low red lamps like embers in ash, flickering with breath, casting shadows that move beside dead gears. Vegetation refuses abundance: 1.0, hair-thin moss black-green in drip-lines, blade-grasses at cool leaks, one vine climbing a broken smokestack in silk silence, having forgotten sun.
+
+Fauna is 0.1—emptied. No rats, no insects, no bats in the broken rafters, no worms in pooled black water. The hollow has been scrubbed mobile and clean.
+
+Weirdness is 0.7—unusual coherence. The settlement behaves as if still functioning: belts sag under phantom weight, doors half-closed, tools arranged not scattered. Water flows through channels leading nowhere visible; the hum is of a system paused for command that will not come. Sound stays 1.4—mostly quiet, a held breath of contracting metal and irregular drip, occasionally a deep resonant thrum through pipes, three seconds, then gone. No wind. No voices.
+
+But it is not still. Activity runs at 2.2, dynamic: rust flakes in microscopic storms, heat moves through iron in waves, vegetation tracks moisture in millimeters of blind growth. The hollow operates—industrial, mineral, hydrological—in a closed loop. Hot. Heavy. Built. Utterly alone.

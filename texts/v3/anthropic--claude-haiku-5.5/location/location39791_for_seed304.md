@@ -1,0 +1,21 @@
+**Seep-Hollow**
+
+The land here is only lately finished. Three or four generations ago the lake drained through a fault in the eastern ridge, and what it left behind is a floor of grey silt, still settling, laced with cracks that open after rain and close again in the dry weeks. The rock beneath is young. Its edges haven't been worn yet. Where the bedrock breaks through the silt it does so in plates and shards, sharp as broken slate, and the people who live here have learned to walk with their eyes down.
+
+Water is everywhere, though seldom as open water. It sits a hand's depth under the silt and rises through every low place. The bedrock weeps: a fine sheen of moisture beads on the north faces of the outcrops and runs in threads down to the flats, where it gathers in shallow pans that reflect the sky like dropped coins. The air is cool and always a little heavy. Mornings arrive with a fog that doesn't burn off so much as thin out by noon and thicken again at dusk. Cloth left on a line stays damp for days. Iron goes orange in a night.
+
+Vegetation is sparse and mostly low: grey-green mats of a moss-like sedge that pulls up in sheets, a few hardy reeds along the drainage cuts, and stunted willow that leans away from the prevailing wind. Nothing here is lush. What green there is clusters at the seams where water comes closest to the surface, and the people have learned to read these seams like a map.
+
+The settlement occupies a single rise, perhaps four hundred paces across, and it is packed. Houses press against one another with no lanes between them wider than a shoulder. The walls are built of fitted slate and fired clay, roofed with overlapping reed bundles and sod. Passages run through the gaps as crooked tunnels, some roofed over, some open to the sky, and many of them run with water. Every doorway has a stone sill raised a hand higher than the one before it, because the ground beneath is always settling and always rising with the groundwater. Walls are scraped and tarred against damp. Entire families sleep on platforms of woven reed set on stilts of driftwood.
+
+The tools are hand-scale and careful. Flint and slate are knapped into blades and scrapers. Bone awls, wooden mallets, cord of nettle fiber and tendon. There is a single kiln at the crest, where clay is fired for cistern-lining and cooking pots, and the smoke from it hangs low and sweet over the roofs. Metal is rare enough that a nail is kept like a relic. Trade reaches out along the drainage channels by reed boat, and those boats are the most ornate things the town makes.
+
+Light is ordinary, diffuse through the fog. Shadows are soft and seldom sharp. The sky is a flat pale grey most days, and the sun, when it appears, is a white disc that the fog swallows within the hour.
+
+Fauna is scarce. A few grey-backed birds pick along the water's edge. Something burrows in the silt and leaves a spiral of tiny holes after each rain. Frogs are heard but seldom seen. Nothing large lives here, which the people consider either a mercy or an omen, depending on who is talking.
+
+The sound of the place is mostly a sort of hush: water dripping off eaves, the hiss of seepage through stone, the slow suck of silt when someone steps wrong. Voices carry softly in the fog and are muffled by walls. Occasionally there is a crack, sharp and sudden, as a plate of bedrock shifts or a wall gives way to the damp.
+
+What makes the place unusual is its breathing. The water table rises and falls on a cycle of roughly a day, and with it the ground swells by a few finger-widths, then sinks. Doorsills that seemed level at dawn tilt at noon. The town has adapted by building in tiers that step with the swell, and by keeping a rule that no one stands on the flats at the turn of the tide-like rise, when the silt goes briefly liquid and the cracks open to a palm's width. The elders say the land is still deciding what shape it will be, and the town is a bet placed on the answer.
+
+Everything here is in motion, but slowly: water seeping, silt settling, stone weeping, fog forming and dissolving, doorsills creeping upward through the years. The town is a crowded, careful knot of human effort laid over a landscape that has only just stopped being lake, and is still learning what it wants to be.

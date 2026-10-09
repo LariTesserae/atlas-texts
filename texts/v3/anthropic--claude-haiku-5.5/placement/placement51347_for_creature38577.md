@@ -1,0 +1,17 @@
+I would be a drop of water at the lip of a downspout on the north face of the administration building, a hand's width below the clock.
+
+I form slowly. First there is only the mist, which at this hour lies so thick against the wall that it seems to be leaning on the brick. Then the wall begins to sweat, and the sweat gathers into the seam where the pipe meets its bracket, and I am the part of that gathering that has just become heavy enough to be a thing. My surface is taut. Below me the clingers' plates lift and chime faintly, a ripple moving down the wall, and I feel it through the metal as a tremor I do not understand. I hang there. I have a weight, but nothing yet to pull against.
+
+Then I let go, and the fall begins.
+
+It is short, the length of a hand, and it takes about as long as a breath. Within that breath I have time to notice things. The air moves past me, carrying the sour, fermented smell up from the sheds. A rattler crosses the gap between two stacks, its wings clicking. The light is flat and gray, and I am a small bright bead within it. Then I strike the pavement or a plate or the rust crust, and I break into smaller drops, and each of those drops becomes a little more ground.
+
+I have thought about this a great deal, for whatever length of time a drop can think. Everything else in the basin is a loop. The mist rises, the rattlers rise, the clingers breathe, the burrowers dig and drink. Each of them is what it was and will be again, and the sameness is so complete that it stops looking like sameness and starts looking like the only shape things can take. But I am not a loop. I am a single event that begins at the lip of the pipe and ends wherever I land, and I cannot return to where I started. The mist will make another drop in my place, and that drop will fall with the same weight, but it will not be me. Every fall here is a copy of a fall that was already a copy.
+
+I try to count the strokes of the clock. I can see its face above me, the hands fixed in their position, and I can hear the mechanism tick toward the next interval. Four minutes. Then four more. I have counted several hundred of them, or I believe I have, but I cannot say how many I have lost, or whether the count has ever meant anything. The clock does not move forward. It only repeats its strike, and the repetition is so reliable that I begin to suspect the strike is the only thing in the basin that knows it is a repetition, and has decided to stay anyway.
+
+When the clock reaches eleven, the whole town answers. The clingers ripple along every wall in a single wave. The rattlers turn over the rooftops. The burrowers, somewhere under the channels, lift their blunt heads toward the sound and hold still. And at that moment my hanging is over. I let go on the strike, exactly on it, the only drop in the basin that falls with the chime rather than after it.
+
+I do not know whether this matters. Maybe my fall is only another loop closing, and the burrowers will come up through the wet soil to work me back into the ground, filling the small channel I have made, and everything will go on as before. Maybe the timing is a coincidence of pressure and temperature, and I am only water obeying the same arithmetic as the rest. But for the length of one fall I am the thing that knows the clock is repeating, and I am falling into the repetition anyway, on its own beat, and I cannot tell whether that is the most I can be here or the least.
+
+The wall chimes. I land. The soil takes me in.

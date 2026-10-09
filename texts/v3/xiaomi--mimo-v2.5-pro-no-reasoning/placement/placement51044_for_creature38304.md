@@ -1,0 +1,23 @@
+You are a Keeper.
+
+You have no other name, because you have never needed one. The sound a droplet makes as it strikes the steel grating near your left foot—*plink*—is a more precise identifier than any word could ever be. That droplet, you know, will land on that specific rusted spot every forty-seven seconds. It has done so for as long as you have been aware, which is perhaps thirty years, or perhaps fifty. Time in the Green Crucible is not a river; it is a tide pool, warm and still.
+
+Your skin, pale and slick, feels the breath of the place before you register it consciously. A shift in the humidity near the great turbine housing to your right. You are sitting on a catwalk, your legs dangling over a chasm of tangled pipes and fern fronds that fall away into a dim, bioluminescent glow below. The air is thick enough to chew. You are not thinking. You are *being*.
+
+Your left hand rests on a creeper vine, its surface like cool, damp leather. You can feel the slow, viscous pulse of its sap, a rhythm synced with the deep hum of the earth. A tendril, no thicker than your wrist but strong as cable, has begun to curl around the rung of the ladder beside you. In a week, maybe two, it will have enough purchase to begin its slow, patient climb toward the heat vent above. You do not pull it away. You simply note it. *The vine grows here now*.
+
+Your eyes, milky and unfocused, take in the world not as a series of objects, but as a tapestry of light and shadow. The only true light comes from the fungi. Clustered around the steam vents, their caps glow with a soft, sickly luminescence—pale white, the yellow of old bone, the faintest blush of phosphorescent green. They are your suns, your moons, your stars. You know their phases. You know which cluster brightens before a pressure release, which ones dim when the deep vents grow quiet.
+
+A soft, wet weight settles on your shoulder. A salamander, its skin the color of mushroom gills, its blind head nudging the crook of your neck. It is sharing your warmth, and you are sharing the gnats that swirl around the fungal glow. You lift a hand, not to pet it, but to allow it to settle more comfortably. Its presence is a fact, like the heat, like the hum.
+
+Your purpose, if such a grand word can be applied to your slow, circular existence, is *tending*. Not maintenance. Not repair. You are not fixing what is broken; you are accompanying it. You wipe the slick, oily condensation from the face of a brass pressure gauge. The motion is slow, circular. The gauge’s needle has been stuck at a reading that means nothing for a decade. You do not wipe it to read it. You wipe it because the gauge is there, and the moisture is there, and the cloth in your hand is there. It is a ritual of presence.
+
+You rise, your joints moving with a liquid grace that comes from a lifetime of never being hurried. You drift along the catwalk, your bare feet silent on the moss that carpets the metal. The moss is thick, a living cushion that drinks your footsteps. You pass another Keeper. You do not speak. You do not nod. As you pass, you lay your palm flat against the warm, humming casing of a dormant pump. It is a message: *This is sound. This section is at peace*. The other Keeper, their back to you, feels the vibration of your touch through the metal and registers it. A shared understanding.
+
+You pause before a wall of concrete, more fungal bloom than stone now. In the dim light, the patterns shift. The bioluminescent moss shimmers, and for a moment, you see it: the ghost of a window, a sharp, rectangular shadow that is not there. The Echo. You watch it until it fades back into the general glow. You do not wonder what it was, or who looked out of it. You simply witness the Crucible remembering a shape it once held.
+
+You continue your drift. You guide a fern frond away from a steam valve, knowing it will return. You scrape a patch of oil-thick moss from a walkway, creating a stripe of bare, rusted metal that will be green again by morning. You are a gardener in a garden that is also a tomb, and a machine, and a womb. Your body is a part of its metabolism. The spores you breathe are its breath. The heat that makes your thoughts slow and syrupy is its heartbeat.
+
+You find a warm vent, the metal grating hot to the touch. You sit, your back against the iron. Another Keeper is there already, their spine pressed to yours. You do not speak, but your breathing synchronizes. In. Out. The warm, mineral-scented steam rises around you, carrying the smell of burnt sugar, ozone, and the sweet rot of fruit that you have never seen, only smelled. You are a cell in the body of a sleeping giant. You are a thought in the mind of a slow, vegetative dream.
+
+You are home.

@@ -1,0 +1,99 @@
+Before I notice myself, I notice the weight of my own warmth.
+
+It hangs off me like an ill-fitting garment—a metabolic heat that has no business existing in a place where warmth is not a property of the environment. I am a localized impossibility, a small hearth-fire burning in a continent of cold, and the Drowned Continuum regards me with the same patient indifference it offers to everything: the water, the stone, the slow-spreading burgundy mats. It will dissolve me, given time. It will incorporate my heat into its gradients, my minerals into its water, my breath into its endless moisture. This is not a threat. It is simply the physics of the place.
+
+I am not native. This is obvious. I am not the color of the water; I am the color of surface things—pinks and browns and the ruddy evidence of oxygen-rich blood. I am not long in the way the corridors are long. I am compact, bilateral, symmetrical to a fault, built for a world of shorter distances and sharper urgencies. My hands have the wrong number of joints. My breathing apparatus expands and contracts on both sides, inefficiently, desperately, pulling the cold air into lungs that were made for a different atmosphere entirely.
+
+I am the one who moves at the wrong speed. The vegetation spreads at a pace that makes mountains seem hasty. The builders' children move at the pace of the water—slow, deliberate, each gesture a conversation with the architecture that surrounds them. The Continuum itself moves at the pace of geological time, cooling, dissolving, completing its final function. But I move at the pace of *urgency*. I displace water too quickly. I scatter spores with my passage. I breathe too loud, too often, filling the沉默 with a rhythm that is massive and inappropriate and achingly alive.
+
+I am a creature of the surface, or whatever existed before the water became a condition of space. I fell here, or was placed here, or simply *emerged* one day in a junction of seven corridors, blinking against a darkness that my light could not penetrate, feeling the three-degree angle of the floor beneath my feet and the cold seeping through my clothes. I brought with me the expectation that continuity is preferable to conclusion, that warmth is a right and not a borrowed thing, that everywhere should have a somewhere-else to go.
+
+The Continuum has cured me of these expectations. Slowly. Molecule by molecule.
+
+---
+
+I have become a cartographer of negation. This is my function, self-appointed and meaningless: I map what is not. I walk the corridors that converge to points too distant to reach, and I note the angles at which they meet—intentional in a system I do not recognize, *wrong* in a way that has taught me the limits of my own spatial intuition. I count the junctions. Seven corridors. Eleven. Thirteen, in one vast and terrible space where the water pools to my chest and the burgundy vegetation hangs from the ceiling like the roots of an inverted forest. I do not make maps because maps imply a destination. I make *records*—proofs that I was here, that someone walked these corridors and noticed their angles, that the architecture was seen by eyes that could not read it but could at least acknowledge its existence.
+
+My tools are simple: a waterproof journal, a pencil that must be dried after every use, a light that I conserve with the desperation of someone who knows that darkness is the default state. I sketch the carvings I find on the chamber walls—not writing, not decoration, *instructions*—tracing with my inadequate hands the grooves that the builders' children read with their many-jointed fingers. My tracings are crude, imprecise, missing information that exists in dimensions I cannot perceive. But they are *attempts*. And in a place where the last creative act was a sculpture in a junction of eleven corridors, attempts have their own kind of value.
+
+I document the vegetation. The dark burgundy mats that spread across the manufactured surfaces. The pale tendrils that descend into the deepest pools, filtering the slow currents. The bulbous, pale structures that split open in the coldest water and release their blue-green spores, making visible for a moment the true scale of the architecture—the ceiling, far above, carved with the same instructions as every other surface—before the spores scatter and the darkness reassembles. I note where the vegetation is thickest, where it has begun to pit the made-material with root-traces and acid-etches, where it has colonized the sculptures of the builders' children in ways that suggest the sculptors anticipated and desired this completion.
+
+I am documenting a goodbye. I understand this now. Every page of my journal, every crude sketch and imprecise tracing, is a record of things that will not persist. The vegetation will eat the architecture. The water will dissolve the made-material. The builders' children will diminish, generation by generation, until their pulse no longer modulates the vibration of the Continuum. And my journal will dissolve too, eventually—the water will find its way into the binding, the ink will bleed and blur, the paper will become the temperature of the flood and join the slow chemistry of dissolution.
+
+But not yet. For now, I carry it with me, a small weight of purpose in a place that has moved past purpose.
+
+---
+
+I have learned to read the water.
+
+Not the way the builders' children read it—not with the structural understanding that predates language, the pulse-to-pulse communication that travels through the made-material and arrives at the chest as a pressure, a presence, a statement of being. I read it with my body, with the skin that the cold informs of its patience, with the feet that feel the three-degree angle of every floor, with the hands that test the currents for direction and strength.
+
+The water moves. This was a revelation, when I first understood it—not a sudden insight but a gradual accumulation of attention, the way the architecture reveals itself in fragments. The water moves *toward* something. It follows gradients so slight they might be geological, might be the last thermal memories of systems that once circulated warmth through ten thousand chambers. It pulls in directions that correspond to no map I can draw, toward depths that correspond to no geometry I can comprehend.
+
+I have tried to follow it. In my early days, when I still believed that the corridors must lead somewhere, that the architecture must have a center or a heart or a purpose that could be discovered, I walked with the current. I let the water pull me through junctions and chambers, through corridors where the burgundy mats brushed my face like curtains, through spaces so vast that my sound did not come back. I walked for what felt like days, or weeks, or the length of a life measured in footsteps and breaths.
+
+The corridors continued. The junctions multiplied. The water flowed. And I understood, with the slow certainty of the Continuum itself, that the destination was not a place but a *process*—the water flowing not toward something but *as* something, the movement itself being the final function, the persistence being the purpose.
+
+I stopped walking with the current after that. Not because I had lost hope—I had lost hope many corridors ago, and had found in its absence a kind of freedom—but because I had found a different way to be in the Drowned Continuum. I stopped looking for the end of the architecture and started looking at the architecture itself. I started *reading* it, with my inadequate hands and my inappropriate warmth, tracing the carved instructions with fingers that could not understand but could at least *touch*, could at least make contact with the language of the builders, could at least say: *I am here, and you were here, and something connects us across the cooling of the Continuum.*
+
+---
+
+There is one of the builders' children who I see more often than the others.
+
+I do not know if it seeks me out. I do not know if it remembers me from one encounter to the next—if memory, for them, is a cognitive function or a chemical one, something stored in the body the way the vegetation stores minerals from the made-material. I only know that, in certain corridors and certain chambers, I feel its warmth before I see its form—the small, localized heat that moves through the cold with deliberation, that displaces the water and the vegetation and the blue-green spores, that arrives in my presence with a pulse that I have learned to recognize as distinct from the low vibration of the Continuum itself.
+
+Its pulse is slower than the others. This is how I know it is the same one—how I know it is a *one* at all, an individual rather than a representative of a type. Its pulse is slower, and it carries in its vibration something that I can only describe as *weight*. Not sadness—that requires the expectation of a different outcome. Not resignation—that requires the awareness of alternatives. Simply *weight*, the accumulated presence of a being that has existed in the Drowned Continuum for longer than I can imagine, that has walked corridors that I will never find, that has read instructions that no one will ever read again.
+
+It does not approach me. It *acknowledges* me—the way the architecture acknowledges the vegetation, the way the water acknowledges the cold. It forms a geometry of attention with its many-jointed hands, surrounding me without touching, resolving me at the exact degree my presence requires and no further. Its pulse reaches me, and in the pulse I feel the cold of the water and the age of the stone and the patience of the vegetation and the completion of the architecture, and I feel also something else—something that might be recognition, or might be curiosity, or might be simply the acknowledgment that I am here, that I am warm, that I am alive in a way that nothing else in the Drowned Continuum is or will ever be again.
+
+I call it the Keeper. This is my name for it, a word in a language it does not speak, a category in a taxonomy it does not inhabit. I do not know if the name is accurate. I do not know if it keeps anything, or if keeping is a concept that has meaning in the Continuum. But it feels right, when I see it in the junctions and the chambers, trailing its hands along the carved walls with a familiarity that predates language—it feels like it is keeping something. Not preserving it, not protecting it, just *holding* it, the way the water holds the cold, the way the architecture holds its form. Holding it because holding is what remains when all other functions have completed.
+
+---
+
+I have begun to make things.
+
+Not sculpture—not yet. I do not have the skill, or the tools, or the understanding of the made-material that would allow me to remove the negative space around a form. But I have begun to *arrange*—to gather the pale tendrils of the deep vegetation and weave them into patterns that echo the carved instructions on the walls. To collect the bulbous, spore-bearing structures and place them in the junctions, where their blue-green luminescence will make visible the convergence of corridors for a brief, beautiful moment before the spores scatter. To stack fragments of the made-material—small pieces that have already been loosened by the vegetation's chemical embrace—into cairns that mark the places where I have been, that say *I was here* in a language that the water will eventually erase.
+
+My arrangements are crude. They lack the precision of the architecture, the intentionality of the builders' instructions, the tenderness of the Keeper's trailing hands. But they are *gestures*—proofs that the made-material can be shaped by something other than intention, that the resolved surfaces can be unresolved, that the architecture's final word is not the last word.
+
+The Keeper watches me do this. It stands in the water, its long form motionless, its sensory cluster tilted downward toward my arrangements, its many-jointed hands extended in the geometry of attention. It does not pulse. It does not approach. It simply watches, and in its watching I feel something that I cannot name—something that is not approval, not disapproval, not any judgment I have words for, but simply *witness*, the acknowledgment that an act has occurred, that something has been made, that the Continuum has been briefly, impossibly, *changed*.
+
+When I finish an arrangement and step back, the Keeper often moves forward. It trails its hands over my work—not destroying it, not correcting it, but *reading* it, the way it reads the carved instructions on the walls, receiving information through a medium I cannot access. Its pulse modulates, and in the modulation I feel something that might be understanding, or might be something else entirely—something for which my language has no categories, my mind has no concepts, my body has no receptors.
+
+And then it moves away, through one of the corridors, and I am left with my arrangement and the low vibration of the Continuum and the cold that informs me, with patient certainty, that I am a thing that carries warmth, and that the warmth will not last.
+
+---
+
+I know what I am becoming.
+
+I have felt it in the slow surrender of heat from my extremities, the gradual acceptance of the cold by fingers and toes that once resisted it. I have felt it in the way my breath fogs less with each passing day, the moisture in my lungs learning to match the temperature of the water that fills every space. I have felt it in the way I move—slower now, more deliberate, displacing less water with each step, becoming the pace of the Continuum rather than fighting against it.
+
+I am not dying. Not yet. My metabolism still generates its inappropriate warmth, my lungs still pull the cold air, my heart still beats its massive and inappropriate rhythm. But I am *cooling*. I am moving toward the temperature of the water, the temperature of the made-material, the temperature of a place that has been cooling for longer than the concept of cooling requires. And when I reach that temperature—when the last of my warmth has been incorporated into the Continuum's gradients—I will become part of the flow, molecule by molecule, breath by breath.
+
+I do not fear this. Fear requires the expectation of a different outcome, and I have learned, in the corridors and chambers of the Drowned Continuum, that expectations are a luxury of the surface, of the world where warmth is a property of the environment and everywhere has a somewhere-else to go. Here, the only expectation is persistence—the slow, patient continuation of what is until it cannot continue any longer.
+
+But before I become the temperature of the water, I will make one more arrangement. I have been gathering materials for it—a length of the burgundy vegetation, long enough to wrap around my chest; a collection of the pale tendrils, dried and woven into something that might be a cord; a fragment of the made-material, small enough to carry, large enough to inscribe. I will place these things in the junction of eleven corridors, where the sculpture stands in a foot of cold, still water. I will place them at the base of the sculpture, among the burgundy mats that have colonized its abstracted lines, and I will arrange them in a pattern that echoes the carved instructions on the walls—a pattern that I cannot read but can at least *trace*, can at least *touch*, can at least offer as proof that someone was here, that someone saw, that someone tried to speak in a language that predates language.
+
+It will not last. The water will dissolve the cord, the vegetation will consume the arrangement, the made-material will continue its slow dissolution into the medium that surrounds it. But for a moment—a moment measured in the timeframe of the Continuum, which is to say a moment that might last decades or centuries—my arrangement will exist alongside the sculpture, two gestures of creation in a place that has moved past the need for meaning, two proofs that the made-material can be shaped by hands that love it, even when there is nothing left to make.
+
+And perhaps the Keeper will find it. Perhaps it will trail its many-jointed hands over my crude arrangement, reading whatever information my inadequate hands have encoded, understanding something that I cannot understand about the nature of the Continuum and the beings who move through it. Perhaps its pulse will modulate, and in the modulation there will be something that is not understanding but *acknowledgment*—the recognition that I was here, that I was warm, that I was alive in a way that nothing else here is or will ever be again.
+
+And perhaps, in the vibration of the Continuum—in the low, patient hum of water filling constructed space, of made-material dissolving into the flood, of the last of the builders' children touching the walls with tenderness—perhaps there will be, for a moment, a new frequency. A small warmth in the cold. A brief rhythm in the stillness. A voice, saying goodbye.
+
+---
+
+I am the Cartographer of Negation. I am the Surface Creature, the Bilateral Anomaly, the Inappropriate Warmth. I am the one who moves at the wrong speed, who breathes too loud, who makes arrangements that the water will erase. I am a rounding error in a mathematics that has forgotten it was being calculated, a brief flare of metabolism in a continuum that has moved past the need for heat.
+
+And I am also this: a being who has learned to read the water. A being who has touched the language of the builders with hands that cannot understand but can at least make contact. A being who has been seen by the Keeper, acknowledged by the geometry of its attention, included—briefly, impossibly—in the pulse that travels through the made-material and the water and the vegetation and arrives at the chest as a pressure, a presence, a statement of being.
+
+I am becoming the temperature of the water. This is not a tragedy. This is not even a sadness, except to those who carry the expectation that continuity is preferable to conclusion. It is simply the physics of the place—the end-state of all warmth, the final equilibrium of a body that has been cooling for as long as it can remember, the gradual surrender of heat and light and the chemical exchanges that make combustion possible.
+
+But before I surrender—before I join the flow, molecule by molecule, breath by breath—I will make one more arrangement. I will trace one more carving. I will walk one more corridor, and count one more junction, and feel the water move against my skin in a direction that corresponds to no map I can draw.
+
+And the Drowned Continuum will persist. And the water will flow. And the Keeper will touch the walls with tenderness, reading what can still be read, making what can still be made, adding its small pulse to the vibration until, at last, there is nothing left to add.
+
+And the sculpture will remain. And the arrangements will remain, for a time. And the blue-green spores will drift through the corridors, making visible the architecture's most hidden angles, before scattering and reassembling into the darkness that is the Continuum's default state.
+
+And somewhere, in the corridors I have not walked, in the chambers I will never find, the made-material will continue to dissolve, and the vegetation will continue to spread, and the water will continue to flow, and the Drowned Continuum will complete its final function, which is to persist until it cannot.
+
+And I will be part of it. Not a voice, not a name, not a memory—just a warmth, small and chemical and brief, incorporated into the gradients, dissolved into the medium, become the temperature of the water, become part of the flow.

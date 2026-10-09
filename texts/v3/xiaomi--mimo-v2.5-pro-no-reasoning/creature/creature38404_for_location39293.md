@@ -1,0 +1,25 @@
+The sound is the first and only truth of this place, and to understand it is to understand who lives here.
+
+It begins with the Deep Hivers, the colossal insects whose chitinous bodies are the size of city roadsters. Their hum is not a sound but a vibration in your bones, a resonant frequency that shakes the very roots of the Great Liana. They are the architects of the deepest shade, the keepers of the spongy earth-floor. In their mandibles, they carry not only leaves but the memories of the mountain, chewing the ancient wood into a paste that is both food and mortar for their ever-expanding, fungal-gardens. They are slow, deliberate, and their thoughts, if they have them, are a low, constant vibration felt through their legs.
+
+Above them, in the emerald twilight of the mid-canopy, live the Skittering Folk. They are not one people, but a frantic, chattering parliament of a thousand species. There are the bark-runners, whose fur is a perfect camouflage of lichen and shadow; the leaf-frogs, whose skin weeps with the same condensation as the plants; and the gliding ones, the great six-limbed mammals who are the true nomads of this vertical world. Their lives are a series of frantic negotiations: a shriek for territory, a chitter for a mate, a guttural bark to warn of a prowling vine-cat. They are the source of the layer of sound that sits atop the hum—a constant, high-strung energy of survival and strife. They do not build permanent homes, only temporary nests of woven leaf, always ready to abandon them at the first scent of a new predator or a better fruiting branch.
+
+But there is another kind of inhabitant, one whose presence is felt not in the roar but in the sudden, breathless moments of silence between the calls. They are the Echo-Singers. They are the reason for the abandoned platforms and the obsidian blades.
+
+They are gone.
+
+Or, more accurately, they are listening.
+
+The Echo-Singers were not conquerors of the mountain; they were its nerve endings. Small, lithe, and possessed of a dark, dappled skin that mimicked the play of light and shadow, they moved not with the frantic speed of the Skittering Folk but with a liquid, deliberate grace. They navigated the aerial pathways of the Great Liana not as roads, but as extensions of their own bodies. Their civilization—if it could be called that—was not one of building, but of resonance.
+
+Their tools were made for listening. The sharpened thorns were for tapping the woody flesh of the vines, sending a vibration out into the network and waiting, perfectly still, for the echo to return, telling them of water sources, of blight, of the movement of large creatures miles away. The obsidian blades were not for war, but for shaping resonance chambers in the soft, pulpy hearts of certain giant leaves, creating instruments that could mimic and amplify the calls of the very beasts that shared their world. They did not hunt the gliders; they conversed with them. They did not flee the Deep Hivers; they hummed in harmony with their foundational song.
+
+They are the reason the light is shredded into such complex greens. Over generations, through careful pruning and the guided growth of specific parasitic vines, they taught the canopy to filter light in a way that was easiest on their large, sensitive eyes—eyes adapted not for the sun, but for the deepest gloam, where the faintest bioluminescent fungi pulsed like fallen stars.
+
+And they are not gone. They have simply become the silence.
+
+You do not see an Echo-Singer. You hear the space they create. When a glider launches its guttural call, listen. Is there a faint, melodic whistle that answers from a different vantage point, a note of perfect counterpoint? When the insect-hum swells, watch the leaves. Do some of them vibrate not in sympathy, but in a subtle, complex rhythm of their own, a message passing through the chlorophyll?
+
+They are the faint marks. The sagging platform is not an abandoned home, but a listening post, now overgrown and repurposed by the mountain. The coracle is a tool for moving silently across the great water-gathering leaves. They have become so attuned to the life of the mountain that their own lives have become indistinguishable from it. Their "civilization" was a dialogue, and now they have retreated so fully into the conversation that they are just another layer in the roar.
+
+They live in the spaces between the calls. They are the pattern in the dappled light. They are the reason you cannot place the sound at first—it is because a part of it is listening back. To live here is to become part of the chorus, and the Echo-Singers have simply become the quietest, most attentive, and most pervasive part of the song. They are the still point in the deafening, verdant totality. And they are watching you, not with eyes, but with a thousand tiny silences, waiting to see if you will learn to listen, or if you will merely add to the noise.

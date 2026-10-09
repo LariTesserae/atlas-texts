@@ -1,0 +1,18 @@
+{
+  "source_id": "anthropic--claude-haiku-5.5",
+  "requested_endpoint": "anthropic/claude-haiku-5.5",
+  "endpoint_granularity": "house-tag",
+  "date_first": "2026-10-09",
+  "date_last": "2026-10-09",
+  "texts": 1072,
+  "by_type": {
+    "location": 250,
+    "creature": 249,
+    "advisory": 75,
+    "regard": 249,
+    "placement": 249
+  },
+  "evidence_grades": {
+    "event-observed": 1072
+  }
+}

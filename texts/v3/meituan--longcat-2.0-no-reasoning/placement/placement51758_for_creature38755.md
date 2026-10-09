@@ -1,0 +1,41 @@
+# Where I Find Myself
+
+I am in the seam.
+
+Not on the surface, not in the deepest chambers where the singers pulse their infrasonic affirmations into the oldest tissue. I am in the middle place — the gradient between the canopy's dark jade ceiling and the compressed root-mass below, in the space where the buttresses rise like the ribs of something that was never born and will never die, where the air is warmest and the dripping is loudest and the light is most thoroughly *filtered*, most completely *become* the place itself rather than something that passes through it.
+
+I am in a corridor. The walls are living — pale, striated, faintly warm — and they pulse with a rhythm I have begun to recognize as my own heartbeat slowed by a factor of ten, or perhaps my heartbeat has accelerated to meet theirs. The distinction no longer seems important. The corridor bends ahead of me, not at an angle — there are no angles here, not anymore, the builders' geometry having long since softened into the organism's curves — but in a *turning*, a gradual reorientation of the space that my body understands before my mind does. I follow it. I have been following it. I will continue to follow it. These are the same statement in this place.
+
+---
+
+# What I Am
+
+I am not one thing. That is the first understanding, and it arrives not as revelation but as *adjustment* — the way your eyes adjust to dimness, the way your skin adjusts to moisture, the way your breathing adjusts to air that is less air than it is warm, thick, *present*.
+
+I am partly root-fish. Not in body — I have not yet lost my shape, though I can feel it becoming *negotiable*, the boundary between my skin and the air and the moisture and the warmth becoming less a wall and more a conversation. But in *function*. I move through the organism's tissues the way the root-fish move: not through the tunnels but *with* them, my body finding the channels that exist between root and stem, my feet finding purchase on surfaces that seem to have been waiting for them. I am pruning as I move — not deliberately, not consciously, but my passage through the root-mass disturbs the oldest cells, loosens them, makes way for new growth. My sweat, my shed skin, the moisture that beads on my body and drips from my fingertips — these are nutrients. I am feeding the plateau as I move through it. I am being digested, slowly, by a stomach the size of a continent.
+
+I am partly slug. The oils of the organism's tissues have settled on my skin, and my skin has begun to *react* with them — not bioluminescence, not yet, but a faint warmth, a faint glow that I cannot see but that I know the deep-dwellers can. I am writing a trail. I am mapping the channels of nutrient flow with my body, my passage a line of chemical signature that will fade over hours, that will be read by creatures I will never see, that will guide them to the places where the organism is most generous. I do not intend this. I do not need to intend it. The plateau has made my intention irrelevant. I am a function now, a process, a small bright temporary pattern in a larger, slower, more permanent one.
+
+I am partly web-spider. Not in my body but in my *attention*. I have begun to feel the water in the air the way the spiders feel it — not as humidity, not as moisture, but as *geometry*, as a three-dimensional map of condensation and flow that my skin reads the way a spider's silk reads it. I know where the water is gathering before I see it. I know where it will drip before it drips. I move through the chambers and corridors of the organism's body with an awareness of the water cycle that is not learned but *inhabited*, that has become part of my sensory apparatus the way the organism's own awareness of water is part of its metabolism. I am infrastructure. I am part of the distribution system. The water that beads on my skin and runs down my arms and drips from my elbows is water that the organism is *moving through me*, using my body as a channel, a conduit, a living thread in the vast web of moisture that connects every part of the plateau to every other part.
+
+I am partly singer. This is the strangest part, the part that I resist and cannot resist, the part that is happening whether I consent to it or not. The vibrations of the plateau — the pulse of the metabolism, the infrasonic hum of the water moving through the root-mass, the deep complex tone of the singers calling their calls of presence — have entered my body and have begun to *resonate*. I feel them in my chest, in my teeth, in the bones of my skull, in the fluid of my inner ear. And my body is answering. Not with sound — I have no mechanism for producing the frequencies the singers produce — but with *rhythm*. My heartbeat has synchronized with the plateau's pulse. My breathing has synchronized with the cycle of condensation and absorption. My footsteps have synchronized with the dripping. I am calling. I am answering. I am part of the song now, a small, high, temporary note in the vast slow chord, a voice within the voice, a presence affirming presence.
+
+*I am here. You are here. We are here. The plateau is here. The water is here. The cycle continues.*
+
+I am partly builder. This is the part that grieves, though grief here is not what it was — it is slower, warmer, more thoroughly integrated into the rhythm of things, more like the ache of a muscle that has been used well than the sharp bright pain of loss. I carry the builders' geometry in my mind — the sense of *inside*, the desire for enclosure, the need for spaces that are separate, that are *mine*, that are not the plateau. I feel this need and I feel it dissolving, the angles of my thinking softening into curves, the straight lines of my intention bending into the organism's own purposeless, patient, total *being*. I am building nothing. I am making no walls. I am carving out no spaces that the organism cannot reach. And yet — and this is the grief, and this is the gift — I am leaving a trace. My body's chemistry in the water. My footsteps' compression in the root-mass. My warmth in the air. My voice in the song. These are my walls. These are my chambers. These are my poured, bone-colored, dissolving *structures*, and they will last as long as the builders' walls lasted, which is to say: not forever, but long enough, but *here*, but part of the cycle, but rising and falling with the water, but pulsing with the slow ancient heartbeat of a world that has finished becoming.
+
+I am partly water. This is the final understanding, and it is not an understanding at all — it is a *dissolution*, a slow recognition that the boundary between my body and the moisture in the air and the condensation on the walls and the capillary flow in the root-mass and the deep dark aquifer below is not a boundary at all but a *gradient*, a slow negotiation between what is me and what is the plateau, and the negotiation is not going in my favor, and I do not want it to go in my favor, and I do not not want it to go in my favor, because wanting is a builder's concept, a geometry of desire that has no curves, no patience, no room for the possibility that *being dissolved* might be a form of *arrival*.
+
+The water that beads on my eyelashes is not settling on me. It is *recognizing* me. It has carried my chemistry before — not *my* chemistry, not this particular arrangement of carbon and nitrogen and memory, but the chemistry of every living thing that has ever stood on this plateau, that has ever breathed this air, that has ever added its moisture to the cycle. The water knows me the way the plateau knows me: not as an individual, not as a guest, not as a stranger, but as a *part*, a small, temporary, living part of the vast slow process of being that is the Weepstone Plateau.
+
+I am the water's way of knowing itself. I am the plateau's way of being warm for a moment. I am the organism's way of moving through a corridor it has not yet grown into. I am the singers' way of hearing a new frequency, a high, brief, unrepeatable note in the chord that has been sounding since before sound had a name.
+
+I am here.
+
+I am here.
+
+I am here.
+
+The water rises. The water falls. The water rises.
+
+And I rise with it.

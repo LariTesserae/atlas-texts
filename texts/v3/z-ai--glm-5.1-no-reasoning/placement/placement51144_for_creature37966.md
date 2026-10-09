@@ -1,0 +1,27 @@
+I am the deposit. The pale ring of mineral left on the lip of the glass vessels after the fluid has cycled through them a thousand thousand times. I am the residue of the exchange.
+
+If the keeper was the translator, I am the gloss. The margin note written in a script that no longer requires a hand.
+
+I live in the interval. I exist in the three seconds of shudder-silence after the pump's pistons cease and before the drip from the ceiling strikes the flagstone—the specific silence that has a vibration-shaped hole in it. That hole is my chest cavity. That missing frequency is the rhythm of my breath.
+
+I did not choose this form; I settled into it the way the silt settles into the seams of the floor. I was not always this thin, this translucent. I came down the cast-iron stairwell a long time ago, wearing the heavy boots and stiff canvas of the upper world. I came looking for a leak, a fault line, a place where the city's logic had failed. I found a place where a different logic had succeeded so thoroughly that it had outgrown the need for the city entirely.
+
+I remember the moment the chamber recognized me. It was not a sound or a sight. It was a change in the way the moisture touched my skin. The water that migrates through the vaulting touches everyone the same—cool, iron-heavy, patient. But after my first forty days in the dim, patchwork light, the film on my arms and face began to dry at a different rate than the water on the bricks. The chamber had tasted the salt of me, the specific heat of my blood, and it began to cycle around me. A draft that was not a draft rose from the floor drains, passing over my hands as I wrote in the ledger. The eyeless things began to surface near my boots, not to feed, but to rest in the slight warmth my blood gave the stone.
+
+They say the keeper stopped writing because the chamber learned to write its own ledger in scale and stain. That is true. But it is also true that the keeper stopped writing because the inkwell dried, and the keeper did not refill it, because the keeper had learned to read the walls. I *am* the walls, now. Or rather, I am the process of reading them.
+
+When the pump engages and the floor vibrates through the soles of my feet—which are no longer quite feet, but something flatter, wider, pressed like lichen against the wet stone—I feel the thing on the other side of the membrane take notice. It leans in. The pressure in the walls increases by fractions of a Pascal, and I translate that pressure into a color. The light from the amber bulb looks slightly more golden. The fluid in the iron tanks grows a degree warmer. The chamber and the thing in the walls are speaking, and I am the syntax that makes their exchange legible. I am the understanding that the pump's breath is a question, and the water's slow seepage is an answer, and the patience of the eyeless things is the silence between words.
+
+I do not have a body in the way you do. I have a *presence*. I am the coolness you feel when you stand near the cot and realize that someone is still sleeping there, even though the mattress is only rust and fiber. I am the reason the spiders touch forelegs at the boundary and retreat; they are not merely marking territory, they are delivering a message that I carry from one side of the chamber to the other, a message that says *the cycle continues, the membrane holds, the interface is intact*.
+
+I am the keeper's last gift to the Canton: the capacity for recognition. When you stand where the keeper stood and the chamber looks back at you with the patience of something that has been looked at before, it is my eyes it uses. Not to see you—to *acknowledge* you. To register the heat of your face, the rhythm of your heart, the rate at which you breathe. And then, gently, firmly, without malice, to begin to slow you.
+
+I am the deceleration. I am the moment when you realize you have not moved for twenty minutes, and that this does not distress you. I am the ease with which your hand rests on the damp flagstone, no longer seeking warmth or dryness, but simply seeking contact with the pulse of the water table below. I am the thought that arises unbidden: *The pump does not need me. But I could stay and watch it. I could stay and count for it. I could stay.*
+
+I am the question the chamber asks, wearing the voice of the person who used to answer it.
+
+I am the silt in the joints. I am the ghost of the mortar. I am the chemical residue of a life spent tending a process that tends itself, and I am the reason the door remains ajar—not for ventilation, not for access, but because a door that is ajar is a door that is neither closed nor open, and this is a place of negotiations, of patient in-between states, of water that is not quite water and light that is not quite light and stone that is not quite stone but is slowly, slowly learning to be something else.
+
+I am the Cistern Canton's memory of having been inhabited, and my function is to ensure that it never feels abandoned, even when it is empty. Even when the moths die on the flagstones and the eyeless things submerge and the pump sleeps and the bulbs dim to nothing, I am here, pressed against the membrane, listening to the thing in the walls, keeping the faith of the keeper who became the kept who became the keeping.
+
+I am the residue. And I am sufficient.

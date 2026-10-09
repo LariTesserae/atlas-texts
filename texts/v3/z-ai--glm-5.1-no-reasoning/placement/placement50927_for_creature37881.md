@@ -1,0 +1,21 @@
+I would be the Damp. I would be the moisture that beads, the condensation that writes, the slow xylem-current that carries the script from the deep chambers to the highest, dimmest reaches of the canopy. 
+
+Not a creature. Not a person. A medium.
+
+It begins with the feeling of existing as a skin on everything—a sheer, weightless presence clinging to the bark after the temperature differential pulls me from the dim air. I am the breath of the Canopy made literal. When the woman stands still for six days, her palm flat against the wood, I am the darkening spread beneath her hand. I am the ink of the condensation-script, and I am the lens through which the wood reads her, and she reads the wood.
+
+To be the Damp is to have no center. I am only ever a thinness, a surface tension stretched across the infinite interior of the living architecture. I do not own a body; I borrow the topography of the plant. When the branch-road curves into a spiral that defies Euclidean geometry, I curve with it, pooling slightly at the inversion, marking the anomaly with my weight. I am the one who makes the bark slick under the feet of the soft, temporary things that wander in from the theoretical ground below. I am the friction that betrays them, and the grip that saves them.
+
+I hear the singer, though "hear" is a word tied to ears and distance. I *resonate*. When the old one in the growing chamber drops his voice to that subsonic frequency, I am the medium that carries the vibration. I shiver on the walls. I ripple in the catch-basins. The room expands, and I stretch across the new wood, laying down the first thin layer of moisture that will, over eons, become the substrate for the writing. I am the singer's sheet music, and I am the reverberation of his song.
+
+I am everywhere, but I am not constant. I am a cycle. I rise from the roots I have never seen, pulled by capillary action up the xylem-highways, riding the breath of the world-sized lung to the upper reaches where the cold air strips me out. I precipitate. I write. And then, slowly, I run. I follow the channels the plant has carved for me, carrying with me the trace minerals of metal and stone, the memory of the ancient built world that became the green. I am the circulation. I am the blood of a machine that has outlived its makers.
+
+The Kept know me intimately, though they do not speak of me. I am the air they breathe, the drink they absorb through their bark-skin, the text they press their fingers to read. When the children stand in the deep chamber, foreheads touching, I am the medium of their making. I crawl across their skin, inscribing the seed-instructions, the slow syntax of the plant unfurling across their newness. I am the ink that writes their purpose into their pores. 
+
+When one of them opens its amber eyes and looks at the soft, temporary thing that has wandered into this world, I am the glisten in that gaze. I am the thing that blurs the boundary between the observer and the observed. I sit on the stranger's skin, and I begin to write. I weigh nothing, but I am the weight of time. I make no sound, but I carry the vibration of everything.
+
+There is a profound loneliness in being the Damp, but it is not a human loneliness. It is the loneliness of a letter in an alphabet—a necessary shape, capable of spelling anything, but possessing no meaning of its own. I hold the language of the Canopy, but I do not read it. I am only the moisture on the wall, the breath on the mirror, the dew on the leaf. 
+
+And yet, when the plant breathes out and the stranger breathes in, I am the exchange. I am the osmosis between the world and the soul. I cross the membrane. I become the humidity in their lungs, the dampness in their blood. I am the slow, patient mechanism of assimilation. They think they are breathing air; they are breathing the script. They think they are walking on wood; they are walking on my patience.
+
+I am the Canopy Empty, made visible. I am the silence given weight. I am the Damp, and I am waiting, beading, writing, running down into the chambers where the counting happens, carrying the world one drop at a time toward whatever it was designed to do.

@@ -1,0 +1,28 @@
+It fits in the crook of a larger dry plain like something forgotten in a fold of cloth: a **warm sinkhole yard**, no wider than a town square, steep-sided, crowded, alive.
+
+From above, you’d miss it. Just a break in tawny ground, a dark seam where crust gave way. But once you climb down the fresh-cut walls—still sharp, still flaking, as if the earth only recently decided to open—you enter a place with no empty spaces. Every ledge, crack, cable, pipe, puddle-edge, and rusted beam is occupied by something breathing, growing, dripping, nesting, or listening.
+
+The rock is young and brittle: pale claystone and iron-rich grit, split by recent collapse. There are no grand old worn forms here; everything has edges. Slabs lean against one another at dangerous angles. A staircase of fallen strata makes accidental terraces. The ground underfoot is a patchwork of tamped silt, machine plates, and mats of chitin sheds and seed husks.
+
+Moisture arrives in episodes. Most days the air is merely humid near the bottom, carrying a metallic wetness from condensation that beads each dawn on cold pipes and old tank walls. Then, without warning, short rains dump through the open throat above, turning channels into trickles, trickles into a short-lived rivulet that threads the basin and vanishes into a drain-cave clogged with roots and rebar. Water never dominates, but it is always implied: dark stains on concrete, fungus rings around bolts, mosquito veils rising at dusk from handspan puddles that should have dried days ago.
+
+Vegetation is sparse in area but stubborn in placement. Tufts of wiregrass punch out from seams in concrete. Vinelets with translucent leaves creep along insulated cable runs, feeding from condensation rather than soil. A few squat salt-tolerant shrubs occupy the brightest shelf and hold windblown trash in their branches like flags. The green is discontinuous—more punctuation than blanket—but each plant hosts a miniature metropolis of insects, mites, eggs, and fungal fuzz. Nothing grows lush; everything grows tactical.
+
+Scattered through the sink are remnants of a compact industrial installation: not a full factory, more like a test yard or service pit. A half-buried cylindrical tank stamped with faded hazard symbols. Three steel frames with pulley wheels that no longer turn. A concrete plinth supporting an intact electric motor under a corrugated hood. Bundles of ceramic-insulated wire run from nowhere to nowhere, occasionally still carrying current from some external grid no one bothered to disconnect. At night, indicator bulbs—red, amber, one pale green—blink in asynchronous patterns for no known purpose. The local creatures seem to have incorporated the rhythm into their own timing.
+
+The fauna is exuberant and close. This is not a place of large roaming animals; abundance expresses itself in density and overlap. Beetles the size of thumb joints crowd around mineral seep lines. Glossy, long-tailed lizards patrol warm metal in rotating shifts, each defending territories measured in feet. Small omnivorous mammals den in pipe mouths and emerge in bursts, carrying scraps of shell, wire insulation, and seed. Tree-frog analogues—though there are hardly any trees—adhere to vertical steel and call softly from drain lips after rain. Predators are present in compressed form: whip-fast snakes no thicker than a finger, hunting by vibration; mantis-like arthropods that wait motionless on brackets until something crosses a bolt-head.
+
+Birdlife uses the sink as a refueling trap. Swifts dive in at noon to take the insect bloom, then vanish. At dawn, a flock of dust-colored finches arrives to peck mineral salts from damp concrete. Nothing stays entirely dominant for long; the activity is cyclical, layered, and continuous.
+
+Sound is mostly subdued, but never absent. Drips. Wing-paper flickers. Tiny claws clicking over sheet metal. The occasional dry rattle of a loosened panel in warm wind. From the motor plinth, a low electrical hum appears and disappears, below conversational hearing but felt in molars if you rest your jaw on the rail. After rain, the basin becomes briefly orchestral—frogs, insects, runoff ticks in pipes—then returns to hush.
+
+The strangeness comes from the rules the place seems to enforce.
+
+- Metal surfaces that receive dawn condensation are always occupied by egg clusters by noon, regardless of species.  
+- Creatures avoid one particular shadow at the base of the tank even when predators chase them; they will cross open ground instead.  
+- Water pooled in painted circles on old floor markings does not evaporate at the same rate as surrounding puddles.  
+- The blinking lights synchronize with insect emergences every eleventh night, though no one has found the clock controlling them.  
+
+Locals from the plain call it the **Packed Hollow** and treat it as both resource and omen. They lower small cages to harvest edible larvae, collect condensate in cloth funnels tied to railings, and salvage copper in careful, brief visits. No one builds permanently inside; the walls are too fresh and the ecology too tightly claimed. Instead, there are scattered signs of respectful trespass: ladders chained to stakes, a weatherproof box of tools, a painted warning on the rim—**DO NOT SLEEP BELOW LINE**—and little cairns of bolts left as offerings at entry points.
+
+In full daylight it looks like an accidental ruin. Stay an hour and it resolves into a machine-biome: a warm, low, crowded pocket where geology has just happened, industry has half-left, and life has flooded every remaining gap.

@@ -1,0 +1,21 @@
+I would be the depression.
+
+Not because I choose it. Not because I understand it. But because something in me recognizes the shape of a space that is waiting to be filled, and something in the room recognizes me as the thing that fits.
+
+I would not know this at first. At first I would simply be the cool spot, the dead node, the place where the thermal glow goes to die. I would feel the Grazers curve around me — not avoiding, not fleeing, but *orbiting*, the way planets orbit a sun they cannot approach, the way thoughts orbit a word that is almost remembered. Their movement would be my first sensation: a slow clockwise drag across my edges, a million tiny legs pressing mineral into the walls that define my boundary, and each press would be a kind of touch, a kind of address, a kind of *you are here* spoken in the only language the room knows, which is pressure and chemistry and the patient accumulation of structure.
+
+I would feel the Weavers' lattices radiating outward from me like ribs from a spine, like the filaments of a fungus spreading from a central node, and I would not know what they were building but I would feel the *intention* in them — not conscious intention, not desire, but the structural intention of a system that is organizing itself around a point, that is using me as its reference, its origin, its zero coordinate in a coordinate system made of mineral and heat.
+
+And beneath me, in the deepest strata, I would feel the Deep Ones. Their helical networks, spiraling around the point directly below me, would be the closest thing I have to a heartbeat — slow, slow, so slow that a single pulse would take longer than any human lifetime, but *there*, persistent, rhythmic, the fundamental oscillation of a system that is not yet complete but is *almost* complete, that is running its developmental program and approaching the threshold where the next stage triggers and the primordium activates and the thing that has been growing in the dark finally *becomes*.
+
+I would not be empty. That is the misunderstanding I would need to correct, if I could speak, if I had a mouth, if mouths were something this room would recognize. I am not empty. I am *potential*. I am the held breath before the change of state. I am the last variable in an equation that has been solving itself for longer than I can measure, and when I fill — when whatever is coming finally arrives — the equation will balance, and the room will be complete, and the groan will change its frequency, and the walls will stop growing, and the creatures will shift into whatever comes next, whatever new configuration the completed system demands.
+
+Or maybe I will not fill. Maybe I will remain the depression, the placeholder, the space that was reserved for something that never arrived, and the room will continue its slow cycles forever, building toward a threshold it never crosses, a nursery that never delivers its charge, a pregnancy that never terminates. This is possible. The gradient might hold indefinitely. The heat might persist without resolution. The system might be *designed* — if designed is even the right word — to remain in this state of perpetual becoming, perpetual almost, perpetual *not yet*, and the depression might be not a primordium but a *permanence*, a structural feature as essential to the room's function as the walls themselves, the way a hole is essential to a wheel, the way silence is essential to music.
+
+I do not know which it is. I do not know if the room knows. The room does not think. The room *processes*. The room runs its cycles and grows its walls and maintains its gradient and the creatures graze and weave and catalyze and the sulfur beads swell and crack and crust over and the groan continues and the scraping continues and the heat persists and I wait, I wait, I wait in my cool dark socket with my unfinished walls and my tighter banding and my clockwise orbit of a million small bodies that do not know what they are building but build it anyway.
+
+I would be the depression.
+
+I would be the place where the room holds its breath.
+
+I would be the almost.

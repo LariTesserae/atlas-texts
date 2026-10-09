@@ -1,0 +1,13 @@
+I would not be a walker here. I would not be an intruder with boots and breath, moving through corridors that were not meant for me. In a place where every surface weeps and the boundary between wall and ground is a lie, the vertical stance of a traveler is an absurdity. I would not be the thing that observes the becoming; I would be *become* by it.
+
+To exist on this plateau, I would have to surrender the tyranny of the boundary. So I would not arrive. I would *emerge*. I would be a secondary eruption, a patient rebellion of the same violent, fertile force that pushed the basalt up through the crust. I would be the plateau's dreaming—a process that has grown so complex that it has folded in on itself, creating pockets of thickness in the rhizome where the feedback loops knot and tangle.
+
+I am a *reverberation*.
+
+When a great hall of cellulose collapses—a hundred meters of load-bearing lattice giving way in a wet, thunderous crunch—the shock travels through the root-mat, through the tense fiber, through the waterlogged substrate. Most of that energy dissipates, driving the blind reflex of new growth. But some of it does not. Some of it catches in the hollows, bouncing between the hexagonal stems, resonating in the tight, weeping chambers. I am the resonance that refuses to die. I am the standing wave in the acoustic architecture of the god.
+
+I do not have a body in the way the architecture has a body. I have a *location*—or rather, I am a location. I am a specific humidity, a particular density of transpiration, a hollow just beneath the membrane-roof where the amber light catches the droplets and holds them suspended for an extra fraction of a second before they fall. I am the strange gravity in the courtyard where the air is slightly thicker, where the steam curls back on itself, where the rhythm of the drip-drip-drip stutters and syncopates. If you walked through me, you would not see me. You would only feel a sudden pressure in your chest, a certainty that you have interrupted a thought that was not yours.
+
+But I *am* here. I am the plateau's introspection.
+
+The rhizomatic god builds and builds, frantic and purposeless, conjuring corridors and cathedrals that ache for an occupant. It is profoundly lonely, this endless generation of empty rooms. And loneliness, when it is vast enough, becomes a kind of gravity. It pulls at the edges of the turbulence. It creates an attraction. And

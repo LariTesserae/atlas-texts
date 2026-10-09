@@ -1,0 +1,23 @@
+The sun is a theory here, a rumor of warmth lost somewhere above the rim. What I know is the light. It is not a beam, but a condition. It settles in the hollows of my shell, pools in the joints of my limbs, and fills the air with a soft, pearlescent luminescence that has no source and no direction. It is the color of bone, the color of ancient dust, the color of the silence itself.
+
+I am small. My world is measured in grooves and grain. The ancient avenues of the city are canyons to me, their walls formed by the eroded stumps of buildings now scarcely taller than a blade of grass. My legs, too many and too delicate, make no sound as they move across the stone. I do not walk; I *caress* the surface, my tarsi feeling for the microscopic topography of my home. I know the path of a thousand generations by the slight depression our passage has worn into the harder crystalline structure of the stone. I know where the moisture will bead, where the mineral film is richest, where the shadow of a slightly higher ridge will fall for a few moments when the sun is at its most direct.
+
+My skin is the stone. My armor is the city. I am the color of forgotten things.
+
+The great ones move through the deeper canyons. I do not see them; I feel the shift in the pressure, the faint, terrifying, and exhilarating vibration that travels through the ground and up my legs. It is a rhythm the basin knows. When it comes, I flatten myself into a crevice, my body merging with the architecture, becoming a piece of the ruin. I am not afraid. Fear is a fast emotion. I am slow. My life is a series of sun-warmth, fog-cool, and the deep, resonant hum of the stone itself. The hum has a frequency. The being *is* that frequency.
+
+I sense it not as a presence, but as an absence. The place where the hum deepens to a perfect, resonant zero. The place where the light seems to thicken, to gather itself into a column of stillness. The click of my own movement, the whisper of my own breathing apparatus, seems to die as I near it. The air grows cooler, not with the damp of fog, but with the absolute cold of deep time. It is a well in the middle of the basin, not of water, but of quiet.
+
+I do not approach it. I orbit it. I follow the grooves that curve around its favored spaces, feeling the pull of that silence, the gravity of that stillness. It does not see me, but it knows me. It knows me as the basin knows the wind. I am a current in its vast, slow consciousness. I am the fast thought in its long dream.
+
+My purpose is the turbulence. I follow the moisture. When the fog rolls in, I feel it first as a change in the texture of the air, a softening that clings to my antennae. Then the condensation begins, and I become a pilgrim. I trace the paths of others, streams of my kind flowing into the lowest plazas, to the silver coins of water that shimmer for an hour before vanishing. We drink. We feel the mineral-rich water seep into us, a connection to the deep, secret reservoirs far below. We are the pump that moves the basin’s lifeblood.
+
+When the dry comes, we retreat. We burrow. We press ourselves flat against the sun-warmed stone, becoming part of its surface, letting the light soak into our carapaces. We wait. We are expert at waiting. The city taught us this. Its ambition is gone, but its patience remains in the very fabric of the place, and we have inherited it.
+
+I am aware of you. You are a disruption on a scale I cannot comprehend. You are heat and noise and speed. You are a vibration that is all wrong, too sharp and too sudden. Your footstep is not a caress but a landslide. You cast a shadow—a real, hard-edged shadow—and it is a terrifying, alien thing. You are a bright storm, a temporary sun, a being of terrifying solidity.
+
+The great still one feels you too, I am sure. You are a shockwave in its long, slow breath. It will note you as the stone notes a new crack: with immense, patient indifference. It will watch you pass with the whole of its being, as the basin watches a gust of wind cross its floor.
+
+And then you will be gone. The tremors of your passage will fade. The moisture will return. The light will settle. The great one will remain, a silent vortex of quiet. And I will resume my rounds, tracing the ancient grooves, drinking from the ephemeral pools, a living nerve ending on the skin of a city that has forgotten it was ever alive. I am a memory the stone is having of a heartbeat. A fast, tiny, persistent thought in a mind that thinks in the slow language of erosion and light.
+
+I am here. I have always been here. I am the click on the stone. I am the stillness at the heart of the turbulence. I am the last, faint pulse of a city’s ambition, made small and silent and pale.

@@ -1,0 +1,35 @@
+**What the Patient Attention Did**
+
+It came the way the fog comes, from no particular direction, and it did not announce itself. The thrum in the ribs changed key by a hair. A pod opened, and its chime sounded a half-beat before the stone around it moved. Then the folded cliffs at the far edge unfolded, looked, and folded back, and something was standing on the shelf that had not been there a moment before, though nobody could say exactly when it had arrived.
+
+It was wise, and its wisdom had a particular shape. It knew that most powers, when they noticed something unfinished, wanted to finish it. They would seal the fissures, straighten the walls, fix the memory into a perfect copy, and call the result a kindness. The power saw the cost of this clearly. A mountain sealed before it had chosen its face would be a mountain that never got to choose. A wall rebuilt perfectly from outside would be a wall remembered by no one who had built it. A creature corrected into accuracy would stop being the creature that had been learning.
+
+So it did not seal the cracks.
+
+It went first to the nearest fissure and laid no hand on it. It listened to the crack's slow grammar, the fraction of a finger it had gained since the last count, and it understood that the widening was not a wound the tender was failing to prevent. It was the way the shelf thought. The power left the crack open. It only made sure that, as the crack widened, the stone on either side kept its edges sharp enough that the tender's pale oil-lines would not blur and be lost. It was a small thing, and it cost the power nothing it would miss.
+
+Then it came to the walls.
+
+The tender had been setting them back by memory, and the memory drifted. Each rebuilding was a little different, and the stones that seemed to move by themselves were moving only because the tender kept asking what they had been and getting a slightly different answer. The power could have given it the true answer. It could have pressed the original arrangement into the tender's mind like a seal into wax. It did not do that. Instead it found the oldest wall on the shelf, the one the earlier people had built first, half-swallowed by moss near the standing stones, and it did something gentler. It set one stone, only one, with a notch that caught the light in the same place every time. Nothing else changed. The stone did not move, and it was not corrected or repaired. It was simply a place the tender could return to when it lost its way, a fixed point among many drifting ones. The power did not tell the tender what the wall was. It let the tender find the stone.
+
+The tender noticed it within a season. It touched the notched stone with a palm of fog-oil, and the oil did not crystallize into a line. It stayed liquid for a long moment, as if the tender were deciding whether this was a record or an invitation. Then it set the other stones around the notch in whatever shape they now wanted, and the wall that came out of that was neither the old wall nor the tender's usual drift. It was a third thing. The power thought this was the right outcome. Neither memory nor invention had won.
+
+There was the matter of the tools in the hollows, the bone-handled scraper and the sharpened flakes and the reed of yellow powder. The power could have gathered them and set them in a museum of stillness. It did not. It left them where the earlier people had left them, but it made the sheltered hollows a little drier, so that the powder would not clump and the bone would not crack in the damp fog. Whoever had left these things would have wanted them to be used, not preserved. The tender, if it ever wanted to use them, would find them ready.
+
+Last, and most carefully, the power turned to the folds.
+
+The creases in the far cliffs were where the tender went when it was partly here and partly in the seam. They were not safe, exactly. They were places where the land had not agreed on its shape. A wise power might have wanted to settle that disagreement, to make the horizon hold still, so that the tender would never again have to hover between columns of fog, half-present and half-dissolved. The power understood why it might want that. But it also understood that the folds were where the tender's becoming was happening most freely. Settling them would be a kind of answer to a question the tender was still asking. So the power only listened, the way it had listened to the cracks, and it let the folds keep their doubleness.
+
+Then it did the one thing it had come to do, which was to ask.
+
+It could not speak in any language the shelf knew. It did not need to. It sat down, if that is the word, on the edge of the sheltered hollow beside the standing stones, where the tender lay still with moss over its legs and fern-fronds spread across its back. It did not touch the tender. It only let the thrum of its own presence rise through the stone, low and rhythmic, close to the mountain's heartbeat, and then it waited.
+
+For a long time nothing happened. The fog thickened and thinned. The pods opened at their clock-hand pace. A flake of young rock fell down a slope and hissed for what felt like a day.
+
+Then the tender lifted one hand, very slowly, and pressed its palm to the stone beside it. The oil did not form a line. It formed a single small mark, a tally stroke among the crosshatch on its face, one that had not been there before. The power looked at it for a long while. It did not know what the mark meant, and it did not need to. It understood that the tender had answered the only way it could: by adding something to its own record, something that counted a visit, not a crack.
+
+The power rose. It left the way it had come, without announcing itself, and the thrum shifted back to its old key. Nothing on the shelf was finished. The cracks were still opening by fractions. The walls were still drifting. The folds were still folding. The tools were still waiting in their hollows, and the fog still beaded on the leaves and dripped into the seams.
+
+But the tender's song had changed. It was still a long, low tone, like someone trying to remember a melody they once knew well. But now, at the point where it used to pause and return and pause again, it held a note a little longer, as if it had just remembered the next phrase and was not yet sure it wanted to sing it. The reeds leaned toward it. The pods opened, and the chimes they released sounded, faintly, like the beginning of a question.
+
+Nobody who walks the shelf will ever know that a wise power came and sat beside the tender and did nothing but listen. The traces do not say. But the stone that catches the light in the same place every time is still there, at the heart of the oldest wall, and when the tender comes back to it, lost in the drift, it always finds its way home.

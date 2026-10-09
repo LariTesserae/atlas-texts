@@ -1,0 +1,26 @@
+At first it feels like a town built inside a greenhouse that forgot it was ever meant for people.
+
+Not a vast metropolis—more a basin-sized district, maybe a few square kilometers at most—held by low, rounded ridges of old stone. The ridges are worn smooth and dark with constant damp, as if they sweat. Water is never dramatic here; it is persistent. It beads on every pipe, gathers in seams, drips from gantries, wells up through cracked paving, and lies in shallow reflective pans between structures. Nothing is dry for long.
+
+The settlement has the bones of industry: brick pump houses, riveted steel walkways, narrow utility towers, rows of ceramic insulators, old rail slots sunk into concrete. But the machinery has adapted to humidity rather than resisting it. Condensation gutters run everywhere, channeling fog-water into cisterns. Fans the size of doors turn slowly in screened housings, not to cool but to move saturated air so mold doesn’t choke the intakes. Boilers throb. Valves chatter. Pressure lines knock like distant drums. The whole place is loud with maintenance: hiss, clang, turbine hum, periodic sirens that sound less like alarms and more like scheduled breaths.
+
+Vegetation takes every pause in the architecture and enlarges it. Vines lace cable trays. Broad-leaf plants rise from expansion joints in the street. Moss pads over retaining walls in thick, upholstered slabs. In courtyards, rooted mats of fern and reed form soft islands around warm drain outflows. The green is lush but not crowded: pockets, belts, hanging curtains, each separated by open concrete aprons, flooded service lanes, bare rusted scaffolds. Space exists between things, and that spacing makes each grove feel intentional, almost room-like.
+
+It is hot in the way a foundry can be hot even without open flame: radiant surfaces, trapped humidity, heat retained in masonry through the night. The dimness deepens that heat. Light arrives filtered—through cloud, vapor, soot-stained glazing, and steam plumes. Midday looks like evening under a storm awning. Lamps stay on around the clock: sodium amber under eaves, green indicator strips along catwalks, occasional white arc flashes from switchyards. Wet ground turns every light into a doubled city.
+
+There are no animals. No birds on wires, no insects around lamps, no stray dogs in alleys. The absence is noticeable because everything else suggests they should be here. Leaves rot untouched except by fungus. Standing water stays unbroken until rain disturbs it. Seed heads open and spill into silence. In place of fauna, motion comes from systems: pumps cycling, sluice gates indexing open and shut, conveyor belts carrying mineral sludge, articulated dredge arms combing channels, weather shutters deploying when pressure drops. The ecology is botanical, fungal, microbial, and mechanical.
+
+The strangeness reveals itself slowly. Some of the “trees” near the central reservoir are rooted through grates into warm nutrient sumps, their trunks wrapped in braided copper grounding straps. Their sap has stained the metal blue-green, and the straps buzz faintly when storms pass. Certain walls “weep” not rainwater but distilled runoff from thermal exchangers, warm and faintly luminous at night from dissolved salts. In a few plazas, stone blocks are deeply scalloped by centuries of drip patterns that repeat with machine regularity—erosion shaped as timetable.
+
+Because the place is low, water has nowhere urgent to go. So it circulates. Streets are subtly cambered toward linear rills; rills feed settling courts; courts overflow into reed basins; reed basins into pump wells; pump wells up to rooftop condensers; condensers back down as rain under ducted misters. You can hear this loop if you stand still long enough: upper hiss, middle rush, lower glug, then the shudder of restart.
+
+If there are rules here, they seem to be these:
+
+- **Nothing static remains healthy.** Air must move, water must move, heat must move. Stagnation breeds collapse.
+- **Surfaces are temporary.** Paint blisters, rust blooms, moss advances, scale forms; every material is in negotiation with moisture.
+- **Boundaries are porous.** Built and grown interpenetrate; infrastructure doubles as irrigation; drainage doubles as habitat.
+- **Darkness is operational, not empty.** Dim light does not mean inactivity—it means hidden cycles, audible before visible.
+
+In storms the district becomes orchestral. Rain detonates on sheet metal roofs, overflow chains rattle, spillways roar, and every fan climbs to a higher register. Steam and mist fold the streets into short corridors, each ending in a glow. Plants bow under runoff, then rise again as if breathing with the pumps.
+
+When weather clears, the loudness doesn’t vanish; it separates. You can pick out individual signatures: a loose belt slapping every seven seconds, a pressure relief sigh from the eastern manifold, water plinking down a ladder rung by rung. The place feels old, established, not decayed—a mature equilibrium between heat, wetness, growth, and industry. A small urban wet-engine, alive without animals, restless without chaos, dim and shining at once.

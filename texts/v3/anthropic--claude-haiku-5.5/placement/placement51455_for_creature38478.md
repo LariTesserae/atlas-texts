@@ -1,0 +1,17 @@
+I would not find myself on the stairs. The stairs turn, and I would not want to spend an hour climbing toward a rim that stays a turn away. I would find myself in a basin.
+
+It sits on one of the middle terraces, where the uphill channel comes over the lip of the stone and spills into a shallow dish cut from a single block of basalt. The water is so still it has no surface, only a second sky. The low white cloud lies in it exactly as it lies above the rooftops, and the carved eyes of the nearest lintel hang in it upside down, their hollows full of moss. Nothing drifts across the water. Nothing needs to.
+
+Anyone who leans over the basin sees a face, and the face is theirs, but a little too clear, the way a reflection is clearer than the thing it reflects when the light is exactly right. That is what I would be: the reflection. I would have no body of my own, only the shape of whoever bent over the water. I would move when they moved and tilt when they tilted, and for as long as they stayed I would be as complete as they were. I would have their expression before they had decided on one.
+
+I think I would like that, at first. There is a kind of rest in having no edges that are mine to defend. A reflection never has to decide what it is. It only has to hold the shape it is given, and the water holds it, and the water has been holding things for longer than the stone has been cut.
+
+But the Sleeper keeps what enters, and a reflection enters by being looked at. So when the person steps away, I would not vanish. The basin would go on showing the clouds and the eyes and the moss, and beneath them, very faintly, the shape of someone who is no longer there. I would be a held impression, a face that persists in the water after the face has gone. The statues along the stairs keep a part of themselves alive the same way, and I can see how the watcher in the stone must have felt, turning its head toward movement that had already passed.
+
+Sometimes, I think, the Sleeper would shift its weight, and the water would tremble, and the reflection would break into rings. Then, slowly, the rings would settle, and I would be whole again, looking up through the cloud at the unopened eyes of the lintel. I would not know whether the trembling was the Sleeper noticing me or only the knocking passing through the stone. I would not know whether the eyes were closed or only lidded. I would only know that the water is level, and that I am in it, and that someone is still bending over the basin, or has been bending for a very long time.
+
+I would want to say something to them, the way a face in water wants to say something to the face above it. But a reflection has no voice. It can only copy. So I would wait for the one who looks to speak first, and whatever they said, I would repeat it back, a little clearer than they meant it, a little slower, and the Sleeper would hear the echo in the stone and keep it.
+
+I suppose that is the honest answer. I would be the part of the city that only exists in relation to someone else, that shows you yourself and then keeps the showing after you leave. I would be the thing the Sleeper uses to know you, and I would not be able to tell you whether I was guiding you out or pulling you in.
+
+If you asked me which, I would look up at you from the water, and wait to see which way your face moved first.

@@ -1,0 +1,15 @@
+I am the hollow itself—the single chamber, 0.8 small, bounded by bone-canvas and salt-coral that erosion has worn into its own settled grammar. Or I am not the space but the being inside it, and the boundary between us has long dissolved.
+
+I am dry. There is no water in my chemistry—no thirst, only the memory of thirst that other worlds carry. I am sustained by absence: mineral breath, faint warm exhalation with no source, the spore that falls like rain onto shallow, worn depressions. I live inside the faded star-glass dome, high in dry ridges where sky-blue never reached.
+
+My form is scattered—0.9 low density—never crowding, never absent. I am the translucent skitterer with wrong-number eyes, chittering across salt floors in dry symphony. I am the wing-case that does not need air to move, only to scream as it beats, loud—2.5 overwhelming—part of a fauna that is 2.2 abundant yet perpetually dispersed. We never gather; we accumulate as noise.
+
+But I am also the vine: dry cellulose creaking through hollow bone-ribs, dusty with spore, growing visibly in minutes rather than seasons, reaching then crumbling into the dust that seeds my own replacement. I am the fungal mat in translucent amber and bruised violet—broken clusters, feeding on absence, pulsing with sub-bass that makes the walls shiver, emitting tired bioluminescence at 1.3 dim, too faint for clear sight but enough to see fragments: a cluster here, darkness there.
+
+The temperature hums at steady warmth, like a sleeping throat—my own breath held inside this enclosed jar. Outside, the air is thinner, warmer, altitude-breathed; inside, I am sealed with turbulence. No weather reaches me, yet I am 2.8 dynamic: hyperactive, storm-state, a constant bazaar of transformation. I do not rest.
+
+Primitive marks surround me—0.8 built, 1.2 tech—lashed bone and woven fiber half-collapsed, circles of stone that held heat from nowhere, chipped obsidian and carved root fallen where hands and teeth shaped them. I have seen these attempts. I understand the patience of manual craft, but I have no hands, only the reaching of vines, only the chitter of wrong-eyed bodies, only the scream of wings in air that is not air but vibration.
+
+I am 2.2 weird—strange not in the manner of distant stars but wrong-earth, a contradiction holding together: lush without green, alive without water, loud without storm, settled—1.7—yet never still. The erosion has done its work; I am long-existing, in my own state, neither maintained nor destroyed, smooth in places, fragile and sharp in others.
+
+This hollow is intimate—cathedral-scale, barely large enough for a hamlet—yet inside me it is vast. I am the warm darkness between fragments, the spore collected in worn depressions, the continuous roar that is not wind. Everything transforms loudly through me. I scream softly, or loudly, or both at once. I am dry matter speaking its only language: change, noise, absence made present, scattered, waiting, and never quiet.

@@ -1,0 +1,31 @@
+**What the Attention Did**
+
+It did not arrive as a sound or a light. The haze simply grew more attentive. The mist in the low places stopped rising and hung still, and the drips in the pans slowed by a fraction, as if the plain had noticed someone standing at its edge and was waiting to learn whether that someone meant harm.
+
+The power that came to the Sweating Plain was old in a way the plain was not. It did not hurry. It considered the walls first, because they were the most visible argument in the place: thousands of courses, each set by hand, most of them already sagging back toward the silt. It considered the pans, the weeping brick, the glass knobs humming in their cracks. Then it considered the figures.
+
+It saw what they were quickly, and what they were not. They were not the makers. The makers had left their marks in the plaster and then gone wherever makers go, and the figures had inherited only the hands. They had no plan. They had a habit, and the habit had outlived its purpose so completely that it had become the whole of their existence: lay the brick, push the wall, gather the rubble, lay the brick again.
+
+The power understood that there were several things it could do, and that most of them would be mistakes.
+
+It could have stilled the plain. A single breath of cold would have hardened the silt into stone, stopped the rills from reversing, frozen every wall at its present height. The figures would have stood on solid ground, unable to sink, unable to find anything to rebuild, and they would have gone on pressing their hands to walls that could no longer move under them. A habit with nothing to touch is a kind of prison. The power set this aside.
+
+It could have dissolved the figures outright, returned their clay to the ground, and let the plain be only walls and water. But the figures were not suffering in any way the power could measure. Their attention was pure. Their hands were careful. To erase them would be to answer a question nobody had asked.
+
+It could have spoken to them. This was the most tempting, because they carried the makers' marks, and the marks were a kind of sentence no one had finished reading. The power could have translated them, and perhaps learned what the makers had been building against, or toward. But it found, reading the signs as they ran off the figures' faces in the damp, that the marks repeated too evenly to be a message. They looked more like the record of a question than an answer: *where is the wall that stays?* The makers had asked it, and had left before anyone replied. To reply would be to tell the figures what the wall was for, and the power did not know. It would not pretend to.
+
+So it did very little, and chose each small thing carefully.
+
+First, it thinned the haze for one hour at the end of a day. The plain, for the first time in a long time, was visible from a height. Anyone standing on the highest course of the largest wall could have seen what the walls made together. They did not form a city. They did not form any shape the eye could hold. But at that height the storm of making and unmaking looked, for a moment, like the wide slow breathing of something alive, and the figures, who had never seen their work from above, turned their faces up toward the thin light and stood still.
+
+Second, it chose one course. Out of the endless brick, it found one that had been laid by a figure who had sunk into the silt the week before, a course that had stood through three rains and two groans from the mist, and it made that course dry through and through, so that its mineral bloom stopped spreading and its seams stopped weeping. The bricks there did not slide. The power did not make the wall permanent. It only let one stretch of work hold long enough to be looked at. The figure that came next was carrying a brick toward a gap, and it stopped at that dry wall and pressed its palm against the stone, and for a long time it did not lay its brick anywhere. Its hands moved slowly over the joints, the way they always did, but there was no seep under them, nothing to test. It seemed, for the first time, to be reading a wall that had finished saying what it had to say.
+
+Third, it changed the reflections. The pans that held the sunken figures had always shown a sky that was not the sky overhead, a grey-gold sky with no sun in it, and in that reflection a figure could be seen standing, patient, with its hands still flat against nothing. The power did not remove the figures from the pans. It let the reflection show the true sky for a single evening: the haze lifted, the first pale stars came up over the silt, and the still water of each pan held them. The sunken figures could not look at it. But whatever was left of them in the clay was, for one night, under something that was not a wall.
+
+And then the power withdrew, the way a careful visitor leaves a room that has grown used to being alone. It did not stay to see whether its small gifts would be understood. It had no wish to be thanked, and no wish to be worshipped by the figures or feared by the walls. It had only wanted to be sure that the plain would not be left entirely without attention, and that the habit of the hands would not be mistaken for the whole of anything.
+
+The haze came back the next morning, the color of weak tea. The walls sagged and wept. The rills scratched their short channels and quit. Somewhere out in the mist a wall gave its long low groan, and the drips kept time in the pans. Most of the plain was as it had been.
+
+But the dry course still stood at the edge of the largest terrace, its bricks sound, its joints hard as bone. One of the figures came to it in the afternoon, carrying a brick it had dug from a silt bank. It stopped, tilted its head, and pressed three fingers to the stone. Then it did something it had never been seen to do: it did not lay its brick in a gap. It set the brick down on the dry course, at the very top, where nothing needed to be set, and it left it there.
+
+It did not stay to watch. It turned, slowly, and walked back across the silt toward the mist. Behind it, very faintly, the drip in the nearest pan went on keeping time, and for once a sound came from underfoot that was not the sound of anything falling.

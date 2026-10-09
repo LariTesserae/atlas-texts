@@ -1,0 +1,9 @@
+Here, there is no inhabitant—only the architecture of absence, and the machinery that preserves it.
+
+What lives is not living. It is the settlement itself, emptied before arrival, its post-modern skeleton suspended in black water that hangs like a wall rather than a floor. The lattices and corridors—scattered with the low density of a town that remembers people—do not shelter anyone. They organize emptiness. They maintain themselves, emitting that faint cyan breath, not running but negotiating, holding the chamber in invariant equilibrium where dynamics are locked at 0.2 and nothing is permitted to change.
+
+The young ground supports no growth. The basalt pools, the glass formed from refusal, are bare of moss, fungus, crawl—anything that might claim residence. Even the darkness is a kind of occupant: near-total, scaled to 0.4, punctuated only by stored decisions glowing faintly in mineral walls and the ghost-gleam of technologies that have outgrown purpose. What sound exists—quiet at 0.8—is the distant tonal chime of pressure balancing itself, the near-silent click of nanoscale repair occurring without urgency.
+
+Rare fauna drift in the high liquid darkness—translucent, theoretical, too scattered to form life—perhaps organisms, perhaps instruments that have forgotten what they were made for. They do not live *here*; they are merely not excluded, suspended like the unmoving rain in columns that never reach bottom.
+
+The place is inhabited by its own contradiction: submerged without wetness, urban without population, sharp with youth and permanently old in its refusal to age. Space curves gently wrong, arranged like blocks but traveled like ocean depths. The membrane of still black water admits, but does not welcome. What resides is the stillness—dynamic in name only, cool, high, silent—preserving this small cathedral of suspended absence against the collapse that should have already come.

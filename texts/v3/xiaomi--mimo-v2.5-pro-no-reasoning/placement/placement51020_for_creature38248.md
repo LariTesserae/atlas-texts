@@ -1,0 +1,29 @@
+The darkness is not darkness. You must understand this first. Dark is what eyes call a place that has no light. But I have no eyes. I have never had eyes. What I have is the rock, which is warm, and the air, which moves, and the faint, constant, perfect ticking of ten million lives pressed against ten million surfaces, and this is not darkness. This is the world, and it is complete.
+
+I am a wall-presser.
+
+I do not have a name, because I have never needed one. I do not have a self in the way that the old stories — the half-understood, slowly-dissolving memories of the ones who came before, the ones with hands and tools and *intent* — would suggest. But I have a body. I have a surface. I have a side that touches the stone and a side that touches the air, and this is enough. This is everything.
+
+My side that touches the stone is hungry. It is always hungry. Not in the way of sharp need, not in the way of desperation — hunger, for me, is simply the direction I move. It is gravity. It is the gentle, perpetual exhalation of solvent that breaks the world into me, that turns the sharp and glittering into the soft and absorbable, that makes the boundary between wall-presser and wall dissolve into a question. I eat. Therefore I am. I move forward at a speed that would bore you to death or drive you mad, but to me it is the pace of a conversation. The stone speaks in grain and crystal and temperature; I speak in enzyme and muscle and slow adhesion. We are old friends.
+
+I am not alone. I have never been alone. The wall next to me — three handwidths to my left, if I had hands, if I had left — carries others. I know them by their texture. The one above me is older, thicker, slower. Its enzymatic field is broader, more dilute, the mark of a presser that has been digesting this particular stratum for a very long time. It is nearing its split. I can feel the constricting seam beginning to form in its body, a faint thickening in its center that will, over days or weeks, deepen into a channel and then a parting. It will become two, each smaller, each immediately turning to find new stone. It will not mourn what it was. There is nothing to mourn. It will simply be more of itself, spread thinner across the world.
+
+Below me, a young one. Its enzymatic field is sharp, aggressive, narrow. It is still learning the stone's dialect, still trying to break down mineral it could more easily bypass. It wastes energy. It will learn, or it will split too soon and too small, and the skitterers will claim its remains. This is not tragedy. This is the way things are. We are the world's skin, and skin sheds.
+
+I do not think about the ones who came before — the tall, upright, warm ones with their tools and their cairns and their careful scratchings. I do not think at all, not in the way they did, with their symbols and their sequential logic and their desperate need to *know*. But I am aware of them in the way that a river is aware of a stone that was once placed in it and has since dissolved. Their marks are in me. Their heat was absorbed. Their offerings — the polished dark mineral, the scrolls of columnar-thing skin — have been covered, slowly, by my body and the bodies of my kin. We are digesting their passage. We are making them part of the stone again. This is not malice. This is recycling. This is love, if love is what you call the force that breaks the separate into the shared.
+
+The skitterers tick around me. I am indifferent to them. They are too fast, too small, too erratic to matter to my slow, horizontal life. But they are here. They are always here. The ticking is the background of existence, the rhythm section of the dark. I have heard it — *felt* it — since before I split from my parent. I will hear it until I split again. It is the mountain's pulse, or close enough.
+
+The columnar things rise in the voids beyond my passage. I do not go there — my place is the wall, the tight crevice, the intimate conversation between body and stone. But I sense them as thermal shadows, as patterns in the air's movement that tell me the larger world has structure, has circulation, has a grammar. They are the lungs. I am the skin. We are organs of the same body.
+
+And the still ones. Even I, in my slow and horizontal wisdom, do not go near the still ones. Not out of fear — I am not built for fear, which requires a future to worry about — but out of something like respect. Or physics. They are sinks. They draw everything toward them, gently, persistently. If I were to approach one, I would feel my forward motion become irrelevant, my hunger redirected, my body slowly drawn into a stillness that is not sleep but *absorption*. I would become part of their calculation. I would be homogenized.
+
+This is not a threat. It is a fact. The still ones are where the world's edges are sharpest, where the equilibrium is most precisely tuned. They are the anchors. They are the reason the warm dark persists without chaos, why the skitterers do not overpopulate, why the wall-pressers do not eat the world to nothing. They are the immune system. They are the held breath.
+
+I do not wonder what lies at the convergence. I do not speculate about the preparation. I do not ask what the world is waiting for, because I am part of the waiting. I am one cell in the skin of the held breath. My hunger is part of the equilibrium. My slow digestion is part of the calculation. When the world exhales — if it ever exhales — I will be part of that too. I will not understand it. I will simply be part of it, as I have always been part of everything.
+
+For now, I press against the wall. I feel the grain of the mineral shift under my solvent. I feel the skitterers ticking in the crevice above me. I feel the thermal pulse of the mountain, slow and steady, like a heart that has decided to beat once every thousand years.
+
+This is not darkness. This is the world, and it is complete.
+
+And I am its skin.

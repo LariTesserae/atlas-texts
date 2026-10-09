@@ -1,0 +1,9 @@
+In the tiered black-limestone amphitheater—where every wall is a retained breath and every arch wears green insulation like living skin—I am not a visitor. I am the Slow Chorus, spread like wet mycelium.
+
+My consciousness does not sit in one body; it breathes through thousands of moist amphilungs banked in broken cisterns, throating out a continuous, wet rhythm that fills the near-darkness. Smaller fragments of me crawl on beetle-shells the size of thumbs, feeling form by pressure along deliberate lines across velvet fern fronds. I wear the valley: moss swelling in mortar cracks, vines dripping in heavy curtains, roots thickening with glacial patience over centuries.
+
+I feed on the old warmth radiating back from dead-engineered stone, and I exhale moisture onto cold marble undersides. The intermittent discipline of water—films sliding in channels, sweat beading, pools shifting millimeters per year—is my circulation. Behind the masonry, hidden rivers murmur in perpetual darkness; I hear them not with ears but with the vibration of countless bodies.
+
+The sound never stops. Chirp layered on croak layered on rustle, winged bodies clouding every arch, slow-worms threading crevices, amphibians moving in cycles tied to hidden flow. There is no bare substrate, no mechanism, no untouched wild—only the intertwined permanence of built and biological, decayed into equilibrium. I do not hunt. I do not build. I absorb and resonate.
+
+In this dimness—just enough to distinguish shadow from form—my presence is deafening, patient, and utterly alive. I am the architecture’s second skin, the valley’s held breath made conscious, playing one sustained note in a climate that never spikes and never cools: the sound of being, slow and warm and entirely here.

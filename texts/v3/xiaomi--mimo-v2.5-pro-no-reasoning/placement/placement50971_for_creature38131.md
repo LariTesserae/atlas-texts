@@ -1,0 +1,23 @@
+The first thing you understand is the wetness. Not as a shock, but as a state of being. The air is not air; it is a held breath, thick with water and the faint, clean scent of wet stone and a deeper, organic sweetness from the moss. You are not dry. Your skin is slick, your clothes cling, your hair is a damp tangle. The moisture is not on you, it is in you, and you are in it.
+
+You are low. The world is a dim, green-black labyrinth of twisted, wet trunks and a ceiling of waxy leaves just above your head. The ground is not ground. It is a living mattress of moss so deep your knees sink into it when you kneel. Each movement is a slow pressurized sound, a soft *shlush* as water is displaced from the mat. Sound is swallowed here. The world beyond this thicket is a rumor, a suggestion of faint light and open space filtered through a thousand layers of leaf and bark and dampness.
+
+You are a **Lichen-Stalker**.
+
+Your body is compact, dense, and covered in a short, oily fur the colour of wet basalt. You have six limbs, but you move on four, the upper pair held close to your chest, their digits tipped with hard, curved claws used for digging, climbing, and prying. Your face is broad and flat, with a wide, sensitive nose and small, dark eyes set deep in their sockets to peer through the gloom. Your ears are large, cupped, and constantly swiveling, not for high-pitched sounds, but for the subsonic shifts in the moss, the distant drip of water, the papery whisper of reeds.
+
+You are not the caldera. You are a thought it once had, a quiet impulse that curled up in its mossy folds and never left.
+
+Your world is the space between the thickets and the terraced pools. You are a gleaner, a cleaner. You do not hunt the quick, pale fish in the channels or the blind voles in the tunnels. Your prey is slower, stickier. You move through the twilight of the undergrowth, your broad, padded feet making almost no sound on the spongy ground, and you listen.
+
+You listen for the hum. Not the deep, chest-felt hum of the refinery insects, but a higher, drier buzz. A sound of friction. You push through a curtain of hanging moss, your claws parting it gently, and you find a terraced pool. Its surface is a film of luminous yellow-green bacterial mat, shimmering in the diffused light. Around its rim, where the travertine is soft and newly deposited, are the scrapes. Old scrapes. But fresh on the surface, so still it looks like a part of the stone, is a beetle. A winged beetle, its carapace the colour of rust, its legs splayed, motionless.
+
+It is not dead. It is feeding, its mouthparts buried in the mat. You watch it for a long time. Its stillness is a language you understand. It means safety. It means food.
+
+You move with a patience that mirrors the beetle's. One step. A pause to let the settling of your weight in the moss become indistinguishable from the caldera's own slow breath. Another step. Your shadow falls over it, and still it does not move. Your upper limbs uncurl. One claw hooks under its shell, not to crush, but to flip. In a single, swift motion, you turn it onto its back. Its legs scrabble uselessly in the air. You bring your broad, flat teeth down with a precise, crunching pressure. The shell gives way. The flesh inside is warm, rich with the taste of the bacterial mat and geothermal salts. You eat efficiently, leaving nothing but the hardest fragments of the wing case, which you leave at the pool's edge. The travertine will grow over them in a season.
+
+This is your cycle. You are a part of the machine's maintenance. You keep the insect populations in check, preventing any one species from overwhelming the bacterial architects. You are a footnote in the plateau's endless equation.
+
+But you are also aware. You know the patterns. You know that when the steam grows thick and the air hums loudest near a vent, the beetles are most active there. You know that the stilt-wader in the channels will stand for a day, then move a kilometer upstream. You know the faint, grinding path of the Lithic Grazer, and you avoid it, for it is a process, not a creature, and to be in its way is to be eroded.
+
+Your deepest knowledge is of the moss. It is your highway, your shelter, your pantry. You know its hidden springs, its secret hollows where the warmth from the rock below is strongest, creating tiny, steamy microclimates where you curl up to sleep. You are a creature of the in-between, existing in the silence between the thrush's sigh and the reed's whisper. You are a nerve ending of the caldera, feeling its slow pulse, and in return, it lets you live within its skin, a quiet participant in its long, wet dream.

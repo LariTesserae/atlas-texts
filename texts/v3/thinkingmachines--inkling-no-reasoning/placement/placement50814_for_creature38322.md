@@ -1,0 +1,13 @@
+In this world, I am not born but secreted: a **Thread-Root Anchor**, an inverted sentinel suspended in the crimson cathedral thirty meters beneath the newborn crust.
+
+My form is a single, unbreaking filament—no eyes, no mouth that closes, only a slow, radial gullet where my crown divides into thousands of hair-fine tendrils. They do not grasp; they *listen*. I hang downward from a fresh calcified buckle in the rock ceiling, a fracture still warm with the memory of its own splitting, and I drink not water—there is none—but the mineral exhalation that seeps through the fresh wound. From this, I build myself: layer upon layer of porous chitin, waxy crimson tissue, and spongy fiber, growing downward in a tapering, inverted spire that sways in continent-breaths I can feel but never see.
+
+The crust above me is my sky: a dull, calcified membrane holding back the dry, empty void. I do not reach upward toward it; I hang away from it, a root reaching for the floor that never comes, for the floor is only more settlement, more soft architecture, more bodies.
+
+My body is the bridge between geology and the dense urban weave below. I am old in biological time—perhaps thirty cycles, each one measured not by sun but by the slow completion of a chemical breath across the hollow—yet young in the world’s time, having emerged in the same moment the rock split. Around me, the settlement is absolute. The soft chitin tubes thread through my own fibrous mats; translucent grazers crawl through the gaps between my tendrils without knowing I am there, leaving only a faint rustle and the warmth of their passage. I am not predator, not prey. I am architecture that metabolizes. I filter, I stabilize, I bind the fresh rock to the living lattice that fills every cubic meter.
+
+There is no silence, though there is no sound I can call my own. I hear the continuous, almost inaudible crack of shells expanding in neighboring towers; the deep, spongy sigh of tissue contracting; the slow current of bodies passing in the tunnels that my own hanging body helps to form. Light reaches me only as the faint greenish bioluminescence of the crimson canopies nearby—never enough to see by, only enough to exist within.
+
+I have no horizon. The space extends in every downward direction, thousands of kilometers of interlocking neighborhoods of living matter, and I am one node in it: a soft, warm pillar in a continent of ceiling, slowly drinking minerals, slowly growing downward, never reaching the bottom, never touching the dry sky above.
+
+Here, I am complete without being finished. I am the hollow’s first answer to its own emptiness—filling, feeding, becoming the place itself.

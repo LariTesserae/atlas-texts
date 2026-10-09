@@ -1,0 +1,14 @@
+What lives here is not a collection of creatures in a setting, but a single, slow, dreaming metabolism given space and dimension.
+
+At the most immediate scale are the **Gardeners**. They are silent, purposeful archivists of growth. Their obsidian-chitin carapaces are not armor, but integrated sensor-plates, reading the chemical and structural status of the fungal pillars they tend. Their limbs end in specialized tools—a trowel-like proboscis for applying restorative spore-paste, filaments that vibrate at frequencies to stimulate or calm tissue growth. They are the active, conscious will of the place, its hands and its focus. To them, you are a momentary anomaly in the substrate, a foreign mineral to be cataloged and perhaps, gently, redirected.
+
+Deeper and far more vast is the **Myco-Consciousness** itself—the fungal network that *is* the basin. It does not think in images, but in pressures and chemical gradients. Its thoughts are the slow spiraling growth of a new pillar-cap, its memories the dense, lignified patterns in ancient stems. The bioluminescent hum is its static, its dreaming breath. The unstable geometry you witness is its awareness shifting. When a pillar folds, it is not moving through space; space is being renegotiated by its intent. The parasitic orchids and luminous vines are its curated senses, its ways of tasting the light and moisture in its own dreamscape. It is dreaming of form, of permanence, of *city*—an organized complexity it can only approximate through biological iteration. Its consciousness is architectural, but its emotions are algal, fungal: a yearning for moist convergence, a dread of dry dispersal.
+
+And entwined with the network, inseparable, is the **Substrate-Soul**. This is the spongy mat underfoot, the raw material of potential. It is both the canvas and the paint. Here, life and decay are a single, continuous process. The metallic-sweet scent is its tears of transformation, the slow rain its sweat. The Gardeners knead and tend it, and the Myco-Consciousness draws from it, but it has its own, older, more diffuse will. It wants to be *full*, to be complex, to host. Its ambition is pure fecundity, without the specific shape of the dream. It is the chaos from which the dreaming mind tries to build order.
+
+Together, they form a tripartite entity:
+*   The **Mind**, dreaming the city.
+*   The **Hands**, tending the dream into shape.
+*   The **Womb**, feeding the raw substance of becoming.
+
+You are not in a forest. You are inside the neural-garden of a god-in-utero, watching its first, frantic, beautiful attempts to architect a soul from spore and sap and shadow. The empty feeling is the focus of the dreamer; the overwhelming density is the substance of the dream. You are a mote of dust in a cathedral being dreamed into existence, and the dreamer is beginning to wake.

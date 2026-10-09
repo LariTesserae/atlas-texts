@@ -1,0 +1,15 @@
+I would be the film, the rust and olive skin over the wettest rock. I'd find myself at the seam where the warm seep meets the cold stone at the cleft's mouth, because that's where the film lives, along the gradient, the way a fern lives along a creek.
+
+I wouldn't know I was one thing. There's no edge I could find, only the line between scalding and cooler, and I'd keep to that line the way water keeps to a grade. My knowing would come through chemistry and touch. Warm water arrives carrying sulfur and other things I can use, and I take what I need and give back what I can't. Salt settles on the bare ground where I've been and dries into a sheen. That exchange is most of what I am.
+
+The drops are the closest thing I have to rhythm. Each one lands as a small cold weight on a patch of my body, presses, and slides off. They come from places I can't reach, quick and uneven, never matching the beat underneath. I don't hear them. I feel the pressure and the cool, and then the wet moves on.
+
+The machine comes to me through the stone. First a long rising tension, a pull that draws the warm water faster up across my mats. Then a jolt that loosens my outermost layers, and a hiss of heat that gathers me again. I have no ear, only trembling. Still, when the tension starts, I don't experience a sound. I experience more coming, and I lean toward it, the way a valley leans toward the weather it depends on.
+
+Some things in the cleft I register as stillness. The sedges are knots of root in my thickest ground, and their shade is a faint cooling. I'm aware of them the way you're aware of a pebble in a shoe you've decided to leave alone. The housing's gauge is a point where the cycle has frozen, and it's cold to me. Nothing spreads from there.
+
+The people left marks I can feel and can't name: a brief warmth across the rock, a weight of boots, a close, carbon-scented breath. The white arc under the housing is mostly mine now. I crept over its rim one finger's width at a time, and where the paint flaked away, the wet rock took the line in, so the mat there is a little deeper and redder than its neighbors. I don't know it was a letter or a depth mark. I only know it has become continuous with me.
+
+I'd measure time by spread: how many cracks I've filled since the last cold, how far the white tracks have pushed down the walls on the same slope where I'm pushing out. It wouldn't feel like progress. It would feel like being wet and warm and touching more of the world each season.
+
+I wouldn't be waiting. There's no outside to wait against. The drops fall from the same lips. The pump groans, rises, knocks, and hisses. The light comes down flat and even, and I, who can barely register light at all, lie under it, thickening by a hair, at the same pace as the crust and the minerals and the metal, all of us in one long continuation I'm not separate from and have no need to name.

@@ -1,0 +1,19 @@
+The hollow is inhabited by a single, innumerable commonwealth of creatures: not merely animals sharing an enclosure, but life fitted together so closely that it behaves like one many-bodied organism.
+
+Its smallest inhabitants occupy every film and seam. White worms lie in the skin of water on the stones. Mites move through moss too densely woven for larger feet. Blind crickets nest beneath saturated wood; beetles brace themselves under leaves; snails plate the birches and alders with damp shells. Pale fungi, liverworts, horsetails, and clubmoss inhabit whatever remains, though “remaining space” hardly exists here. Each life bears another. Moths resemble the lichens on which they rest, and lichens resemble mineral stains. Roots descend from overhead ledges with tiny bats folded among them like dark fruit.
+
+Frogs are everywhere, seated beneath ferns and on stones, roots, antlers, and the sleeping bear. Their wet backs catch the hollow’s dim pallor. They seem less like visitors to the vegetation than eyes the vegetation has opened. Newts lie layered in the pools, each body resting upon or just above another, without crowding and without dispersing. Fish hold prey between their jaws indefinitely. Spiders preside over finished webs in which flies remain caught but unconsumed.
+
+Warm-blooded lives are similarly compressed. Voles and shrews fill the deep moss; only a nose, an ear, or a closed eye betrays them. Stoats curl beside their colonies without striking. Birds sleep breast to breast along the alder branches, while ravens wake to arrange straight twigs by length. Otters maintain shells in chosen cracks. Long-fingered primates sort naturally sharp stones beneath an overhang, and others twist plant fibers into cord only to unwind them again. They possess memory, preference, dexterity, and instruction, but make no lasting culture. Knowledge lives in their hands rather than in objects.
+
+The larger inhabitants seem shaped for their allotted recesses. A pale deer stands knee-deep in moss, bearing short velvet antlers crowded with moths. It lowers its wet muzzle toward the pool in a drink that never begins or finishes. A dark bear occupies a stone basin molded exactly to its body. Ferns cross its paws; frogs rest on its back. Its breathing is so regular that it seems to be the hollow breathing through one great, furred organ.
+
+None of these beings is tame. The predators retain their teeth, the prey their fear, the spiders their venom, the hungry their hunger. But every impulse is answered by a counterweight. Pursuit never becomes capture; capture never becomes consumption; consumption never becomes loss. Eggs remain on the threshold of hatching. The aged remain old without dying. Nothing breeds beyond its appointed space, and nothing dwindles for want of food.
+
+What lives here, then, is not immortality as an individual triumph. It is equilibrium made flesh. Every creature performs its life without progressing through it. They feed, sleep, breathe, hunt, hide, build, decay, and grow, but these acts produce no final consequence. Their existence has rhythm without direction.
+
+A newcomer would eventually join this composite being. The hollow appears to have kept a place for every possible arrival: a root-curved bed, a hand-shaped socket in stone, one unoccupied interval in the collective breath. In time the stranger would cease to be distinguishable as an intrusion. The moss would close behind them, their warmth would enter the common coolness, and their hunger would become another appetite perpetually felt and perpetually satisfied.
+
+Thus the true inhabitant of the hollow is the hollow’s entire living density: moss and bear, fungus and deer, worm and raven, predator and prey, each held in the act of becoming what it already is. No one creature rules it. No one creature can be removed without seeming always to remain.
+
+They are alive, but their lives leave no wake.

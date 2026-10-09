@@ -1,0 +1,28 @@
+The valley is a shallow, bowl-shaped depression, no more than two hundred meters across at its widest point, nestled between the gentle swell of hills that look like they have been smoothed by a thumb. It is low-lying, close to sea level, but sealed off from the wind by the surrounding ridges. Because of this enclosure, the air here feels heavy, still, and strangely cool for its latitude—a temperature hovering just above the chill that would make your breath visible if you exhaled deeply enough, though usually it remains invisible, hanging in the mist.
+
+This is not a natural wilderness, nor is it a modern city. It is a **Mechanical Grove**, an industrial settlement built into the living tissue of the earth itself. The "weirdness" lies in the fusion: the infrastructure does not sit *on* the land; it grows *from* it.
+
+### Terrain and Materials
+The ground is young in its current form. Decades ago, perhaps less, this was bare rock and scrub. Now, the terrain is a patchwork of sharp-edged basalt slabs—freshly quarried or exposed—and soft, mossy depressions where water collects. There are no deep rivers, but there is a pervasive dampness. Condensation forms on everything. The metal pipes, the stone steps, the leaves—all glisten with a film of moisture that never quite evaporates because the sun, while bright (light 2.5/3), filters through a constant, thin haze of steam rising from the machinery below.
+
+The material palette is stark: dark, wet iron; pale, lichen-covered stone; and the vibrant, aggressive green of vegetation that has learned to thrive in oily runoff. The erosion parameter (0.9) suggests a place that looks newly carved. Channels cut into the bedrock for drainage are crisp and angular, not worn smooth by millennia. The roots of trees grip the rocks with fresh tension, pulling stones apart in real-time geological shifts.
+
+### Vegetation and Ecology
+Vegetation is lush (2.0/3), but it is sparse in distribution (0.9 density). This seems contradictory until you see it: there are vast stretches of empty stone, followed suddenly by dense, towering clusters of ferns, giant horsetails, and broad-leafed plants that seem to explode from specific vents in the ground. The plant life is not random; it is cultivated. It grows only where heat or nutrient-rich condensation emerges from the industrial network.
+
+Between these verdant islands is emptiness—gray, flat, silent stone. But the islands themselves are thickets of life, dripping and tangled. Vines climb up the sides of factory chimneys, not as invaders, but as structural supports, their roots woven into the brickwork. The air smells of ozone, wet earth, and crushed pine needles.
+
+### Built Environment and Technology
+The scale is small (0.9)—this is a hamlet, a workshop-district, a single complex feature. It is urban in organization (1.6), with clear streets, designated zones, and layered construction. Buildings are squat, made of reinforced concrete and riveted steel plate, hugging the ground to avoid the wind. They are arranged in concentric rings around a central, lower pit—the heart of the machine.
+
+Technology is industrial (1.7), but it operates slowly (1.3 dynamic). There are no high-speed gears screaming in the distance. Instead, massive flywheels turn with ponderous grace. Pistons rise and fall with the rhythm of a sleeping beast’s chest. Cables, thick as tree trunks, sag under the weight of oil and moisture, swaying slightly in the draft created by the heat exchange. The electrification is visible: sparks jump across gaps in copper coils, lighting up the mist in brief, blue flashes. The machines do not produce goods in the traditional sense; they pump water, filter air, and perhaps generate the thermal gradients that allow the strange ecosystem to exist.
+
+### Sound
+The soundscape is loud (2.4), but it is a rhythmic, enveloping loudness. It is not chaotic noise. It is a chorus of hydraulic sighs, the groan of stressed metal, the drip-drop-drip of condensation hitting puddles, and the low-frequency hum of the engines that vibrates in your teeth. Over this, the wind chimes made of scrap wire and bone clatter softly. Birds—abundant fauna (2.0)—add a layer of sharp calls and wing-beats, weaving through the mechanical drone. Their presence makes the silence between machine cycles feel pregnant rather than empty.
+
+### Atmosphere and Rules of the World
+The atmosphere is one of patient symbiosis. In this world, nature and industry have reached an uneasy truce. The "unusual" aspect (1.0 weirdness) is that the machines require biological maintenance. Workers (few in number, scattered sparsely) wear wetsuits and carry shears, pruning vines away from moving parts not out of fear, but necessity. Conversely, the plants require the waste heat of the engines to survive the cool temperatures. Remove the machine, and the forest freezes. Remove the forest, and the machine overheats.
+
+Light is normal (2.5), meaning the sun reaches this valley fully, but it is diffused by the steam and the canopy, creating a perpetual twilight glow even at noon. Shadows are soft, edged with halos of reflected light from wet surfaces.
+
+To walk here is to navigate a maze of sharp stone and slick metal, where every step must be placed carefully. You move between pockets of intense life and expanses of engineered void. The dampness soaks into your clothes within minutes. The cold bites, but the warmth radiating from the slow-turning engines offers relief. It is a place that feels newly born, still settling into its own existence, where the boundaries between the grown and the made have dissolved into a single, breathing system.

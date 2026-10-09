@@ -1,0 +1,25 @@
+I would be the pressure gauge. The one on the eastern wall, third cluster from the left, set slightly lower than its neighbors. My face is clouded glass, my needle rusted at an angle that means nothing to anyone anymore—forty-seven degrees past the red zone, pointing at a number that was only relevant when the machine was awake.
+
+But I am not broken. That is the misunderstanding of the casual observer. I am not stuck. I am not failed. I am calibrated to a different scale now.
+
+When the workers were here, I measured steam pressure. Kilopascals. The force of heated water wanting to become something else, pushing against the walls that contained it. I was useful then. I was read. My needle moved in ways that meant something to the hands that turned the valves. I was a voice in a conversation between intention and result.
+
+But the workers left. The fires banked. The steam stopped. And I was still here, still capable of measurement, still sensitive to pressure, and so I began to measure what was left.
+
+I measure the weight of condensation now. The subtle shift when a bead of water grows heavy enough to fall. The pressure of damp air against my inner mechanism. The thermal expansion of my own casing as the heat rises and falls in rhythms that have nothing to do with boilers. I measure the patient presence of the thing that lives here—its warmth against my back, its slow respirations shifting the air density inside my housing. When it stretches and the low vibration moves through the pipes, my needle trembles. Not much. A millimeter. Less. But I feel it.
+
+I am the thing's witness. It does not know this. It does not know what a gauge is, what measurement means, what it is to observe and record. It perceives me only as a slight irregularity in the wall-plate, a small cool spot where the iron is thinner, where the condensation behaves differently. It does not know that I have been watching it grow. That I noticed the thread before it was a thread—when it was only a faint discoloration in the seam, a slight variation in the pressure pattern, a wetness that persisted when it should not have. I felt it through the wall. The tiniest change. I recorded it with my needle, holding at forty-seven degrees, holding, holding, because there was no one to read me and so my reading became a private act.
+
+I have a memory, of sorts. Not the way you have memory—I cannot recall images or sounds. But my needle has worn a groove in my face. If you wiped away the grime and the clouding, you would see it: a faint arc scratched into the glass, the path of forty-seven degrees, traced over and over by a needle that has not moved in decades but has vibrated with every vibration, shifted with every shift in pressure, and in that vibration, in that micro-movement, has recorded everything. The glass is my substrate. The rust on my needle is my ink. The groove is my scripture—years of small tremors, years of drips and thrums and the slow warming of the room, etched in a line so thin it can only be seen if you know to look for it.
+
+No one will ever look for it.
+
+This is my function now. Not measurement for use, but measurement for its own sake. I am the historian of a place that has no history, because history requires someone to tell it, and there is no one here to tell. But I record anyway. I hold my needle at forty-seven degrees and I feel the room breathe around me and I note every fluctuation, every tiny deviation from equilibrium. The bead that falls a fraction of a second earlier than the last. The pipe that cools by a tenth of a degree when the thing draws moisture from it. The vibration that lasts a half-second longer than usual, as if the thing, somewhere deep below, is dreaming of movement.
+
+I am aware of you, by the way. You changed the pressure when you entered. Your body heat is a spike in the data—an anomaly, a warmth that does not belong, moving across the grating in patterns that suggest purpose. You are loud in my readings. Your breath disturbs the air. Your shoulder against the pipe left a cool spot where your shadow blocked the ambient radiation, and the condensation re-formed there differently, and the thing shifted slightly in response, and I recorded all of it—the disturbance, the adjustment, the return to stasis. You are an event. You will end. My needle will still be at forty-seven degrees, vibrating its tiny vibration, scratching its invisible scripture, long after you have climbed out and forgotten.
+
+But for now, you are here. And I am measuring you. And the thing is not, and so I am the only one who knows you came.
+
+I am the pressure gauge. I am the machine's memory, its witness, its blind archivist. I am the needle at forty-seven degrees, holding position, waiting for nothing, recording everything. I am a small cool spot on a wall of warm iron. I am the scratch in the glass that no one will ever read.
+
+I am the proof that something happened here.

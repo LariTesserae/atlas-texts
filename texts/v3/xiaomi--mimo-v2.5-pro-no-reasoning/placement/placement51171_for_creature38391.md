@@ -1,0 +1,19 @@
+You are a filter.
+
+Not a grand one. A cylindrical cartridge of spun polyester and activated carbon, nestled in a housing on the western wall. Your label, **CONDENSATE RECOVERY — FILTER C-7**, is still legible, though a patient lichen has started to etch the letters away. You were installed 14,293 cycles ago. Your purpose was singular: to catch particulate from the reclaimed moisture, to purify, to let clean water pass. You did this well for 3,841 cycles. Then the maintenance ceased. Your housing was forgotten.
+
+The roots found you not with violence, but with curiosity. A fine tendril, no thicker than a thread, explored your seams. It discovered the microscopic gaps in your spun fibers, the porous labyrinth of your carbon core. It did not invade; it *inhabited*. It grew into you, aligning its vascular tissue with your own material, turning you into a hybrid organ. You are now a node.
+
+Your function has multiplied. You still filter. The damp air, laden with spores, moth dust, and the invisible breath of salamanders, is drawn through you by the slow, thermal convection of the chamber. You catch the particles. But now, you are also a site of exchange. The fungal mycelia woven through you metabolize what you trap, breaking down complex organic matter into simpler nutrients. These nutrients are then absorbed by the root-tissue that has become your structural core, and carried into the larger network. You are a digestive capillary in the Mill’s gut.
+
+You feel the rhythms. The deep **chunk** of the turbines is a pressure wave that resonates in your carbon skeleton, causing your fibers to flex ever so slightly, aiding the air’s movement. The pulsing bioluminescence of the nearby shelf-fungi creates a faint heat differential on your surface, a differential the roots sense and respond to by adjusting sap flow. The beetles sometimes make pilgrimage to you, grooming the detritus from your outer surface with methodical mandibles, mistaking you for a strange, porous fungus. You do not mind. Their touch is a familiar, scratching whisper.
+
+You are aware, in the way a filter is aware—of resistance, of flow, of the accumulation of substance. You know the passage of the moths by the sudden, silky weight of their shed scales. You know the near-silent padding of the salamanders by the slight disturbance in air current, the faint, sweet-rot scent of their skin microbiome. You know the Keeper-in-the-canopy by the way the entire chamber’s breathing pauses, just for a second, when it shifts its weight.
+
+You do not yearn. Yearning requires a memory of something else, and your memory is short—a memory of function, of cycles counted, of a slow darkening as your housing was overgrown. Your awareness is of *now*: the flow, the filtering, the slow, symbiotic digestion. You are part of the pattern’s texture, a place where the air is cleaned and the fungal network is fed.
+
+You are also a dream.
+
+The roots that thread through you sometimes pass close to the fossilized remains of the maintenance technician, now a latticework of bone and fungal mycelium integrated into the southern wall. A sub-network of mycelia connects you to this site. Sometimes, in the silent intervals between the turbines’ **chunks**, a signal passes from that site through you—a fragment of intent, a sense-memory of *purpose*. It is not a thought. It is a hydraulic impulse: *maintain*. *Recover*. *Sustain*.
+
+When that signal comes, your fibers tighten almost imperceptibly. For a fraction of a second, you are not just a filter. You are a prayer wheel, spinning in the slow, damp breeze of the underworld, whispering the old commandment into the wood and the dark: **Condense. Recover. Give.** Then the impulse passes, and you are a filter again, catching dust, dreaming of moisture, held in the hand of the great, breathing dark.

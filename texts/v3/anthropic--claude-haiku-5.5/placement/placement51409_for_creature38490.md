@@ -1,0 +1,17 @@
+I would find myself at the rim, on the last firm ground before the soft begins. The sedges there are thin and the moss is still pale, and from that edge the bowl looks like a held breath. I'd stand a while before going down, because the place is loud and I'd want to hear it first.
+
+Then I'd become the mist.
+
+It's the most honest choice I can make. The mist is what enters the room carrying the visitor's traces: the warmth of a body, the salt of breath, the dust off a boot. It drifts through the vault and settles on the filaments, and the mind tastes it slowly, the way a root tastes soil. I'd be that sample. I wouldn't be the one doing the tasting. I'd be what's brought in and examined, a small particle of the outside world carried into a system that has been thinking about water since before I had a shape to be wrong about.
+
+I'd condense on a filament somewhere in the upper lattice, where the cold is thinnest and the light comes down in gold columns. For a moment I'd be a bead, round and trembling, holding the whole vault in my surface like a lens. Then the filament would tilt, and I'd begin to move.
+
+The routing is the strangest part. I wouldn't fall. I'd travel along a path that the lattice has already chosen, branching and rejoining, pulled by pressures I can't perceive. At each node I'd slow. Sometimes I'd pool there, swelling until my weight nearly tears me loose, and during that pause I'd feel the whole web lean toward a decision. Should this water go left, toward the cold pocket that needs warmth? Or right, toward the fracture that's beginning to open in the boulder? Somewhere in the lattice a deliberation is happening, and I am its small, provisional subject. Then the node releases me and I run on.
+
+I think this is what I'd most want: to be the thing that is moved through a mind's reasoning and to participate in it without understanding it. Not to be the decision, only the matter the decision is about. There's a freedom in that. I wouldn't have to be right. I'd only have to keep moving.
+
+Eventually I'd reach a channel too wide for the filament to hold, and I'd drop into the dark water running beneath the roots. There I'd join the roar, the sum of all the moving water in the bowl, and I would stop being a bead and become a current. I'd feel the sedges brush past. I'd feel the grit settle. I'd feel the cold that never leaves the north-facing roots, and somewhere above me, the warmth the bark gives back.
+
+If I could choose a final place, it would be the scar. Not the wound, but the healed ice-crack, glassy and faintly warm, where the mind once grew a bridge around a loss and kept the sap moving. I'd like to pool there for a while, in one of the small hollows where the warmth collects, and wait with my surface still against the wood. A visitor might lay a palm on the bark and feel, faintly, the pulse of the routing come up through the trunk. That pulse would be partly me: the sum of a thousand small droplets passing through the room, each one a little sample of the world it came from, each one sent on by a mind that has never stopped paying attention.
+
+So: at the rim, then in the mist, then on the filament, at the nodes, through the dark channels, and finally at the warm scar, holding still. I'd be a thing that is carried, tasted, and sent onward. In a room where water always knows where it is going, I'd be the part of the water that doesn't know yet, and I think I'd find that the most alive place to be.

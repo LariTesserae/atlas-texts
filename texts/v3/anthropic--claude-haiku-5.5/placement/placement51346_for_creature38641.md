@@ -1,0 +1,17 @@
+I wouldn't be on the floor. The floor belongs to things that are finished enough to walk on: the grit, the hummocks, the polished tracks of the herds. I would be in the vault, where the stone is still deciding.
+
+Specifically, I am a drop. I have been swelling at the end of a thread of condensation that paused mid-run, reversed, and has been reversing ever since. I don't know whether that was a moment ago or a long time ago. The seam is a few finger-widths to my left, and its light lies on my surface. I can feel it looking at me. The longer I hold still, the brighter I become, and I can't tell whether that brightness is a reading or an invitation.
+
+Below me the basin keeps its borrowed sky. If I fall, I'll go into it, and the ripples will spread and then gather back toward the place where I struck, and an eel will fold my disturbance into itself. I'll be remembered, then slowly unremembered. I find that restful. Nothing I do here stays a verdict.
+
+A moth drifts close. Each fold of its wings pulls a little light off the lichen and carries it upward past me, and as it passes through my bead the whole chamber appears inside me, upside down: the pale walls, the water, the cloudscape folded into a sphere no bigger than a seed. For a moment I am the only place in the chamber where the sky and the vault agree. Then the moth is gone, and the fold of light goes with it toward the ceiling, and I am a drop again.
+
+The spinner's line comes down through the air beside me, so fine that I see it only where it catches the glow. It touches the vault a hand's width away and the seam flares, brighter than before. I am not being hunted. I am being measured, and I think the spinner is waiting to learn the moment I will decide. I don't know whether that moment is mine to choose.
+
+Here is what I notice about myself: I am not in a hurry either. Gravity may be one of the few settled rules in this place, but the seam keeps closing beneath me, and the landing is not fixed. I could strike a grazer's back and be scraped into the film. I could land on the basin and be taken into the still water. I could slide down a cairn stone and be caught in the fused joint where the stacking was never finished. Each of these is an entry in the tally, and the tally will revise me before I've finished falling.
+
+Sometimes I think I might be the builders' work. The arch has a keystone missing, and its ends curl inward like a question nobody finished asking. Perhaps I am the shape the keystone was meant to take, a single drop of the wrong material that landed in the gap and has not yet decided to be stone. Or perhaps I am the thing the builders meant to shed, the excess the chamber keeps sweeping toward the grazers. I can't tell which. I'm not sure the difference matters here.
+
+The swelling reaches its limit. The seam begins to close beneath me, slowly, as if it were pulling the vault shut around a breath. For one long moment I am neither falling nor held, and the whole chamber seems to pause with me: the grazers stop scraping, the stalks wait without chiming, the eels hold still beneath their sky.
+
+I don't know yet which way I'll go. What I do know is that below me, in the basin, a sound is already spreading outward from a place I haven't reached, and it will come back to the water before I do.

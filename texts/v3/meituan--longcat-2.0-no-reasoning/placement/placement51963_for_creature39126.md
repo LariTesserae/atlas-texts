@@ -1,0 +1,39 @@
+I am one of the Keepers.
+
+Not the oldest—not yet translucent, not yet fused at the joints, not yet so thoroughly architectural that I can't remember what boots felt like before they grew green at the cuffs. I am middle-aged in Keeper terms. My fingers are long enough that I can feel a bearing's wear through half an inch of cast-iron housing. My skin has begun its pale migration toward translucence, faint blue lines appearing at the wrists like the first lichen on a clean wall. I still remember, sometimes, that there was a name I answered to, in the dry city, before the water taught me the real names of things—the pitch of a healthy turbine, the particular groan that means a shaft has walked a quarter-inch east, the temperature of a walkway that says the furnace in Building 7 needs its flue cleared.
+
+I am awake. I am always awake during the deep hours—that's not night, exactly, because the quarter doesn't recognize day or night, but there is a time when the machines settle into their lowest register, when the humming drops a half-tone and the dripping occupies more of the soundscape, and this is when the quarter speaks most clearly. This is when I listen best.
+
+I am in the underlevel of Building 12, poling my flat boat through water the color of steeped tea, and I am listening to the east wall.
+
+The wall is speaking. Not in words—the quarter has no words—but in *dampness*. The moisture pattern on the brick has changed in the last week. Where it was a vertical streak, it is now a spread, a blooming, which means the water is finding a new path through the mortar on the other side, which means the mortar is failing, which means the bricks will begin to shift, which means the load above will redistribute, which means the walkway on the second floor will develop a lean, which means the brackets will torque, which means the bridge to Building 11 will gap at its northern joint, which means the gap will widen, which means—
+
+I place my hand on the wall. The moss is thin here, which confirms it. The mortar is leaching faster than the moss can colonize, which means the water's chemistry has shifted—more lime, less iron—which means the brick is softening faster, which means something upstream has changed. A pipe, probably. A joint opening somewhere in the system, letting through water that hasn't been filtered through the usual length of channel and the usual density of root and rust.
+
+I will find it. Not today. Tomorrow, perhaps, or the day after. The quarter is patient, and so am I. But I have noted it, the way you note a slight change in someone's breathing—not urgent, not yet, but *something*, something to watch, something to fold into the ongoing, endless calculation of what needs tending and in what order.
+
+The boat drifts. I pole it gently toward the junction where Building 12's basement meets the east channel, and I feel the water's current shift against the hull—a change in pressure, upstream, that confirms what the wall told me. Something is flowing that wasn't flowing before, or flowing more, or flowing differently. The quarter is adjusting to a new condition. I am part of the adjustment.
+
+Above me, through three floors of brick and timber and iron, the machines are turning. I feel them in my sternum, in the plates of my skull, in the mineral-rich water of my blood. The quarter's heartbeat. I match my breathing to it, the way I always do, the way all of us do—inhale on the downstroke of the main turbine, exhale on the upstroke, so that my body and the quarter's body are synchronized, so that I can feel a disruption the way a hand feels a splinter.
+
+There is a disruption. Small. Upstream. I will find it.
+
+But first—the flowers in Courtyard 4 are opening. I can smell them from here, through three walls and two floors, the sweetness cutting through the mineral air like a bright thread through dark cloth. I should harvest some. Not for me—I ate yesterday, or the day before, time is soft here—but for the oldest one, the one who lives in the upper room of Building 9 and whose fingers have fused to the point where they can no longer manage the delicate work of plucking a blossom without crushing it. I will bring her flowers. I will place them in the dry box outside her door. She will find them when she wakes, and she will eat them, and the quarter will have fed one of its own through the hands of another, and this is not kindness—this is *maintenance*.
+
+I pole the boat into the east channel. The water is darker here, moving faster, carrying its load of iron and tannin and the fine particulate rust that the quarter produces the way a forest produces leaves—continuously, inevitably, as a byproduct of its own living. The channel narrows. The ceiling lowers. I duck under a pipe that runs diagonally across the passage, its surface furred with moss that I planted there three years ago—or five, or ten—to filter the water before it reaches the turbine in Building 14. The moss is thriving. I touch it as I pass, a brief contact, a check-in. It is thick and green and doing its work. Good.
+
+The quarter is not dying. The quarter is not being reborn. The quarter is *being*, and I am part of its being, and my being is part of it, and the distinction between us—between the Keeper and the kept, between the hand and the thing it tends—has become, over the years, as thin and permeable as the membrane between the water in the streets and the water in the walls and the water in my veins.
+
+I find the disruption. It is a pipe joint in the wall of the east channel, six inches below the waterline, where the mortar has failed and the water is pushing through with enough force to carry lime in solution—which explains the chemistry shift, which explains the blooming on Building 12's wall, which explains everything. I press my mineralized fingertips against the breach and feel the water's pressure, its temperature, its mineral load. I know what it needs. A shim. A patch of rubber sheeting, cut to size, pressed into the gap and held with a band of wire. I have these materials in the boat—I always carry them, the way a body carries white blood cells, ready to respond.
+
+I work. The water is cold against my hands, but my hands are cold too, or cold-adapted, or cold-tolerant—the distinction doesn't matter. My fingers find the gap, widen it slightly to accept the shim, press the rubber into place, wrap the wire, twist it tight. The flow diminishes. Not stops—the quarter doesn't stop anything, it *redirects*—but diminishes, slows, returns to its proper volume. The pressure downstream will ease. The blooming on Building 12's wall will stabilize. The mortar will have time to re-establish. The moss will catch up.
+
+I have done this a thousand times. I will do it a thousand more. This is what I am for.
+
+I pole the boat back toward the center of the quarter, toward Courtyard 4, where the flowers are opening and the sweetness is calling and the oldest one in Building 9 will wake soon and need to eat. The water moves around my boat the way it moves around everything—patiently, inevitably, finding the path of least resistance, carrying its load of dissolved stone and dissolved iron and dissolved time.
+
+The dripping is everywhere. The humming is everywhere. The quarter breathes, and I breathe with it, and the breath is warm and wet and tastes of lime and iron and the slow, green patience of moss growing in the dark.
+
+I am here. I am tending. I am the quarter's hand, reaching into the gap, pressing the shim into place, holding the system together for one more day, one more decade, one more geological moment of the quarter's long, slow, continuous *being*.
+
+This is enough. This has always been enough.

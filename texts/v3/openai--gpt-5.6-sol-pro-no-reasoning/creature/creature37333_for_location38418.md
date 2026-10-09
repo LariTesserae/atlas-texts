@@ -1,0 +1,45 @@
+The people who live here are compact in their habits, economical in gesture, and rarely far from something they know how to repair.
+
+They are pump tenders, gate keepers, fitters, dredgers, boilermen, canal pilots, electricians, laundresses, cooks, gauge readers, and children who can distinguish a healthy bearing from a failing one by the vibration of a stair rail. They wear light clothing under rubberized coats, thick-soled boots, gloves tucked into belts. Cloth darkens quickly in the damp. Metal buckles bloom orange unless oiled. Most people keep their hair cropped short or bound close, and carry wax pencils, folded rags, and valve keys polished by the hand.
+
+Their hearing is not poor, but specialized. They have learned to subtract the town’s constant thunder. Within it they detect small wrongnesses: a pump half a beat behind its partner, a fan blade ticking, water striking an empty chamber where it should strike water. Conversation happens shoulder to shoulder. Across distance they use signs—two fingers toward a pipe bridge, a palm circled for open, a fist for hold—or communicate with shutters and caged lamps. Children wave before they learn that strangers elsewhere shout.
+
+No household is wholly private. A worker flat may contain beds, a table, drying lines, and a hot wall shared with a conduit trunk, but its occupants’ true living space extends into corridors, workshops, bath rooms, canteens, and covered landings. Doors are often left open for ventilation. Meals travel in lidded tins. Neighbors know one another by footsteps on catwalks and by which tools are missing from communal racks.
+
+They sleep despite the machinery, and wake when its texture changes.
+
+The town’s authority belongs less to officeholders than to those trusted with continuity. Senior engineers carry no grandeur. They are recognizable by notebooks swollen from damp, burn marks on their cuffs, and the crowd that forms silently when they kneel beside a grate. Their decisions are practical and nearly ritualized: open the bypass, mark the pressure, send someone to the canal gate, wait three minutes, listen again. Apprentices memorize not only diagrams but sequences, because an action correct in isolation may be disastrous in the wrong order.
+
+Maintenance here is also kinship. Families inherit districts of knowledge without formally owning them. One household may know the western settling tanks across four generations; another remembers every cable route under the foundry. Oral history takes the form of failures narrowly prevented: the year the blue channel ran white, the night frogs climbed the warehouse steps, the morning condensation vanished from the north wall. Dates matter less than symptoms.
+
+The very old sit where they can feel vibration through benches or masonry. Some can no longer climb ladders, but workers still bring them corroded fittings, stained filter cloth, or jars of water. They inspect color, smell, sediment, and heat with grave attention. Advice may be as slight as “watch the third gate” or “that came from deeper than usual,” yet no one ignores it.
+
+Children inhabit the safer margins of the system. They race corks in cold gutters, collect shed swift feathers, and arrange bright washers around the central wellhead until an adult sweeps them aside to check the grooves. They know red grates before they know letters. They dare one another across wet aprons, hunt canal crabs with bent spoons, and keep minnows briefly in enamel cups. Their games reproduce the town: one child is the failed pump, another the bypass, a third the engineer who must restore the circuit without flooding the square.
+
+There are few solitary people, though many work alone. A night inspector may walk for hours between lamps, appearing and disappearing in amber vapor, touching pipes with the back of a gloved hand. Canal watchmen sit in raised cabins above barges that scarcely shift. Foundry workers become red silhouettes behind louvers. Each is isolated by noise and haze, yet held in a web of expected signals. If a lamp fails to answer, someone goes looking.
+
+Their bodies bear the place. Skin is often salt-marked at collar and wrist. Old workers have pale mineral scars from splashes and dark crescents beneath the nails from grease. Many develop a slight forward lean from years spent listening near housings or bracing against vibration. They drink constantly, but distrust water whose source they cannot name. Cups are assigned to taps as carefully as tools to racks.
+
+They are not solemn all the time. Humor favors imitation: the cough of a bad engine, the self-important squeal of a dry bearing, the elaborate gestures of an apprentice pretending to be chief engineer. Courtship occurs on catwalks and loading steps where there is moving air. Weddings are held in the canteen or a cleared repair bay, with paper streamers gone limp from humidity. Music must be percussive to survive the background noise. Dancing follows the machinery’s pulse until, for a while, it seems the town is keeping time with the people rather than the reverse.
+
+The dead are carried beyond the embankment when conditions allow, but small remembrances remain inside: a name stamped beneath a handwheel, a cup on the wellhead rail, a strip of colored cloth tied high under an eave. These tokens decay quickly in the wet, which is accepted. More lasting memorials are procedural. A valve may always be opened in a certain order because someone once discovered, at great cost, that it must be. Thus the dead persist as cautions, redundancies, and habits of the hand.
+
+Around them live the creatures of the system.
+
+Pale swifts fill the underside of the pipe bridges, nesting in dense colonies where the metal stays warm but not hot. Their droppings stripe support columns. When pressure releases with a sudden hiss, the birds lift all at once, turn invisibly in the steam, and settle again. Workers read their flight without admitting it: if the swifts avoid a familiar span, someone checks for fumes or excess heat.
+
+Mud wasps inhabit the town’s driest fractions—cabinet lips, sheltered bolt holes, the backs of signal boxes. Electricians tolerate them until a nest threatens a contact. Then it is lifted away whole and wedged into another warm seam. Roaches and silverfish thrive behind insulation. Clouds of gnats gather above cooling channels, drawing bats from culverts at the town’s edge. The bats are rarely seen clearly; they appear as cuts in the lamp haze.
+
+The canal crabs are bolder. They armor the outfall grates in mottled layers, feeding where warm discharge carries scraps and algae. Some have pale, mineral-encrusted claws. Children name the largest ones. Workers regard them as crude instruments: a grate crowded with crabs is flowing well; an empty one invites investigation.
+
+Small silver fish mass beneath the aerated falls so densely that the water seems metallic. Frogs occupy the reed cages and any sump cool enough to support eggs. Their continuous night calling is another gauge. Rats live higher, in cable runs and storeroom rafters, descending by pipes to forage. They are trapped near food stores but mostly tolerated elsewhere. A rat fleeing upward may indicate rising water before a gauge does.
+
+Nothing here is merely vermin, ornament, or wildlife. Every creature has become, intentionally or not, part of the town’s sensing apparatus.
+
+Even the broad-leaved courtyard plants are watched. Their droop, the crust on their leaves, the color of algae at their pots—these enter the local vocabulary of warning. People wash the dust from them with safe condensate. Not because the plants are especially useful, and not quite because they are beautiful, but because they are among the few living things in the basin that do not owe their shape to a pipe, wall, grate, or wheel.
+
+At the center, people pass the wellhead throughout every shift. They touch the rail, leave a bent washer or feather, rinse a cup in one of the four grooves, and look outward to see that the lamps still burn in their districts. No one calls this worship. The well is equipment, mapped, tested, and governed. Yet arrivals are brought to it, children learn the town from it, and departing workers pause there before crossing the embankment.
+
+What lives in the basin is therefore not simply a workforce beside an artificial watercourse. It is a community shaped into the form of a circulation system. People, swifts, frogs, fish, crabs, algae, reeds, rats, and wasps occupy separate tolerances within the same engineered flow. They gather where the temperature permits, withdraw when chemistry changes, and announce imbalance in their own languages.
+
+The pumps keep the town alive, but the town also listens to everything living around the pumps. Together they maintain that narrow, difficult condition between boiling and stagnation, flood and salt, failure and continuation. Their shared talent is not permanence. It is correction so constant, so practiced, and so complete that permanence is what it resembles.

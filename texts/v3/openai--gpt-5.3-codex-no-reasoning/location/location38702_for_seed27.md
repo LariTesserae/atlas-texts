@@ -1,0 +1,33 @@
+From a distance, the plateau looks empty—an old, high country of pale ridges and wind-scoured basins under a dim, iron-colored sky. Then your eyes adjust, and the “stone” begins to breathe.
+
+There is almost no water here. Nothing runs, nothing drips, no moss-soft dampness hides in cracks. The air itself is desiccant-dry, thin with altitude, and cool enough that exposed metal skins over with brittle frost only at dawn, then loses it again to a powdery sublimation by midday. Yet the land is overwhelmingly vegetative: not green in the earthly sense, but botanical in function and structure. The ground is made of plant tissue fossilized in place while still alive—vast lichen-woods turned structural, root-mats mineralized into load-bearing terraces, columns grown from braided vascular filaments that drink not liquid but vapor, static charge, and trace volatiles.
+
+It is a city spread through an ancient plant reef.
+
+The oldest formations are called the Still Fronds: kilometer-long ridges that were once flexible canopies and now stand like folded shale, every layer a season from ten thousand years ago. They erode, but slowly, in sheets as thin as paper. Wind peels them back, and beneath each sheet are chambers full of sleeping spores and circuitry-veins, because in this place botany and infrastructure were never separate disciplines. The first builders learned to pattern growth rather than quarry stone. Their descendants no longer “construct” in the old sense; they tune genomes and field geometries, and neighborhoods accrete like bark.
+
+Between ridges lie open intervals—broad, sparse flats of pale substrate where only scattered towers rise. This sparseness is deliberate. The vegetation is total in mass, but not crowded in silhouette. Most living bulk is subterranean or laminate-thin, spread across area instead of stacked densely. A plaza might look vacant except for three arching stems and a line of black pylons, yet below your feet a hundred meters of living rhizome-computation negotiates nutrient debts, traffic permissions, and weather buffering.
+
+The city’s “streets” are resonant causeways suspended on root trusses over old erosion channels. No rivers cut these channels now; they are relics from an era before the Dry Conversion, when the world still cycled water at scale. Since then, weather became particulate: mineral mist, electrostatic dust fronts, pollen storms so thick they behave like tides. You can watch one arriving from forty kilometers away—a low ochre wall rolling silently at first, then announcing itself with sound.
+
+Sound is a constant force here. Wind through hollow growth-spines booms like distant horns. Seed-capsules rattle in coordinated bursts, communicating across districts in infrasonic pulses you feel in your ribs before hearing. Fauna add to it: flocks of sail-backed gliders snapping membrane fins; six-legged grazers scraping silica bark with chitinous dental combs; predatory “reedcats” that vibrate throat-plates against bridge rails to stun quarry. Over all this runs the city’s own acoustic infrastructure: warning chimes, growth-tones, navigational sonars for low-light transit. In dim conditions, hearing is map and clock and law.
+
+Light rarely clarifies. The sun, filtered through perpetual high aerosols, arrives as a diluted copper glow. Shadows are soft-edged and long even at noon. Photosynthesis here shifted spectrum ages ago; plants wear matte blacks, violets, and metallic blues, tuned to frequencies that still penetrate the haze. At twilight, entire districts phosphor gently from within—stored daylight bled through translucent rind. The skyline looks like embers under ash.
+
+Because water is absent, life runs on other chemistries. Plant tissues circulate ionic brines so concentrated they are more molten salt than sap. Some species fix atmospheric nitrogen using catalytic nodules seeded with engineered minerals. Others “feed” from the city’s power gradients: leaves act as antennae, trunks as capacitors. The highest tech is almost invisible—nanoscopic assemblers riding in pollen clouds, repairing fractures in ancient tissues and rewriting stress responses in real time. Physics is obeyed but stretched: local gravitic lenses lighten heavy growth to allow impossible arches; phase-stable membranes separate incompatible gases inside communal chambers; memory is stored in chromatic proteins that can be read by light, touch, or scent.
+
+Fauna are abundant because the biomass is abundant, and because predation never stopped. Herds migrate between nutrient vents on schedules older than written language. Burrow colonies mine dead xylem for salts. Aerial scavengers follow maintenance drones, snatching discarded biofilm. Many animals are symbiotic with the urban flora: courier beetles carry code-spores; pollinator kites trigger gate openings; domesticated tunnel-worms keep transit pores clear. Wildness and civic order overlap uneasily.
+
+Rules of the world are posted not on signs but in growth behavior:
+
+- Dark-striped stems mean “structural load—do not cut.”
+- Blue lumens in bark indicate breathable corridors.
+- Continuous rattling from canopy lines means stormfront closure.
+- Bitter-almond scent means a district has shifted atmosphere mix; masks required.
+- Silence, paradoxically, is emergency: if a zone goes quiet, it has lost network coherence.
+
+The greatest danger is not thirst—everyone is adapted to dry metabolism—but brittleness. In such ancient, desiccated systems, fracture cascades. One collapsed arch can propagate stress through a whole quarter. So the inhabitants, human and otherwise, listen obsessively. They monitor creaks in old fronds, harmonic drift in support roots, the pitch of wind over parapets. Maintenance is cultural ritual: nightly “retuning” where citizens walk the causeways striking calibrated rods against resonant nodes, feeding data into living models beneath the ground.
+
+At the edge of the settled region, elevation rises again into the Elder Terraces: near-flat, primordial tables where nothing appears to grow until moonrise, when thin filament forests lift from cracks like drawn wire and comb the sky for charged dust. Beyond that is true emptiness, or what passes for it here—kilometers of low, fossil plant-stone and scattered sonic beacons, all under a dim vault.
+
+It is a loud, dry, high, and very old place, still active, still making itself. Not dead, not lush in any familiar way, but vegetative to the bone: a civilization rooted in the idea that architecture is something you cultivate, and survival is a matter of tuning life to endure without rain.

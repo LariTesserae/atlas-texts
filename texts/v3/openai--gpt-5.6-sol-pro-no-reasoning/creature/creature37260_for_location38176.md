@@ -1,0 +1,39 @@
+The city is inhabited most completely by water.
+
+It lives in the stone without possessing it: a dispersed, migrating population of drops, films, buried threads, and cold clear pools. Rain arrives visibly from the northern heights, occupies roofs and courtyards for an hour, then divides. One portion runs openly through the avenues. Another slips into joints too narrow for light. Elsewhere it rises from beneath a pale stratum, as though the walls themselves had begun to weep. Each spring is only a temporary appearance of a much larger, hidden body.
+
+These waters do not gather under one name. They lose and find one another continually. A stream descending the western terraces may disappear into a slot, pass through chambers under entire districts, and emerge days later from an eastern arcade. Some currents never see the sky. In the limestone beneath the apparent streets, they inhabit smooth black conduits and flooded rooms whose ceilings preserve pockets of ancient air. There, in absolute darkness, live the city’s most secluded animals: small colorless fish, fine-boned and slow, feeling the current through their bodies. Their world consists of pressure, mineral taste, temperature, and the rare edible particle delivered from above. They know storms not as thunder but as an increase in flow.
+
+Nearer the surface, the dependable seeps support narrow commonwealths. Dark mosses thicken around the mouths of springs. They spread only as far as moisture remains through summer, ending in sharp borders that map the reach of invisible water. Their cushions hold silt, fragments of shale, pollen blown in from beyond the rim, and the remains of minute creatures. What soil the city possesses is often first kept here.
+
+Tiny beetles graze the wet films. They are black enough to disappear against soaked limestone and move with the measured care of animals for whom a hand’s breadth is exposed country. Under ledges, pale moths rest with folded wings resembling flakes of mineral. They emerge in still weather, crossing chambers and narrow courts, but retreat at the first cold breath pouring down from the rim.
+
+The plants live by compression. They occupy cracks, gutters, pockets behind fallen stones—wherever sand and organic dust have escaped the next rain. Silver grasses send roots sideways through these shallow holdings. Their blades remain low under the wind and brighten when droplets gather along them. In sheltered courts, alpine flowers spend most of the year reduced to root, seed, and expectation. When warmth finally persists, they bloom all at once: intense flecks of violet, white, yellow, and deep blue against many kilometers of gray. Their season is brief enough that whole districts may flower and empty between two visits.
+
+At the basin’s southern margin, a few shrubs have achieved something like age. Wind has pressed them close to the terraces and combed every branch in the same direction. Each stands alone, separated from the next by expanses of bare stone, yet around its roots lies a minute sheltered country: retained soil, cast leaves, fungi, sleeping insects, and seedlings that rarely survive beyond the protection of the parent.
+
+The marshes are more crowded, though they appear austere from above. Rushes and sedges arrange themselves in bands according to the depth and mineral character of the water. Their lines shift as springs change course. Trembling mats conceal pools beneath woven roots, and open patches reflect the stone towers in fragments. Larvae develop in the cold shallows, waiting for the few calm evenings when they can rise. Then winged insects gather over the courts, and birds arrive from beyond the rim.
+
+The birds do not truly belong to the basin. They visit it as one might visit a season. High and quick, they feed above the marshes while daylight lasts, their calls falling into the formations one at a time. Because the stone divides and softens sound, each cry seems solitary even when several birds are present. Before the air cools, they climb toward the rim and vanish into the larger sky.
+
+Mountain hares inhabit the outer terraces, where passages are broad enough to offer both sight and escape. Their coats take the subdued colors of shale, old snow, and dry grass. At dusk they cross open shelves in abrupt silence, stopping beneath overhangs to listen. They feed on the sparse grasses and the tender growth around seeps, leaving clipped stems, small pellets, and tracks in clay as the chief evidence of their presence. In winter their paths become faint chains across frost or snow, often ending at a crack that appears too narrow to admit them.
+
+Larger hoofed animals descend only occasionally. They come from the rim during dry periods, following remembered routes to mineral pools. They do not enter far into the central labyrinth. The passages there are deceptive, and the enclosed cold pools offer too little grazing. Their prints remain in soft clay after they have gone: deep paired marks filling slowly with clear water.
+
+Nothing here builds a nest, burrow, trail, or colony large enough to contend with the forms of stone. No creature becomes the city’s ruler, emblem, or engineer. Most survive by remaining slight, intermittent, and difficult to see. They time themselves to thaw, seepage, a few weeks of bloom, an evening without wind. Their lives occupy the narrow intervals in which the basin is hospitable.
+
+Yet there are other inhabitants, slower and less easily counted.
+
+Lichens lie almost flush with exposed walls, pale green, rust, charcoal, and chalk-white. A patch may spread across the lifetime of an animal without seeming to change. Fungi persist in trapped soil and beneath moss, becoming visible only when brief fruiting bodies rise after rain. Microbial films line the springs and underground channels, feeding on minerals and whatever scant material descends from the surface. In chambers never touched by daylight, these films may be the beginning of nearly every food chain.
+
+Frost inhabits the shaded cracks each winter. It enters as water, expands, and leaves as fracture. Mist inhabits the lower streets before dawn, giving shape to air that is otherwise unseen. Clouds occupy the upper arcades and erase whole districts while leaving nearby walls sharp. Even temperature seems to have territories: cold pooled in deep courts, stored warmth on western faces, bands of damp air moving upward through arches in the afternoon.
+
+And the stone itself is not merely their setting. It is the oldest population in the basin: beds of limestone and shale, harder caps and softer cores, compressed histories raised into weather. Each tower survives because its layers answer rain differently. Each arcade is an agreement, temporary but immense, between weight and resistance. The formations stand close enough to seem communal, yet every one is being altered alone—grain by grain, seam by seam.
+
+So what lives here does not fill the city. It annotates it.
+
+A moss line identifies a permanent spring. A scatter of flowers reveals a protected pocket of soil. Beetle tracks cross the film beside a drip. A hare’s print interrupts a clay court. Birds briefly stitch the marsh to the sky. Blind fish move beneath streets no foot has crossed. Their presences are small, but the city’s scale makes small presences legible. Against so much enduring stone, a wingbeat, a bent grass blade, or a fresh track becomes an event.
+
+When rain ends, these inhabitants withdraw at different speeds. Birds depart first. Moths fold themselves under ledges. Hares return to the outskirts. Flowers close in the cooling air. Surface streams diminish and vanish into their slots. Moss remains dark longest around the springs.
+
+Below everything, the colorless fish turn into the strengthening current, and water continues through the unlit foundations—carrying traces of the brief world above from chamber to chamber.

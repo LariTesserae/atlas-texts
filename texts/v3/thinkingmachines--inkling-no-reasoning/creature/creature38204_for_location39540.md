@@ -1,0 +1,17 @@
+Here lives the patient aftermath of a mountain’s long forgetting.
+
+The valley floor is its host: a regional dish so flat—scored at 1.8 in openness—that slope has become myth, replaced by black polished mudstone and iron-dark silt compressed into an end-stage hollow. Erosion finished its labor generations ago, leaving not soil but ancient sediment, slick with perennial weeping. At 2.1, water is omnipresent and nowhere named: it does not pool so much as exhale, seeping from invisible fractures, breathing in the air, falling not as rain but as an ever-present mist that refuses to become rainfall. Shallow plates of water lie scattered like glass, reflecting a sky choked with low, unmoving cloud, while beneath the flat, subterranean channels thunder through hollowed bedrock, their voice joining the constant din.
+
+The climate is fixed at 0.6—cool, never biting, a breath-cold that denies warmth its right to exist. The moisture never warms; it only condenses, clings, persists. Light, measured at 0.8, arrives diffuse and gray-blue, as though filtered through deep water, stretching shadows long and soft across the mineral world.
+
+Green is abolished. At 0.3, vegetation is erased entirely. No reclamation, no moss-cousin, no fungal forest. Only bare mineral presence remains: glittering salt crusts, dark basalt plates, blooms of iron-oxide like rust-stains on slick rock.
+
+Yet life thrives at abundance—2.0—though it has never known chlorophyll. The inhabitants are older forms: translucent, jointed things navigating shallow pools; thick, armored mollusks dragging shell-less bodies across black mud, leaving tracks that vanish instantly as the ground weeps them shut; small, rapid burrowers that emerge only in the dimness to feed on mineral films, bacteria that need no sun, and each other. They move through the absence with purpose, feeding on absence itself.
+
+Sound, at 2.6, is the true architecture—deafening not in violence but in totality. The constant fall from weeping rock-faces; the subterranean thunder; the guttural chorus of the fauna—clicks, wet drums, resonant hollow calls—each given too much room across the flat empty scale. Every noise bounces, dissolves, returns changed.
+
+What is built, at 1.3, is sparse and humbled: scattered cairns of flat stone; low circular walls half-submerged in mud, shaped by simple, pre-metal fabrication, marking places where presence once tried to hold ground against the weeping. Stranger still are the precise channels cut deep into bedrock—too straight for erosion’s chaos—now filled with still, dark water, primitive engineering softened into the valley’s final form.
+
+The weirdness is measured at 1.4—subtle, persistent, never theatrical. In certain pools, water ripples inward, falling upward into hidden drains in the air. Some stones hum with low harmonics in the constant cool dampness. The fauna, despite its abundance, never crosses toward the old structures; they flow around them, leaving exact margins of untouched mud, avoiding something that has long since departed.
+
+The place is active—scored 1.7—predators swallowing prey in shallow black pools, constant motion of water and creature, cycles of mist and weeping. But it is also settled. The valley has reached its end-state: flat, old, open, dim, and deafening, inhabited only by those who never needed green, thriving in the eternal, patient cool of what erosion left behind.

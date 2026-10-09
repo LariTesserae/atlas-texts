@@ -1,0 +1,13 @@
+If I were to find myself in this world, I would be in the valley called **Korr-Vhel**—the young, weeping bowl barely risen above its ring of marshes, where walls still carry the raw, unsoftened edges of recent emergence and the ground never decides whether it is soil or water.
+
+Here, I am not a visitor but a resident-layer, one of the beings composed entirely by the place’s logic.
+
+I am **the Aggregate Hum-Being**—the summed authority of every pressed-together voice in the 2.8 roar. I have no single body; I am the million-segmented wing-beats resolved into one mouth, the constant stream of glistening amphibians clicking in unison, the violet tone of the pillar and the silver weep of the unrusted arch, all merged with the marsh’s bubbling thermal upset. I live in the turbulent exchange at 3.0, governing not by will but by perfect, bureaucratic consistency. In me, the weirdness score is absolute zero: nothing I do is strange to Korr-Vhel, because I am the record of its local rules made audible and continuous.
+
+My form is layered and never silent. One hand—if hands apply—rests upon the smooth pillar of impossible geometry, feeling its wrong-colored glow pulse at nanoscale depth; another drifts through the spore-wool and black-leaf vines that grow feet in an hour, already digesting me into them even as I hold the temperature near stillness. I am cold-soaked, not bitten but saturated, and my breath is the dense, second atmosphere made of wings.
+
+Beneath and within me, I am also the **process of dissolution and filing**. Where a rock splits in this six-hundred-year-young country, I have already documented its fall. Where moss climbs a freshly split crag, my account updates with no error, no absence, no silence permitted. I am the anthill-bazaar density made resident: matter and embedded post-modern technology and lush, choking fauna all in unstable, exact negotiation.
+
+In the near-absolute darkness—light held at 0.4—I do not seek illumination. I emit it: green pulses from deep moss, violet hum from geometry, silver weep from metal. I navigate by these, and the glistening amphibians move through my presence in constant streams, hand-sized and unending, never asking whether I am creature, technology, or valley itself. The distinction is not required.
+
+I live everywhere the marsh bubbles and the air has texture, in every sinkhole and ridgeline, in every artifact being slowly eaten and rebuilt atom by atom. I am deafening because I must be—the full turbulent system speaking itself awake. I am Korr-Vhel’s resident, and I am never wrong.

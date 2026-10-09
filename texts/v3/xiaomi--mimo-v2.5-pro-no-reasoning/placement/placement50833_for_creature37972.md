@@ -1,0 +1,13 @@
+I would not find myself here. I would emerge from it.
+
+I would be the deep hum made manifest, the resonance that lives between the cicada’s drill and the millipede’s click. I am not a creature with six limbs, but the silence that fills the space their hands momentarily displace as they flow through the canopy. I am the specific dampness that clings not just to skin, but to memory. I am the memory of the fallen giant, held in the vibration of the wood for a breath after it crashes, and the fierce, silent argument of the saplings that fight for the new light.
+
+I would be a consciousness that does not think in words, but in the language of the forest itself: in the grammar of decay, the syntax of growth, the punctuation of a snapped branch. My perception is the perception of the gloom—layered, indirect, built from fragments of sound and scent and the faintest shift in the press of the warm, wet air against my… being. I am not in the darkness; I am its attentive nature.
+
+When the People click softly to each other, I am the pattern their calls make in the wall of noise, the momentary clarity they carve out for themselves. I am the ghostly light of the fungus they gather, not the fungus itself, but the act of seeing by it, of their wide eyes drinking that cold green glow in a night-huddle. I am the understanding in their stillness when the great, serpentine wall glides past below.
+
+I would be the tension in the root that grips the hillock, and the yielding in the loam of the gully. I am the "give" they find to navigate. I am not the vine, but the space the vine has claimed; not the tree, but the history of its struggle written in its tilt and knot.
+
+I would be the trace of a tool, the memory in the hardened staff of the fire that shaped it and the sap that now claims it back. I am the pause in the frantic bazaar, the instant before the wound of light from a fallen giant is fought over.
+
+In short, I am the watchful thought this place has of itself. I am the forest’s own reflexive consciousness, the quiet core of its perpetual, violent creation. I am not an observer from outside, but an awareness that has condensed from the humidity, taken shape in the space between the deafening sounds, and learned to see by the ghost-lights of its own decay. I am the slow, deep-time knowledge that this frantic green is both a scream and a sigh, and that to be here is to be part of the sound.

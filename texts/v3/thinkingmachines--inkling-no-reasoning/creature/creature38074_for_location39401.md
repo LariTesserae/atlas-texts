@@ -1,0 +1,19 @@
+Inside the fracture—no wider than a clenched fist, hidden within a crust that denies its existence—the world has not yet decided what to be. Here, scale collapses into intensity: every height is only pressure, every breath is a dense, ionized mineral smoke carrying heat like slurry, and the temperature of 2.7 is not weather but a constant, slow-pressure bake.
+
+There is no water. Not a trace. Not even the idea of it has sedimented into the chemistry. The medium is dry to the point of abstraction—metallic vapors, fine alkaline dust, salts that shatter like brittle glass—supporting life at only 0.1. No plant has ever hallucinated itself into being here. No chlorophyll, no root, no fungal mat interrupts the raw negotiation between mineral and energy.
+
+The geology is 0.3—embryonic, unstable, pregnant. The stone is newborn, barely formed, holding rounded, swollen bulges of basalt and sulfide still cooling from an internal birth, surfaces that seem midway through deciding whether they are solid or liquid. There are no flat planes, no worn valleys; erosion is absent because nothing is old enough to wear away. The landscape is not worn. It is in the middle of being born.
+
+Density is 2.9—absolute saturation. There is no space between things. Every cubic measure is packed with suspended ore-powder, with slow thermal currents, with bodies. For fauna is 1.8—abundant, crowded, utterly mechanized. Not creatures born, but assembled: dense colonies of small industrial organisms, chitin-like gears, piston-limbs, copper-threaded veins, moving through darkness in grinding processions. They do not hunt. They do not reproduce in any biological sense. They process. They replicate through assembly lines written into their own joints, scaling production downward into this hidden pocket with patient, industrial fidelity.
+
+Built structures are 0.1—none. There are no walls, no towers, no artifacts except what the organisms form in passing: temporary scaffoldings of metal hair, heat-sinks growing like coral then abandoned. Yet technology is 2.0—undeniable. Engines run everywhere. Miniature turbines spin in thermal flow. Electrified arcs stitch between bodies in brief flashes of blue-white current, going nowhere, powering nothing visible except the continuation of motion itself.
+
+Light is 0.5—near darkness. Illumination comes only from those arcs and from the dull internal glow of overheated bodies pressing through the packed space. One would see only silhouettes of density: shapes against shapes, a continuous, slow-motion crowding without horizon.
+
+Sound is 2.4—loud, but low. A constant deep mechanical thunder fills the pocket, not sharp but resonant: mineral grinding against gear, hot gas hissing through microscopic seams, the rhythmic thump of pump-organs working in unison. It is loud in the way a heart is loud inside a skull—inescapable, internal, total.
+
+Weirdness is only 0.4—this is not a dream-place. Heat behaves. Density behaves. The machines obey logic, however alien. What is strange is only the scale and the absence; the absence of water, of plants, of emptiness, of any hand that built this.
+
+Dynamic is 0.8—slow. Nothing rushes. The heat shifts across long durations, like a tide of molten patience. The organisms move with glacial purpose, manufacturing and remaking themselves over cycles measured in years, centuries within this small box. Change is present—this is emerging geology, after all—but it is gradual, embryonic, a birth witnessed in extreme slow motion.
+
+Within this pocket-scale darkness, packed full and running on hidden engines, the world is neither dead nor alive by familiar terms. It is an industrial womb: high, hot, loud, and patient—manufacturing its own reality one slow gear-turn at a time, sealed in a hidden fracture where nothing is missing except the space to miss it.

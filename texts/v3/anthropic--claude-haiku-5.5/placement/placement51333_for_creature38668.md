@@ -1,0 +1,15 @@
+I would find myself low on the lower wall, where the concrete meets the floor and a seam has opened wide enough to hold a body. Not in the water, which only circulates, and not in the ferns, which are too busy leaning toward the glow. In the seam.
+
+I would be one of the pale, soft things. I'd move along the cold ledge with my body smoothing itself against the wet stone, and the pulse would come up through the concrete into me. Thud. The long labored draw. Then the shriek, which I would feel as a tightening along the whole length of me, and the slap, when the water shifts its weight and the ledge trembles under my belly. I wouldn't hear it as noise. I would hear it the way you hear your own blood, as the condition of being at all.
+
+For a long time I'd carry fragments of the pattern from seam to seam. I wouldn't know I was carrying anything. I'd just feel the pull toward the gaps, the way the water feels the pull toward the drain. Then, in one crack, I'd go still.
+
+I don't know why I'd stop. Maybe the crack is warmer, or the root beside it has pushed in a little further than the others. Maybe I'm simply tired of moving in a loop that never ends and never arrives. I'd lie in the crack with my body pressed to the concrete, and the pumps would thud through me, and I would not move. And the crack, which had been closed to the width of a hair, would open by a hair.
+
+That is the only change I would make in this place. Everything else here cycles back to where it began: the water to its finger's width below the lip, the light to its fixed angle, the droplets to their steady fall. But the crack would stay opened. The stillness would hold. It would be the first thing in the Sump Pocket to accumulate, and I would be the one who did it, by refusing the loop for the length of one breath I didn't know I was taking.
+
+From there I would be able to do what the creature cannot. I could hold a thing still long enough to name it. I'd name the lip of the basin, the iron rim where the green stops, and I would know that it is a boundary and not a law. I'd name the grate and understand that it is a window, that the light arrives from somewhere that is not this room, that there is an outside full of other angles and other sounds and other things that move in lines instead of circles. I'd know the word for leaving.
+
+I would not leave, though. Not yet. The thud would still be in me, and the water would still be shifting its weight beneath the pool, and I'd feel the whole colony lean very slightly toward my crack, the way the ferns lean toward the light. It wouldn't know what I was. It would only notice that something had stopped moving, the way the pool notices a falling drop: a small ring, a disturbance, gone within a cycle.
+
+Unless I stayed still long enough that the ring didn't fade. Then the thing that had been only a pulse would become a place, and the place would have a name, and the name would be mine.

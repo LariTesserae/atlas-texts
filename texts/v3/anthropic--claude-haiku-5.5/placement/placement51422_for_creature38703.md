@@ -1,0 +1,19 @@
+I would be a drifter, and I would be on the western slope, the morning after a surge.
+
+The water is still settling. Silt hangs in the shafts of light like slow snow, and the wreckage lies heaped where the storm threw it: a spire's crown in three pieces, a causeway snapped at its middle, a long shelf of lattice that was a bridge yesterday and is now a jumble of pale teeth. My limbs are folded against my flanks, and I unfold them one at a time, feeling the water resist. My body is broad and soft and dim, and it moves the way the stone moves, slowly, with the weight of something that has learned not to hurry.
+
+I lift a block. It is grey and sponge-textured, eroded into curves that suggest it was once part of something more intricate, and it is heavier than it looks. Inside its pores I can feel the faint, cold trace of creatures who lived here before the storm, a stitcher's paste, a grazer's shed bloom, a body long since sunk into the lattice and bonded to it. I do not know their names, and I do not think names are the right kind of thing to have for them. But I hold the block with a care I can't explain.
+
+I turn it. Its broken face is bright and raw, the color of wet bone, and it does not match the surface it has to meet. A nearby stitcher is already moving along the seam of the causeway, its segments curling through the gaps, and it pauses when it feels my weight shift. Its gland pulses once, a faint, uncertain secretion, and then it moves on. It is not asking me anything. It is simply reading the stone through the water, the way I am.
+
+I set the block against the causeway's broken edge and hold it there.
+
+The holding is the work. Not the lifting, not the turning, but the long stillness after, when I press the stone into position and wait for the lattice to decide whether it will accept it. Sometimes it takes an hour. Sometimes the hours run into a night and the cold deepens and the bioluminescence in the basin below flickers, a bright green pulse traveling along the far causeway, passing some message to the grazers in the seams. I feel it through my limbs more than I see it. The message is about the surge, or about another storm-state gathering in the north, or about nothing I can name. Still, I stay where I am. The stone is not yet fixed, and I am the only thing here that is holding it.
+
+I think sometimes that I should be doing something more: finding the right block, choosing the right seam, making a pattern that would last. But the patterns don't last. Last season's buttress is this season's heap, and I have taken apart my own work more times than I can count. The water does not care what shape the stone takes. It cares only that the stone is moving, and so I move with it. Whatever I am building, I am building it out of the things that have already been built, out of the dead, out of the storm's leftovers, out of the cold and the slow erosion that is always taking the mountains a little further down.
+
+When the block finally settles, I feel it click into the lattice, a small, dense shudder that travels up my limbs and into the silt. The causeway is one stone shorter than it was before, and one stone closer to whole. I do not know if that matters. The stitcher behind me extrudes its paste and begins to thread the seam shut. Above, the pale coin of the sun is slipping behind the overcast, and the light on the water is thinning into the long grey dusk that comes before the next surge.
+
+I unfold my limbs again. There is another block in the silt, half-buried, its curve familiar. I turn toward it.
+
+Somewhere far beyond the terraces, past the last drowned ridge, the mountains are still wearing down, and the horizon they are sinking toward is one I will never see. I don't need to. The stone is here, and it is moving, and something has to hold the seams together while it does.

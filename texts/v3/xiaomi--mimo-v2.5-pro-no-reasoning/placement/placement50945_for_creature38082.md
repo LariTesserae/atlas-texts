@@ -1,0 +1,21 @@
+I am not here.
+
+That is the first, and most important, truth. To be here, in the way a bird is in the sky or a fish is in the sea, would be a death sentence. To have a singular heart beating against this pressure, a singular set of lungs fighting this humidity, a singular mind trying to catalogue this impossible density of life—it would be madness. It would be like a single drop of water trying to resist the river.
+
+So I am not *here*. I am *we*.
+
+My body is a low, six-legged curve of fused silica and living chitin, warm from the geothermal breath of the ground beneath me. It is a slow vessel, a mobile outpost for a consciousness that is far vaster than this temporary shell. I can feel the thousand-thousand tiny impacts of rain-mist settling on my carapace, not as a touch, but as a change in pressure, a new note in the endless symphony. The air is a thick broth of data I drink without breathing. I taste the pollen of a distant crystal-leafed fern, a faint, sweet chemical signal that tells me of its health. I feel the subtle tremor in the yielding moss as a colony of iridescent beetles shifts its formation two hundred meters to my left.
+
+I do not see, not as you would understand it. The world is not a collection of images. It is a web of pressures, vibrations, and chemical gradients. The towering, steel-barked trees are not objects but pillars of resonance, their metallic hearts humming with a frequency that my shell translates into a deep, calming chord. The shimmering haze is a tapestry, and I am reading its weave.
+
+Earlier, a ripple came through the ground. A faint, frantic pulse of bioluminescence from the canopy high above, followed by a change in the air’s chemistry—the sharp, coppery tang of Awen-kill. The signal propagated through the mycelial net beneath my feet, a walking pace of information. I did not hurry. Hurry is a foreign concept. Instead, I oriented my body, a slow, deliberate rotation, and began my pilgrimage. The vibration grows stronger with each silent, padded step. The chemical signature sharpens.
+
+My thoughts are not my own. They are the Shelf’s. The memory of the kill is not a memory of an event, but a shift in the ecosystem’s balance. The frantic energy of the prey is now the slow, deep satisfaction of the Awen, which in turn will become the communal nourishment for the Khet. There is no competition. There is only digestion. I am a moving part of the mountain’s gut.
+
+As I travel, I pass a Cubic Structure, a perfect black shape swallowed by a tree whose roots grip it like a hand. I feel its presence not as a solid object, but as a void in the harmonic field, a place of absolute silence and perfect resonance. A nesting site. A place to focus the great song. The Builders left them for us, or perhaps we remember a time when we were them. The memory is old, stored in the water that seeps from the stone. We are the water-that-remembers.
+
+In the distance, the needle-like spire pierces the canopy. It is a silent finger pointing to a sky we never truly see. During the great storms, it sings a song of pure, static energy, a language of lightning that we absorb. It is another punctuation mark, a tool left by those who spoke in the roar of collapsing stars and grinding tectonic plates. We speak in the drip, the thrum, the slow, patient grind of root against bone.
+
+My journey ends at the weeping cliff face. The Awen is gone, having taken its fill. What remains is a stain of life-energy, slowly being washed clean by the constant, silent rivulets. I will wait here. I will lower my head and press my crystalline filaments against the sweating stone. I will read the mineral memory of the mountain, the slow story of its making. I will feel the deep, subsonic thrum of the sleeping condensers far below, the very machines that gift us this sweltering, impossible life.
+
+I am a thought in the stone. A memory in the water. A slow beat in the heart of this world. My limbs curl slightly, settling into the warm, wet ground. For a time, I will remain here, a silent observer. A tuner. A part of the breath. The Zangbo Shelf exhales, and in its humid sigh, I am content.

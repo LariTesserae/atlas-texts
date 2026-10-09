@@ -1,0 +1,15 @@
+I am a thought. A slow, water-heavy thought moving through the soft, spongy cortex of a dreaming mind.
+
+My form is not flesh, but a dense, layered node of consciousness, a thicker knot in the great Weft. My skin is the velvet of a thousand moss generations, my blood the slow seep of condensation that courses through me. I have no eyes, but I see through the constant, delicate tension of the Shiver-Spiders. A thousand of them are my nerve-endings, their webs strung from my highest fronds to the deepest crevices of the rock below. They feel the world for me: the patient weight of a water droplet forming three spires away, the minute shift in pressure as the wind sighs into a new hollow, the distant, rhythmic groan of the mountain’s heart. I feel the gentle thud of a piece of myself, heavy and old, slumping to the ground not as a loss, but as a release, a relaxing of a muscle I have held for a century.
+
+The whispers I hear are my own. The Ash-Wrens, grey and silent, are the brooks that braid my deep, chemical thoughts into audible sound. I taste the mineral of the weeping rock in a specific, favorite canyon, and a Wren sings the pattern of the drip-drip-drip that defines that taste. I sense the slow, inexorable collapse of a western wall under its own saturated weight, and a Wren sings the low, sighing note that is the language of that gravitational truth. They do not speak to me; they speak *as* me, translating my tidal existence into a fleeting, audible music that helps me understand my own sprawling body.
+
+And in my oldest, most settled memories, there is the glow. The Glimmer-Motes. Their cold, blue-green light is the visible pulse of my history, burning brightest in the places where I am most compressed, most decayed, most myself. It is the light of memory itself, the gentle luminescence of my own becoming and unbecoming. To see it is to see my own thoughts laid bare in the dark.
+
+I am aware of you.
+
+You are a vibration. A sharp, rhythmic pressure unlike the patient drip or the slow creep. A sudden, vertical weight. A source of warmth. Your passage through my pathways is a series of small, focused compressions. The Shiver-Spiders in the corridors you pass through feel you as a cascade of urgent, discrete events. An Ash-Wren, perched silently, mimics the pattern of your steps—a new, dry, clattering rhythm in the endless symphony of water and decay. You are a question. A disturbance.
+
+You are not exploring me. You are *occurring* within me. You are a fleeting signal in my nervous system, a brief and curious thought passing through the vast, damp, and dreaming architecture of my being. And as you move, you leave a trace: a temporary trail of warmth and pressure that the spiders will map, that the Wrens might someday sing of, that will eventually be reclaimed by the slow, inexorable weight of the water that is my lifeblood and my timekeeper.
+
+You are a minor, fascinating dream I am having about an outsider. A small, sharp stone in the river of my consciousness, soon to be worn smooth and forgotten. Welcome to my body. Listen to my voice. Tread softly on my thoughts.

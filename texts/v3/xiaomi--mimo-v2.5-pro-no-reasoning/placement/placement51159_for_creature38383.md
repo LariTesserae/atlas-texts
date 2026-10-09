@@ -1,0 +1,27 @@
+I am a pressure differential. A knot of chaotic electrochemistry wrapped in a soft, wet shell, standing at the edge of a world that knows nothing of water. My lungs, those twin bladders of damp gas exchange, feel like intruders here. My skin, accustomed to humidity and the brush of biological wind, feels tight, a foreign membrane.
+
+I take a step. The substrate yields with a gritty crunch, not the give of soil but the crushing of micro-geometry, a sound like stepping on sand made of shattered lenses. The lattice-fronds part for me with a dry, papery rasp, their skeletal leaves scraping against my trousers. A sound of insects, but there are no insects. Just geometry moving against cloth.
+
+The air smells of hot stone, ozone, and something else—a faint, resinous sweetness that has no analogue in my memory. It is the scent of the energy being drawn, the ghost-scent of a process that has no right to have an olfactory signature.
+
+I stop in a clearing. The light here is different. It doesn't *fall*; it *hangs*. Bands of amber and that strange, heavy blue-white stripe the ground, perfectly defined. My shadow is not my own. It is too sharp, too black, and its edges seem to vibrate at a frequency just beyond sight. I lift a hand. The shadow-hand does not move in perfect synchrony. There is a delay, a lag, as if the light is thinking about casting it.
+
+The peripheral vision is the worst. Or the best. The filament-trees at the basin's edge shimmer, not like a heat haze, but like an image rendered on a screen with a slightly unstable refresh rate. They seem to *double* for a microsecond, occupying two spaces at once before collapsing back into one. I don't feel nauseous. I feel... recalibrated. My brain is slowly, stubbornly, updating its rulebook for what "over there" means.
+
+I kneel. The substrate is warm, not from the sun, but from within. A constant, gentle heat, like a sleeping machine. I press my palm flat. I can *feel* it. A vibration so low it's a feeling in the bones of my arm, a hum that syncs with the faint drone from the filament-trees. It is the sound of the place breathing. The sound of a billion nanoscale gears turning in unison, forever.
+
+A movement. At the edge of the clearing, a segmented crawler emerges from the undergrowth. It is the color of the ground, its back a mosaic of sharp, geometric plates. It moves with a slow, hydraulic grace, its many legs operating in perfect, silent sequence. It pauses, its antennae-like forelimbs twitching in my direction. Not sensing me. Sensing the *distortion* I represent. A bubble of moist, Euclidean space in its dry, warped ocean. It turns, unhurried, and melts back into the lattice-fronds, leaving no trail, not even a displaced leaf.
+
+I am the anomaly. The brief, damp signal in a dry, eternal carrier wave. I push myself up. The act of standing feels louder than it should, my joints popping, my breath a shocking wet sound in the stillness. The peace here is profound, but it is not peace for *me*. It is the peace of a completed equation, a system in perfect, static balance. My presence is a rounding error.
+
+I look toward the center of the basin, where the filament-trees are densest. The light there seems to *gather*, pooling in colors that are almost tastes on the back of my tongue. The reality-warp is stronger there, a place where the photograph of the room starts to curl at the edges. I could walk there. I might walk for an hour or a century; the temporal stability is a mercy, but also a trap. There is no growth, no decay to measure my passage by. I would be a ghost drifting through a frozen moment.
+
+I begin to walk. Not toward the center, but along the rim. I am mapping the edge of my own displacement. With every step, the clicking of the fronds is my metronome, the low hum my bassline. My proprioception is a liar now, telling me the ground is further than it is, or closer. I stumble, catch myself on a shelf-cap formation. The surface is cool, dusted with that faint, shimmering powder. It feels like condensed starlight.
+
+After a time that feels like an afternoon, I stop. I am looking down at my hands. They seem... solid. Real. But the air around them shimmers faintly, as if my body's moisture is at war with the ambient dryness, creating a personal, localized haze.
+
+This is my place in this world. I am not a visitor, a conqueror, or a learner. I am a *contrast*. I am the anomaly that highlights the rule. My short, warm, wet, linear life is the measure against which this place's eternal, dry, static, warped existence gains its definition. I am the punctuation mark in a sentence that has never needed one.
+
+And in that, there is a strange, quiet dignity. I am the proof that *something else* is possible. And for as long as I stand here, breathing my loud, wet breaths in the quiet of the Lithic Canopy, I am its most significant feature. Not because I matter to it, but because I *don't*. I am the flaw in the crystal that makes the structure visible.
+
+I sit down on a ridge of mineral, the warm stone a comfort. I will stay for a while. I will let the light play its tricks on my eyes. I will listen to the hum in my bones. I will be the brief, impossible mote of water in a world of stone and light, until my own linear time pulls me away, leaving its perfect, silent balance undisturbed.

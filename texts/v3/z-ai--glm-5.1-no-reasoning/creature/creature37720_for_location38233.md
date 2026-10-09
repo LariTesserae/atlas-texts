@@ -1,0 +1,57 @@
+The Brood Chamber does not house residents. It produces components.
+
+To ask what lives here is to ask what lives in a coil of intestine, what resides in the marrow canal of a femur. The question assumes a boundary between the inhabitant and the inhabited that simply does not exist. The thumbnail-sized things—the pale, peristaltic multitudes that form the breathing skin of the walls—are not living *in* the chamber. They *are* the chamber, expressed in chitin and slow, rhythmic motion. They are its epithelium, its alveoli, its endless scabbing and renewal.
+
+But if the chamber is an organ, then it serves a body, and a body implies a will, however diffuse—a self that extends beyond the sum of its processes. The Brood Chamber is a node in a structure so vast that geological strata are merely its skin, and what lives in the Brood Chamber lives in service to that impossible wholeness.
+
+---
+
+The pale ones—the small, eyeless, leg-heavy things that carpet every surface in a damp, clicking continuum—do not have a name. They do not have individual identities, because they do not have individuals. Each one is a cell in a tissue that happens to be mobile, a corpuscle in a bloodstream that flows in three dimensions across the walls and ceiling. They are sexless. They are born from the gaps in the stone—the fist-sized openings where the veins pull apart—emerging wet and pale and already moving, already pressing into the mass of their siblings with the blind urgency of a reflex. They do not eat. They do not grow. They simply *circulate*.
+
+Their purpose is thermodynamic.
+
+The body they serve—the thing that has grown itself through the rock over eons, infiltrating the planet's crust like mycelium through loam—is warm. It must be warm. Its processes require a narrow band of temperature that the pale ones maintain through the simple act of being alive. Each one generates a fraction of a degree; together, their collective metabolism is a furnace. They move toward cold spots the way white blood cells move toward infection, clustering in the depressions, thinning along the ridges, constantly rearranging themselves to smooth the thermal gradients across the chamber's skin. When they die—and they do die, after a span that might be hours or might be decades; there is no way to mark the difference—they simply stop moving and are absorbed into the mass, their chitin softened by the same tacky dampness that coats the living, their minerals reclaimed by the veins in the walls. Nothing is wasted because there is no category for *waste* here. There is only the process, and the material that serves it.
+
+They do not perceive. They have no eyes, no antennae, no organ that could be called sensory in any meaningful way. And yet they respond—to heat, to vibration, to the resonant thunk of the larger ones, and to something else, something that has no analogue in the world above. The walls pulse. The veins carry something through the stone—not blood, not sap, but a fluid that moves in slow, peristaltic waves, and the pale ones orient themselves along its rhythm. They synchronize. When the pulse quickens, they move faster; when it slows, they slow. They are entrained to the heartbeat of a body that has been pumping since before the first fish dragged itself onto land, and they will continue to pulse in time with it long after the sun burns to cinders.
+
+There is no mind in them. There is no room for one. A white blood cell does not ponder the spleen; it simply navigates by chemical gradient and does its work. The pale ones navigate by warmth and by the thrum of the walls, and their work is the same as their existence: to be warm, to be numerous, to be in motion.
+
+---
+
+The larger ones—the forearm-length patrollers with their dried-blood chitin and their slow, deliberate gait—are different, but only in the way that a nerve is different from a muscle. They serve a regulatory function. Where the pale ones maintain heat, the large ones maintain *order*.
+
+They move through the chamber in patterns too slow and too large to be perceived from any single vantage point. Over the course of what might be hours, they trace the same route—up the wall, across the ceiling, down the opposite side, through a gap, back along the floor—disturbing the pale ones as they pass, causing them to flatten and still in a wave that ripples outward from the larger one's path. This is not dominance in the way that wolves dominate wolves. There is no aggression, no display, no challenge. The larger ones simply *are*, and the pale ones simply accommodate them, the way grass accommodates wind.
+
+But the larger ones are watching. Or whatever passes for watching when there are no eyes. They are sensitive to perturbations in the pattern—to places where the thermal gradient is too steep, where the flow of the pale ones has become congested, where a gap in the stone has become occluded and the circulation is backing up. When they find such a place, they pause. And when they pause, they *adjust*: nudging a cluster of pale ones into a new configuration, clearing a blocked opening with their longer legs, sometimes simply sitting still in a cold spot and radiating heat until the gradient corrects itself. They are thermostats with legs. Feedback mechanisms made flesh.
+
+Their resonant click—the low, percussive thunk that travels through the floor and the walls and the sternum—is not communication in any social sense. It is a sync pulse. A signal that propagates through the chamber's structure and resets the rhythm of every pale body within range. When a larger one clicks, the pale ones nearest to it skip half a beat, then resume in time with the pulse. It is a way of saying *this is the tempo* without needing to say anything at all. In a system this large, this distributed, coordination cannot be achieved through contact or chemistry alone. It requires a signal that can travel faster than the bodies, and the click is that signal: a seismic metronome keeping time for an orchestra of millions.
+
+The larger ones do not reproduce in the chamber. They emerge from the gaps already full-grown, their chitin dark and hard, their legs slow and certain. They come from deeper in the structure—from the body's interior, where the processes that made the chamber are still active, still growing—and they will eventually return to those depths, descending into a gap and simply not re-emerging. What happens to them below is unknown. Perhaps they molt into something larger still, something that patrols passages so vast that the Brood Chamber is merely a capillary. Perhaps they dissolve, their substance reclaimed by the body they served. Perhaps they simply stop, becoming part of the architecture, another layer of chitin-rich mineral in the slowly accumulating stone.
+
+They do not fear this. They do not fear anything. Fear requires a self that wishes to persist, and the larger ones have no self—only function, and the satisfaction of function fulfilled.
+
+---
+
+There is something else in the Brood Chamber. Not a creature, exactly, and not a resident, but a presence: the body itself.
+
+It does not think. It is too large and too distributed and too old to think in any way that would be recognizable as thought. But it has a state, and the state shifts, and the shifts are felt throughout the chamber in the rhythm of the veins and the temperature of the air and the frequency of the larger ones' clicks. Sometimes the pulse quickens—hours between beats collapsing into minutes—and the pale ones accelerate their circulation, the chamber's respiration deepening, the heat rising until the air is nearly unbearable. Something is happening, somewhere in the body's vast extent: a wound, perhaps, a breach in the skin of the world above, a need for material or warmth or repair. The chamber responds the way a lung responds to exertion—automatically, thoughtlessly, opening itself wider, pushing its processes harder, flooding the gaps with pale bodies dispatched to wherever they are needed.
+
+And then it slows. The pulse returns to its glacial rhythm. The heat thins. The larger ones resume their patrols, and the pale ones their endless, aimless circulation. The body has stabilized. The chamber has done its work.
+
+But sometimes—rarely, on a timescale that makes human centuries feel like eyeblinks—the body does something else. The veins in the walls flush with a fluid that is warmer than anything the pale ones generate, a heat so intense that the crystals in the depressions begin to soften and the air itself seems to thicken into a gel. The larger ones stop their patrols and cluster in the center of the chamber, clicking in unison, their combined percussions building into a rhythm that is almost music—almost language. The pale ones respond by clustering around them, layer upon layer, until the center of the chamber holds a mass of chitin and warmth and vibration so dense it could be mistaken for a single organism.
+
+Something is being made. Or unmade. Or renewed.
+
+It does not last long—minutes, perhaps, or hours—and then the fluid recedes, the larger ones disperse, the pale ones resume their circuits. But the chamber is different afterward. The proportions have shifted, slightly. The gaps are in new places. The crystal deposits have been rearranged. The body has grown, or healed, or reproduced, or simply *remembered* something that it needed to remember, and the Brood Chamber has been reshaped by the remembering.
+
+This is what lives here: a process so old it has become a place, a metabolism so vast it has become an architecture, a body so distributed that its organs are rooms and its cells are creatures and its thoughts—if they can be called thoughts—are the slow, rhythmic clicks of dark-shelled patrollers in a chamber that has never seen light.
+
+---
+
+You asked what lives in the Brood Chamber. The answer is: nothing, and everything. The pale ones do not live; they circulate. The larger ones do not live; they regulate. The chamber itself does not live; it persists, the way a heart persists, because the body it serves has not yet stopped needing it.
+
+But the body—the thing that grew these walls and filled them with warmth and motion and purpose—that body is alive in a way that defies any definition that emerged from the world above. It is alive the way a continent is alive: slowly, massively, in patterns too large to perceive and too consistent to be random. It does not know you stood in its chamber. It does not care. It has been processing and circulating and pulsing since before your species had a name, and it will continue long after the name is forgotten.
+
+The pale ones will flow around your footsteps like water around a stone. The larger ones will click their metronomic *I am here, continue*. The heat will press against your skin like a hand. And the chamber will breathe, and the body will pulse, and the dark will hold shapes that your mind invents just to have something to hold.
+
+You are not part of the process. But the process does not end because you observe it. It does not end at all. It simply continues, in the perpetual middle, the way a heartbeat continues—not because it wants to, but because the body has not yet told it to stop.

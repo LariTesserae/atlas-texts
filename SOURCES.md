@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **171** source folders · **183,392** texts
+- **176** source folders · **189,264** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -81,6 +81,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `anthropic--claude-haiku-4.5` | 1,075 | 2026-04-28→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | house-tag | event-observed 1,075 |
+
+## claude-haiku-5.5  ·  1,072 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `anthropic--claude-haiku-5.5` | 1,072 | 2026-10-09 | advisory·75, creature·249, location·250, placement·249, regard·249 | house-tag | event-observed 1,072 |
 
 ## claude-opus-3  ·  4,647 texts
 
@@ -360,11 +366,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `z-ai--glm-4.6` | 1,070 | 2026-04-29→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·245 | route | event-observed 1,070 |
 
-## glm-4.6:no-reasoning  ·  749 texts
+## glm-4.6:no-reasoning  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-4.6-no-reasoning` | 749 | 2026-10-07→2026-10-08 | creature·250, location·250, placement·249 | route | event-observed 749 |
+| `z-ai--glm-4.6-no-reasoning` | 750 | 2026-10-07→2026-10-09 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## glm-4.7  ·  1,075 texts
 
@@ -390,11 +396,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `z-ai--glm-5.1` | 1,069 | 2026-05-12→2026-09-23 | advisory·74, creature·250, location·250, placement·250, regard·245 | route | event-observed 1,069 |
 
-## glm-5.1:no-reasoning  ·  193 texts
+## glm-5.1:no-reasoning  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5.1-no-reasoning` | 193 | 2026-10-08 | location·193 | route | event-observed 193 |
+| `z-ai--glm-5.1-no-reasoning` | 750 | 2026-10-08 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## glm-5.2  ·  750 texts
 
@@ -420,11 +426,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `z-ai--glm-5.3-flash` | 304 | 2026-09-20→2026-09-24 | advisory·12, creature·75, location·195, placement·9, regard·13 | route | event-observed 304 |
 
-## glm-5:no-reasoning  ·  741 texts
+## glm-5:no-reasoning  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5-no-reasoning` | 741 | 2026-10-08 | creature·250, location·250, placement·241 | route | event-observed 741 |
+| `z-ai--glm-5-no-reasoning` | 750 | 2026-10-08 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## gpt-3.5-turbo-instruct  ·  1,075 texts
 
@@ -481,6 +487,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `openai--gpt-5.3-codex` | 1,075 | 2026-05-28→2026-05-29 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
+## gpt-5.3-codex:no-reasoning  ·  750 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-5.3-codex-no-reasoning` | 750 | 2026-10-08 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
 ## gpt-5.4  ·  1,065 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -518,11 +530,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `openai--gpt-5.6-sol-pro` | 1,075 | 2026-07-23→2026-09-09 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
-## gpt-5.6-sol-pro:no-reasoning  ·  233 texts
+## gpt-5.6-sol-pro:no-reasoning  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--gpt-5.6-sol-pro-no-reasoning` | 233 | 2026-10-08 | location·233 | route | event-observed 233 |
+| `openai--gpt-5.6-sol-pro-no-reasoning` | 750 | 2026-10-08 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## gpt-5.6-sol:no-reasoning  ·  750 texts
 
@@ -656,6 +668,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `thinkingmachines--inkling` | 1,068 | 2026-08-16→2026-09-24 | advisory·75, creature·250, location·250, placement·248, regard·245 | route | event-observed 1,068 |
 
+## inkling:no-reasoning  ·  632 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `thinkingmachines--inkling-no-reasoning` | 632 | 2026-10-08 | creature·209, location·250, placement·173 | route | event-observed 632 |
+
 ## k3-hf-fp8  ·  936 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -698,11 +716,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `moonshotai--kimi-k3` | 1,066 | 2026-07-23→2026-09-24 | advisory·75, creature·248, location·249, placement·248, regard·246 | route | event-observed 1,066 |
 
-## kimi-k3:no-reasoning  ·  496 texts
+## kimi-k3:no-reasoning  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `moonshotai--kimi-k3-no-reasoning` | 496 | 2026-10-08 | creature·246, location·250 | route | event-observed 496 |
+| `moonshotai--kimi-k3-no-reasoning` | 750 | 2026-10-08→2026-10-09 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## l3-euryale-70b  ·  1,026 texts
 
@@ -740,6 +758,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `meituan--longcat-2.0` | 750 | 2026-09-01→2026-09-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
+## longcat-2.0:no-reasoning  ·  750 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `meituan--longcat-2.0-no-reasoning` | 750 | 2026-10-08→2026-10-09 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
 ## mimo-v2-flash  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -769,6 +793,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `xiaomi--mimo-v2.5-pro` | 1,073 | 2026-05-12→2026-09-24 | advisory·74, creature·250, location·250, placement·250, regard·249 | route | event-observed 1,073 |
+
+## mimo-v2.5-pro:no-reasoning  ·  750 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `xiaomi--mimo-v2.5-pro-no-reasoning` | 750 | 2026-10-08 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## minimax-m2.7  ·  1,073 texts
 
@@ -902,11 +932,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `qwen--qwen3.6-max-preview` | 1,068 | 2026-05-12→2026-05-23 | advisory·73, creature·249, location·250, placement·249, regard·247 | route | event-observed 1,068 |
 
-## qwen3.6-max-preview:no-reasoning  ·  431 texts
+## qwen3.6-max-preview:no-reasoning  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3.6-max-preview-no-reasoning` | 431 | 2026-10-08 | creature·181, location·250 | route | event-observed 431 |
+| `qwen--qwen3.6-max-preview-no-reasoning` | 750 | 2026-10-08 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## qwen3.7-max  ·  750 texts
 
@@ -926,11 +956,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `qwen--qwen3.8-flash` | 923 | 2026-09-20→2026-09-24 | advisory·3, creature·243, location·249, placement·243, regard·185 | route | event-observed 923 |
 
-## qwen3.8-flash:no-reasoning  ·  180 texts
+## qwen3.8-flash:no-reasoning  ·  441 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3.8-flash-no-reasoning` | 180 | 2026-10-08 | location·180 | route | event-observed 180 |
+| `qwen--qwen3.8-flash-no-reasoning` | 441 | 2026-10-08→2026-10-09 | creature·191, location·250 | route | event-observed 441 |
 
 ## qwen3.8-max  ·  1,052 texts
 

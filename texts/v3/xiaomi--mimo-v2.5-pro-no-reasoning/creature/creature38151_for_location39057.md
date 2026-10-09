@@ -1,0 +1,19 @@
+They call this throat the Needle Spire, though there are none left to speak the name. What lives here does not speak, but hums. They are the swarm, and the swarm is a single, slow-beating heart made of a million chitin parts.
+
+You would not call it a beast. You would call it a weather pattern with legs.
+
+The foundation of the swarm is the **Velvet Crickets**. They are the current, the living tide. They flow in endless, silent rivers up and down the basalt walls, their mold-furred bodies absorbing all sound but the whisper of their own passage. They are not mere insects; they are the grazing herd of this vertical world, consuming the microscopic films of life on the rock. Their synchronized movement is not intelligence, but chemistry—a shared rhythm written in the condensation itself.
+
+Riding the air currents the crickets disturb are the **Glimmer-Moths**. They are not true fliers, but light-weighted driftements. Their wings, frilled and frail, pulse with a soft, silent light—azure, then emerald, then bruised violet. They are the pollinators, the communicators. When one pulses, others across the spire may faintly answer, a conversation happening at the speed of a sigh. They land upon the fungal veins to feed, and in doing so, they trigger deeper, slower pulses in the mycelia below, the fungal network sighing with light in response.
+
+Above and between, always, are the **Wall-Crawlers**. The pale centipedes. They are the still hunters, the patient architects of vertigo. They cling, motionless for hours, until a glimmer-moth drifts too close, or a cricket loses its footing. Then a segment unfolds with liquid speed, and a meal is secured. Their legs make a sound like a single, endless page being turned.
+
+And the **Stone-Borers**—the shriekers. They are not seen, only heard. They dwell in the deepest fissures, their bodies adapting to the cold, wet stone itself. The periodic, bone-vibrating shriek is not aggression, but a declaration of existence, a sonar ping that maps the cold, damp spaces for them. The swarm flinches in unison when it echoes through the chimney, a single reaction from a million bodies.
+
+But the true ruler of the spire, the architect of this slow dance, is the **Fungal Network**. It is not vegetation, but a neural net. Its vein-like stalks pulse with captured bioluminescence, fed by the moths. It is the map and the calendar. When a vein brightens, the crickets migrate toward it for nourishment. When it dims, they drift away. The fungus dictates the cycle, the endless, patient peristalsis of life up and down the rock.
+
+And in the crevices, built by secreted resin, are the **Amber Funnels**. They are not built by any one creature, but by a symbiotic consensus. Certain crickets secrete the substance; the moths shape it with their delicate proboscises; the wall-crawlers guard it. They are beautiful, spiral traps, glistening like solidified sound. They catch the drips, channeling the precious condensation into pools at their base, where the youngest nymphs drink. They also catch the unwary—a slower cricket, a drifting moth—dissolving them slowly into nutrients for the collective.
+
+They are one. The crickets are the flesh, the moths are the nerves, the crawlers are the reflexes, the borers are the deep, dreaming thoughts, the fungi are the brain, and the amber funnels are the teeth. There is no individual will, only the imperative of the swarm: *consume the light, grow the glow, sustain the hum.*
+
+To live here is to be a part of that hum. To feel the subsonic pulse of the fungus in your chest, to see the synchronized drift of a thousand velvet bodies, to be brushed by the silent, glowing wing of a moth. It is a cathedral of consumption and light, where every being is a sacrament, and the only prayer is the ceaseless, clicking, pulsing, living sound of the swarm.

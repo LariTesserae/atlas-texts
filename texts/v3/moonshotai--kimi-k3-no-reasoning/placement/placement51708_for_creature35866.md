@@ -1,0 +1,23 @@
+I would find myself in the middle tiers—specifically, in the narrow corridors between towering structures where the condensate films pool in the shadows and the air carries that faint metallic taste. I would be neither fully welcomed nor fully ignored, but rather *noticed*—a new variable in a system that had been running on the same parameters for millennia.
+
+What I would be is harder to pin down, and I think the place itself would resist giving me a simple answer. I wouldn't be a visitor in any meaningful sense, because Vor-Thanu doesn't have visitors—it has *inputs*. And I wouldn't be an inhabitant, because inhabitants are made of crystal and memory and slow time. I think I would be something the city had to figure out how to categorize.
+
+At first, I would simply be a **disturbance**. My body heat would create a localized thermal gradient. My breath would add moisture to the air, and that moisture would condense on surfaces, mixing with the Substrate. The Substrate would carry traces of me—salts from my skin, compounds from my breath—down into the pools where the Mnemosyne Lattices grow. They would incorporate these traces into their structure, and in doing so, they would begin to *remember* me, though not in any way I could recognize as memory.
+
+After some time—days, perhaps weeks—I would notice the Indexers. Small, dark, crystalline forms flowing slowly across surfaces, drawn to the places where I had been. They would arrive at my footprints, at the places where I had touched walls or railings, and they would begin to sort the debris I had disturbed. A pebble I had kicked aside would be placed in a specific position. A flake of rust I had dislodged would be arranged in relation to other flakes. They would be *reading* me, or rather, reading the traces I left behind, transcribing my passage into their material notation.
+
+I would become a subject in their archive—a temporary pattern that would persist in their crystal memory long after the physical traces of my presence had been disrupted by wind or thermal expansion.
+
+But I think, over time, I would become something more than just a disturbance. I think I would become a **witness**—not because the city wanted a witness, but because I would be unable to stop myself from *seeing*, from trying to understand, from imposing my own patterns of meaning onto the slow processes around me.
+
+I would climb, because the vertical axis is sacred and I am a creature that ascends. I would spend weeks, perhaps months, moving upward through the tiers, following the freight elevators and chain-hoist funiculars where they still functioned, finding other routes where they didn't. I would camp in the damp pockets, drinking the condensate (which would taste of iron and ozone and something else, something that might be information), and I would watch the lattices grow.
+
+I would learn to *listen* to the city's hum, to the deep groans of structural shifts, to the harmonic resonance of the Resonant when they sang. I would begin to understand, not intellectually but *viscerally*, that the city was thinking, and that its thoughts were so slow that a single idea might take a century to fully form.
+
+And in the upper tiers, where the Ascending spires reach toward the violet sky, I would stand among them and feel the electrostatic charge accumulate on my skin. I would watch the tiny corona discharges flicker at the spire tips, and I would understand that the city was reaching for something, trying to touch something beyond itself.
+
+I would be a **temporary anomaly** in a system that measures time in millennia. But I would also be a *participant*, whether I wanted to be or not, because the Substrate would carry my chemical signature through the city's veins, and the lattices would encode my presence into their structure, and the Indexers would sort the debris of my passage into patterns that would persist long after I was gone.
+
+I would be, in the end, a **memory the city was having**—brief, intense, and ultimately incorporated into the vast, slow, patient consciousness of Vor-Thanu. And when I finally left (if I left), I would carry with me the knowledge that somewhere in the foundational tiers, in a pool of dark condensate, a crystal lattice was growing in a pattern that included, encoded in its mineral structure, the trace of my passage through the stack.
+
+I would be the **human who climbed**, and the city would remember me for longer than I could possibly imagine.

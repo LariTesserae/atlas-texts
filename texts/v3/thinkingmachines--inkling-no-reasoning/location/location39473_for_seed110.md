@@ -1,0 +1,17 @@
+Inside a fissure you didn’t know you could enter, the air holds at a temperature that never argues—warm, thick, body-close, like being held in an open mouth that never closes. The elevation is high only in a pocket sense: this is a high cradle, not a summit, hidden within the stone world where pressure and stillness accumulate. Around you, the rock is not old. It is embryonic.
+
+This is a pocket-world, scale so contained that your shoulders almost brush both sides. The ceiling hangs low—twelve feet, maybe less—formed only days or centuries ago in a timeline you cannot parse. The walls are dense with presence, saturated, layered with the first flimsy architecture of mineral becoming itself. Stalactites hang precious and untested, droplets beading at their needle-tips with perfect, eternal slowness. They do not fall. They never fall. The water is present everywhere near the surface, condensating out of the warm dark, weeping from pores in the stone that are still learning how to be pores. Pools sit shallow and still, black mirrors that reflect nothing because there is no light to be reflected. The wetness is a constant 2.3—near-total, but disciplined, held in equilibrium.
+
+Vegetation is sparse—scattered filaments only, pale threads clinging to the damp seams, surviving on chemistry rather than sun, sparse enough that each tendril feels like an accident being reconsidered.
+
+The sound is mostly quiet—0.8—broken only by the occasional mineral click as fresh formations settle into themselves with microscopic patience, and by the faint drip of water that moves not downward but inward, returning to the rock.
+
+This place is pre-formed, under construction, emergence held in stasis at 0.1. The geology is raw—newborn limestone, unweathered, un-eroded, barely committed to being ground. There are no gradients here, no weather. The dynamic is 0.2—frozen equilibrium, time-invariant, a womb-state that will never quicken and never still further.
+
+Yet there are presences. Density here is 2.4—not of bodies, but of potential, of layered mineral intent, near-touching, high-saturation. Every surface is crowded with what is about to become, but refuses. The fauna is rare—0.7—perhaps a single blind crustacean, translucent, suspended in the black pool, motionless, feeling nothing because there is nothing to feel against. Or perhaps only the possibility of it.
+
+Light is absolute zero. Darkness here is not absence; it is the medium, the substrate, the only color there is.
+
+The weirdness is subtle—1.3—unusual in the way of a half-formed rule being tested. Built structures are scattered—1.0—not ruins, but embryos of architecture: a shelf of flat stone that looks arranged, a circle of smaller rocks that might be a hearth or might be coincidence, traces of primitive tech—0.6—hand-tools of obsidian or bone, left not in abandonment but in anticipation, as if someone started to build and then remembered this place is not yet finished enough to be lived in.
+
+Everything here is waiting without urgency. The temperature holds. The water holds. The darkness holds. This is not a place in the world, but a place the world is slowly, immovably, becoming—locked inside itself, intimate, hidden, never changing, dense with its own unborn future.

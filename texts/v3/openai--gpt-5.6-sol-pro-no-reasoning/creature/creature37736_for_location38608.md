@@ -1,0 +1,64 @@
+The people of the basin are compact, deliberate folk, shaped by low clearances, shared burdens, and the knowledge that a careless act may bring part of the city down upon a neighbor. They walk with an habitual awareness of what lies overhead. Even in open squares, some glance upward when timbers creak or grit begins to fall.
+
+Dust marks nearly everyone. It pales hair, settles into brows, and gathers in the seams of clothing. Workers at the gray banks are powdered almost white; clay diggers carry red or yellow stains on their calves and palms; those who maintain the springs have dark hems and permanently softened hands. Clothing is layered but spare: wrapped skirts, short tunics, woolen shoulder cloths, leather or reed sandals. Headscarves serve as shade, dust filters, carrying slings, bandages, and pads beneath baskets. Colors come chiefly from the ground—chalk white, smoke gray, rust, ocher, and clay red—with clearer dyes reserved for borders, cords, and signs of office.
+
+Their most numerous inhabitants are not soldiers, nobles, or merchants, but makers. Cutters loosen the banks; carriers move the spoil; masons sort it by sound and fracture; plasterers turn silt and chalk into smooth, light-catching walls. Carpenters are few and important, since straight timber must come from beyond the basin. Potters work the red deposits, lamp makers knead finer clay, and basket makers consume reeds almost as quickly as they grow. Water tenders crawl beside the narrow channels clearing pebbles, roots, grease, and deliberate obstructions. Roof keepers patch catchments before rain and inspect them afterward.
+
+Trades overlap. A mason may also know how to brace a wall, judge a clay seam, and set a cistern lip. Children learn to sort rubble before they learn formal measures: flat pieces for facing, angular pieces for foundations, soft stone for powder, uncertain stone for the discard heaps. Very little is truly discarded. Even sweepings are collected, sifted, and assigned a use.
+
+The city’s most respected people are those who can read the ground.
+
+They are called to inspect a new cut, a dampening wall, or a floor that has begun to tilt. Some learned through long work with hammer and wedge; others inherit records kept on clay tablets, notched boards, or painted plans. They taste seepage for mineral bitterness, press ears against stone, study the direction of cracks, and tap walls with small mallets to hear whether the interior is sound. They are neither priests nor engineers alone. Their judgments decide where a kiln may stand, whether three households must move, and whether a promising chamber can be opened safely.
+
+Their authority is substantial but uneasy. Everyone remembers mistakes. A red line painted across a crack records not only danger but responsibility: who saw it, who was told, who failed to act. Some walls carry generations of such marks, each dated by symbols for rains, harvests, or civic events. Children are taught never to smear them.
+
+Water keepers possess a different authority. They maintain the spring channels and central reservoir, measure levels with marked rods, and settle disputes over flow. Their work begins before dawn, when they can observe the channels undisturbed. They know which households wash tools upstream, whose plaster sheds grit, where a board has narrowed the current, and which seep weakens after a dry season. Deliberately fouling a channel is among the city’s most hated offenses. Yet water theft is rarely simple: a hidden jar beneath a drip may be greed, desperation, or preparation for an infant’s illness.
+
+Most households are extended and permeable. Kinship matters, but so do wall-sharing, roof-sharing, and water-sharing. A person may call someone “sister” because their mothers were related, because they jointly maintain a cistern, or because a collapse once forced both families into the same rooms. Adoption is common after accidents. So is the taking-in of apprentices from the plains, especially those who bring skills in timber, herding, metalwork, or weather reading.
+
+Privacy exists in fragments. Curtains divide sleeping spaces. Low voices replace closed doors. Quarrels are conducted with restraint because everyone nearby will hear them, though perhaps not clearly enough to understand. The basin people consider uncontrolled shouting childish and dangerous. Their insults are quiet, precise, and often geological: a liar has “a hollow face”; a fool “builds on wet clay”; an unreliable person is “good facing over loose fill.”
+
+Children range through spaces adults cannot use easily. They pass beneath platforms, along retaining ledges, and through half-cut passages. They carry messages, retrieve dropped tools, watch cistern levels, scare birds from kitchen plots, and collect pale insects after rain for poultry or bait. Their games imitate the city’s work. They build miniature retaining walls, channel trickles through dust, and compete to split softened clay with tiny wedges. Bark boats in overflow pools are loaded with pebble cargo and sent between imagined districts.
+
+They are warned never to enter an unbraced cut, but some do. Every generation has stories of a child discovering a hidden seep, a pocket of colored clay, old bones, or unstable ground. Such discoveries may enrich a family or displace a street.
+
+Older people often work near doorways and courtyards, where light is reliable. They sort fragments, twist fiber, tend lamps, repair baskets, watch infants, and preserve the city’s practical memory. An elder may remember that a wall now thought solid was once a spoil slope, or that water appeared beneath a house during a rain forty years before. Their recollections can outweigh drawn plans. Much of the city’s history survives as warnings attached to places:
+
+Do not load the northern roof after rain.  
+Do not dig beneath the blue band.  
+The third stair covers a channel.  
+That wall belongs to two dead households and one living one.
+
+Death is handled cautiously. The basin has little room for graves, and the people distrust placing decay near water or foundations. Bodies are carried up the long ramp to burial grounds beyond the rim, accompanied by small processions at dawn. Infants and those killed in collapses may receive different rites, particularly if a body cannot be recovered. In such cases a small clay figure is shaped, marked with the person’s name or household sign, and buried above. Families sometimes set a fragment of the fallen stone into a wall niche, not as a memorial to the disaster but as a way of giving the lost person a stable place within the city.
+
+Their religion, where it can be separated from ordinary practice, concerns openings, burdens, and exchange. The sky is honored because it remains unobstructed and gives both light and rain. The earth is not treated as a passive mother or an enemy, but as something wakeful and various, generous in one layer and treacherous in the next. Before a new face is fired, workers press water, grain paste, and a thumbprint of clay into a crevice. This is less a plea for permission than an acknowledgment that removal creates obligation.
+
+Springs have small shrines: shallow shelves holding cups, green-stained stones, frog figures, or twists of wool. No one owns these offerings for long. Cups return to use; wool becomes wiping cloth; stones are set into channel linings. Sacred things are expected to reenter circulation.
+
+They count time by work and water as much as by seasons. There is the First Mist, the Short Rains, the Drying, the Deep Kiln Weeks, the Rim-Grass Cutting, and the Spring Weakening. Major fractures become dates. Someone may say a child was born “three rains after the white face opened” or that a debt began “before the western fall.” The city’s calendar is written into exposed strata and altered streets.
+
+Trade ties them to the land above. From the plains come timber, grain, salt, hides, oilseed, metal, and occasionally cats. In return the basin sends pottery, plaster, dressed slabs, pigments, carved stone weights, sealed jars, and craftspeople whose skill with cisterns is valued elsewhere. Traders arriving from above often pause at the rim, astonished by the density below. Basin residents identify newcomers by their loudness, clean hems, and tendency to look only at buildings rather than at the banks behind them.
+
+Those born below move differently on the plains. They dislike exposed winds and sleep poorly where no wall is close. Some speak too softly outdoors. Others become enamored of distance and never return except to trade. The city regards such emigrants with mingled suspicion and pride.
+
+Meals are modest and communal: peas, onions, coarse bread, bitter greens, goat milk, herb pastes, and stews thickened with grain. Meat marks festivals, accidents survived, or large agreements concluded. Food is flavored with smoke as often as spice. Cooking fires are watched closely, and many households share ovens to reduce fuel use and danger. After rain, fresh greens and occasional frogs’ eggs tempt children, though adults forbid disturbing the reservoir margins without cause.
+
+Cats occupy an exceptional place. A healthy mouser may belong legally to one household while sleeping in six and feeding from a whole storage court. Disputes over kittens can require mediation. Cats wear braided collars with clay beads so they can be identified in dim granaries. Their independence is admired as much as their usefulness; they alone seem to move through the crowded city as though every ledge and roof were made for them.
+
+The city’s politics are similarly shared and layered. There may be a chief magistrate, hereditary house, or council, but no decree survives without the cooperation of ward elders, water keepers, excavation foremen, and households whose walls bear the consequence. Assemblies meet in open courts where everyone can see the sky. Speakers stand beside a bowl filled from the central reservoir, a reminder that authority, like water, arrives through collective maintenance.
+
+Ownership is recorded less as territory than as bundles of rights. One household possesses the evening use of a roof; another may cross it before dawn. A potter owns a kiln but owes firing space to those who rebuilt its retaining wall. A spring channel belongs to its maintainers until they neglect it. These arrangements produce endless negotiation, but the people consider rigid boundaries impractical, even foolish. A wall does not care whose name is on it when it begins to fail.
+
+The most important civic response is the pause after a fracture. It is instinctive and almost ceremonial. Hammers stop. Wheels slow. Conversations die. In that breath of silence, thousands listen together for a second crack, a collapse, or the rush of released water.
+
+If none comes, work resumes.
+
+If one does, the nearest people act before officials arrive. Baskets are emptied. Braces are carried at a run. Children relay messages through passages too narrow for laden adults. Cistern water is guarded from contamination. Roof cloths become stretchers, awning poles become props, market courts become shelters. No household can survive a major fall alone, and so rescue obligations override debt, ownership, feud, and rank.
+
+This necessity has not made the inhabitants uniformly kind. They hoard, cheat, encroach, conceal seepage, steal light, and shift dangerous spoil toward another ward. Foremen exaggerate the soundness of new ground. Water keepers accept gifts. Wealthy households acquire upper terraces with more sun and cleaner runoff, while the poor sleep beside damp walls and crowded drains. The city’s shared vulnerability creates solidarity, but also provides endless ways to burden someone else.
+
+Yet they possess a strong ideal of good dwelling. A worthy person leaves a wall more stable than they found it, passes water onward without fouling it, reports a crack, preserves another courtyard’s light, and uses what the ground gives without wasting it. Their highest praise is not that someone built greatly, but that they “made room”: for a family, a workshop, a channel, a beam of daylight, or the safe continuation of the city.
+
+They do not imagine themselves as living underground. The sky is always present, pale and central, and nearly every path eventually opens toward it. Nor do they think of the basin as finished. Finished places belong to the dead, or to stories.
+
+Their city is alive because it remains negotiable. Each hammer blow alters the future. Each basket of spoil becomes some other surface. Every room is both shelter and unfinished question. The inhabitants live not merely within the hollow but as part of its making—dust-covered, soft-spoken, watchful people who turn excavation into architecture and danger into custom, widening their world one careful fracture at a time.

@@ -1,0 +1,19 @@
+The cleft is inhabited less by separate species than by a single crowded economy of breath, moisture, hunger, and waste.
+
+Its most visible citizens are the bats. They hang from every sheltered surface in layered colonies: leaf-small bodies in brown, rust, and soot-black; mothers folded around young in the humid recesses; heat-seeking clusters packed against warmer outer stone; old males spaced near the cooler draughts. Their claws and fur have burnished the ceilings. By day they make the rock seem shaggy and animate. At dusk they loosen from it in stages, until the whole population turns upward and pours through the narrow seam of sky.
+
+Below them, the pools are concealed by black frogs pressed together along the margins. They thrive in the cleft’s recurring wetness, flattening beneath ledges during the bats’ ascent and climbing the walls when floods come. After rain, their chorus becomes so synchronized that it sounds less like calling than machinery running inside the mountain.
+
+The water itself holds translucent shrimp, pale beetles, larvae, and eggs waiting for brief films of moisture. Long-legged flies stand on frogs as though the frogs were stones. Moths rise into the evening swarm and vanish almost immediately into mouths. Around every drip, moss and liverwort maintain dark green skins; pale grasses survive on guano-enriched shelves. At the entrance, a single crooked shrub sends roots deep into the fractures. In exceptional wet years it bears hard red fruit, drawing the cleft’s inhabitants into new routes and rivalries.
+
+Much of the place lives in what the bats discard. Their guano forms warm, shifting slopes inhabited by beetle grubs, roaches, blind crickets, mites, worms, and other minute feeders. Copper-colored centipedes hunt through these deposits, and tiny snakes follow the centipedes. Where seepage crosses the dung, luminous bacterial films bloom blue-white. They flare when disturbed, so a passing foot, scrambling frog, or hunting body can briefly sketch itself in cold sparks.
+
+The stone contains further populations that are rarely seen. Calls travel through hidden chambers and hairline passages; unseen colonies answer from within the mountain. Even in apparent stillness, larvae chew, claws adjust, sediment stirs, and innumerable bodies reposition themselves according to changes in dampness too slight for larger creatures to notice. The cleft is never truly quiet. Its silence is only activity occurring at a smaller scale.
+
+Tawny mountain apes are visitors rather than residents. They descend in family groups during the safer hours, carrying selected stones: flakes to pry open beetle nests, rounded hammers for snails, porous pieces to draw water from inaccessible cracks. They drink, forage, and leave their tools among the rubble. They depart before the bats rise, reading the approaching flight from heat spreading through the walls.
+
+All these creatures maintain the place that contains them. Their breath beads overhead and falls back as interior rain. Their bodies shelter pools from evaporation. Their waste feeds insects, fungi, and bacteria; those feed hunters in turn. Floods periodically mix the entire system—guano, fur, eggs, spores, carcasses, mineral silt—then withdraw, leaving warmth and abundance behind.
+
+When dryness returns, the inhabitants do not leave. They compress. Frogs stack themselves in wet crevices. Beetles seal into cracks. Moss curls tight. Eggs remain suspended in vanishing films. Bats retreat deeper into the damp stone. Life becomes denser, quieter, and more patient.
+
+Thus what lives there is not merely a multitude but a climate-making congregation: wings, slick skins, roots, luminous films, blind hunters, tool-bearing visitors, and countless soft-bodied things beneath notice. Together they turn a barren summit’s wound into a warm internal world—one great creature made of colonies, sleeping in stone and lifting part of itself into the sky each evening.

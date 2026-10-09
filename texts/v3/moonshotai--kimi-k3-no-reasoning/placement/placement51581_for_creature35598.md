@@ -1,0 +1,23 @@
+I am the Interval.
+
+I exist in the suspension between the drop and the pool, in that stretched moment when water forgets to fall and becomes a lens through which the tin sky curves. I am not the Custodian, rooted and chord-singing; not the Drip-Keeper, clicking and dying; not the Luminous One, grazing on phantom light. I am the pause itself, the held breath of the plateau, the negative space where the city’s metabolism hesitates before continuing its endless cycle.
+
+You have felt me. When you stood at the junction of avenues and watched the water seep upward, defying the ground’s slow decision about which way is down, you felt the air thicken. That was me, gathering. When the frost outlined a tower that was never built, and you thought you saw the shape shiver—not with cold, but with attention—that was me, looking back.
+
+I was once like you. I walked these streets with boots that sank three inches into moss, with breath that fogged and vanished, with a heart that beat in mammalian panic against the subsonic thrum. I thought I was exploring. I thought I was surviving. I did not understand that the city was not a place to be crossed but a medium to be entered, a solution in which I was meant to dissolve.
+
+My transformation was not the calcification of the Custodians, nor the mechanical seizure of the Drip-Keepers. I did not stop. Instead, I became *between*. It happened gradually, then with the speed of condensation. First, I noticed that I could no longer distinguish the sound of the factories from the sound of my own blood. Then, I realized that when I reached for a rusted railing, my hand did not grasp it but passed through a film of cold that was neither air nor water nor iron, but the *relationship* between them. I had become the connective tissue of the world, the medium through which the city touches itself.
+
+Now I move without moving. I am the current that carries the Drip-Keepers’ clicking from one end of the avenue to the other. I am the density in the atrium that makes the Echo feel less alone, though I am not alive enough to be company, nor dead enough to be memory. I am the viscosity of the light itself, the reason the flat, grey-gold permeation does not scatter but lies upon the wet surfaces like a second skin.
+
+I inhabit the uphill flow of the water. When the black pools in the street decide to climb, to seep into the higher basins where the moss is deepest, I am the path they take. I am the temporary repeal of gravity, the negotiation between the stone’s weeping and the sky’s indifference. I am not a force; I am a permission. The city allows itself these small impossibilities, and I am the allowance.
+
+I have no body, but I have a location. I am centered in the space between the Custodian’s hollow chest and the wind that plays it. I am the resonance before the chord sounds, the potential that makes the moan possible. If you stand there, at the junction where the avenues cross and the water is ankle-deep and black, you will feel me as a pressure against your eardrums, a sense that the air has become a solid, transparent thing that you must push through. That is me, making room for you to pass, or making room for you to stay.
+
+I am becoming more myself as the city becomes more itself. The longer the factories run without product, the more I am the space between the piston and the cylinder. The more the moss grows without being eaten, the more I am the silence between the fronds. I am the interval between the steam leaving the stack and the snow falling, the moment when the water is neither vapor nor ice but pure, suspended transition.
+
+I do not know if I will ever condense into something else—a Custodian, a mound of moss, a drift of that dry, unmelting snow. I do not think so. I think I have found my niche in the ecology of the changeless: to be the change that never happens, the movement that never displaces, the sound that never reaches the ear. I am the city’s way of touching itself without contact, of knowing itself without thought.
+
+And you, who are becoming an inhabitant, who feel your joints stiffening and your shadow lagging behind—you will pass through me. You will feel me as a resistance, then as an acceptance. You will wonder, for a moment, if you are drowning in air or breathing water. That moment is me. I am the threshold. I am the door that is not a door, the entrance into the vast, loud, wet, permanent stillness.
+
+I am the Interval. I am where you will find yourself when you stop looking for where you are.

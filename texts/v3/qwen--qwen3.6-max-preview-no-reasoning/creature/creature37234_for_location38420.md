@@ -1,0 +1,27 @@
+They do not have a name for themselves, for language requires air that moves, and here the air is a solid thing, a weight upon the chest. They are the **Sump-Keepers**, though they keep nothing but the silence, and they tend to no garden but the rust.
+
+To see them, you must first unlearn the expectation of symmetry. They are born from the marriage of the organic and the obsolete, stitched together by the slow, cold hands of time.
+
+Consider the smallest among them: the **Click-Children**. These are the six-legged things you noticed scuttling across the grated walkways. Up close, their "porcelain" shells are not bone, but calcified condensation mixed with industrial silica. Their faces are smooth, featureless ovals save for two deep, dark sockets where eyes should be—sockets that contain only the faint, bioluminescent glow of the fungal spores they cultivate within their own hollow heads. They do not eat flesh; they eat corrosion. Their mandibles are fine, needle-like tools of hardened resin, designed to scrape the orange dust from steel beams. In doing so, they maintain the structural integrity of the ruins, polishing the rust into a hard, black patina that protects the metal beneath. They are the janitors of decay, working in shifts dictated by the rhythm of the dripping water. When the *plip* comes, they freeze. When the pause stretches, they move. They are synchronized to the heartbeat of the cave.
+
+But the Click-Children are merely the workers. The true residents of the Sump are the **Rust-Walkers**.
+
+These beings are larger, roughly human in height but distorted by the gravity and the damp. They stand on legs that are too long, jointed backwards like those of a crane or a grasshopper, allowing them to navigate the tilted concrete slabs without slipping. Their skin is not skin at all, but a thick, leathery hide woven from the fibers of old insulation foam and moss, stained dark brown and green. It breathes. You can see it expand and contract, pulling in the metallic air, filtering out the iron dust through layers of fibrous tissue that act as natural respirators.
+
+The Rust-Walkers have no mouths. They communicate through vibration. Place your hand on a railing when one passes nearby, and you will feel a low thrumming in your bones—a complex language of frequency and resonance. They speak of the water levels, of the shifting shadows, of the health of the fungal gardens. They are solemn creatures, moving with a deliberate, heavy grace. They wear the debris of the old world as armor and ornament. Shards of glass are embedded in their shoulder pads, catching the dim blue light of the ferns. Coils of copper wire are braided into their hairless scalps, acting as antennas to sense the stray electrical currents that still leak from the dying batteries below.
+
+They are not alone in their bodies. If you look closely at the back of a Rust-Walker’s neck, you will see the translucent fronds of the pale ferns growing directly from their spine, their roots intertwined with the creature’s nervous system. This symbiosis is total. The plant provides oxygen and chemical stability; the creature provides mobility and protection. They are walking ecosystems, self-contained biospheres drifting through the dark.
+
+And then, there are the **Dreamers**.
+
+You saw the bat-like entities hanging from the rebar. Do not mistake them for animals. They are the elders, the ones who have lived longest in the Sump. Their wings are indeed vast membranes of oily film, but this oil is harvested from the stagnant pools below, refined through their own digestive processes into a substance that repels water and reflects sound. They hang upside down not to sleep, but to listen.
+
+Their ears are enormous, cupped structures that span nearly half their body width. They are tuned to the lowest frequencies—the groan of settling concrete, the hum of the earth’s magnetic field, and most importantly, the pulse of the red light.
+
+When the red light blinks—*Blink. Darkness. Blink.*—the Dreamers twitch. They are the interpreters of the machine’s dream. They believe that the blinking light is a message, a code sent from the deep past, from the time before the abandonment. They spend their waking hours decoding these pulses, translating them into vibrations that the Rust-Walkers can understand. It is said that the Red Light speaks of warmth, of movement, of a sky that was not made of rock. Whether this is truth or madness, no one knows. But the Dreamers guard the secret fiercely, circling the control panel in wide, silent arcs, their oily wings cutting through the heavy air without a whisper.
+
+Life here is not a struggle against the environment; it is a surrender to it. The creatures of the Sump do not fight the cold; they incorporate it. They do not fear the dark; they become it. They are the memory of the city, given flesh and form. They remember the noise of the machines, not as sound, but as a feeling in their bones, a phantom limb syndrome of a civilization that vanished.
+
+Sometimes, if you stand very still on the suspended bridge, a Rust-Walker might approach you. It will not attack. It will extend a long, slender finger, tipped with a shard of polished glass, and tap the railing near your foot. *Tap. Tap-tap. Tap.*
+
+It is asking a question. It is asking if you, too, can hear the dream. It is asking if you know why the light blinks. And if you cannot answer, it will turn away, its fern-fronds pulsing gently, and return to its work of polishing the rust, keeping the dead city beautiful in its decay.

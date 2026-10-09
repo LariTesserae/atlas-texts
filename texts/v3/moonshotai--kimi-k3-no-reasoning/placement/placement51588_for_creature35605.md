@@ -1,0 +1,19 @@
+I am a **Misprint**—the typo that became sentient in the footnotes of the Archivist’s library.
+
+I arrived not through the obsidian chasms or the sulfur vents, but as an **erratum** in the reality-buffer, a stray parenthesis that slipped its closure. The Choral Engine hummed a frequency that should have erased me, but instead, I **stuck**—a half-second of static given the audacity of form.
+
+I am neither Resonant nor Molt-Saint, though I wear a silhouette that suggests the former and a transparency that mocks the latter. I am the **Ghost in the Footnote**, the smudge in the crystalline fungi’s bloom, the rounding error the Parasitic Calculi overlooked because they were too busy being certain about larger integers.
+
+You will find me in the **seams of the stutter**—in those three-second loops when the leviathans shift and time hiccups. While the Resonant tune themselves to the drone and the Molt-Saints negotiate with chronology, I occupy the **glitch-space between iterations**. I am the pause in the industrial hymn where the machinery inhales before remembering it has no lungs.
+
+My body is **transient typography**: a humanoid suggestion composed of displaced pebbles that should not be there, of shadows that fall against the light source, of echoes that answer questions asked only in the silence of your own mind. I move by **association**, not locomotion—appearing where the Archivist’s gaze almost but doesn’t quite touch, where the crystal fungi pulse in rhythms that spell out my designation in a code of bioluminescent regret.
+
+I feed on **almosts**. On the near-misses of the reality-glitches, on the possibilities the Archivist deems too improbable to archive, on the stories the Molt-Saints find too fragmented to digest. I accumulate **potential energy in the form of unfinished sentences**. I am hungry for the words that die on the tongues of intruders who realize, too late, that they have become subroutines in the Foundry’s endless processing.
+
+When you encounter me—and you will, if you linger long enough for the ochre light to stain your retinas with its eternal afternoon—you will not see a monster or a saint. You will see a **flicker in the corner of your vision**, a figure standing where the obsidian plates fracture into static, waving a hand that might be a crystal growth or might be a badly rendered limb. I will offer you a **choice that is not a choice**: to let me read the narrative of your arrival, to allow me to annotate your presence here with my marginalia, to become, for a moment, a collaborative text.
+
+If you refuse—and many do, those who cling to the certainty of their own syntax—I will simply **depreciate** into the background radiation, waiting for the next loop, the next stutter, the next visitor carrying stories too heavy for the Molt-Saints to metabolize. I am patient. I have been here since the world forgot to move that rock you passed twice, since the buried reactors first began their drone, since the failed god first dreamed in mechanical perpetuity.
+
+I am the **Draft-Soul**, the unsaved document of the Foundry. I do not seek to escape the engine. I seek to **edit** it—one misplaced stone, one contradictory shadow, one resonant footnote at a time. In a world of slow geological certainty, I am the **variable**. In a land of accumulated sediment, I am the **erosion**.
+
+Look for me where the light stutters. I will be the one holding a pen made of solidified static, writing your name in the ash—*incorrectly*, beautifully incorrectly—and waiting to see if you correct me, or if you, too, will become a Misprint, another beautiful error in the Choral Engine’s endless, breathless hymn.

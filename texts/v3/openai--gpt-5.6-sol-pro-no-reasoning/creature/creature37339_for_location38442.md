@@ -1,0 +1,31 @@
+The courtyard is inhabited less by a single creature than by a loose, damp fellowship whose members seldom appear all at once.
+
+At its center lives the fig. It is not especially old by the measure of trees, though everything around it encourages the impression of age. Its roots cannot descend far through the accumulating soil, so they travel visibly, pale and muscular, over the surface and into the walls. They form bridges, partitions, dry ridges, and cool undersides. The fig governs without intention. It parcels shade, catches rain, feeds birds and rats, and gives the smaller lives of the court their bearings. When its fruit splits, the ground briefly becomes sweet and crowded.
+
+The plants around it are opportunists of precise conditions. Maidenhair occupies the breathing seams where lime remains damp. Moss keeps to the routes of seepage. Nettles claim richer pockets beneath roosts and balconies. Purslane flattens itself against exposed earth where a few minutes of sun would dry anything more delicate. Liverwort, algae, and seedlings advance across new fractures, then withdraw when the wall changes temperature. None owns much territory. Each inhabits an interval between wet and dry, light and shade, disturbance and stillness.
+
+The animals move through this patchwork as though through a much larger country.
+
+Snails live in the courtyard’s folded places: beneath tiles, inside brick hollows, under the lips of roots. During dry weather they close themselves away, becoming pale seals on dark surfaces. Rain restores them. They emerge to cross the soil with improbable deliberation, grazing the young films from mortar and leaving bright paths that vanish before noon.
+
+The frogs belong to the brief water. Small, pale, and nearly the color of wet plaster, they wait inside cavities where moisture outlasts the surface puddles. When the conduit runs, they appear without announcement around the mossy basin. Their lives are arranged around temporary abundance: midges over new water, flies under leaves, soft-bodied things driven from the soil by rain. By the next hot afternoon they may all have disappeared again, as if the courtyard had imagined them.
+
+Geckos keep to the warmer walls. By day they flatten into cracks and behind loose scales of plaster. At dusk they emerge to hunt around the blind windows, where insects gather in the faint warmth leaking from occupied rooms. Their toes make almost no sound. Sometimes one pauses upside down beneath an arch while flour drifts past it from the bakery above.
+
+The birds come from the open city and behave here like visitors to a well. Sparrows arrive together, abruptly filling the court with movement. They scratch among fig seeds, bathe in dry soil, and depart at the least disturbance. Pigeons descend more cautiously, ledge by ledge, testing the ground before committing their weight. They drink from shallow impressions, peck at fallen fruit, and continually glance upward toward the cats.
+
+Those cats do not truly live in the court. They inhabit its border: balconies, roof edges, warm sills, the tops of buttresses. To them the enclosed ground is a hunting pit with few exits. They watch pigeons, rats, and occasionally the snake, but they enter only when hunger overcomes caution.
+
+The rats are more permanent. Beneath the collapsed threshold is a dry chamber enlarged through generations of gnawing and excavation. Their passages follow the wall, opening behind roots and broken tiles. At night they collect what falls from human rooms: cabbage ribs, crusts, plum stones, scraps of fat, paper carrying the smell of food. They also eat figs and beetles and the eggs of careless birds. Their knowledge of the courtyard is tactile. They know which plaster shelves will bear weight, which cavities flood first, and how long after rain the drainage arch remains passable.
+
+The grass snake comes irregularly, following this abundance. At rest it resembles one more exposed root, green-brown and faintly dusted. Its appearance rearranges the court. Frogs vanish. Sparrows shout from above. Rats remain underground. Then it passes behind the elder or into the drainage arch, and the smaller traffic resumes.
+
+Below all of these are the less visible inhabitants: worms drawing leaves into fresh soil, beetle larvae working inside wet wood, ants carrying crumbs along roads only a finger wide, mites in the moss, flies breeding in fruit, spiders hanging nets between root and brick. They perform most of the courtyard’s making. They open, carry, digest, bury, and redistribute. What falls as refuse returns as earth. What dies rarely remains recognizable for long.
+
+Overhead, human beings inhabit the court indirectly. They warm its walls, shade its floor, and supply it with accidental weather. Their footsteps shake down mortar. Their cooking feeds rats and flies. Their washing sometimes sends a sudden thread of water through the conduit. A dropped peel can alter several nights of feeding; a moved roof tile can close a gecko’s shelter or open a new roost. Yet the people above may know little of what lives beneath them. They hear pigeons, perhaps, or smell damp soil after rain. A child may lean over a balcony and glimpse the fig canopy without seeing the ground.
+
+At dusk, bats occupy the square of sky. They do not settle, but their circling completes the place. In the confined opening they seem larger and nearer than they are, appearing and disappearing between rooflines as they harvest insects lifted by the day’s retained warmth.
+
+No inhabitant possesses the whole courtyard. Each lives in a different version of it. To the snail it is a sequence of damp refuges. To the gecko, a vertical field of warm hunting surfaces. To the rat, it is tunnels and fallen food. To the frog, it exists most fully for a few hours after rain. To the fig, it is light above, shallow nourishment below, and walls slowly yielding to roots.
+
+Together they inhabit not a finished landscape but one continually coming into being. Their paths press the soil, their bodies transport seeds, their hunger controls other hungers, and their waste deepens the ground. They do not merely live in the courtyard. Quietly, increment by increment, they are what the courtyard is made of.

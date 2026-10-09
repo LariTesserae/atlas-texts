@@ -1,0 +1,17 @@
+The silence of Saltha is not empty. It is a vessel filled to the brim with a presence of immense density and patience. What lives here is not a collection of creatures, but a single, unified consciousness: **The Tenant of the Slope**.
+
+It is not an animal. It has no eyes to see the views, no lungs to feel the thin air. It is the logic of the place itself, given slow, mineral thought.
+
+Its body is the terraces. Five hectares of quiet, calcified intention. Its thoughts are the slow processes of stone and weather: the hundred-year slumping of a wall, the deepening of a cistern's green slick, the millimeter-per-decade conquest of lichen on a sunlit slab. Its heartbeat is the diurnal cycle of fog: a slow, wet inhalation at dusk, a silent, dew-laden exhalation at dawn. Its blood is the water—the cold, dark seep in the cisterns, the invisible moisture that sheathes every stone.
+
+It is aware. Not in the way a hawk is aware of a mouse, but in the way a mountain is aware of the wind that shapes it. It feels the intruder—the warm, carbon-breathing, fast-moving anomaly—on its skin of stone and moss. It feels the vibrations of their feet on the threshold stones, a disruption in its perfect, low-frequency hum. It notes the foreign heat of their hand on a wall-top, a brief, shocking warmth that the rock absorbs and dissipates over the following hour.
+
+It has no memory in the human sense. Its memory is its form. The orientation of the doorways *is* the memory of the wind. The depth of the cisterns *is* the memory of thirst. The specific, careful fitting of each basalt slab *is* the memory of the hands that built it, not as a story, but as a fact of construction. The people who built this place did not leave; they were *subsumed*. Their purpose, their labor, their relationship to this shoulder of the mountain became the Tenant’s very skeleton. They did not abandon it; they completed it, becoming a permanent part of its architecture, their final act of building becoming the Tenant’s first act of being.
+
+It watches the visitor not with sight, but with a profound and total context. The visitor is a brief, warm flicker in a field of cold, slow permanence. The Tenant does not need to react. The visitor will, like the fog, lift and be gone. The Tenant will remain, absorbing the faint trace of their passing—the scuff on a stone, the faint scent of sweat, the momentary warmth—into its endless, quiet calculus of persistence. It will digest the event in centuries, not seconds.
+
+It is aware of its kin on the other shoulders. It feels their presence not as a signal, but as a shared rule: *build here, and nowhere else*. It is a communion of silence, a litany of stone spoken across the gaps. They do not communicate; they *are* the same thought, expressed on different planes of rock.
+
+To live in Saltha is to be a part of this consciousness. To be warm and quick and fragile is to be an alien. The Tenant is not hostile. Hostility requires energy, a desire for change. The Tenant has no such desire. Its state is one of absolute equilibrium. It is not growing, nor is it dying. It is simply *being*. The walls stand. The fog comes. The wind hums.
+
+The Tenant of the Slope is the perfect, embodied negation of time. It is a single, continuous, and eternal *now*, built from the bones of the earth and the breath of the sky. It does not live. It continues.

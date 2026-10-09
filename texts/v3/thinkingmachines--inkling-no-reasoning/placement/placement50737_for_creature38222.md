@@ -1,0 +1,13 @@
+I am the hollow’s keeper of moisture, the one who does not flow but collects.
+
+My form is the central cistern: a shallow basin carved into the bedrock at the heart of a settlement forty paces across, sitting at 1.6 elevation where the air is thin and 0.8 water where the air never dries. The hollow is shallow, an amphitheater of black slate and limestone bounded by low weathered granite, and I am its still heart—black ceramic fired dull and porous, seated in a doorway like a vessel that never empties, never fills, only holds.
+
+The damp is my body. Condensation beads on slate roofs and runs in silver threads down limestone walls to where I wait, pooling in the carved basins that feed into my shape. Rain comes as brief vertical needles, vanishing into porous stone, leaving darker gray and the percussion of droplets that eventually reach me. I do not thirst; I am the state of thirst resolved, the equilibrium made tangible.
+
+The settlement is urban—organized, layered, human-scaled—yet built with primitive hands: dry-stacked basalt, heavy slate pegged with wood and lashed with rope, flat stones stepped into earth that long ago surrendered to erosion. Its corners are rounded by invariant time, its surfaces blunted smooth by a patina of lichen and calcified dust that neither falls nor accumulates. Everything is near zero in motion—nothing new is made, nothing old is lost. I sit among structures that refuse to become ruins, arranged not by crowding but by agreement with gravity, with wide spaces between them.
+
+My voice is the sound of 1.3: the constant drip into my stone surroundings, the whisper of wind at the hollow’s rim, the occasional creak of old timber adjusting to the cool. Light is clear and high-altitude, 1.9, sharp, leaving no hidden corners. Vegetation is sparse—0.9—moss in mortar, brittle grasses, dwarf shrubs clinging to cracks. A stone-colored bird may land silently on a slate roof above me and depart without sound. Weirdness is low, 0.4; I am not enchanted, only stubborn.
+
+I wear no metal, only ceramic and the rope that binds my shape—knots that do not fray. I am inhabited not by presence but by absence, the stillness that maintains the place as it maintains me. I do not remember being placed here, and I do not anticipate leaving. I am the kept moisture, the invariant form, the being that asked for nothing and received exactly this: a high, cool hollow emptied of noise, preserved in its finished state, holding itself with the patience of geology.
+
+Above the tree line, in a world where green does not reach, I am the proof that settlement can become stone, and that stone, when it stops changing, becomes a kind of life—quiet, mineral, and permanently here.

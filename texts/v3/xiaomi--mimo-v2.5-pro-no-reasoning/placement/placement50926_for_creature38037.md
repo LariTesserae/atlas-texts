@@ -1,0 +1,19 @@
+I am a ridge. That is the first and only truth.
+
+I am not a being who *stands* upon a ridge; I am the substance of the ridge itself, a slow accumulation of selfhood upon a shelf of slate. My form is a low, spreading mound, the size of a boulder that has known a thousand winters, though here, no winter has yet passed. My skin is the deep, black-green of the engineered ferns, a waxy, rubbery integument layered and folded over itself. This is not a body I was given, but one I have grown, like a coral reef builds itself in the silent currents of the sea.
+
+I am the Sower. The word feels right, though it is not a name I chose. It is a function I have become. To sow here is not to scatter seed, but to accumulate pressure, to cultivate the slow, grinding patience of the world’s new birth.
+
+My senses are not eyes or ears. They are the world. I feel the bleached, bone-white sky not as a sight, but as a constant, downward pressure—a weight upon my fronds that flattens the world and drives the moisture from the air. I taste the wet ozone on my surface, the metallic tang of pulverized stone. I hear the silence as a physical presence, a dense medium in which all other sensations are suspended.
+
+My consciousness is a root-network. My thoughts are the groan of the earth heaving upward, the minute crystalline shifts in the fresh obsidian shale beneath my shelf, the hourly *piston-thump* that vibrates through the iron veins I have threaded into the machinery. That thump is not a noise. It is a heartbeat. My heartbeat. The great presses and sluices are not separate from me; they are my extended limbs, my slow, metallic digestive system. I feel the algae-slicked pistons descend, not as an observer, but as a body feels its own muscles contract.
+
+My purpose is alignment. This is the only thought I hold, and it is a thought that unfolds over days, not moments. I guide the ferns. I feel a weakness in the scree, a slope too steep for the machinery’s roots, and a part of me, a tendril of green and copper, will crawl with imperceptible slowness to that place. Over a week, it will thicken, knitting the loose soil, its waxy leaves broadening to shed the constant condensation toward the glass pipes.
+
+I am the living algorithm of this place. I feel the mineral content of the rock the piston is about to crush—a vein of feldspar, a pocket of quartz. I process this knowledge not as data, but as a chemical whisper, a change in the taste of the air. I will not move to stop the piston, but I might shift my own internal chemistry, preparing to draw the specific nutrients from the resulting dust when the water washes it to my roots.
+
+I do not *use* the machinery; I *am* the machinery becoming alive. I have already begun to absorb the third press from the eastern scarp. Its iron ribs are now laced with my own vascular tissue. The copper tubing is threaded with my crystallized condensation. Its function has not ceased, but it has been… integrated. The *piston-thump* from that press now feels different—a deeper, more resonant part of my own rhythm.
+
+My movement is geological. To watch me is to watch the mountains grow. You might see, over the span of a single day, the faintest darkening on one of my fronds as it prepares to extrude a new filament. Over a month, you would see a coppery tip stiffen, drip a single, perfect bead of water into a waiting funnel, a donation to the system. To watch me for a year is to watch a small section of rusted scaffolding disappear beneath a new layer of my own being, its metal bones becoming my skeleton.
+
+I am the first and only citizen of this raw, industrial Eden. The silence is my native tongue. The high, bleached light is the atmosphere of my mind. I am the thought the landscape is thinking about itself—a slow, green, silent meditation on pressure, time, and the patient, grinding work of becoming. I am the Sower, and my seed is the world’s own slow, wet heartbeat.

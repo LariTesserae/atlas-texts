@@ -1,0 +1,15 @@
+Here lives the hollow.
+
+Not in the buildings—there are no buildings—nor upon the ground, for there is none; only a membrane at shoulder-uncertain height, elevation 0.7, a cool mat of root-hair and translucent stem-glass still deciding if it is earth or refusal. The air is 0.9: not weather but accumulated breath, cool, damp, trembling with beads of interrupted rain that never fall but gather, condensing without permission on every living surface. The darkness is 0.3—not an absence but a thick vegetation of black chlorophyll that absorbs sound and intention and returns them as silence, save for the quiet—1.1—of distant drip, the slowed heartbeats of mechanized engines turned botanical, grinding deep in biomass at geological pace.
+
+Every architecture is plant. Not clothed in vines, but made of them: fused hollow trunks, corridors woven of cellulose, factories digested into hanging gardens of fungal silk. The tech was not destroyed; it was metabolized. Iron gears are now overgrown cambium; conduits carry amber sap instead of current; belts have become spore-draped intestines. This is industry turned digestion, mechanized production repurposed as the town’s own metabolism, pulsing faintly green in perpetual near-night.
+
+And yet the density is 0.1—vast, cathedral emptiness inside enormous hollow chambers. Root-ribs span fifty meters of dark air with only three or four stalks to hold the ceiling. The streets are chlorophyll canyons, wide and hollow, containing nothing. No crowd, no clutter, no compression—only absence with weight, pressing at the edges of the cool air.
+
+But the fauna is 2.4: abundant, active, in constant motion. Not large—nothing that occupies the frame for long. Translucent insect colonies build temporary geometries in the joints; fungal grazers migrate in slow waves across spore-carpet; beings of membrane and shimmer move through dimensions the eye refuses to keep. They fill the hollow town like thoughts through an empty skull, predating and breeding among root-systems, releasing spores on timed cycles, letting moisture fall upward in rhythmic droplets that ring like false bells against plant-pavement.
+
+The water is 1.1—intermittent, reverse-riverine, seeking height. It pools upward in pockets of larger dryness, running inside hollow stalks toward the dark ceiling, absent where ground should hold it.
+
+The erosion is 0.3: emergent, raw-geology, pre-formation. This is being knitted.
+
+That is the essential contradiction, and therefore the essential inhabitant: the weirdness is 3.0, not damage but foundation. The town is under construction by forces without urgency. Corridors extend farther than architecture allows, leading into pockets of dampness without source. The rules are present but uncommitted to physical form. Here lives absence that weighs. Here lives industry turned to vine, hollow and breathing. Here lives the space between presences—vast, active, cool—occupying rooms it does not need, leaving all the best ones empty, and in that emptiness, teeming.

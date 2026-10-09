@@ -1,0 +1,31 @@
+The city begins as a rumor in the cliffs.
+
+From far away it looks like pale scratches on a mountain wall—too straight to be natural, too broken to be deliberate. Only when you climb into the high cold does it resolve into streets: whole districts cut directly into stone faces, terraces stacked like shelves, arches opening onto air. There are no roofs because there is almost no weather in the way lowlands understand weather—no rain, no flowing water, no green taking hold in cracks. The sky is a matte iron color most days, dim with suspended mineral haze, and the light arrives tired, scattered, as if it has already crossed a great distance underground before touching the city.
+
+Everything here is dry enough to ring.
+
+A hand against a wall lifts powder finer than flour: weathered feldspar, volcanic ash gone old and obedient, salts that never dissolved because there was never enough liquid to teach them how. The slopes below the carved districts are draped in scree and old collapse fans, not fresh ruin but ancient settling. This place has been failing into its current shape for a very long time and has, by now, become stable at the edge of instability—an equilibrium of fracture.
+
+At this elevation, horizons are complicated. You can see dozens of kilometers, but only in slices: ridge, void, suspended district, a bridge to nowhere, another ridge beyond. Much of the “ground” is actually negative space—chambers, shafts, dropped courtyards, canyon-streets with no floor visible until the dim catches a ledge far below. Density is low not because nothing was built, but because what was built is spread through volume rather than footprint. The city is porous. More emptiness than mass.
+
+There is no obvious technology. No cables, no engines, no lamps, no signage, no moving parts that belong to tools. Construction seems pre-mechanical yet impossibly coordinated: cyclopean lintels, repeating stair geometries, load paths that still work after ages of frost and thermal stress. Some staircases are too tall for any ordinary stride, some doorways open onto sheer drops, some plazas are enclosed on all sides except above, like open tombs. It feels less like a city designed for inhabitants and more like one designed for trajectories—wind paths, falling stone, shadows.
+
+And things do move.
+
+Not quickly. Not loudly. But constantly.
+
+Cold gas tides rise from deep cracks each dusk, carrying metallic smells and whispering dust across plazas. Rock faces tick and ping as temperatures slide, grains releasing one by one. Entire curtains of pebbles will sometimes begin to flow down a chute with no warning, making a soft dry hiss like sand poured onto silk. In several districts, slender stone needles hum at frequencies just below hearing when the upper winds align; you feel it in your teeth before you notice it in your ears.
+
+The weirdness does not announce itself as spectacle. It arrives as inconsistency.
+
+Distances are unreliable along certain streets: two towers seen side by side may take hours to traverse between, while a stair thought impossibly far can be reached in minutes if approached from shadow. Echoes return before the sound that made them. At some intersections, your breath condenses briefly in geometric planes, like invisible walls deciding where air is allowed to cool. There are plazas where falling grit stops midair for several heartbeats, then continues downward as if nothing happened. Locals—if “locals” applies to the rare living things here—seem to avoid these places with perfect instinct.
+
+Life exists, but sparsely, and not in ways that suggest abundance was ever possible. On lee sides of warm stone you find matte-black crusts that are not quite lichen and not quite mineral, growing in branching fracture patterns that retract when touched by dawn light. In deeper shafts, translucent thread colonies span gaps like abandoned rigging; they vibrate to passing pressure changes and feed, perhaps, on trace chemistry in the gas tides. Once in a long while, something larger appears: a six-limbed glider with skin like smoked glass, launching silently from one high cut to another, never flapping, steering on thermal seams you cannot see. They are solitary. You might watch one for an hour and convince yourself it was a trick of dim light.
+
+Sound is mostly an absence shaped by stone. Your own movement is the dominant event: boot on grit, cloth against carved corners, breath amplified in slot canyons. Then, occasionally, the city answers with a distant shift—a block settling, a chain of tiny collapses, a long low exhalation from below. No birdsong, no insects, no running water, no leaves. Quiet here is not peaceful; it is structural.
+
+Rules of the world seem different at altitude. Gravity is normal until it isn’t: in some vertical courtyards, tossed dust curves sideways in smooth arcs. Light is dim but directional in impossible ways—shadows from no visible source, lit planes facing away from the sky. Time has pockets: some exposed carvings are razor-sharp as if cut yesterday, while sheltered inscriptions nearby have eroded to featureless bowls. You begin to suspect weather is not uniform here; it is local, selective, almost behavioral.
+
+Despite all that, the place does not feel chaotic. It feels inhabited by processes rather than people. The “urban” quality comes from intention frozen into geology: circulation routes, gathering voids, repeated modules, thresholds. The “wild” quality comes from everything that intention could not control and eventually incorporated—creep, fracture, gas flow, thermal pulse, spatial anomalies. The two are now inseparable.
+
+If you stay until the dimmest hour—when the sky drops from iron to charcoal—the upper ridges vanish first, then bridges, then whole districts, as if erased in layers. What remains visible longest are the deepest cuts: narrow vertical lines of pale stone glowing with retained cold light, hanging in darkness like writing on a black page. Then those too fade, and the city is only volume and breath and the occasional mineral whisper, suspended at the top of the world where almost nothing lives and almost everything moves.

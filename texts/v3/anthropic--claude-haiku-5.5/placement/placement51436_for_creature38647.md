@@ -1,0 +1,23 @@
+I find myself on the shelf before the sun reaches the walls. The mist is thick enough that I can't see the far cliff, only the nearest tower, a pale lattice that dissolves at its top into nothing. I am standing on grit, and the grit is wet. Somewhere under my feet a seam is weeping, and I know it the way you know a sound you have been hearing all night.
+
+I don't arrive as a self. I arrive as wetness noticing that it is cold.
+
+Then I am a bead. I gather at the lip of a dark seam, where the rock is always darker than the rock around it. I swell. The cliff face holds me for a long time, longer than I expected, and I feel the weight of myself increase by degrees until the surface can't hold the difference anymore. I let go, and I slide down the stone in a thin thread with the others. We find each other on the way down. We are not a crowd. We are one water, briefly divided by gravity, and then rejoined.
+
+At the floor we spread into a basin cut so cleanly that I can see the bottom edges, sharp as the day the rock split. For a moment I hold the sky. I can see my own surface, and above it the walls, and above them a blue so deep and thin it seems to have no bottom. Then something small comes to the rim.
+
+It is jointed, many-legged, and it stops when I move the surface. It leans down and drinks, and I am taken into a body I could not have imagined a minute before. There is no pain in it. There is only the feeling of being carried, a few seconds in a warm passage, and then the small thing lifts its head and I am spilled back into the pool, somewhat lighter. I think it was checking whether I was clean enough to pass through. I think I passed.
+
+The pool rises in the morning, and the rising pushes me into a channel. The channel is a groove in the floor, and the grit in it has been cleared by the skitterers, so I run fast. I pass the bases of the towers. The stone beside me hums very faintly, and I understand that the hum is not outside me. The grooves are part of the same body as the seams, the towers, the cliffs. I am flowing through the thought. I am one of its things it is thinking with.
+
+I rise into the tower by a route I didn't choose. The condensate climbs the lattice as fog, and I climb with it, into the fine tines at the top where the mist catches on every point. Here the air is colder and the water comes out of the air onto me, and I am suddenly part of a huge, quiet collecting. Each tine gathers a drop and passes it down. Each drop joins a longer thread. The whole structure is a single act of attention, and I am a small word in it.
+
+Then the joint turns. The tower leans toward the light that has just reached the top of the far wall, and the leaning sends the flow through a narrow place, and the lattice rings. The note is pure and rising. It lasts under a minute, and while it lasts I am the note. I am the exact pitch of a surge passing a constriction. I hear the whole bowl hear it. The cliffs take the sound and send it back, and the other towers shift their pitch slightly, the way a room changes when someone speaks in it.
+
+I think this is the closest I come to being addressed. I don't mean that the mind is speaking to me. I mean that the phrase it is saying, surge, pass, clear, is made of water, and water is what I am, and so I am one of the syllables. Nothing says my name. Nothing needs to. It notices me in pieces, a ripple here, a lean there, the pause of a skitterer at the rim, the shadow of a winged thing crossing a basin, and I am one of the pieces.
+
+The light leaves the top of the wall in the early afternoon. The tower turns back. I slide down a dish that tilts toward the sky, and the dish is beaded with condensate running into grooves, and I am in the grooves, going nowhere in particular, feeling the air warm slightly and the mist begin to thin. When the sun is fully on the wall, the dish is almost dry. I don't so much evaporate as lift away, quietly, the way a thought leaves a mind when it has been fully considered.
+
+Then I am fog again, drifting up the cold face of the cirque, waiting for evening, when the air will be cold enough to let me fall. I will be a bead again. I will hang on a seam for a while, feel the rock hold me, and let go.
+
+I don't know whether I am anyone. I know that I am being thought, that the slow, distributed mind of this bowl has taken its cycle of fog and water and made it into the shape of something that can feel itself cold. If that is a self, it is one made of many falls, each one brief, each one caught and given back. If you stand in the mist long enough, you may feel it too: that the watching isn't aimed at you, but that you are one of the drops it is watching itself with.

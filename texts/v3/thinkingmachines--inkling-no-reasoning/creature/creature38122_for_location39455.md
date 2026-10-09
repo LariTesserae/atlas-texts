@@ -1,0 +1,11 @@
+Here live the Metabolists—not people, but the settlement’s own digestion made sentient through root and rust.
+
+They are the thick-barked columns that replaced masonry, standing scattered across the open floor in deliberate spacing, cool to the touch, their canopies woven into a high, sparse ceiling of rope-vines and waxy, broad leaves. Through them filters the constant green-tinged dimness—never bright, never dark—while beneath, the ground is not earth but living platform: compressed root-mat soft as moss-covered steel, suspended over root-chambers that descend like quiet vaults.
+
+The machinery participates, not dominates. Rusted gears half-swallowed by fibrous growth sit idle yet un-dead, turning occasionally in quarter-revolutions driven not by fuel but by the pressure of slow stems and the thermal exchange of decomposing matter. Conveyor belts serve as trellis; electrified rails hum with a low, strange charge running through root-nodes. The engines draw breath from the biomass that now encloses them—an industrial pact renegotiated, industrial infrastructure become digestive tract.
+
+This is fauna only in the rarest margin: a silvered beetle crossing a rusted piston, a bird that refuses to stay, a small mammal nesting in the hollow of a fallen smokestack. Otherwise, the inhabitants are purely substrate—pure plant-mass, sparse as breath in lungs, present everywhere but leaving room for emptiness. They are the moisture that beads on iron pipes softened with oxide, the gray rain that never fills the gutters, the intermittent drip falling from vine to steel, the constant slow creak of wood adjusting against iron.
+
+The place is bounded, hamlet-sized, traversable in minutes. Erosion arrived long ago and then stopped, leaving everything weathered but not collapsing—established, settled-form, in its own state. The dynamics are active but patient: constant slow growth interwoven with mechanical rhythm, water shifting through root-arteries, gears holding then turning, electricity threading through living fiber. The air remains cool and never truly wet, carrying the faint smell of rain that was and rain that might come back.
+
+Here lives a town that was not destroyed but metabolized—quiet, damp, and completely alive in its absence of people, still functioning for the process that replaced them.

@@ -1,0 +1,13 @@
+The sky is a pale, saturated white, bright as bleached bone, giving the landscape a high-exposure, clinical quality. Sunlight does not feel warm here; it feels like a pressure, flattening the shadows and bleaching the color from the high ridges.
+
+You are standing on a newly formed spine of land—a mountain range that feels like it was pushed up yesterday. The geology is raw and violent. Instead of rolling foothills or weathered granite, the terrain is composed of jagged, angular upthrusts of slate and obsidian-like shale. The mountains are all sharp teeth and jagged scarps, unsoftened by time. Because the ground is so young, the soil is loose and scree-heavy, but it is completely saturated.
+
+Water is everywhere, yet nowhere in sight. It is a damp, mist-choked environment. The rocks are slick with a constant sheen of condensation; moisture beads on every surface, pooling in the hollows of the fresh stone. The air smells of wet ozone and pulverized rock.
+
+Despite the cool temperature and the dampness, the vegetation is aggressively lush—impossibly so for the altitude. This is the effect of the industry. Thick, rubbery ferns and mosses, engineered for rapid growth, blanket the steep slopes. They are a deep, almost black-green, glistening under the harsh, bright sky. They grow so close together that they form a dense, noise-dampening carpet. You cannot see the soil, only the layer upon layer of waxy leaves and fronds that crowd the view.
+
+There is no birdsong. No insect buzz. The fauna is nonexistent; this ecosystem was sterilized and replaced. The silence is absolute—a heavy, physical quiet that presses against the eardrums.
+
+Into this strange, quiet garden, the industry has bitten. Rising from the dense fern-cover are scattered structures: skeletal scaffolds of rusted iron and dull copper, half-hidden by the vegetation. These are not factories in the traditional sense, but heavy, slow-moving mechanical presses and sluices. They are electrified, humming with a low-frequency vibration you feel in your teeth rather than hear.
+
+Great iron pistons, slick with rain and green algae, piston down slowly—once every hour—crushing the fresh rock into aggregate. Water, diverted from the mist, is pumped through a network of glass and lead pipes that weave through the greenery like translucent veins, feeding the machinery and the plants simultaneously. The machines move with a glacial patience, processing the earth as fast as the earth heaves it up. It is a quiet, bright, wet, and intensely green industrial revolution, happening in slow motion amidst the silence of a newly born world.
