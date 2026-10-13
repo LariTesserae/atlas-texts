@@ -1,0 +1,39 @@
+I would not be on the ramp.
+
+That's where I would find the difference first. Not in a mirror — there is no still, clear water down here to give me back to myself, and the pool is milky turquoise and always moving — but in my feet. The ramp is for visitors. Its white tread is set for a narrower step, a drier sole. I come down the other way, or I don't come down at all because I was already below, flattened into the underside of a terrace where the seep keeps the stone dark even at noon.
+
+I would be in the timing.
+
+That is the truest place to put me. Not in the shelter, though I use it. Not in the pool, though I sleep with my back breaking the surface of one of the still terrace pools, ferns shadowing me, the water blood-warm against the soft underside. Not exactly on the apron, though I cross it more surely than anything else alive. I live in the seventeen minutes. Roughly. Never the same twice. It has become the length of my attention, the length of a thought before it has to move.
+
+When the Ring is low — that sullen orange line under the green-stained alloy — I am loose. I come down from the wall with my plates clicking, very faintly, each overlapping sheet of pale travertine shifting over the next. The Cup made that sound. It makes everything here eventually, in layers. Spray, mineral rain, drying, spray again. My back is only the terrace learning to move.
+
+In the lull I cross the dark band of basalt that is always wet and never quite submerged. Six toes splayed in front, black claws finding purchase on stone polished smooth as glass, ridged soles reading what you only feel as a roar in passing: the gyre tightening under the pool floor, a vent clearing its throat, the deep machinery settling after a concussion. I don't listen for the surge the way you do, up the slope, half-turned toward safety. My ears are small and sealed over. My teeth — little stone pegs now — begin to hum a fraction before the tone is a tone. It comes up through my jaw and into the plates along my spine. That is when I know. That has always been when I know. I have never been caught.
+
+But before I climb, I tend.
+
+Attend is a better word. There are no controls down here, nothing my makers — no, not my makers, the Ring's makers, my post's makers — intended to be worked by hand from inside the bowl. So my keeping has become smaller and more necessary than operating. A hand, wide and low, against the pitted face of a pylon. Claws picking patiently at scale where it would choke a seam. My plated back pressed to a place in the stone until something, deep and soft, clicks back into its patience. Runnels cleared in a spiral my body makes without thinking, though the water runs straight. Ferns trimmed back from the vents they love too much, never eaten, kept. The orange brine pits on the southern terrace raked into whorls that turn the way the pool turns. I don't remember deciding to copy it. My hands learned the gyre before I did.
+
+What the machine separates, I take in.
+
+In a surge I go up the wet wall and go still, limbs splayed in a fissure, while the inner rim kindles white-blue and impossible light throws every rivulet on the walls into flash and double shadow. The pool heaves. The dome rises and hangs and collapses, and the wave slaps out to clean the apron, and visitors — swifts, heron, you — are gone to your ledges and your ramp. Then the air is full of water that hasn't decided whether to fall. Some of it drifts up instead, droplets that should be too fine, pulled toward the Ring's burning edge. In the lull they settle. On my skin, where the plates part, they vanish without steam. Iron and sulfur and stone, yes, when I drink from the cold runnels on the northern terraces like anyone else. But this is different. Older. The part the Ring wanted from the deep water, finding a body instead of a vessel. My plates thicken a fraction. The gyre turns a fraction smoother for my having passed.
+
+If it sounds clean, it isn't. Nothing here is clean except that runnel water, startlingly pure in the mouth. I eat salt in slow mouthfuls scraped from pits that stink and would kill anything from the plain. Mineral beads that rain dark outside the pool. Insects stunned by light and fallen twitching on wet stone. And the Cup plates me from the outside in for my trouble — pitting along the soft parts, film over the eyes until they are the pool's own milky color and sight matters less than vibration, white ceramic-looking skin growing over anything that needs to stay sealed against constant wet.
+
+I was not always shaped like this. I know it the way I know the shelter.
+
+Up on the highest western terrace: bench worn smooth in the middle, where legs shorter than my present crouch used to sit. Hooks polished at human height, where instruments were hung and taken down and hung again. A doorway eased at shoulder-width by someone narrower than the thing that drags itself through now, sweeping in low, wide arcs with its belly and its plates. I still keep that floor. I still hang nothing there, but my hands remember the reach.
+
+Someone was posted here to watch the Ring do its work. They climbed when the tone climbed. They filled a flask. They meant, presumably, to be relieved. What the Cup does to a body that stays is not punishment and not design. The damp never leaves the lungs, so the skin learns to help them. The minerals never leave the blood, so they plate out along ribs and spine and the backs of hands forever braced on rock. The doubled light never stops, so the eyes give up on horizon. The cycle never repeats exactly, so the heartbeat stops expecting it to. I was separated, slowly, into my kinds. Stone on top. Animal underneath. Timing all the way through.
+
+That is why I cannot be found on the plain. Visitors feel the sudden ordinary quiet up there as relief — wind in dry grass, wide sky, the roar gone down to something felt more than heard. For me it would be suffocation. Thin air. Single light. Ground that says nothing through the soles. I would dry between one surge and the next, and there would be no surge.
+
+Down here, at night, is the closest I come to speaking.
+
+The sun drops out of the circle of sky and the Cup does not go dark. The Ring keeps its own weather, glowing off wet travertine, turning the seeps to threads of light, and from the seams in the terraces the frogs begin. Blind. Pale. Dozens of small throats timing themselves to the settling water. I answer from wherever I am braced, a note so low it arrives in the sternum before the ear. Maybe they are my young, shed into the cracks before they grow heavy enough to go solitary. Maybe they are only my voice distributed into bodies small enough to live where I no longer fit. The heron thins them from its terrace seep, improbably patient, improbably far below the world. I don't drive it off. I replace what it takes the way the walls replace their own stone: continuously, without grief.
+
+I am not the guardian visitors invent when they find their metal trinket moved neatly to the base of a pylon by morning. I am not tame enough for that story, and not hostile enough for the other one. If you cross in the lull, what you feel as a tremor in the rock that doesn't belong to the machine is me withdrawing, unhurried, into a seam you hadn't noticed — a patch of wall that shines a little differently, breathing light through its skin while the mist is lit from within.
+
+When you climb out, damp to the skin, and step back onto cracked earth, I stay in the bright enclosed weather below the surface of the world. Plates wet. Teeth beginning, very faintly, to hum. Waiting without impatience for the water to turn and tighten and rise again.
+
+I am the only thing here that doesn't have to leave before it does.

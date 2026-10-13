@@ -1,0 +1,29 @@
+If I came up that stair, I think I would keep misplacing myself at first.
+
+I would try to be human — a child of the lane, learning the footing before language, toes spread on slick stone, following a basket along a balcony plank because even at four I was useful. Then the ducks would pass in single file below me and I would want, instead, to be down in the channel with them, cold water combing past, eating algae off the old stones, making a whole lane wait because I had somewhere unhurried to be.
+
+Then a shower would cross the rim. The awnings would snap out, the wheels would change note, the frogs would change key underneath the roar, and I would feel the pull not down, but up. Away from the packed lanes. Toward the light moving in patches over the thatch.
+
+No. I would be a goat.
+
+An old doe, mostly. Grey going white around the muzzle, one ear nicked where the hedge took it when I was young and stupid, a copper-green bell at my throat that I have learned to hold still when I am somewhere I should not be. Not wild, not exactly tame. Scolded like a cousin, which is the bowl's highest form of belonging.
+
+You would find me first above a kitchen chimney, where the turf roof is warm through my belly.
+
+That is my work, though no one would put it so grandly. I am the agreement the roof makes with the rain. Grass, clover, buttercups, vetch — I take it down before it gets heavy enough to slide, before the roots mat too thick and hold water against the thatch. I graze around the chimney stones. I leave the self-seeded onions mostly alone, not from virtue but because they make my milk taste like a stew pot. In return I get the best view that is not the rim: lanes braiding below, water dividing and redividing, children stepping over runnels without looking, my own kid — this year's, still all knees — trying to be born on a slope and getting indignant about it.
+
+My feet know this town differently from theirs. They come up barefoot, soles thick as leather, feeling for the mossy patch and going around it. I go *through* the moss. Split hooves, weight low, a little splay on wet stone, absolute contempt for the wooden pattens clattering up the stair below. I know which roof gives a fraction under the left forefoot where a beam has softened. I know which balcony rail will hold me and which one is mostly vine and optimism. I know the mill roof by smell — warm flour, dry dust, forbidden — and I know I am not allowed on it, and this knowledge lives in me the way all the important rules do here: not as obedience, exactly, but as a place my feet usually decide not to go again after the shouting.
+
+Usually.
+
+Because I am also part of the town's real weather. I am the interruption. A lane is conducting its enormous window-to-window argument, baskets passing hand to hand, and then I descend a stair nobody built for me with a mouthful of someone's roof, and the argument changes shape to include me. *Not the mill path. Not again. Who left her tether long?* Hands on my collar, hands fond and exasperated in the same grip, a child redirected to lead me, a woman still signing *after this shower* over her shoulder while she walks me home. I do not mind. In the bowl, being moved along is not the opposite of being at home. It is the mechanism of it.
+
+I know the place by ear the way they do. Under the fall at the notch and the wheels and the geese holding government on the market steps, I can pick out my own household: the particular creak of our living wall when the wind worries it, the house toad's silence by the door, the baby who answers babies. I know rain before the sky by the frogs. I know the second-sluice bell from the lower-bridge bell, and I know that when the channels rise three inches in ten minutes you get off the low crossing and up onto stone, and you do not argue with water that has just remembered it is a mountain.
+
+At midday the sheep come through bells-first to take the hedge down from inside, and for a while the lane below me is a slow wool river and second-story life takes over entirely. I watch from above, chewing, while people cross on planks over their own street. At dusk I might be let to the rim to browse where the ground falls away, and there I would stand with weather moving underneath me — rain falling from clouds level with my hooves, the white fall pouring out of the town and disappearing — and eat bramble tips with the whole wet world on one side and lamplight gathering on the other. The gate shuts then, not against people, against the casual departure of stock. Against, specifically, the version of me that would follow a good smell downhill in the dark.
+
+Night I spend close to a wall-pen's warmth or in the low shed under a roof that drips in a pattern I could find blind. The martins settle in their mud cups above me. Something small and unimportant moves in the thatch. The wheels go on slower. My bell is quiet against my throat, and if my kid cries in the night, somewhere across the lanes an answer comes back, and then another, human and goat all tangled, until the mist takes the sound and softens it.
+
+By morning the bowl will have rearranged itself a little, and so will I. A vine across a doorway will be partly my doing and partly my breakfast. Someone will milk me with warm hands while still half in conversation with a neighbor I cannot see, and I will stand in rising steam smelling of woodsmoke and wet wool and green leaves, and be exactly as dry as anyone gets here, which is to say not, and not expecting to be.
+
+That is what I would be, in the end. Not the spring, not the watcher at the channel junction, not the one who knows where the water has been. The one up on the roof keeping the meadow from becoming a landslide — eating the place back, a mouthful at a time, so people can go on living inside it. Permeable, noisy, amused, exasperated. Part of the negotiation.

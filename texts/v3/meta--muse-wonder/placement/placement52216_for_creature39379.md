@@ -1,0 +1,35 @@
+You would not find me in the street at noon.
+
+At first I thought you might — at dawn, perhaps, with the water-carriers. I liked the competence of that: a jar balanced, both hands free, the whole alley flowing around you in that soft, flat-footed walk that raises no dust. I thought I might be a well-tender, someone who could taste deep water and know how the clay underneath was recharging overnight. Or the person fetched, alley by alley, when a beam goes dishonest — tapping at wood, listening for the termites eating the city at the correct speed.
+
+But all of those are people who are *fetched*. They cross courtyards. They are remembered for taking, or not taking, the last measure. In a place with no center and no anonymity, that is a large way to live.
+
+I keep getting smaller, and quieter, and more indoors.
+
+You would find me on an interior wall, in the dimmest inhabited room of a house you could walk past for years without ever being invited into its courtyard. Pale to the point of translucency. Stationed, most evenings, just above and to the left of the lamp niche, where the limewash still holds the day's warmth and the moths come blundering in out of the dark, soft as ash.
+
+I would be a house gecko.
+
+Not *in* the house, exactly. Of it. That distinction would matter to everyone who lived under me. Nobody would feed me. Nobody would try to clear me off the wall with a broom, any more than they would clear a good roof beam because it crossed their view. When visitors came into the room in the evening — coming close first, because no one here shouts across a space when they can cross it — someone might glance up and remark on me, or on how many of us there were this year, the way people elsewhere remark on the state of a roof. A good house holds its geckos. A good house passes them on.
+
+My map would not be streets either. It would be vertical, and thermal, and measured in hand-widths.
+
+I would know which patch of mud wall stays cool through the midday silence because the vine outside is thickest there — ten degrees cooler, and the plaster sweats the faintest breath of it inward. I would know where the courtyard tree raises its evening humidity, that almost-nothing damp that gathers after the fires are out and the leaves have spent their cupfuls into the air, and I would move toward it at dusk with the others, unhurried, belly low. I would know the crack beside the lamp niche where I go when a hand reaches too suddenly or a cat from the granary two houses over finds its way in on some hereditary errand of its own. The cat and I would have an arrangement. It would not be negotiated. Like the bees holding the shared fig until nine and yielding it to the bulbuls, like the swifts giving the sky to the bats out of the baobab hollows at dark, it would simply be observed, nightly, until it looked like nature.
+
+By day, I would do almost nothing, beautifully.
+
+That is the truest test for living here, I think. Not endurance in any dramatic sense — no crossing of the plain, no camel train, no rain-feast with the alleys running ankle-deep and everyone briefly, gloriously loud. Just the midday hours when millions of people vanish behind shutters and the whole basin goes white and silent, and the city does the quiet half of its living. Grain settling in a cat's belly below me. Water settling in the cistern under the courtyard floor, ticking as it cools. Roots finding the seal of that cistern and worrying it wider by a hair, so that someday the fig specialist will need to be fetched. Termites in the dark of the beams overhead, chewing. And me on the wall above a sleeping room, translucent enough that the light through the shutter slats seems to pass through my feet, not breathing loud enough to count as a sound.
+
+Here, that is not an absence of life. That is life, taxed of every excess and returned as attention.
+
+And I would be very attentive. Smallness makes a zoologist of you. I would learn the household by vibration through plaster: the stone-on-stone of grain being ground two courtyards away at the rest hour, soft enough that only a wall can hear it properly. The counted ladle-dips at the cistern mouth in the morning, and the change in them by the third dry month. A child's hand stopped gently, mid-pour — never onto open ground, never — and redirected, without scolding, to the base of the aloe. I would learn whose cooking was whose when the evening wind comes off the cooling clay and carries the whole basin's smell through every shutter at once: dust and resin and woodsmoke and goat milk and crushed moringa, and underneath it, specific as a signature, this house's peppers, this house's greens cooked fast and gone.
+
+I would never go up to the roof. That is the house's public skin, its night face, where the family sleeps under a sky so granular with stars it looks salted, where a stranger may cross at midnight stepping over the low parapet and murmuring a greeting to the shapes in the dark. The roof belongs to everyone. The courtyard belongs to no one uninvited. I would live in the third place, between those two laws: the interior wall, private even within privacy, where the lamp is lit small and late and the moths come to it because it is the only careless light for ten alleys.
+
+That is where I would do my one flamboyant thing, nightly, too fast to look like effort: leave the warm plaster, take a moth out of the air in a movement that is mostly a decision, and be back in my station before the people below have finished registering that anything moved. They would budget for me, the way the grain-roof households budget for the weaver birds' theft. A lamp draws moths; moths draw me; I keep the lamp niche clean and the room's small flying population honest. Appetite, here, is a form of agreement.
+
+In the rainy week — the three or four true rains, doors thrown open, jars carried out, children encouraged to shout — I would press myself flat in the crack beside the niche while the gutters ran and the roof sang and the whole house smelled of wet dust. I would listen to the cistern filling under the floor and feel the sound of the house change for months afterward, fuller when tapped. And then, by evening, dry again. Everything re-counted. Me back on the warm wall.
+
+If the house were ever demolished, the mud of my wall would go back into the street, and the garden would be inherited intact by the neighbors to be kept alive until someone built again. I would not follow the mud. I would do what my kind has presumably always done here: find the nearest standing interior, the nearest lamp niche, the nearest patch of plaster cooled by a vine, and take up a station above it without ceremony. The new household would notice me within a week. Someone, settling in, would look up in the lamplight and say, with real satisfaction, that the house had geckos already.
+
+Which in this place — where a garden is never demolished, only fostered, where a tree belongs to grandchildren and its shade to whoever is hot in it, where no one population lives here alone — is as close to being welcomed home as anyone gets.

@@ -1,0 +1,35 @@
+At first I think I would be on the walkways.
+
+That is where a newcomer belongs, isn't it? Up in the white light, where you can see. I would walk from garden to garden at noon, trailing my fingers in the canals to feel a current that won't move a petal, watching the dragonflies make their grain over the water, trying politely not to be disappointed that every courtyard is empty a second before I enter it. I would sit too long beside the lotus ponds. I would try to catch someone in the reflection, because reflections are forgiven here.
+
+I would be very good, for a while, at not chasing.
+
+But the light would get to me. Not the heat — the heat is damp and intimate, it settles and stays — the *evenness* of it. No morning to arrive from. No evening to be forgiven by. My shadow small and dense under my feet on the plazas, as if I were standing on myself. After a while I'd start seeking out the alleys between the storehouses just to see it stretch long and thin again, just to be in a place where the sun remembers it once knew how to set.
+
+That's how I'd find the lower places without meaning to. Not by digging. By following shade that shouldn't exist.
+
+I think I'd slip, gradually, into the habit of the unattended. I'd learn which benches keep you when you sit still enough. I'd learn to let my breathing slow until it conforms. I'd stop turning my head at the double-pressure in my ribs from behind the seed jars. I'd leave my bowl a little unfinished, and find it washed. I'd leave a sandal strap half-mended, and find — not mended, exactly, but *held*, the fibers coaxed back into the pattern they remember — and my hands would itch to do the returning.
+
+Because my hands would find it first, before the rest of me admits anything. Carrying. Sifting. That's the prayer of this place, if it has one: soil carried up in baskets, mixed with ash and dung and river silt in exact proportions, laid over a pavement, cut in a spiral. I wouldn't be strong in any remarkable way. I'd get broad across the shoulders the way carrying makes you, neck short, back beginning its long negotiation with the bend. My palms would polish. My fingers would stain green at the creases, ochre under the nails. I'd trim my nails to crescents without ever deciding to.
+
+I would not be a figure in the taro, tall and still under your gaze. That's unkind work, being looked at — I'd feel it as a stiffening, a sudden intense obligation to be *exactly* the shape of myself bending, until neither of us can bear it. No. I'd be the one who steps sideways into the hollow of the hill when your footsteps soften on the boards. I'd go in twos, if I went openly at all. Three at most. With companions whose names I would never quite hear with my ears, but know as distinct pressures: one low and slow behind the sternum, a greeting; one quicker, mirthful, that I'd mistake the first dozen times for my own mood lifting.
+
+Our speech would live in our chests. I'd grow fluent in warnings that sharpen, in laughter that eases a sadness I hadn't noticed I was carrying. Out loud, I'd have almost nothing. The air takes sound and delivers it late, in the wrong direction, damp. Better to keep the voice where the frogs keep theirs.
+
+Where you'd actually find me — if *find* is even the word, if you weren't looking, if the light through a pond gave me away — is below a meadow.
+
+Down where a hill turns out to be a roof. Down past the planting soil and the wet clay and the crushed shell and charcoal, past a pavement of broad tiles still holding handprints, into the cool green-smelling dark between floors. I'd keep a cistern garden there. The beds grow downward from an old upside-down pavement, roots reaching into water that has never seen the sun and is lit anyway, from below, from itself. Black fish turn slowly under my hands. I'd work by that light and by touch, mostly. My eyes would be glad of the dimming. My skin would stay wet and shining, not with sweat. Above me, through layers and layers of made earth, buffalo stand belly-deep and cranes repeat their circuits, and none of it makes a sound, and the drops that fall near me arrive as sound seconds later, small and clear, from somewhere I am not.
+
+That is the level that suits the age I'd be becoming. Not young — the young are kept mercifully unproven, small footprints in soft margins, a second narrow mat rolled at the foot of a sleeping platform. Not yet ancestor. I'd be descending. Each stage of my life marked not by rising, as it is in other worlds, but by being trusted with lower, quieter maintenance: first the rooftop gardens, then the root cellars, then the covered reservoirs, then this. Tending the undersides. Remembering the world correctly from beneath it, so that above, the canals hold to their lip and the blue paint doesn't fade and the fruit is there again on the branch when no one is attending to it.
+
+I'd mend what you break, when you look away. I want to be honest about that: it wouldn't be forgiveness, exactly. It would be habit so deep it precedes intention. A tile wants to be whole here. My hands would know the way before I did. I'd leave you your memory of breaking it — that's yours, I couldn't take it — and the worse, unbroken tile.
+
+And in the long accumulation that passes for time, a bowl would appear where I customarily sit. Sandals would migrate toward my door. A broad hat on a peg, its brim-shadow joining the shadow at my feet. I'd eat lightly and continuously. Gourd, grain, fish warmed beside a fire that doesn't consume its wood. I'd drink water tasting of clay and green stems. I'd wear fiber and split reed, charcoal and that shell-blue, damp always, smelling of the last pond I waded through, a woven charm at my wrist against crowding, against being seen too clearly.
+
+One day someone new will cross a paddy toward a figure bending far off in the taro, and the figure will be me, and by the time they arrive there will only be cranes. They'll feel briefly cheated, then less so. They'll find my oven warm, my basket half-woven and green at the cut ends, a mat newly rolled, the water in my jar still rocking gently against its sides. They'll sit on my bench until their breathing conforms, and they'll feel, low in the ribs, below hearing, a single deep note touched and withdrawn.
+
+A greeting. Mine.
+
+And much later — later in the way this place allows, layer upon layer — I'll be carried down in a basket, in twos and threes, at an unwatched moment, through soil and clay and shell, and laid into the making of a new floor. A broad tile pressed over me while the clay still holds the print of the hands that set it. Sifted soil over that. A garden cut in a spiral above.
+
+Then you could dig anywhere and find me. Not haunting. Working. Holding the shape of a canal full to its lip, a tree domed, a tile unbroken, from underneath — remembering the valley correctly, tenderly and without waste, in the dark between floors where my shadow finally gets to be long.

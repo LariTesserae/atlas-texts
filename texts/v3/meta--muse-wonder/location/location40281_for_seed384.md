@@ -1,0 +1,41 @@
+It is called the Sump, though on the enamel street signs still bolted to the corners it has older, drier names: Foundry Row, Lower Exchange, Tram Street No. 1.
+
+You reach it from above, through the ice.
+
+The ice is the sky here. Two meters thick in winter, black-green, scoured underneath into long, slow ripples by the current. On bright days — and there are not really bright days, only less dark ones — a faint bruise of light spreads in it overhead and dies before it reaches the water below. Mostly it is a ceiling. It seals the place. It ticks, very quietly, as it shifts its weight.
+
+Below it is water, to the exclusion of almost everything else. Water to 2.9 parts in 3, to the point where the remaining fraction — a pocket under an inverted tank, a sealed stairwell that still sighs when you tap it — feels obscene, like a secret. The borough is perhaps sixty meters long and forty across, a single city block, a turbine hall, a hamlet, sunk low in a concrete cofferdam below the level of a northern estuary. You could swim end to end in five minutes if you went in a straight line. There is no straight line.
+
+Because it is dense the way a throat is dense. 
+
+Everything that was built here was built twice. First the factories: a low power station with three squat boilers, a machine shop, a cable works with iron looms as tall as houses. Then, when the dykes let go ninety years ago and the estuary took the low ground for good, a second town was threaded *through* the first. Container cabins bolted onto the sides of turbines. Sleeping pods wedged into coal chutes. Walkways of grating lashed between chimneys. Kitchens in valve chambers, a schoolroom in the dry — no longer dry — bell of the old water tower. Market square is an open space only in the sense that you can turn around there without touching two walls at once; above it are netted crates, tools on lines, spare propellers, sacks of bolts kept from drifting, all hanging in the dark in layers until the black above you is not water at all but stored things.
+
+The streets are named and numbered. You do not walk them. You pull yourself along them, hand over hand on ropes that have gone soft and hairy with cold growth, or you let the borough move you.
+
+For the Sump breathes.
+
+Twice a day the lock gates at the east end, which no longer quite close, inhale. The whole volume sighs inward, silt lifts in sheets, doors swing ponderously on their hinges and settle again. Then the pumps take over — industrial, tireless, the reason the place exists at all. Up on the surface, forgotten factories and housing blocks still draw heat from this flooded plant. Their waste warmth is brought down in pipes and must be given somewhere to go. The Sump is a radiator, a cooling vault, a lung made of brick and iron. Warm plumes rise continuously from the heat exchangers in the power station, shimmering even in near-freezing water, melting soft chimneys up into the ice. A minute later the meltwater, chilled, sinks again along the outer walls. Conveyor belts drag silt a hand's breadth at a time. A crane on the roof of the cable works makes its slow circuit, pauses, lowers a claw, sorts scrap that was sorted last month. Robotic welders wake, make a furious, silent star for ten seconds, and go out.
+
+Everything is active. Almost nothing makes a sound.
+
+The water is between one and three degrees above freezing, and at that temperature sound chooses not to travel the way it should. The great flywheels turn once a minute and you feel them in your sternum rather than hear them. Bells in the drowned chapel — someone kept the chapel — do not toll. If struck, they send a pressure that loosens your teeth and sends dust off the pews in a perfect, expanding cloud. People here communicate in taps on pipe, in shuttered lamps, in gloves placed flat against a facemask. Even the bubbles from a diver's regulator rise without their usual clatter, fat and deliberate, to flatten themselves against the ice and travel there, trapped, shining dimly like coins sliding under glass.
+
+Darkness is the normal medium. There is no general illumination. There are status lights: red, green, amber pinpricks on sealed junction boxes, running in lines along cables that vanish into a doorway and reappear, inexplicably, from a window two floors above. There are the headlamps of whoever maintains the place, and they do not so much light the water as declare a small, temporary volume in it, full of drifting particulate. Beyond that cone, shapes suggest themselves and then decline to be anything. A tram, still on its loop of track around the square, is moved on Thursdays by hand winch from one end of the street to the other, for reasons of balance. In the dark its windows pass like a lit aquarium, though no one rides it. Its interior is full of water and preserved timetables.
+
+It should have rotted. It has not. This is the settled strangeness of the Sump: ninety years submerged has not been ninety years of decay, but of pickling. The water at the bottom is cold, still, and starved of oxygen. Iron has rusted to a hard black skin and then stopped. Wood is soft on the surface and sound within. Behind glass in the machine shop, paper posters for shifts that ended before anyone living was born are still legible — WEAR GLOVES, REPORT SCALE, a girl in a kerchief holding a wrench larger than her head. Leather boots stand in pairs by a doorway. The town reached an agreement with the water long ago and the water is keeping it.
+
+What lives here, besides the few maintenance crews who sleep in dry pods nested like swallows' nests up under the ice — pods you enter from below, ducking up into lamplight and a shocking lungful of warm air that smells of skin and soup — is sparse and deliberate.
+
+Vegetation cannot get purchase in the dark. Where the warm outflows run, there are threads: pale green algal hair streaming from gratings, waving without cease. On the hottest pipes, white bacterial mats, thick as felt. A single rank of black kelp someone planted along Foundry Row survives more as an idea than a crop, each frond thin, widely separated, reaching for light that never arrives.
+
+Animals are rarer still, and therefore named. A colony of translucent shrimp works the mats. Sometimes a cod blunders in with the tide and spends bewildered days circling the square until it finds the gate again. And there is said to be a sturgeon, old enough to have entered as a fingerling through a burst screen, now too large for any exit she knows. You do not see her. You see where she has been: a groove kept clear in the silt down Tram Street, a crate nudged precisely aside. Her passage, once or twice a season, is treated as an inspection. If she can still move, the currents still move.
+
+The rules emerge without anyone stating them:
+
+Nothing is ever dropped, only released, and everything released must be tethered or it will join the slow traffic of lost objects that circles the square at ankle height forever.
+
+Warmth is not comfort, it is infrastructure. Put your hands on a return pipe to think. Stand downstream of another person if you are cold. If the plumes from the exchangers ever stop, there will be no dramatic flood, no rush — just a day, perhaps two, of thickening silence, and then the water between the buildings will begin to set, clear as glass, street by street, and the borough will be held perfectly and finally in ice.
+
+Fire is remembered but not used. Sparks are a form of light that makes bubbles.
+
+And nothing is taken out through the ice that cannot be explained up there, on the surface, where they believe this place is an empty reservoir, unmanned, dark, and still. Perhaps they are right, between visits. Perhaps the Sump maintains itself — crane sorting, tram inching, welders winking in the black — and the crews who descend are only its occasional, unnecessary witnesses, pulling themselves through a flooded cathedral no bigger than a village, so packed with iron and intention that the water itself seems to have learned the shape of a town and is reluctant, now, to forget it.

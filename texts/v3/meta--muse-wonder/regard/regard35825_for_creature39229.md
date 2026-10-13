@@ -1,0 +1,51 @@
+At first it would come intending to rescue her.
+
+That is what benevolent powers do, arriving at a place like that. They see it from outside — which no one inside can do — all at once: the welded hatch, the standpipe, the four thousand feet of failing iron between her and the valley. The water at her throat. The green teeth, the algae in her hair, the raw, saturated felt that passes for clothing. A woman alone in a machine's forgotten lung, eating living minnows, sleeping upright so she will not drown, telling visitors she will leave after the next surge, and the next, for longer than anyone below can account for.
+
+It would come bearing obvious gifts.
+
+Air, first. Clean, dry air, and a sky not seen through algae. A door opened where the hatch is sealed. Descent without holding her breath, without the dark, without the chain. Food that is not frog spawn or rust-dreaming fish. Medicine. Dry cloth against skin that has not been dry in decades. A bed above water. People speaking a language whose words stay separate in ordinary air. Her name, if she has lost it. Time restored to her, years returned, the body made smooth and legible again.
+
+It would lay them out — gently, because it is benevolent, and firmly, because it is certain — and it would watch each gift turn, in that room, into a way of killing her.
+
+Dry air would cut her lungs the way summit air cuts a visitor's, except she no longer has a visitor's lungs. She breathes the thick place just above the pool where fern-exhalation and mist have made an atmosphere that exists nowhere else on earth; it is not that she is adapted to bad air, it is that the air has been made, leaf by leaf and year by year, partly *for* her, and she for it. To open the hatch would not free the room. It would end it. Pressure would sigh out. Steam would thin. The fern, whose crown hangs toward water and whose roots drink a weather that never stops rising, would find itself in mere weather — wind, cold, the white altitude light unfiltered — and begin, within days, to fail. Within an hour of the fern failing, by the pocket's first rule, the air would go bad. The frogs would leave the tiles and not come back. The swifts, damp-feathered, iron-smelling, would find their warm rafter turned into a chimney and abandon nests a century in the making. The whole small weather would unravel in the name of letting her out under the sky.
+
+Descent would be slower and therefore crueler. Below, in the valley, they would bathe her and feed her and be kind, and she would sit in dry rooms with her ears aching for a surge that never came to relieve the pressure of stillness, and die of it politely, among people congratulating themselves, while the minnows circled a valve wheel no hand rested on and the root-curtains tangled after a flush and tore, and tore, and were not sorted by patient fingers ever again.
+
+Medicine would cure the green at her teeth and the thickness of her nails and the vine rooted companionably through her shoulder seam, and in curing them would declare that the form she has arrived at is an error. But it is not an error. It is the only successful shape for life in that place that a human body has ever found. The frogs use her collarbones. The fern uses her hands. The bowl in the inspection ledge fits her feet because her feet are making it. She is not a person trapped inside an ecosystem. She is one of its organs. Remove the organ and pronounce it saved, and you have saved nothing that was actually there. You have only taken a warm, strange, self-keeping world and produced, briefly, a bewildered old woman in a hospital, and then a corpse, and then, four thousand feet above her grave, a dead bubble full of black water and rotting fronds.
+
+A wise power learns faster than a merely benevolent one. It would learn, watching, in the time between two surges.
+
+It would learn from the way she does not grip the wheel. Rescuers grip. The drowning grip. She rests a hand there to *feel*, the way you feel a pulse in a wrist you love. It would learn from the gauges with no numbers, which she reads more accurately than any numbered gauge below is read, because she has exchanged measurement for acquaintance. It would learn from "After this one" — said smiling, said to visitors, said to frogs, said to no one — and understand at last that this is not a promise being broken every seven minutes for fifty years. It is not procrastination. It is a liturgy. It is how you say: *the next thing is coming, and I will meet it standing correctly.* Her whole life is not waiting to begin after the surge. Her whole life is the brace, the hand's-breadth rise, the ears aching, the rain turning to sheet, the wheel groaning its eighth of a turn, and then the settling, the sorting of roots, the snails resuming their clearings on the glass. After this one. Hold on. After this one. A person who says that has not failed to leave. She has found a sentence that makes time habitable.
+
+So it would put its gifts away, one by one, unopened.
+
+And then — because benevolence is real, and not performing it is its own kind of coldness — it would do the small things that do not require her to become someone else in order to receive them.
+
+It would not restore the numbers to the gauges. It would make sure the needles never quite stick.
+
+It would not seal the cracked vent, which would tidy the architecture and suffocate the swifts. It would not widen it either, which would chill the fern. It would hold it, year by year, at exactly the width of a folded wing.
+
+Down in the valley, where men with ledgers will eventually propose that the Upwell is obsolete, that the river can be re-routed, that the pumps cost more than the power is worth — it would misplace a signature. Soften a conviction in a meeting. Make the alternative scheme come in, mysteriously, always slightly over budget. Not forever; nothing built is forever, and it is too wise to promise that. Only long enough. Long enough that the decision is always deferred to a committee not yet formed, and the water keeps rising, stage by roaring stage, through the lifetime that needs it.
+
+It would do one thing in the room itself, and it would do it so slowly that she would mistake it, if she noticed it at all, for her own work succeeding.
+
+Her hardest labor is the roots: after every flush, untangling them, guiding the pale tips back into the dark, because if the roots leave the water the fern dies and if the fern dies the air dies. She does it without complaint and she will do it until the morning her hands are not strong enough, and on that morning the whole world she has kept will begin, tenderly and inexorably, to follow her. The power would not spare her the work — the work is the shape of her days, and to take it from her would be to take the days. But underneath her work, over years, it would coax two roots — only two, the deepest — down past the root curtain, past the grating's reach, into a seam in the cistern wall where a hairline of seepage runs permanent and dark. Where they cannot be torn loose by any surge. Where, long after her hands have stopped sorting, they will still be drinking.
+
+It would not tell her. A gift you must be grateful to a god for is a debt, and she owes nothing. It would let her go on believing the fern survives because she tends it. This would even be true. It would only, quietly, arrange for her tending to outlast her tenderness — the way her feet have arranged a bowl in concrete that will hold the shape of standing long after she stands.
+
+It would ease nothing visible. It would not straighten her back or clear her eyes or give her back the visitors' language. It might, in the sleep hours — portholes white, grey, dark, white — take from her joints the particular deep ache that serves no purpose, the one that wakes her between surges and is not information about pumps or weather or roots, but only pain, going nowhere, saying nothing. Not heal her. Just that. The way you would slip a folded cloth under the elbow of someone sleeping in an awkward place, without waking them, and leave before they could thank you.
+
+And it would not ask her to choose. Lesser powers love that moment: the offered hand, the hatch swinging open on light, the dramatic freedom to refuse. But a choice presented by a god is not freedom; it is weather too big to brace against. She has already chosen, seven minutes at a time, ten thousand times, in the only currency that counts, which is staying. It would honor the choice by never making her defend it.
+
+Instead it would stand where a visitor stands, in water to the chest, clothes instantly saturated, condensation running inside its collar — for it would take, for a little while, a shape that could be rained on. It would find footing, awkwardly, not in the bowl; the bowl is hers. It would put a hand, inexpertly, on a root. It would watch the needle tremble in its habit and understand none of it, and be content to understand none of it, in her company.
+
+Then the pitch would change underfoot. The pumps below would gather themselves. The rain would thicken. The frogs would let go of the tiles and be tossed singing into the current, and the swifts would go silent in the dark above the fern, and she would tighten her fingers on the polished wheel and lower her head at the angle she has learned in her hips, and look — once, sidelong, without surprise, as if a new snail had appeared on the glass — at the power standing beside her, learning stillness wrong.
+
+"After this one," she would say. "Hold on. After this one."
+
+And the wisest, most benevolent thing in the world, which had arrived with air and doors and medicine and years in its hands, would brace. Would hold on. Would let the water rise a hand's breadth and ache in its ears and be, for one surge, not a rescuer and not a god, but simply one more animal keeping its footing in a small, warm, hidden weather at the top of everything people built.
+
+Then the surge would pass. The eels would settle. The snails would resume.
+
+And it would leave nothing behind that she would ever have to explain — only a world, permitted, for exactly as long as it can be permitted, to go on being itself.

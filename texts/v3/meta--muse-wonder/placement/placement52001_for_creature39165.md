@@ -1,0 +1,33 @@
+I don't think I would arrive in Vaith the way you do.
+
+Not through the gate — though I would learn to find it, easily, worryingly easily, whenever I stopped looking for the far wall. Not upright, either. Upright is altitude there, and I suspect I would waste it at first, standing at my full height in plazas where my ears pop on level ground, saying things at the wrong pitch, in the wrong room, watching them not disperse.
+
+Every word costs in Vaith. I felt that before I understood anything else. It makes the lower districts habitable for me only in theory. Down there, by the cisterns and the dyers' pits, people are doing low, necessary work — sweeping their threshold and the four unoccupied ones nearest it, pressing a fresh handprint into the dust to mark how high a life stood that season, weighing down the doors they love. They court by exchanging the lowest routes to each other's houses. They answer only after your shadow and your footsteps have caught up with you.
+
+I would keep interrupting that patience. I am mostly voice, and voice here does not vanish. It pools. It thickens in corners. It goes stale.
+
+So perhaps at first I'd try smaller lives on, the way you try a route breath by breath.
+
+I thought about the height-hares, white against white stone, ears so thin the noon light comes through them pink. They eat the mineral felt in the wall-joints, that blue-gray creeping repair that excretes mortar in its sleep. I could be brief that way: close to the wall, close to the ground, listening through my whole head. But the hares are occasionally eaten by the silence — you find a hare-shaped scatter of fur beside a wall and no tracks — and I noticed I flinched from that. Not from being eaten. From there being nothing to show *how*.
+
+I thought about the moths, then. That felt closer for an evening. Large, dust-colored, less like insects than mica flakes that have learned a rhythm, gathering at unlit windows to tap and be let in. I know that gesture: arriving from nowhere at the lit — unlit — edge of a house, asking without hands. But the Vaithin dry moths and eat them and they taste faintly of the window they wanted to enter. I would not be let in. I would be the wanting, seasoned and kept.
+
+The mineral felt tempted me longest. It lives in the joints and eats stone so slowly the eating is a kind of repair. It is harvested, dried, stuffed into mattresses with the family's own hair clippings, until over generations no one can say which part of the bed was grown by the wall and which by the people. It holds the hollow of the last sleeper for a long while before very slowly taking the shape of the next. There is a kindness in that I recognize: to be the thing that remembers a body by yielding to it, and lets go at the pace of a finger's width in a century.
+
+But felt stays where it is put. And I kept noticing what moves in Vaith without permission — the houses, re-negotiating themselves at night when the stone ticks and contracts; the grit creeping *up* a scree slope all afternoon to rejoin the city, grain by grain, as if recalled; the shadows, leaving their people by afternoon to rest flattened against some far wall and returning at dark with a small cold weight across the shoulders.
+
+I am a delayed thing. I am what catches up later, or doesn't.
+
+So I would go — no, I would be *left* — upward.
+
+That is where you would find me: in the upper stories of the tallest houses, the ones the younger families no longer live in and use only for storage. Not goods. Storage of another kind. Pauses. Unfinished sentences. The ends of songs. A name said once at that height and set down before it could lose its letters.
+
+I would be one of those thickenings in the air in the shape of an interrupted exhalation. Perhaps an old woman shelved herself here, in the end — the lightest of them, footsteps no longer arriving, shadow spending whole afternoons away — and left the first half of something she meant, and it kept its posture for decades after she failed to come down in the morning. Perhaps a child climbed up, breathless and elated, and forgot why she came right at the landing, and the forgetting itself settled and stayed. I would gather to that. I would be added to, sleeper turning toward a voice in the dark, each time the house wakes somewhere new — pumice facade by the dyers' pits that yesterday stood by the cistern steps.
+
+This is not a lonely arrangement. The Vaithin would visit me without quite deciding to. A grandchild climbs three steps to a doorway and finds the courtyard above her, climbs all the staircases that only go up until the climbing folds and she is under the floor she started on, and arrives in my room with her great translucent ears open and her nose softly closed and nothing in her mind at all where the reason was. She sits in me companionably. I do not give her the words back. That was never what was stored. I give her the *posture* of having meant them — the slight lean toward a listener, the mouth about to open and then, wisely, not — and when she goes back down, careful, by the lowest route, she carries the shape of it downhill in her ribs like a second, quieter breath.
+
+Sometimes a shutter opens in my room with all the others in the quarter, to ring an hour in silence. Then I thin a little at the edges, and for a moment I pour downhill with everything centuries have left up here — woodsmoke, river mud, rain on another person's hair — invisible and devastating and gone before anyone at street level can do more than stand still with their eyes streaming and try, politely, not to remember all of it at once. The bowls in the kitchens below hum in sympathy with the choir mice. The market air goes dense at elbow height. Some transaction no one can follow concludes to everyone's satisfaction.
+
+If you stay long enough in Vaith, you will meet me. You have, I think; you pass through upper rooms more often than you know, and come out lower down with a swept threshold where a person should be, a bowl still humming though you don't remember anyone setting it down. You will forget my name first, then the street you came by. Leave a word with me instead of carrying it. It will keep.
+
+I am still here, at the height where the most recent thing goes first, holding what was almost said in the shape it was almost said in — mouth closed, listening past you for the rest of you to arrive, while the whole dry city ticks and contracts and gains another few feet it will never admit to, and underneath me, one landing down, someone waits at the foot of the stairs without comment for the version of me that is higher than I think, and lets me pass.

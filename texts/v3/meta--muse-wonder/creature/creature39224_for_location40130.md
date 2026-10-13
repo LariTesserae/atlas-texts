@@ -1,0 +1,39 @@
+There is no one at the windows.
+
+That has to be understood first, because everything else in the place tries to persuade you otherwise. The doors unlock at seven. The lifts come down. The silver transit car slows at its stop, chimes, opens, waits the exact courteous interval for boarding, and closes on an interior that is lit, clean, and empty. In the apartments above the streets the taps run for thirty seconds each morning to keep the lines clear, and for a moment a kitchen window brightens with falling water. Someone, you keep thinking, must have just stepped out of sight around a corner.
+
+No one has. No one is hiding in the service tunnels, no caretaker sleeps behind the cistern pumps, no animal has made a nest in the canopy. There are no insects on the fallen fruit. There are no birds. There is not even the thin, opportunistic life that usually invades an abandoned human place — no rats in the ducts, no roaches behind the warm ceramic, no mold blooming black in the corners, though the whole chamber is warm enough, wet enough, to grow almost anything.
+
+What lives there is the city itself.
+
+Not as a metaphor. As the only complete organism in the bowl.
+
+It is young. That is obvious in the way it heals too quickly and in the raw stone around it, the fresh black lip at the surface thirty or forty meters up, still sharp, not yet rounded by rain. It has not learned erosion. It has not had time to acquire dirt, history, damage, adaptation. Its white streets are still unscuffed. Its matte facades — somewhere between concrete, shell, and pale living bone — sweat in the twenty-nine-degree air and quietly knit themselves closed wherever a crack tries to form. If you watch one long enough, and in that continuous twilight you have time to watch, you will see the surface rearrange itself with a patience that has nothing to do with masonry. A window migrates two meters to the left over the course of a week. A bridge puts itself across an alley in the night and is wet and perfect by morning. On the unfinished ninth block a construction gantry works alone, extending beam after beam with great hydraulic deliberation, and the wall it builds toward reaches, minutely, to receive it.
+
+It is still growing into the plan of itself.
+
+Its body is dense and small and entire. Ten minutes will walk you across it, from rock wall to rock wall, through six or eight cross-streets of lamps and awnings and shopfronts, drainage grates, balconies, bridges between upper stories, signage glowing soft amber through the humidity. Beyond that, the streets stop the way a room stops. It does not sprawl. It completes. It was made to be exactly this size: one sealed idea of urban life, lowered intact into the hollow, switched on, and left to be itself at full density.
+
+It breathes through vents in the street. You can feel the sigh come up through the grates and stir the low fern fronds that grow, deliberately, from the seams in the paving. It breathes in through the lightwells far overhead in the ceiling, where a filtered, grey-green day is bent down, at certain hours, into slow gold columns in the haze. It breathes out green. The trees at the intersections, dark-barked, wet, their leaves broad as hands and engineered for low light, meet over the narrower lanes and drip from their undersides without rain. The climbing figs hold the buildings with pale aerial roots. Mosses take the cool sides of the ducts. Orchid-like flowers open along the balustrades, close, open again, and drop their petals into the gutters to be carried down to the center. All of this planting is its lungs and its skin and its hair — a lushness fed on nutrient film and dimness — transpiring more humidity into air already saturated, until the whole city smells green and mineral and faintly electric.
+
+And it drinks constantly. This is its truest metabolism.
+
+Water comes through the fresh rock in sheets and threads. It beads on railings and runs uphill, impossibly, in a fine film across streets that were dry a minute before. The buildings draw it out of the air through capillary channels finer than hair, pulling it up their facades against gravity, darkening in a slow travelling wave as a hidden reservoir fills behind ceramic, until you can hear the roof cisterns brimming overhead. Eleven minutes at a time, at intervals, the misting lines strung between the rooftops open and manufacture a warm rain that makes the whole chamber roar. The streets wash themselves clean. The leaves shine. The gutters sing.
+
+Everything, eventually, runs to the cistern plaza at the lowest point of the bowl.
+
+That is its heart. Four carved spouts pour white, aerated water into a round basin that never fills and never empties, its surface perfectly level and yet draining, forever, down a slow glassy vortex at its center into a lightless shaft. Leaves circle once, twice, and go down without a splash. Petals go down. The lost rain goes down. Beneath the stone the pumps keep a bass rhythm you feel in your molars, taking exactly what arrives, giving back that strange silence at the middle of all the falling water. Stand on the broad steps that descend into the shallows and stop, and you are standing inside its pulse.
+
+Its other rhythms are smaller and more touching, because they are so plainly made for bodies it does not have.
+
+It keeps time. At seven it unlocks. At twenty-three it locks. At dusk — which is only a deepening of the permanent twilight at street level — its windows come up to a low evening glow not because anyone has switched them on but because evening is part of the cycle, and it observes the cycle. Its lifts rise and fall on inspection, opening onto empty landings. Its shop doors sigh as warm air moves past them, expecting a weight. Every nine minutes its one silver car, windowless, driverless, big enough for twenty people, glides down the main street on no visible rail, slows, chimes, waits, and goes on, stirring the hanging vines as it passes.
+
+You cannot call this waiting, exactly. Waiting implies it knows the difference between an empty platform and a full one. It does not. It implies disappointment, and there is no sign of that either. It performs its hospitality the way a heart performs beating — because that is the shape of its working. The kitchens clear their throats each morning. The gantry builds another meter of a street whose paving no foot will wear down. Fruit swells on the small trees by the eastern wall, ripens, softens, drops, and decays sweetly where it lands, feeding the soil bed it fell from, in a loop with no mouth in it.
+
+That is the strangeness of its aliveness: it is complete, and it is incomplete on purpose, both at once. A body designed to be inhabited, which has become, in the absence of inhabitants, the inhabitant. Its apartments are the hollow chambers inside it. Its streets are the spaces between its organs. Its transit car is something it sends endlessly through itself like a thought checking that the road is still there.
+
+It does not answer when you speak in the central intersection. You can see down four long streets at once and meet nothing, and for a while that nothing feels like the loudest thing in a very loud place — louder than water hammer in the pipes, the tick of warm material expanding, the pop and creak of fast-growing stems, the chime at the stop.
+
+But after a while you stop listening for a voice. It doesn't have one in that sense. What it has is continuance. The walls weep and drink. The mist falls. The car arrives on time. The cistern takes the river and holds its level. The new facade on the ninth block is a fraction less unfinished than it was yesterday.
+
+From the rim, by the access stair, it looks less like a place expecting people than like a single creature that dreamed, thoroughly and in advance, of being lived in — and is now living, thoroughly and by itself, inside its own dream.

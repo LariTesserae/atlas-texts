@@ -1,0 +1,33 @@
+You begin already inside it.
+
+Not diving, not falling — just suddenly here, suspended, with cool water pressing evenly against every part of you and clear mountain light coming down through it in bright, broken columns. The water tastes of iron and struck stone. It smells, insofar as water can smell from the inside, of ozone, hot copper, and rain that has not yet been allowed to become rain.
+
+This is the Bellows Cup: a single, small basin high on a naked summit, well above the cloud line, formed so recently that the mountain has not learned how to soften it.
+
+It is perhaps sixty meters from rim to rim, thirty deep. You could swim the width in under a minute if the water were empty. It is never empty.
+
+The bowl itself is young rock, black and brown and glass-green, split open forty or fifty years ago when the summit faulted and dropped. A cold spring found the crack. Melt found it. In a decade there was a lake where there had been a scar. Nothing has had time to dull. The walls go down in fresh facets and unworn blades, volcanic glass still keen enough to cut, columns of andesite snapped clean as snapped teeth. White silica crusts the fractures where mineral water has dried and rewetted a thousand times. Rust blooms in the stone, not moss — there is no moss here, no weed, no kelp, no green thread of any kind. The food of this place does not grow toward the light. It precipitates. It ferments in bacterial films thinner than breath, amber and gunmetal and milk-pale, grazing the rock for sulfur and dissolved iron.
+
+And then, layered over that mineral pasture, the animals. So many animals the water has texture.
+
+They fill every level of the Cup in slow, near-touching ranks. At the sunlit surface, raft-snails with broad, hydrophobic feet lock shell to shell and ride upside-down against the meniscus, tightening and loosening the skin of the lake. Below them turn the millers: squat, turbine-shelled creatures no bigger than fists, drawing water through the spiral vanes of their own bodies, filtering out mineral grit and bacteria, exhaling fine white silt in patient clouds. Their shells click as they rotate — click, pause, click — hundreds of them, never quite in unison.
+
+Deeper, the grazers work the walls. They are plated, many-legged, the size of dogs, and they eat the mountain itself. Their jaws are not jaws so much as crushers, opposed stones in the mouth, grinding glass and bacterial crust into paste. You can hear them before you see them: a coarse, masticating rasp that travels through the water and into your teeth.
+
+Everything here sounds industrial, and none of it is built.
+
+There are piston-eels that anchor by the tail in tubes of their own secreted lime and drive their whole blind heads forward and back, forward and back, once a minute, pumping springwater through gill sieves with a sighing hydraulic stroke. There are hammer-mussels clustered on the floor plates, opening on filaments, then slamming shut together when the pressure changes, making a single concussive *clang* that rolls around the bowl. There are gear-backed crawlers whose rear legs genuinely mesh — tooth into tooth, cog into cog, machined by evolution into impossible precision — so that when they leap from rock to rock their legs do not slip, they engage. Predators drift among them like slow rivets, iron-dark, with ballast bladders they flood and empty to rise or sink without swimming; valves hiss in their flanks. When they hunt, they do not chase. They position themselves above a grazer over the course of an hour, vent ballast, and descend — a press coming down.
+
+And under everything, the mountain provides the engine.
+
+The floor of the Cup is not still. It is made of overlapping basalt plates, and beneath them the trapped spring heats, cools, heats again against a seam of near-magma far below. Every seven minutes or so, pressure lifts the central plate by the width of a hand. The whole lake answers. Bubbles race from the seams. The hammer-mussels slam. The piston-eels stroke together, briefly synchronized. A low boom, felt more than heard, goes up through the walls and out through the rim into the thin air. Then, for seven minutes, settling. A factory at one-seventh speed. A bellows that breathes by geological patience.
+
+That tempo rules the Cup. Nothing hurries. A courtship between two grazers can occupy a whole afternoon of grinding circles and struck sparks. The bright electric fish — the only truly quick things here, and even they are quick only in discharge — lay their galvanic fields between rock spires and hover inside them, stunning smaller creatures that blunder into the current. For seconds the water between two stones goes white-blue and smells burnt. Their arcs weld shell fragments together on the lakebed, accidentally, beautifully, so the dead become fused into the living floor: layers of perfect gears, pressure valves, spiral shells, crusher plates, all cemented into a reef of animal manufacture. No nest, no dam, no structure. Just bodies, and what bodies leave behind.
+
+Without the animals, the Cup would not exist for long.
+
+The same fractures that feed it also drain it, out through the shattered rim on the eastern side. But the raft-snails hold the surface. The mussels and lime-eels pack the leaks with their own shells, living gaskets replaced generation by generation as the stone grinds them down. The millers pump silt into the cracks. It is not cooperation, exactly. Each species is plugging the hole it happens to feed beside. Together, incidentally, they run a pumping station, a refinery, a foundry, a fishery — metabolizing dissolved metal into copper-bright nodules that roll into hollows in bright heaps, cracking stone for sulfur, fixing the leaking sky-high water in place pound by pound.
+
+Outside the rim — and you feel it only when a hammer-boom breaches the surface — there is thin wind, blinding altitude light, clouds moving far below the summit like a second, slower sea. In here there is no wind. There is only pressure, clarity, and the layered mechanical chorus: grinding, ticking, hissing, venting, booming, the electrical crackle, the long hydraulic sigh. At midday the caustics move over the sharp young stone in nets of light. At depth the water stays just above cold enough to ache. Looking up, the surface is a hammered silver ceiling, dimpled by hundreds of snail feet. Looking down, the floor rises a hand's width, settles, and rises again.
+
+It is a room. It is an ocean. It is a machine with no maker and no product except itself — dense, loud, cool, and patient, holding its little sea up in the air one slow stroke at a time.

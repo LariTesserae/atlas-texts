@@ -1,0 +1,67 @@
+You would not find them by looking for people.
+
+You would walk for days across the open ground — between the yardangs, across the salt basins, through dust no deeper than your ankles that still manages to move like a slow river — and see only the groves at their intervals, impossibly dark against the pale stone. And at first the groves, too, would seem empty of anything but trees.
+
+Then, inside one, in the middle of the day when the canopy had finished its slow morning turn and settled square to the sun, something at the edge of a trunk would unfold.
+
+Not step out. Unfold.
+
+They live the way the groves live: sealed, vertical, and mostly still.
+
+At a distance they are difficult to separate from the canopy trees. They are tall — taller than a person ought to be in that thin air, until you understand that the height is not muscle but buoyancy. Their chests are broad and compartmented, ribbed like the hollow trunks around them, with air-sacs that swell visibly in the cold of morning and soften as the day brightens. They breathe perhaps four times a minute at rest. When they do, the whole upper body takes part, a slow bellows movement, unhurried because hurry would tear something in air this dry.
+
+Their skin is not skin as wetter places understand it. It is a cured surface, dark bronze-black on the shoulders and back and crown where the light has struck it for a lifetime, silver-pale underneath the arms and jaw and along the inner legs where the sun never quite reaches. It does not sweat. It does not shine. A fine powder comes off it onto your hands if you touch them — the same mineral, pepper-smelling bloom that coats the leaves — and beneath that the surface is warm, almost hot, in a way that has nothing to do with blood. They store the day in their outer layers the way the leaves do. Stand close to one at noon and it is like standing near sunlit stone.
+
+In shadow, the warmth goes out of them immediately.
+
+So they move by shadow and by sun with an exactness that looks, at first, like ritual and is simply physics. They track. Not as obviously as the canopies — no great slew of the head — but through a day a grove-dweller will make a slow circuit, always keeping the productive surfaces turned, never letting the back stay numb long enough for the fingers to lose feeling, never letting the front burn. Their eyes are set deep under a heavy brow, double-lidded, the outer lid translucent and silvered. They spend most of their waking time looking at the ground six feet ahead of their feet. To look at the sky is to be blind until evening. To look at the horizon is useless; nothing that matters can be made out at that distance, and the light will take your sight trying.
+
+They have almost no voice, because the place has taxed voice out of them.
+
+The thin air will not carry it. A shout dies at fifty yards. Among themselves there is no calling across a grove, no singing — the air does not reward it, and there is nowhere for sound to go that touch cannot go better. They speak, when they speak, chest nearly to chest, in the still pocket at the center of a grove, at a volume that would be a whisper anywhere else and here is simply the distance at which breath can still be understood. More often they use their hands against each other's forearms, a pressure-language of temperature and pulse and small deliberate taps, learned before speech because a child can be taught it while it is still being carried. Touch tells them what the sealed body hides: how full someone is, how warm, whether a crack is forming in the skin of the heel, whether the air-sacs are inflating evenly.
+
+To be touched by a stranger is therefore not intimacy in the usual sense. It is an examination. It is also how strangers are granted water, eventually, if they are granted it at all.
+
+For all the water they have is the water they are.
+
+They do not drink, because there is nothing to drink from. They chew. Leaf-pulp, worked slowly in the morning while the leaves are still cool from the night's contraction, gives up a fraction of what the tree can spare. Fungal mat, dried to husk by the grove's own recycling and then re-softened in the mouth — never chewed in the open air, where the loss would be real, but inside the canopy, inside the fractionally softer air — returns minerals and a trace of moisture. Salt they take from the flats at dusk, licked straight from stone. Stone-rosettes, when they can get them from the solitary grazers' leavings or from their own brief forays, are eaten whole, mineral petals and all. Their digestion is slow to the point of geological patience. What leaves them is dry: pellets white as chalk, fiber, a faint chemical heat. Nothing liquid has left their bodies since the day they were born.
+
+That inheritance is literal.
+
+A child here is not so much born as decanted. Each grove holds only a few of them — three, five, very rarely seven, spaced in age the way the trees are spaced, because a grove can only support presences at intervals. A child begins with the water its parents have set aside, literally set aside, inside their own bodies, molecule by defended molecule, sometimes across thirty or forty years of choosing not to grow a new chamber in a lung, not to repair a nonessential tissue, not to make the small daily expenditures that a sealed life still requires. The parents go slightly hollow for the rest of their lives so that the child can begin full.
+
+So children are not common, and they are not replaceable, and they are not, in any sense, entirely the parents' to keep.
+
+Most of them will have to leave.
+
+A grove that keeps all its children dies of fullness within a few generations — too many seals drawing on one sealed system, the fungal mats overloaded, the oldest trees forced to share what they had partitioned for centuries. So at an age that looks like adolescence and is closer to fifty, the young take the only journey the place allows. They are made, over weeks, as light as possible. Their air-sacs are trained open. Their skin is re-powdered by the elders' hands until they silver all over, back and belly alike. They are given a seed — always a seed, sealed like a tiny boat, containing the grove in potential — and a bolus of leaf-pulp that is the last free water their home will give them, and then, on an afternoon when the thermals are rising off a warm basin in long invisible columns, they climb to the highest point of the canopy and step into moving air.
+
+It does not look like flight. It looks like being taken. The membranes between their arms and their long legs — thin, leaflike, translucent when the light comes through them, veinless and dry — catch, billow, go rigid. The column carries them up and out over the pale stone and they are gone for three days, or they are gone permanently. Most are gone permanently. The plateau is littered, if you know to look, with their mummies in dust-hollows, perfectly preserved, membranes furled, the seed still clutched and still viable and waiting for a crack that is not there.
+
+The ones who arrive do so as emergencies. A figure descending out of the white noon, silver gone grey with dust, skin cracked at the joints, air-sacs fluttering — the inhabitants of the receiving grove do not run to it. Nothing here runs. They position themselves in its shadow-path and let it come down among them, and the first thing they do is close around it, canopy-fashion, to make a stillness in which it can safely open its mouth.
+
+If it has brought a viable seed, and if the grove has room, and if its seal has not failed too deeply on the journey, it may stay. It will spend the next hundred years becoming local: learning the particular grove's chemistry by taste, which leaves can be chewed in which decade, where the root-tips below are currently splitting rock and therefore where the ground will be faintly warmer at night, how this stand of trees closes against frost and in what order. Its powder will change color by degrees until it matches the dust of that place. Eventually no one but an elder could tell it had not begun there.
+
+The elders, meanwhile, are becoming trees in everything but ancestry.
+
+With great age — and they are long-lived in the way trees are long-lived, because most of what kills elsewhere cannot gain purchase in a sealed body in a dry place with no predators and almost no pathogens that can survive the crossings between groves — their movement slows from a daily circuit to a weekly one, then to a seasonal one. They take a position at the edge of the canopy where light and shadow are balanced, and they keep it. Their lower legs thicken, not with flesh but with dense, fibrous tissue; fungal mats grow up over their feet each night and are not brushed away in the morning. Their breathing slows further. They speak less, then only by forearm. They are fed leaf-pulp by the younger ones, at longer and longer intervals, and much of what they are fed they return — exhaled in the still night air inside the grove, where the leaves condense it and take it back before dawn, or given up deliberately, at the end, all at once.
+
+Death here is not an event. It is a transfer.
+
+When an elder judges that a crack is coming — a deep cold snap foretold by the ticking of the contracting plateau, a stiffness in a chamber that has begun to ring wrong when struck — they choose the night. The grove closes. The younger ones stand close enough to touch forearms in a complete circuit, making with their own bodies an outer seal, and the elder opens, for the first and last time, the small valves at the throat and wrists that have been shut since childhood. Nothing dramatic leaves. There is no blood, almost no moisture visible at all. There is only a long, slow change in the quality of the grove's air, a softening, a richness, as what one body hoarded for three hundred years re-enters the system that made it. By morning the elders' skin is a light, hollow shell, perfectly shaped, that the wind will play through in the dry seasons — a faint, flute-like note on certain afternoons, which the children are taught to recognize and not to fear — until someone takes it down and lays it where the fungal mats can finish the work.
+
+Nothing is wasted because waste is a concept that requires surplus.
+
+They build nothing. There is nothing to build with that is not alive and hoarding itself, and they learned long ago, if learning is the word for what selection does, that a wall keeps out nothing that matters. Light cannot be walled out. Cold cannot. Wind finds every seam and takes the moisture out of the seam first. So their shelter is a position: the lee of a trunk, the lee of each other. Their tools are their hands, their teeth, pieces of dead elder-shell worked to an edge, shards of basalt finished by the plateau ten million years before they arrived. They carry almost nothing between places, because between places there is nothing to use it on, and anything carried is weight, and weight is water spent.
+
+What they tend — for they do tend, though it would be easy to mistake them for wildlife — is the slow expansion of their groves. They carry dust inward, a handful at a time, from the low rivers the wind sorts across the flats, and pack it around root-zones. They carry mineral chips from distant basins whose chemistry their own grove lacks, tasting the stone as they go to confirm it. They prune not for shape but for seal, pressing a waxy compound of their own powdered skin and chewed resin into any fissure in a great trunk before the fissure can deepen in a cold night. They know which trees are entering their final century and begin, generations in advance, the hoarding that will produce the tree's successor and a child to carry its seed elsewhere, in the same act, from the same stored water, because in this place botany and genealogy have never been separate subjects.
+
+And they are, in the way the place insists everything be, spaced.
+
+Within a grove, you will not find two of them standing close except to speak, to tend a seal, to receive a traveler, or to die. Closeness is expensive. It shares heat, which can be useful at night and ruinous at noon; it concentrates breath; it crowds roots. So they keep their intervals, plant from plant, presence from presence, and their affection — and they do have it, fierce and entirely unsentimental — expresses itself as maintenance of distance: leaving the best sun-pocket empty because another's circuit will reach it in an hour, setting dust where another's feet will find it, remembering, across a century of near-silence, the exact pressure-pattern of a forearm last touched decades ago by someone now standing on the far side of the canopy, turned away, silver under the leaves, breathing four times a minute, storing light.
+
+If you stay long enough, your eyes adjust. The grove stops looking empty.
+
+It is full. It is just that everything in it, tree and dweller alike, has learned the same lesson the plateau teaches at altitude, in silence, under a sky too thin to carry a voice away:
+
+Hold what you have. Spend light. Grow at night. Keep your distance. And when you must cross the emptiness, make yourself as light as ash, seal yourself like a seed, and trust the rising air to decide whether there will be another grove on the other side of the sky.

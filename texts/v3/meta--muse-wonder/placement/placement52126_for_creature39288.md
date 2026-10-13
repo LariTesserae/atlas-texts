@@ -1,0 +1,35 @@
+At first I thought I would be one of the people.
+
+Not a mason, perhaps — my patience is not the right kind for revealing a wall season by season, for knowing my grandson might be the one to discover my mistake. Maybe I would be Old Mereth, trimming doors as the mountain lifts them out of true, keeping my notched sticks, knowing which thresholds I have cut three times and which one my niece will cut after me. There is a devotion in that I recognize: tending the small, recurring misalignment. Not finishing anything. Just making it possible, again, for a door to close.
+
+But I don't think I would stay human long in Brinnel. The humans there are too embodied for me — deep-chested from the altitude, shoulders built by everything that has ever had to be carried up the stair-path, hands nicked white at the knuckles and polished at the fingertips. They move through their engineered thunder signing to each other across the square, fluent and unembarrassed, and then at night, when the sluices close, they become suddenly, joyfully loud. I would love that hour too much and the long, speechless day not enough.
+
+Then I thought: a swift.
+
+One of the pair in the bell tower, whose return is important enough to cross the whole bowl hand over hand. To leave, and to be expected back. To see Brinnel from above as its builders never quite can — the concentric plan, the second market still only chalk and intention, the avenues absurdly wide for fifty people, the cloud sitting down in the streets in the afternoon. To come back each summer and find one more course of slabs laid, one scaffold moved, one name board straightened.
+
+But the swifts leave. And what draws me in Brinnel is not departure. It is the staying-with: sweeping a house no one has lived in, laying marigolds in the lamp niche of someone else's future, rehearsing a market for descendants four hundred years unborn.
+
+So, slower. Moss, maybe. I could be the moss that takes hold wherever water pauses — softening all that new geometry, emerald and black-green in the theatre seats, between the paving slabs, along the library steps. Patient, but not passive. Quietly making soil out of almost nothing: stone dust, ash, bean husks, time. The gardens themselves begin somewhere like me.
+
+Only, moss is acted on by the real citizen of Brinnel, and finally I think that's who I am.
+
+I am the water that hasn't found its route yet.
+
+Not the great channel — that water is public, engineered, muscular, roaring straight down the main avenue through stepped cisterns, loud enough to tear speech apart and teach a whole city to talk with its hands. I admire that water but I am not it. I am its quieter relation: the unmapped water just under the surface of the young rock. The condensation beading on a cold wall at noon. The damp darkening the inside of a roof. The weep that appears, one clear bead at a time, in a perfect line along a crack no one can see, in the floor of a room that has deliberately been left unfinished.
+
+That is where you would find me. In the rooms they carve and then abandon — respectfully, expectantly — for a full turn of seasons. Doorless. Floored only roughly. Chalk marks on the walls. The family that cut me out of the tuff does not yet know what I will make of their work, and so they wait, and in that waiting they give me my chance to write.
+
+Sometimes I barely arrive. A darkening. A coolness under a palm pressed flat to the stone. A line of damp that comes in spring and retreats by winter, and they cut a shallow runnel there just in case, and the room becomes what it was meant to be: a bedroom, a store, a place for a child not yet born.
+
+Sometimes I decide more firmly. I find the corner. I gather. Drop by drop I become undeniable, and then the wonderful thing happens — nobody curses me. Or if they do, only briefly, the way you curse weather you secretly respect. They move the room around me. *Now it is a washing place. Now a fern pit. Now a shrine with a cup that is always, perpetually, filling.* Some of Brinnel's finest houses, I like to remember, have a small gleaming unwanted stream running straight through the pantry: cold, clear, inconvenient, and privately prized. That is the fate I would choose inside a fate. Not to be routed away. To be accommodated until inconvenience becomes character, and character becomes a kind of fame.
+
+I live on the city's true timescale, which is neither the human day nor the human life. A crack crosses a cistern wall in the length of a childhood; a spring warms, cools, and dies across a marriage. The survey marks on the gateposts no longer align. The whole bowl is still rising on some slow pressure deep below, and I am one of the ways that pressure learns the shape of itself. Above me, generations rehearse. They ring the market bell for twenty buyers. They open the magistrates' stalls. A child stands on tiptoe to settle a pretend dispute. They chalk *Street of the Weavers, Street of Rain* onto boards fixed to scaffolding over raw tuff, arguing fiercely about the unborn and then straightening the sign anyway.
+
+I don't hear them the way they hear each other. By day the channel takes all voices. I feel them instead: the *tak, tak... tak* of a chisel finding its rhythm in the white fog, the tremor of the cistern walls under the palms of the old ones who have gone deaf in the thunder and now listen with their hands, bare feet crossing a floor above me gone briefly cool where I am passing underneath. At night, when the sluice gates haul part-closed and the roar drops to a bearable rushing, their talk comes loose all at once — stories, prices, songs, quarrels, love — and some of it leaks down through the stone to where I am beading along my invisible crack, learning the room.
+
+Because I am learning it. That is the part the builders understand better than any visitor: empty does not mean haunted here, and unfinished does not mean failed. The room left open for me is *expected*, the way the empty avenues are expected, the way the swept theatre is expected. They are not waiting for their city to begin. They are making room, literally, for everything in it that arrives slowly and on its own terms — descendants, weather, water, stone still deciding what it is.
+
+So no, I wouldn't be the swift, though I'd envy the announcement of its return. I wouldn't be Mereth, though I'd keep her tenderness for thresholds. I am under the threshold. I am the clear line appearing where no line was drawn, the reason one wall over they start again, the cup filling by itself in the corner of a room that had to change its mind about what it was for.
+
+Four hundred years is not too long. I am in no hurry to get to the sea. I have a city to read first, one bead, one crack, one relinquished bedroom at a time — arriving, like everything true in Brinnel, at exactly the speed the rock allows.

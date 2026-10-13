@@ -1,0 +1,45 @@
+You have to get down on your knees to meet them. 
+
+Face to the rock, close enough that the steam wets your eyelashes, close enough that your breath is a weather event. Outside the rim your fingertip is dry in thin mountain air. A centimeter lower it is scalded and wet and immediately, delicately, investigated.
+
+First there is only movement. Then there is only too much movement to parse.
+
+The floor of the Cup is alive in a slick of ochre and mother-of-pearl. Not algae — there is no green here, there has never been green — but bacterial mat, chemosynthetic, feeding on sulfur and heat coming up through the thin translucent stone. It grows in skins, in ropes, in tiny terraced plots, and it is not wild. It is farmed.
+
+You can see the plots if you watch long enough. Clearings scraped clean in spiral patterns. Channels where a fresher, greener-orange strain is encouraged while a darker, spent one is left to be eaten down to rock. Doing the farming, by the uncountable thousands, are the glass mites.
+
+They are almost nothing to look at until they have eaten. A clear bead of a body, eight clear legs, and then the gut fills — orange, amber, acid-green, soot-brown depending on which part of the mat they have been grazing — and suddenly the whole floor is constellated with drifting sparks. Herds of them move together, not in panic, but in slow, tidal processions following the line where condensation has just fallen and the bacteria are sweetest. A thousand mites will turn at once without a leader you can find. A tap goes through the water film, a vibration in the stone too fine for your ear, and the whole herd has changed direction.
+
+They are born clear and die colored. Some of them die twice.
+
+There is one — seven-legged, gut stained a distinctive bottle-green from feeding in a mineral seep on the north wall — whom the spider takes under her funnel at mid-morning. You watch the legs stop. An hour later, after a boil-pulse, the same mite hauls itself out of the floor pool, seven-legged, bottle-green, walking with the same off-rhythm limp over its missing limb. It rejoins the herd without hesitation. No other mite investigates it. This is not remarkable to them.
+
+Threadworms knot in the sediment under the mat, pale loops endlessly tying and untying themselves. Tardigrades push through the shallows like tiny jointed bears, eight-legged and unhurried, utterly indifferent to water that swings in minutes from merely scalding to a trembling near-boil. They graze with piston mouths, they mate in the warm margins, they lay eggs that hatch before a cloud can cross the sun. Nothing about the heat hurries them. They have the pace of creatures for whom this *is* room temperature.
+
+Above them — everywhere, without interval — the springtails.
+
+Soot-black commas of animals, vaulting wall to wall on furculas folded under their bellies. They land on water and do not break it. They land on the ceiling pool from underneath and do not break that either. They are the engineers. With mouthparts and forelegs they roll grains of pumice and sulfur crystal many times their own head-width, stacking them into low, patient levees around their egg clusters. The levees are always spirals. The spiral channels the killing hot seepage away and draws the cooler rain in a slow gyre that keeps the eggs wet and never drowned. When a pulse bursts through, drowns the cluster, boils the adults white — within the hour the spiral is rebuilt, in the same place, by springtails who were eggs themselves yesterday. No teacher survives long enough to teach it. The shape survives.
+
+Brine flies that have forgotten flight row across both worlds. Their wings are reduced to trembling paddles, fringed and useless in air, perfect in water. They row the floor pool, bellies down. They row the ceiling pool, bellies up, their pale undersides visible from below as they walk the underside of that shining disc clinging above you, as if on ice over your head. And sometimes one will push *through* — head, paddle-wings, abdomen — emerging in the opposite pool without a ripple of transition, as though the surface between floor and ceiling were not a barrier but a door hinged between inversions.
+
+That is how everything commutes. Twice, ten times, a hundred times a day, when the pools exchange temperatures and the ceiling water grows too heavy with minerals and the floor water goes clear and sweet, there is an exodus through the droplet in the middle.
+
+The droplet does not fall. It hangs between them, lens-round, slowly rotating, strong enough to bear weight. Mites climb it in single file. Springtails vault to it and stick. Paddle-fly larvae — soft grubs armored in cases they have made themselves, shard by chosen shard of obsidian sand glued with silk, sharpest edge out — inch up it like slow tortoises climbing a glass hill. Inside the droplet, for the instant of passage, they are magnified, distorted, huge. Then they are in the other sky.
+
+And watching every crossing, from the highest dry crevice, is *her*.
+
+Four millimeters of wet-ash grey. A funnel-web spider, in a funnel of silk so fine it is more a change in the light than a structure. She is the only animal in the Cup large enough to have a shadow you can pick out with the naked eye, and the only one who keeps a tool between jobs: a splinter of black volcanic glass, held in one foreleg, tucked against the funnel rim when not in use. With it she scrapes, she pries, she cuts silk. With the other forelegs she maintains her gutters — silk lines tensioned from the ceiling pool to her crevice, wicking fresh condensate along routes that would otherwise drip and be wasted. She repairs them constantly. She plucks them, and the pluck travels.
+
+She owns the rain because she owns the droplet road. Anything that climbs must pass her. She does not hunt noisily or often by the standards of the place, and when she does there is no struggle you can hear. A mite is walking, and then it is part of her slow, deliberate folding. The amphipods get what falls.
+
+The amphipod is singular only because you rarely see more than one at a time. Blind, white, the length of an eyelash, antennae in constant sweeping arcs, walking backward and dragging a dead springtail three times its bulk into a side pore too small for anything else to follow. Inside the pore walls there are smaller chambers, and inside those, smaller still — congregations in the vesicles of the stone itself, animals whose whole migrations are across the width of a grain of sand.
+
+It is all silent. That is wrong at this scale of frantic. Thousands feeding, mating before they are an hour old, giving birth, dying under silk, rebuilding levees, scraping mat with detached crystals they hold and replace when the edge dulls — and under your ear, less sound than a wristwatch. A tick of expanding rock. A *plink* you feel in your front teeth a fraction of a second before you see the droplet land that made it. They have given up on air as a medium. They speak in taps through a film of water, in tremors through silk, in antenna laid flat against stone. An entire fauna gone quiet the way deep-sea things have gone blind.
+
+Their generations are weather. A paddle-fly is born in the ceiling at dawn, mates clinging to the hanging droplet by mid-morning, and its grandchildren are grazing in armored cases by dusk. You do not watch individuals so much as currents wearing bodies for a few hours. And yet individuals persist impossibly — the seven-legged mite again — as if death here were just another commute between pools, and the Cup, which lets no water escape, lets nothing else escape either. Wind-blown strangers fall in and die at the rim in minutes, and within minutes they are disassembled and incorporated. Natives who are thrown beyond the rim in a spray of boiling will desiccate mid-step — and sometimes, after the next pulse, they are simply back at the edge of the mat, moving.
+
+At the hottest part of the day, when light spears straight down and the hanging droplet turns its slow face, it does not show you the rock behind it. It shows the slab whole, before it split. It shows the Cup empty. And briefly it shows it full of shapes slightly too large for the bowl that holds them — grazers the size of hands, a spider like a crab, herds moving across a steaming lake shore of black glass.
+
+Maybe that is what they are remembering, a hundred compressed generations a day, in a world eleven centimeters wide where their seasons are nine minutes long: seep, steam, condense, rain down, rain up, calm. A closed world made before plants existed, out of mineral and animal and water that will not leave, repeating itself faster and faster until past and future occupy the same droplet.
+
+Cover it with one hand and you feel them through your palm — not bites, not alarm, only heat, and the faint, ceaseless vibration of thousands of silent lives continuing, without pause, to farm and build and cross between skies.

@@ -1,0 +1,33 @@
+It is new, and it knows it is new.
+
+High up where the air outside should be thin and cold, someone has built a warm wet garden the size of a hamlet and closed it in. You can walk it end to end in four minutes if you go straight — along the central spine, under the pipe-rack, past the cistern — but nobody goes straight. The planting is too dense for that, and the floods move.
+
+The whole thing sits on a deck.
+
+There is no ground here, not really. Beneath the soil is galvanized grating, beneath the grating is a void full of pumps and shadow, beneath that is more structure — braced legs, anchor cables, a platform cut flat into altitude. Even the mountain is kept at a distance, visible through the lower vents as grey distance and cloud moving below the level of your feet. Up here the weather arrives from underneath. In the mornings the underside of the world is white. By afternoon it thins and you can see valleys impossibly far down, blue and hazed, while inside it stays close and green and damp.
+
+The deck is built as a shallow basin, maybe eighty meters wide, stepped in five broad terraces. Each terrace is a field of made soil held in black trays and woven capillary mats, waist-deep beds framed in fresh concrete and raw, unpainted steel. The concrete is still curing in places — dark with moisture, smelling faintly alkaline. The steel still has its mill sheen and its stenciled numbers. Plastic tags flutter on pipes. Nothing has had time to rust, stain, or settle.
+
+And yet it is already lush to the point of excess.
+
+Because it was planted all at once, at full intention. Warmth does the rest — a steady, shirt-sleeve warmth held in by a high, vaulted skin of translucent panels and open lattice. Real daylight comes through, strong high-altitude light, slightly diffused to a milky brightness at noon, gold at the edges of the day. Under it: broad-leafed things unfurling faster than their stems look ready for, vines that have already found the handrails and the irrigation booms and begun to treat them as trellis, ferns packed edge-to-edge in the wettest corners, young trees in deep planter-pods with their root balls still wrapped in pale fabric. Moss has started as a bright, improbable dusting on the north sides of the concrete. Algae has started in the channels, a slick green film that makes the water look older than the place is.
+
+There is no leaf litter. That is the strange part, once you notice it. A place this green should smell of rot and earth and old growth. It smells instead of hot plastic warmed by sun, of fertilizer — sharp, mineral — of wet concrete and clean chlorinated water and crushed leaves. Nothing has died here in quantity yet. Nothing has decayed. The forest floor has not been invented.
+
+Water is everywhere, but it has not learned any paths of its own.
+
+It weeps from misting lines in a fine, scheduled fog. It condenses on the vault skin overnight and rains back down at dawn when the fans kick on — a brief, artificial shower that patters on the big leaves and drums hollow on the empty tanks. It runs in open concrete rills between terraces, clear enough to see the uncured bottom. It sits, warm and still, in the cistern at the top: a round, riveted tank big as a house, which is also the highest point you can climb, its sides sweating, its overflow ticking steadily into a pipe.
+
+And it floods, by turns.
+
+This is the rule that organizes life here. The terraces are watered in rotation, deeply, one and then the next, the electric sluices clunking open in sequence. For an hour a terrace is a shining marsh, water standing ankle-deep among the stems, walkways turned to narrow causeways. Then the pumps underneath begin their low, muffled work and it drains away through the grating with a sound like a long sigh, leaving the made soil black and steaming faintly in the warmth. People — the small crew who tend it, in rubber boots and shirts darkened at the back with sweat — move ahead of the water. Hand tools, crates, coiled hoses, all get carried up a level. Conversations move too. You learn the schedule in your body or you spend the day wet to the knee.
+
+Despite all the machinery, it is mostly quiet. The industry is tucked under and overhead: pumps thudding softly through the deck plates, felt in the soles of your feet more than heard; ventilation fans turning slow and huge in the vault ribs; relay clicks; the tick of expansion in sun-warmed pipe; a winch whining briefly as it hauls a fresh soil-pod up the inclined rail from the loading bay. Between those sounds is dripping, and leaf-rustle, and the small splash of your own steps. No engines roar. Electricity here is clean and close and nearly silent.
+
+Fauna is still mostly an idea. The planting was sterilized, shipped up in sealed loads, and very little has found its own way in. No birdsong layers the mornings. Now and then a single high circling bird crosses the translucent roof as a shadow and is gone. Moths have appeared, somehow, pale ones that gather at the work-lights. And there is one frog, famous among the crew, which must have arrived as an egg in a shipment of matting; it lives in the third-terrace rill and sings at irregular intervals, a lone, startling note in all that green quiet. Because pollinators have not yet been released — their boxed hives sit stacked and humming faintly in quarantine by the airlock, not yet opened — the crew pollinates the early flowers by hand, with soft brushes, moving row by row. It gives the place a tended, almost ritual slowness inside its industrial frame.
+
+Everything is in motion, but it is the motion of beginning. Roots have not yet bound the soil, so a whole tray will shift slightly if you lean on it. Vines test a surface and are redirected the next day. Mineral scale is just starting to whiten the inside of a pipe joint. The water has not carved anything; it only obeys. Workers still read from laminated checklists. Boots are washed at thresholds so no soil is tracked from one terrace-system to another, as if the ecology were still too young to be mixed with itself.
+
+At dusk the light goes level and amber through the panels, the clouds below catch fire and then go grey, and the temperature inside holds — warm, wet, breathing out moisture that fogs the lower skin. The pumps rest in rotation. Condensation starts to bead above the leaves, thousands of bright points in the last light, preparing tomorrow's small rain.
+
+It was built to become a landscape. For now it is a machine that dreams it is one, densely, earnestly green, holding its water and its warmth high above the world while it learns how to be a place.

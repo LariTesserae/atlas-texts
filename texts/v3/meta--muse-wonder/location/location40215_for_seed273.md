@@ -1,0 +1,35 @@
+From far away, it looks like a mountain that got the light wrong.
+
+It rises out of the haze in clean, impossible steps — a white and rust-red massif three kilometers high, too symmetrical to be rock, too weathered to be new. At dawn its top is already blazing. The air up there is thin and bright to the point of pain, sun hammering off limewashed walls, tin roofs, a thousand angled terraces of glass and tile, while its base is still in blue shadow among the clouds that get trapped halfway up and never quite clear. You can hear it before you can make out any detail in it. A low, continuous roar, not one sound but hundreds braided together.
+
+It is called the Highworks, and there is no ground in it.
+
+Not hidden ground, not ground covered over. No natural substrate at all. The mountain itself is built: a hollow, riveted core of iron lattice and rammed slag and fired brick, widened generation by generation with buttresses, infill, cantilevered neighborhoods. Walk anywhere and your feet are on something made — worn concrete, ceramic tile slicked green at the edges, iron grating warm through your shoes, wooden boardwalks swollen and silvered, stone that was quarried elsewhere, cut elsewhere, and hauled up to become a street. Drill down through a courtyard and you don't hit earth. You hit a ceiling, a cistern, a maintenance shaft smelling of hot oil, another family's roof garden.
+
+Soil, here, is a manufactured material. It is made on the lower levels in compost yards and sold by the sack: crushed brick, ash, shredded reed, goat dung, kitchen waste, the black muck cleaned out of the condensation drains. It's expensive. It's alive anyway.
+
+Because for all the iron, the place is lush to the point of overcrowding.
+
+Every terrace is edged with planting whether it was planned or not. Fig trees lean out of cracked planters and split paving with their roots. Bougainvillea pours three stories down a south-facing wall in magenta drifts. There are roof-fields of corn and beans laid out in shallow built beds, banana groves steaming in sheltered courts on the warm mid-levels, tomato vines tied to factory railings, herbs forced into every gutter and crack — mint taking over stairwells, rosemary in the expansion joints, small stubborn pines seeded by wind into the high cornices where nobody can reach to cut them. The industrial quarters are the greenest of all: the dye-works and tanneries and steam laundries leak warmth and damp all year, and their walls run with moss, ferns unfurl from drainpipes, algae paints the outflow channels emerald.
+
+The water does not come in rivers. There's never enough at once for that, and then briefly there's too much.
+
+Most mornings it arrives as condensation. At altitude, the nights cool just enough that the whole built mountain sweats — iron beams bead, tile roofs drip in rhythmic lines, the great mesh nets strung between the upper towers harvest fog and funnel it, ticking, into cisterns. By ten the sun has burned it off and the air is dry and glittering again. By four, on the windward side, a warm rain may blow in sideways for twenty minutes, filling every channel and courtyard pool, turning the ramps to temporary streams, and then stop. Everything is designed to catch and keep that intermittence: concave roofs, chained gutters, courtyard tanks under grates, frogs living year-round in the shaded sumps, children who know every spout that overflows first.
+
+And everything lives here, densely, in layers, almost touching.
+
+Goats pick their way along planted parapets. Chickens own the market roofs. Mules — the real freight system on the older, narrower ramps — stand patiently steaming in the heat while cable-cars creak overhead on iron lines. Cats sleep on warm generator housings. Dogs navigate by level and smell. Housing for thousands of swifts is built deliberately into the eaves, their screaming at dusk nearly drowning the factory whistles, and hawks nest higher still on the lightning rods, dropping through that thin bright air after pigeons. Bees are kept in painted boxes on almost every flat roof, and in summer the whole upper city hums with them above the smell of hot iron, cooking oil, wet leaves, lime, and dung compost turning sweet underneath.
+
+The tech is industrial and unapologetically loud, but it moves slowly.
+
+There are textile mills three levels deep inside the mountain where looms clatter behind open arches and lint drifts out to catch on vines. There are forges, print shops, a bottling plant, electric generators that make the lights in the deep interior corridors buzz and flicker. Freight elevators the size of houses rise on external racks at the speed of a walking man, and a load of brick or water or oranges may take half a day to go from base to summit. The water pumps work on a seven-day cycle, lifting cistern to cistern. Nothing rushes, geologically or mechanically; even repairs are generational. A new buttress is begun by grandparents and capped by grandchildren. The stains have had time to become geography — rust weeping in long orange fans below every joint, limestone stalactites growing under leaking pipes in the arcade tunnels, steps in the central ramp worn into shallow bowls by a century of feet and hooves.
+
+The rules grow out of that vertical, artificial fact.
+
+You do not throw anything down, not water, not waste, not a stone — *down* is always somebody's home, garden, workshop. You maintain your planter as you maintain your wall; a neglected terrace that cracks and sheds soil is a structural offense. Rain that falls on your roof is yours, but rain that overflows is the street's, and rain that reaches the street cistern belongs to the level. Newcomers walk bent and breathless for weeks and are given tea and the small, bitter high-level leaves to chew, and are not allowed to work the top forges until their ears stop ringing.
+
+Different heights are different countries. The base is warm, shaded, clamorous with markets and animals and the arrival yards. The middle is a tangle of workshops and schools and hanging gardens where laundry and bean poles and electrical wire cross the sky between towers so thick you walk in patterned shade at noon. The top is sparse by comparison only — wider terraces, white walls, wind, orchards stunted and intensely fragrant, observatories and signal bells and the great fog nets singing faintly in the wind. From there on a clear day you can see the actual, natural mountains far off and much lower, blue and unimpressive, and the land road spiraling away, and you understand that no one here thinks of this as a building.
+
+It has eroded. It has ecosystems. It has weather that forms inside its own streets, updrafts carrying seeds and swift feathers and market paper from level to level.
+
+It just happens that every cliff is a wall that someone's great-grandmother built, and every meadow was mixed in a yard and carried up in sacks, and it keeps growing — slowly, loudly, leaf by leaf and brick by brick — into the bright air.

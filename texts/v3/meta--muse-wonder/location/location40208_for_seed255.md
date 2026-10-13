@@ -1,0 +1,43 @@
+There is no ground here.
+
+There is a floor — flagstone, brick, packed clay tile, plank laid over plank — and beneath that another floor, and beneath that, by all accounts, another. At the rim, where the ramps come down from the higher country, men with hand-carts still claim to have seen earth when a foundation pile was driven. No one inside believes them. Inside, if you pry up a loose slab in an alley, you find mortar, rubble, the flat crown of an older vault. The world is made all the way down.
+
+They call it the Low Making.
+
+It occupies a broad, shallow basin, low enough that cool air pools in it and does not leave. From the rim roads you should be able to see across it — it is town-sized, valley-sized, several hours' walk from gate to gate — but you cannot. The air is dark. Not night-dark; a permanent, working gloom, thickened by stone dust, in which distance fails after thirty paces. What extends past the immediate is not sight but sound, arriving from everywhere at once.
+
+It is very loud.
+
+Hammers on chisels, stone saws drawn back and forth by two men singing to keep the stroke, treadwheel cranes groaning inside their wooden cages as a block rises inch by inch on hemp rope. Carts with solid wooden wheels shriek over flagstones. Foremen shout. Gangs answer. In the dark, nobody signals with a hand. Everything is announced: a bell for a falling load, three taps on a pillar for *hold*, a horn for *the rope is going*, a long wooden clacker run along a scaffold rail to clear a lane. Even private talk tends to be shouted, out of habit, and the vaults throw it back.
+
+For the Low Making is roofed.
+
+Above the inhabited levels — above, in places, three or four stacked street-levels of workshops and scaffold dwellings — lies the Plate: a second, artificial ground, still being extended on a forest of stone piers and timber shores. Its underside is the sky here. Cool, blind, and beaded with water. When the forge-yards and brick kilns have been firing hard and the warm breath of a thousand workers rises, the moisture gathers up there and returns as an irregular, private rain. It does not fall everywhere. It falls in remembered lines, off beam-ends, out of cracks between fresh slabs, in sudden warm drips on the back of the neck while both hands are on a rope. Gutter-men patrol with scrapers and wooden spouts, guiding the drips into troughs, into clay cisterns, into barrels whose contents are owned, disputed, and inherited. This is most of the water there is. Streets are damp, never washed. Mortar is mixed sparing. A wet sheen stands on the newer stone, and the older stone, which is still not very old, sweats in the cold.
+
+Nothing here has had time to weather. That is the strangest part of the look of it, once your eyes adjust to the small, hooded oil-lamps burning in their clay niches. Edges are sharp. Corners have not been taken off by shoulders or seasons. Chalk lines still show on walls no hand has yet leaned against. The limestone is pale as a cut tooth, the brick still holds a faint kiln-smell, the mortar is light grey and unlichened, and over everything lies fresh stone flour, tracked into drifts in corners, so that footprints show white on dark planks like prints in first snow.
+
+And nothing grows. The dark would forbid it, but the builders forbid it faster. There is no weed in a crack because the cracks are new and because scraper-boys are paid in lamp-oil for every grey-green smear they peel from a cistern lip — a slime, not a plant, tasteless, that they mash into paste. The timber is dead wood hauled in from the rim, stripped and smoked. The rope is dead fiber. The food is dead and dried and brought down the ramps: grain, salt fish, hard beans, rendered fat for the lamps. Whatever lives here arrived dead, except the builders, and except, very rarely, something else.
+
+A moth around a lamp can stop work on a whole lane. Men lower their hammers — briefly, involuntarily — to watch it blunder in the light. Pale rats are known, and tolerated, and named, because they find fallen grain and predict bad air by leaving it. Once a year, perhaps, a bat finds a vent-shaft and gets lost among the beams, and then the bell-men follow it by ear for a night until it finds the shaft again or is caught, exhausted, wrapped in cloth, and carried up like an ambassador. There are blind, hairless dogs that sleep against kiln walls. That is nearly the whole fauna. The rest is human, packed close.
+
+Dense is the only honest word. The finished city and the lived city occupy the same streets and refuse to be the same place. By law — by custom hard enough to be law — no one may sleep in a finished room.
+
+So the finished rooms stand empty, row after row of them, perfect and dark, doors pegged open, hearths unswept because never lit, stairs rising to upper chambers that smell only of stone. And all around them, lashed to their outer walls, draped over their roofs, hung beneath their stairways, is the real town: scaffold platforms, rope bridges, hammocks, lean-tos of plank and sacking, cook-boxes, tool-cribs, bunks stacked three high in the lee of a new wall. Families live on the scaffolding of houses they are not permitted to inhabit. Children are born in hammocks beside walls their grandparents cut. When a street is declared complete, the whole population of its scaffolds unpegs, unlashes, carries its life one street onward and rebuilds the temporary town against the next raw façade.
+
+Thus the Making moves, slowly, in a wave across the basin.
+
+At the leading edge, the Plate is only an intention of pillars, the streets below unpaved frames, men working by lamp at noon in a clatter of mallets, laying the next vault over their own heads. In the middle is the uproar: kilns glowing behind iron-bound wooden doors — simple iron, little of it, mostly reserved for tool-edges and saw-teeth — treadwheels turning, stone coming down the ramps block by block, masons, sawyers, rope-makers, mortar-mixers, lamp-tenders, water-carriers, all of them chalked and dusted and shouting their positions. Behind the wave, the finished quarters cool and empty and fall almost quiet, which in this place does not read as peace.
+
+Quiet is an alarm. A quiet pillar may be a cracked pillar. A quiet street may mean a fall has buried the bell.
+
+So the testers go even through the empty districts, old men and girls with wooden mallets, tapping. Every pier, every lintel, every slab of the Plate gets tapped and listened to, morning and evening, and the note chalked on it. A good stone answers clear. A flawed one answers *tock*, like a tooth. And — this is spoken of less, but the testers all know it — now and then, from very deep in a pier or from beneath a floor that no living builder cut a way into, something answers a fraction too late. Not an echo. The vaults give plenty of echoes, and every tester learns those first. This is later, and fainter, and in the wrong place in the sequence.
+
+When it happens, work on that street does not stop. It gets louder. More bells are hung. More lamps are lit, though lamp-oil is measured by the spoonful and eyes here have grown so large and patient in the gloom that visitors from the rim go half-blind and weeping. The mallets move on. The next course of stone goes up.
+
+No one now living knows what the finished Making is for. The plans are inherited as sequences of tasks: this wall to this chalk line, this pier to that height, this room adjoining this room, copies recopied onto lime-washed boards by men who cannot read the old marks as language. There are stairs that end at ceilings, and are built, correctly, anyway. There are doorways opening onto solid piers, built, correctly, anyway. To leave a prescribed stone unlaid is the only crime the basin fully agrees on.
+
+Above the Plate, for those who make the long climb up a vent-stair with a shuttered lantern, there is a moment of cooler, moving air. The upper surface stretches away, a new-made plain of fresh slabs, unfinished at its far edge where the cranes stand like wooden animals. It is almost as dark up there — low cloud, dust, the basin holding its weather down — and completely bare. No soil has been brought. No seed has been sown. It waits, acre upon acre of clean, cold stone, for an instruction that has not yet reached the builders below.
+
+Below, the dripping resumes. A bell speaks, then six streets answer it. A block rises through lamplight on a singing rope, turns slowly, and is shouted down into its place.
+
+The city is not being lived in. The city is being *arrived at*, one hammer-blow at a time, by people who have built their entire world inside the act of building it.

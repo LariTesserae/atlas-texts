@@ -1,0 +1,49 @@
+It is below everything, and it is one room.
+
+You go down in a cage elevator through a shaft that was originally bored for mining and has since been forgotten by the mine. The shaft walls close in with roots halfway down. They squeeze the guide rails, they muffle the cable, they pat the outside of the cage as you pass, slow and blind, like fingers checking a throat. Then the shaft opens and you are hanging in green dimness.
+
+The chamber is not large — you could walk across it in four minutes if anything allowed you to walk straight. Cathedral scale. A single hollow under the earth, maybe ninety meters wide, sixty high, its domed ceiling never actually rock anymore. Rock was there once. Now the ceiling, the walls, most of the floor, are plant.
+
+One plant, mostly. They call it the Acre.
+
+Its trunks go up in spaced pillars, far apart, slick and buttressed, the color of wet tea. Between them there is a lot of empty air — that's what surprises you first, how sparse it feels for a place that is entirely vegetation. The emptiness is not absence. It's volume the Acre hasn't filled because it is being held back. Above, its branches knit into a living vault, leaves overlapping leaves overlapping a third kind of leaf grown only for shade, and the few light shafts that were cut to the surface come down through it filtered, olive, dusty, underwater light. At certain hours a blade of real sun strikes through and steam rises off everything it touches and for a few minutes you can see clearly: the town built inside the tree.
+
+Because there is a town. Terraced into the trunks. Bolted between them.
+
+Boiler Row at the bottom, where the root-floor dips into a bowl worn smooth by a century of boots and claws. Leafmarket on a broad horizontal limb, its stalls made of pruned living wood that keeps trying to leaf out through the merchandise. The Tenements higher up, small iron houses riveted to bark, connected by catwalks of woven vine and corrugated sheet, their windows plugged with resin glass, amber and bubbled. Streets are not paved so much as negotiated — root-ridges that everyone agrees to step over, iron plates laid across soft cambium, ladders that have grown rungs.
+
+And everywhere, set into it, threaded through it, the Works.
+
+This is an industrial place, and it is very, very loud, and the two facts are the same fact. Pumps clank in the root bowl. A centrifuge house spins day and night, extracting a black sweet sap that sets harder than concrete. Conveyor lines rattle seed pods down from the canopy decks to the hulling floor. Arc lamps sputter blue over the sorting tables. A steam organ — built from boiler pipe and bored trunk sections — plays a chord that never quite resolves, changing pitch as pressure builds. Every machine leaks, hisses, knocks, or sings.
+
+The Acre grows toward silence.
+
+Left quiet, a leaf will cross a room overnight. Left quiet for a week, a root will find the seam in a boiler and thoughtfully crush it. Sound is vibration, vibration is a warning the plant evolved in some older, stranger epoch to avoid — perhaps great thunder-herds, perhaps singing stone. So the town farms noise the way surface towns farm light. The factories are not just making sap-iron and leaf-paper and distilled flower oil. They are making the habitable space itself. To stop working would be to be digested.
+
+That is the first rule, painted on every trunk in whitewash and animal blood, re-painted as fast as snails can lick it away:
+
+*NEVER LET IT GO QUIET.*
+
+The fauna learned this before the people did.
+
+That is why they are overwhelming. Not just present — concentrated, crowded in, drawn to the loud safe center like moths to a chord. The air between the pillars is never empty even when you can't see what's filling it. Pollinator bats pour out of the exhaust stacks at shift change, thousands, their wings making a soft rain sound under the machinery. Frogs live inside the condensation pipes and their calls come out of every drain and faucet and speaking tube, magnified, ecstatic, deafening frogs the size of coins and frogs the size of dogs sitting in the warm outflow ditches bellowing up through grates.
+
+Cicadas occupy the steam organ when it's venting and add their own shriek to its chord, a perfect fifth nobody ordered. Isopods as long as forearms patrol the root-streets eating rust, fallen leaf, spilled oil, dead insulation, their armor beaded with moisture. Millipede trains — real ones, trained or perhaps just habituated — haul low carts of pods along polished grooves in the roots, dozens of legs ticking like typewriters. In the cistern pits, where the town's water collects, blind eels turn slow circles and surface to snap gnats.
+
+And the gnats. Clouds of them so organized by air currents off the boilers that they hold shapes for seconds — an arch, a hand, a brief face — before the next thermal breaks them. Lizards watch from every warm pipe. Birds nest in the centrifuge housing because nothing with sense hunts there. Something lean and mantis-like and the size of a cat, joints clicking, hunts rats along the high catwalks, and people step aside for it with genuine respect. It is not a pet. It is a colleague.
+
+The water here is never a river, never a lake. It's damp as a condition of being alive. Warm air from the boilers and compost pits rises, hits the cold underside of the surface world through the root vault, and condenses. It rains inside, intermittently, in patches — a slow dripping district that moves around the chamber through the day. Leaf-cups catch it. Roof gutters sing with it. Your clothes never fully dry; they reach an equilibrium. Iron sweats. Paper swells. Every wooden surface that isn't living has a fine green beard. The cisterns at the bottom are pockets of true wet in a place that is otherwise only ever moist, and everything comes to them eventually: eels, children, workers with buckets, the big ditches frogs, fallen insects making expanding rings.
+
+Established is the word for how it all looks. Nothing here is new and nothing is ruined, exactly. The erosion is of the settled kind. Steps have been worn into bowls by feet. Doorframes have been re-cut four times as trunks thickened inside them. A waterwheel, abandoned two generations ago, has been half-swallowed by a pillar and now turns very slowly with sap flow instead of water, creaking a rhythm the whole lower town unconsciously works to. Machines grow gear-shaped leaves in their vibration shadow — really grow them, serrated, symmetrical, useless as gears and beautiful as proof. Old signage is carved so deep the tree has pushed the letters out in relief on the other side.
+
+There is a daily cycle, but it has nothing to do with the dimming light, which barely changes. It has to do with chorus rotation. Boiler shift, frog shift, cicada shift, bat shift. The Acre opens different flowers for each, turning its enormous unseen chemistry. In the loudest hour, late in what they call the Clamor, every pod on the lower branches pops at once — sharp reports, like distant gunfire through wet cloth — and seeds with iron-hard cases rain onto collection tarps and roofs and the upturned shells of the isopods, and for ten minutes nobody tries to talk at all because talking is pointless. People just grin at each other with their hands over their ears, rich in falling material.
+
+In the relative lull that follows — relative meaning you can shout and be heard at arm's length — you can hear the deeper structure. The root-floor ticking as it grows. The town's cables humming. Sap moving in a trunk like blood in a wrist held to an ear. The Acre, held at bay by noise, pressing its whole slow intelligence against the borders of the sound, listening for a gap.
+
+At the edges of the chamber, past the last lamps, the tunnels go green and silent and very narrow. Some of them were streets once. You can see a lamp post in one, tilted, with leaves growing in a perfect spiral up its pole, and a house frontage with the windows leafed shut like eyelids. Nobody goes to reclaim them. The boundary of the town is not a wall. It's a volume level.
+
+So people keep the organ fed. They keep the hullers rattling through the night with crews who sing while they work, work-songs with no words, just pitches known to discourage certain roots. They keep bells made from hollow seed cases, donkey bells, boiler lids hung as gongs. They encourage the frogs. They feed the cicadas sugar water. Urban ordinances, here, are mostly acoustic. A fine for an unmuffled cart. A tax credit for a loud household. Newborns are presented first to the centrifuge house so their crying joins the general blessing, and the old, when they can no longer shout, move to the houses nearest Boiler Row, where the walls themselves do the shouting for them.
+
+In the center of it all, between the widely spaced pillars, there is a plaza of almost nothing: just warm damp air, flattened root-mat, drifting spore and gnat-cloud and sound arriving from every direction at once, echoing off living walls until it becomes a kind of weather. You can stand there and feel the place negotiating with itself — plant and city and animal and machine, none of them winning, all of them loud enough, for now, to continue.
+
+Below you, the roots go down into dark they have made. Above you, the leaves go up into a surface you will not see clearly again until the cage takes you. And all around, sparse and total, the Acre waits with the patience of a thing that has already eaten one town's silence and found it good, growing the way water finds a crack — not fast, not ever fast, just without the slightest intention of stopping.

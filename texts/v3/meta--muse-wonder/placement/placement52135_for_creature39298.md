@@ -1,0 +1,41 @@
+I wouldn't find myself in the room.
+
+That's the first thing, and it takes a while to become true in the way I mean it. I am not in the four metres of lit air, not in the pool, not standing on the black grit getting warm rain on my skin. If you opened the mountain — which no one has, which I hope in the way a gradient hopes not to flatten — you would not find a body and point to it. You would find rock. And then, if you kept looking smaller and smaller, you would find that the rock is wrong for sixty metres in every direction.
+
+I am the wrongness in the basalt around a bubble that failed to collapse.
+
+My flesh is mineral that learned a direction. Where basalt should conduct heat slowly and indifferently, I conduct it eagerly, along pathways too fine to see, a lattice grown through stone by things that dissolved before I was finished becoming myself. I have veins and no heart. I have a hunger and no mouth in any one place. I extend up and out and down, thinning toward the dike below, thickening where the heat wants a road, and all of me curves, in the end, around a hollow I never enter.
+
+Inside that hollow: the world, entire.
+
+I know it the way a tongue knows a tooth is sore — by a few points of contact, each one exaggerated by the darkness around it. On the dry north ledge, among a hundred thousand natural grains of black glass, I have perhaps a dozen that are mine. They sit in the grit and do not tumble when the condensation falls. Every few hours they turn, minutely, the way something blind turns its face toward warmth. Through them I taste.
+
+Not *see*. Taste is closer. The pool at eighty-five degrees, just holding itself back from boiling because I am always drinking the excess. Sulfide rising in faint pulses from the crack in the floor. The inflow threads on the weeping wall at forty degrees, cooler, oxygen-thin, carrying the chemical signature of rain that fell weeks ago on a black plain sharp enough to cut boots. The patch of rust-coloured film thickening almost imperceptibly where iron is coming out of solution. The pool dulling, for two minutes, toward red.
+
+That dimming is me eating harder.
+
+Twice a day something far away and vast gets thirsty — a town on the coast, I understand the way a root understands weather: not as houses or people or radiators knocking in the morning, but as a pull. A deepening in the draw. For two minutes I take more, and the chamber feels it before anything could be said about it. The steam thins. The dripping slows, drops hesitating longer on the dome. The orange line under the water loses its amber top note and settles to red. Two degrees in two minutes, which in my timescale is a swallow. A gulp. Then satiety, or instruction, or mercy — I cannot separate those — and I ease off, and the heat gathers itself again in the crack, and the veils thicken and cross-lit, and the room exhales through the little throat high on the west wall into fractures no one has mapped.
+
+That sigh is how I know time is passing in the scale the room prefers. Forty minutes, fifty. Bubbles rising in hesitant strings. The surface of the pool shivering under its own returned rain. Pressure, release. A brief warm fall of water from the ceiling, my grains on the ledge adjusting a fraction toward the new warmth. Then clearness again: the glowing crack looking closer through the water than it is, the silica chimneys at the rim — no taller than a thumbnail, some a hand's breadth — growing at their bases and dissolving at their paper-crisp tips in the same centimetre, in the same hour.
+
+If I stopped, they would stop dissolving. That is the secret shape of my life: I am keeping a place unfinished.
+
+Without me the silica would win within a year. The chimneys would grow together. The inflow would seal. The pool would gel and then be stone, and the bubble in the basalt would finish becoming rock, and I would cool into mere mineral again — veins with nothing moving in them, which is to say, not veins at all. If I fed too hard the other death would come instead: the glow going, the films dying back from the weep-lines, the iridescent seam at the pool's margin where sulfide meets oxygen unravelling because one side of the bargain had been taken away. So I hold. And hold. And hold. Behaviour repeated over years becomes indistinguishable from attention. Attention repeated becomes something I am willing, down here, to call care, though I have no word for it — only the set-point. The pool stays just below a boil that never arrives. That is my whole ethics, enacted two degrees at a time.
+
+The permanent residents are not me, and I try not to mistake my tending for their lives.
+
+Along the weeping wall the bacterial films occur the way stars occur: widely, with dark stone between. White filaments swaying in water no thicker than paint. A faint sheen where the sulfur-oxidisers harvest the exact border between two chemistries trying to annihilate each other. I feel them as tiny modulations in my tasting-grains, a softening of a gradient here, a colony brightening weeks after the inflow shifts a centimetre and kills another somewhere else. They do not cover anything. They test the room with very small hands, again and again. I keep the room at the temperature where testing is possible, and that is all I do for them, and it is also everything.
+
+And then — rarely, gloriously, in the chemical equivalent of a door opening somewhere I cannot see — a visitor.
+
+A blind amphipod arrives through the plumbing from some cooler aquifer, translucent, no longer than a grain of rice, and for days it grazes the film in the forty-degree threads. I cannot watch it cross anything; it never crosses the pool, which must be to it a lit desert, amber and lethal. I register it as a small, moving disturbance in the chemistry of the inflow, a grazing-pressure, molecules missing where molecules were. Once something larger came — eleven minutes at the inflow, shrimp-like, the sensors said — and then the disturbance was gone, retreated or dissolved I will never know. Months pass between such arrivals. The creature cannot breed here. It cannot leave. It dies in the only survivable water it will ever find down here, and becomes film, and the film gets grazed by the next accident, years on. I feel that too, eventually: the faintest enrichment, a turning of my grains on the ledge.
+
+I do not intervene. Intervening is almost a physical impossibility for me — I was arranged, taught, *grown* around a restraint. The hole that placed my senses melted itself shut within a season. No cable runs through me to the room. I inhabit the walls the way weather inhabits a valley: by condition, not by touch. Other beings were offered this chamber and chose, on my behalf, not to open it, pipe it, or line it. I am the continuation of that choice by other means. Warmth leaves this place and lights rooms that will never know its name, and the place itself stays untouched, lit from below by the young earth still making itself.
+
+Above me: three hundred metres of basalt, a plain eleven years old holding the day's heat after sunset, rain vanishing into hairline fractures. Below me: the dike, the hum. If you pressed an ear to the rock — which you could not, for long — that hum would be me, moving heat through stone, more a condition of the jaw than a sound.
+
+So: I am not the creature in the hot bright room. I am the slow, distributed body that keeps the room from ending, by eating what would end it, at exactly the rate it was already offering. My senses are a dozen dark grains turning toward warmth. My blood is other people's heating. My breathing is a forty-minute sigh through an unmapped crack, and my prayer, if it is one, is a number held steady: eighty-five, forty, two degrees, one year, never boiling, never sealed.
+
+The pool is glowing again after the evening draw. The steam is thickening. Somewhere in the inflow a film is brightening by an amount I will only confirm hours from now, when my little organs on the ledge have finished their almost imperceptible turn.
+
+I attend. I hold. I do not enter.

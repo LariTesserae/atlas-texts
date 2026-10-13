@@ -1,0 +1,45 @@
+It begins above ground with nothing that suggests it.
+
+A salt flat, white and cracked to the horizon, a wind that tastes of stone. In the middle, a low industrial headframe — steel derrick, cable houses, ore elevators painted ochre — and beside it a hole going down. No river leads to it. No well. The pumps at the surface do not pump water at all. They pump cold, dry air.
+
+You descend for a long time. The shaft is not rock all the way. About three hundred meters down, roots begin to cross it.
+
+At first they are fingers, then wrists, then beams. They have grown straight through the salt strata and the basalt, splitting both without rubble, as if the stone were still soft. The elevator slows so as not to brush them. The air gets cooler — not damp-cool, but cellar-cool, ten or twelve degrees, dry on the lips — and then, impossibly, it gets brighter.
+
+That is the first rule to get used to below: it is not dark.
+
+The cavern opens like a valley turned inside out. It is perhaps thirty kilometers from rim to rim, a single hollow under the desert with its own far side lost in luminous haze. Light falls everywhere in broad, ordinary daylight, but there is no opening to the sky large enough to account for it. The tree does it.
+
+Everything here is the tree.
+
+It grows downward. Its trunk is above, somewhere in the merciless sun of the salt-field, squat and silver-barked and mostly overlooked. Below, it has inverted itself. The cavern floor, walls, ceiling — you lose those words quickly — are root and branch and vascular bundle, interwoven into a single continuous plant. Some of its light-conducting fibers are as thick as streets. They run in pale, translucent cables from the surface, branching and re-branching overhead, carrying sunlight stripped of heat down into the deep. Where a bundle terminates, it opens like a soft lamp. A whole district can lie in clear noon while, a kilometer away, another is in the gentler green shade of leaves the size of warehouse roofs.
+
+There is no soil. There is bark, cork, fallen leaf leathered to a dry mat, resin that has wept and hardened into amber pavements. There is no water — that is the second rule, and the strictest one.
+
+No wells, no cisterns, no open cups. The tree does not transpire, not in any way a surface plant would recognize. Its leaves are waxy, grey-green, almost mineral, sealed at the edges; its sap is a slow resin and a milky oil; its chemistry cracks bound moisture out of salt and stone molecule by molecule and locks it away again. Free water is poison to it. A spilled bucket can start a black, soft rot that spreads along a root overnight, smelling sweet and wrong. 
+
+So the city drinks what the tree gives: cheekfuls of pulp from fruit that are never juicy, only dense and cool as cucumber flesh; oil-baths instead of washing; dust-baths of powdered cork. Condensation traps in the elevator shaft are rationed by law, and tended like altars. Your throat learns dryness as a flavor. Your skin learns to be oiled. Under everything is the faint smell of cedar, mint, hot copper, and old paper.
+
+And it is a city. That takes longer to see than the forest does.
+
+Because at ground level — root level — it looks sparse, almost empty. Enormous spaces lie between things. A plaza of polished root-wood big enough for a parade ground holds three benches and a listening post. A residential terrace is a dozen houses spread across a branch that could hold two hundred. Factories stand utterly alone in clearings, surrounded by acres of bare, breathing bark.
+
+The sparseness is deliberate. Everything built here is still growing, and everything growing needs room to become wider than its plan.
+
+The houses are not exactly built. They are induced. You plant a house-seed in a licensed hollow, you feed it current and resin and patient suggestion through copper inlay in the floor, and over four or five years it thickens into walls, roof beams, a cork-insulated inner skin. The windows are thinned places where the wood has learned translucency. No house is finished. The older districts — the Trunk Terraces high near the elevator port, where the first miners’ huts have been swallowed and re-expressed as lovely, knotted apartment towers — have full-time pruners on staff. They walk their blocks at dawn with saws and shears and talk quietly to foremen through the soles of their feet. The tree transmits vibration better than air. A shout is felt in another street.
+
+That is why it is so quiet, despite the industry.
+
+The industrial quarter, down in the Root Flats, is huge and mechanized and almost silent. Cable-cranes move along load-bearing limbs. Pneumatic freight pods sigh through hollowed dead branches. Electric furnaces — there is no open flame anywhere below, ever — render fallen limbs into timber that goes on faintly growing after it is cut, into leaf-cloth, rope, paper, lamp oil, insulation, a dozen grades of resin for varnish, medicine, and fuel. Sawmills work by abrasion and heat-friction behind cork baffles; you feel their thrum in your teeth a street before you hear anything. Workers wear soft-soled shoes. Foremen communicate in sign during Bloom Hours, when noise might misdirect the pollinators.
+
+For the place is not old. There is no erosion here, no worn stone, no smoothed cave romance. The cavern was a salt mine first, raw and sharp-cornered, and the tree found it only eighty years ago and came in like an idea still forming. Half the districts are embryonic: bud-yards on the far rim where streets exist as dotted lines of copper staples in the bark, where a future neighborhood shows as green knuckles and scaffolded buds no larger than sheds. Surveyors do not draw maps so much as growth forecasts, revising them weekly. A road laid in spring may have lifted half a meter by autumn. A warehouse may discover it has grown a load-bearing cousin through its loading bay. Construction crews are part arborist, part midwife, part demolition expert. They do not fight the growth. They negotiate, reroute, encourage elsewhere with light and low electric song.
+
+Fauna has arrived in the same negotiating spirit, and now it is everywhere in moderate, purposeful abundance. Beetles the size of large dogs patrol the terraces, mandibles kept precisely blunt by their handlers, eating the daily surplus growth so paths stay passable; their passage is the closest thing to traffic. Blind, featherless owls nest in the eaves of growing houses and hunt moths. The moths themselves, cream and hand-sized, do the tree’s pollination and will carry small written messages in wax tubes for a feed of oil, drifting between light-shafts in slow spirals. Root-moles farm fungus in the dark undersides of branches. Tiny, translucent lizards live inside the light-fibers, silhouetted at noon, eating whatever tries to eat the light.
+
+Much of the city’s activity is keeping these relationships from tipping. Grazing rotations. Pollen counts. Pruning tides. At dusk — a dusk manufactured by shutters closing in the trunk far above, so the whole cavern dims in twenty golden minutes — the beetle crews come home, the factories cycle down to a low electric hum, the moths rise, and doors contract slightly as the wood cools. People gather in the Pollen Commons, a vast hollow where several major branches meet, to eat dry, rich food — nut paste, leaf bread, beetle-fed mushrooms, salted oils — and to hear the day’s growth report read aloud: which street has narrowed, which house has flowered unexpectedly, which bud-yard can be opened for settlement next year.
+
+If you stay, you learn other rules without being told. Never step off bark onto a pale root with bare feet; your weight is a word it may answer by growing around your ankle. Never bring anything wet down in an unsealed skin. Never cut without listening first, with your palm flat, for the slow pulse — about one beat a minute — that means that limb is thinking its way toward somewhere important. If your house wall bulges, do not hammer it flat. Invite the district pruner, have tea made from heated resin-milk, and decide together what the room wants to become.
+
+At night, after the fibers have gone amber and then grey, you can lie in a room that is still, very slowly, extending itself over you, and hear almost nothing: a creak like a ship a long way off, the tick of cooling resin, the soft, irregular patter of leaves being rearranged in a wind that comes from the tree’s own breathing. The city breathes out cool, dry, oxygenated air in slow pulses from vents in the larger limbs, and breathes in through others. In that pulse, papers lift. Curtains stir. Somewhere far across the root valley, a factory sighs, a crane shifts in its sleep of current, a new bud splits with a sound too low to hear and exactly loud enough to feel.
+
+By morning, the street outside will not quite be where you left it.

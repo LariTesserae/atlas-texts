@@ -1,0 +1,39 @@
+At first you think they are the people.
+
+They are the only ones wearing clothes, after all. The only ones who cut stone. You see them early in the morning wringing out the fog-nets into troughs, scraping the dew-gutters clean with flakes of rock, sweeping — always sweeping — streets that no human foot has used in a generation. Wrapped head to ankle in undyed wool gone grey-green with damp, felt tied over their shoes, felt lined into their buckets so nothing clinks, nothing splashes. They move as if they are carrying something sleeping.
+
+They are small, not from hunger but from generations of low doors and low ceilings and a life lived stooped under walkways. Their hair is kept short or bound flat because loose hair drips. Their skin is pale in the way deep-shade leaves are pale, and almost always beaded — forehead, upper lip, the backs of their hands left wet on purpose, because in that bowl a dry surface is a wasted one. Old ones let a fine pelt of green algae take in the creases of their necks and elbows, and do not scrub it off. It helps them drink.
+
+They do not speak if a hand will do. Children learn the hand-language before they learn words at all: two fingers drawn down the cheek for *fog coming*, a fist opened slowly for *wait your turn*, the whole forearm laid flat for *the slope is listening*. Speech, when it is used, is mouth-to-ear, a warm shape more than a sound, and it is spent almost entirely on the very young and the dying. To shout would not just be rude. The owls would come. Not at once — the white-faced, walking owls do nothing at once — but that night, and the next, they would be under your walkway, turning their faces up.
+
+And the people die quiet and are not buried so much as lowered, wrapped in old netting, into the knee-deep moss of the unwalked places, where the black ferns close over them between one fog season and the next. No marker. The house does the remembering. A family lives a few paces upslope of its grandparents without ever quite discussing it, building new as the old rooms creep down, pegging fresh doors into walls that have already begun their slow journey to the bottom.
+
+But if you stay past one fog-fall, the people stop being an explanation.
+
+Because the rooks know the hand-language too.
+
+Not all of them. The old ones. The ash-grey mountain rooks who walk the chimneys upright and proprietorial, who have lived twenty, thirty years under the same roofs the humans still bother to re-lash when a season turns. They cock one eye down at signing fingers and obey, shift, make way, or refuse, with a slow blink that the humans accept as final. They do not caw. Their young, fledged fat in nests built on nests built on slate no living thing has seen, learn silence before flight, gaping in soundless rows at dusk while parents arrive with moths folded still-living in their beaks.
+
+And the cliff-grazers know the streets.
+
+They come down when the mist first pours over the eastern rim, hooves padded in their own shed coats so the fitted stone takes no ring from them, picking a route through market and alley that no human taught them in any one lifetime. They know which houses have the low doors and the stone birthing-hollows lined with bracken. They know to exhale through their noses in labor, steam jetting, never to bleat. In the morning a newborn will be standing, shaking, in the middle of a square that three species have silently vacated for it, and a human child will be sitting on the wall above, perfectly still, signing *wait, wait* to a line of beetles at the gutter — not because the beetles sign. Because that is how waiting is done here, with the body, where everything can see it.
+
+That is when counting stops working.
+
+The beetles drink in turn, antennae first. The frogs — green-and-black, cool as the cistern stone they live against — drink after them, throat-pulses flashing their whole courtship in visible light because sound would kill them all under falling rock. The translucent spiders rebuild the torn fog-nets faster than human hands rip them at harvest, and then harvest them too, and then are harvested, in the small hours, by the moths' absence. The hairy moths the size of two hands unfold only when the mist is touching them. The waxy flowers on the bowl wall open only when the mist is touching *them*. The swifts pour out in one thrumming held breath and take the moths in mid-air without a cry. The owls take what has failed to be quiet. By dawn there are sorted piles of wings under the walkways.
+
+No one species is running this. Taking in turns is.
+
+What lives in the bowl is a rotation given a place to happen in. A single, many-bodied tenancy that wears, by season and by hour, whichever shape the next job needs. It needs hands in the morning to wring the nets and sweep the empty lower city and peg a slipping roofbeam back true, so for a few hours it has hands, and grey wool, and a broom of fern. It needs wings at fog-fall, so it has ten thousand wings packed like a second thatch into the eaves. It needs hooves that will not ring on stone, so once a year it grows them padded. It needs eyes that work in the cathedral dimness and ears that can find a beetle's footfall, so it walks those around all night on an owl's upright, solemn legs. It needs bellies in the granary side-channels that fit those channels exactly because the channels, over centuries, were slowly re-cut to fit the bellies.
+
+Even the plants are not scenery. The great furred leaves tilt to funnel fog to their hearts, and the hearts are cisterns, and the cisterns hold frogs, and the frogs hold the insect numbers down enough that the nets are not eaten before they can be wrung. Remove a piece and the piece does not die alone. The tenancy has no outside edge. Its skin is partly leaf, partly slate black with guano, partly felt. Its blood is the half-hour of bright water that runs down the carved streets after dawn and then stops. Its heartbeat is slower than yours by an order of magnitude — one long inhale of mist each night, one brief exhalation of drinking, rooting, birthing, preying, repairing, before the long thirst of the day.
+
+It is also, in the most literal way, moving. The young mountain creeps under it at the speed of a fingernail growing, and the tenancy creeps with it, house by house, nest by nest, terrace by rotting terrace, forever abandoning its own lowest, dampest, most beloved rooms to moss and bats and blind pink lizards. It does not mourn them. It sweeps them. Something in it — currently the part with hands — sweeps a market square that no market has touched in eighty years, every morning, in perfect silence, because a swept square is a square a grazer can give birth in when the fog comes back.
+
+They are not tame, the parts of it. It eats itself constantly, invisibly, moth by moth. It disciplines itself with falling stone. A loud yearling rook, a bleating kid, a human toddler in the full red surprise of a first real scream — the slope answers, or the owls do, and the next generation is quieter in a way that is not taught. What survives here is not the strong or the clever. It is the ones who learned earliest how to be next in line.
+
+So if you ask who lives there, the truest answer is the one your body arrives at before your mind does, out on the rim with your breath going shallow without you deciding it should: something enormous and cold is already taking its turn in the dim green amphitheater below you, and it has noticed you mainly as a noise that has not yet learned where the back of the queue is.
+
+Stand still long enough. Soften your boots if you can. Open your mouth, then close it.
+
+One of the old rooks is already watching your hands.

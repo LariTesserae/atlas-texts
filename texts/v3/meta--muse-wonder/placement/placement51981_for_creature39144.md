@@ -1,0 +1,31 @@
+I keep trying to place myself at an edge, first.
+
+Not the bottom. The bottom feels too final — that flat grey plain, soft for a few centimetres and then like wet stone, where a dropped thing doesn't catch or roll but settles and begins to be taken in. And not the top either, though I am drawn to it at first: the platelet ice hanging under the sea ice, that spongy second roof, because there at least there is a schedule of light, a faint blue-grey dimness at midday, algae browning the underside in spring. Something in me still wants a ceiling I could orient by.
+
+But the light gives out fifty metres down. Up stops being bright and becomes only a direction where the groaning comes from. And I notice I am not imagining this place with my eyes at all. I'm imagining it arriving: tick of frazil against skin, silt hissed sideways, a change in pressure in my chest when the tide is at full strength and the current is strong enough to lift a cloud off the mud and carry a dead fish kilometres from where it fell. What I know comes in reversals.
+
+So perhaps I am not at an edge. Perhaps I am in the part between, where nothing is allowed to fall straight.
+
+That's where I would have started, in any case. Lodged in the platelet layer, furred with crystal, belly to the ice. Born blind — not tragically, just correctly. Eyes sealed under the skin as two darker places, because there was never enough light to make opening them worth it. I would learn the world first as grazing. Hooked fin-tips pulling me through slush. Mouth turned toward the ice. Waiting so still that frazil settles on my back and completes me, makes me more ceiling than animal, until something small and translucent disturbs the water against my face and I take it in, crustacean and ice together.
+
+Everything swallowed here has to be taught not to freeze further. I like that as a way of being alive: not warm, not even trying to be warm, just chemically persuaded, grain by grain, to stay this side of solid. Blood that finds a forming crystal and binds to its face and says: small. Hold it small. My warmth would be a rumour I hoard in digestion.
+
+And I would grow there a millimetre at a time, a thumbnail a season, shedding myself free in my sleep with a slow ripple head to tail, until a season comes when the nursery simply can't hold what I've become. I don't think I would experience the fall as falling. Hours of it. Fins spread, turning to keep my belly toward a mud I cannot see but can already feel returning silt against my skin, frazil streaming past sideways, the last of the dimness going and going until it's gone. Not a border I cross. Just less and less rumour of a ceiling.
+
+On the bottom, I become a different shape without changing.
+
+That's where I find myself, I think — not young in the ice, but old on the plain. Pressed flat, nearly the length of a person, hooked fins dug in at the edges when the tide runs hard enough to take a diver. Grey-white below, mud-grey above, loose smooth skin always making mucus at a cost I can barely afford, so the crystals slide instead of anchoring. Head kept slightly raised. Between heartbeats — and my heart is slower than the tide, the tide is the faster clock — silt settles on my back.
+
+I would have to keep shifting in my sleep. Ripple. Settle. Ripple again. Because the basin digests whatever rests too long: the stone sinker with its knot still around it, the knife with its blade furred in rust, half-buried and uncovered and half-buried. It would do the same to me, patiently, without malice. Staying alive here is mostly the refusal to be coated.
+
+I find food the way the basin allows it to be found, which is backwards and twice. A dead fish a kilometre off announces itself, gets carried away, comes back twelve hours later when the whole basin changes its mind. So I work a zigzag for three days up a signal that keeps reversing, and what I am following is as much the tide's memory as the fish. When I arrive the hand-sized isopods are already there, picking, and the amphipods in their brief swarm, and I don't drive them off. I settle alongside. Small blunt teeth for rasping. Weeks on a shark. Months, once, on something larger. Mostly days of filtering silt for a mouthful, a fleck of sunken kelp that has been rotting politely for years, a feather star's lost arm, shit from the ceiling.
+
+I have no voice. I hear with the underside of my head: a ridge keel grinding twenty metres overhead, transmitted terribly clear through ice and water, tells me to move off the buried whalebacks and into the flat before the ceiling rearranges itself. The only sounds I make are accidents. A fin-hook ticking on a cobble. A soft expulsion of silt as I settle.
+
+And I am old in a way no one will ever count. Fifty years, a hundred. A scar at my lip where an iron hook rotted out. A groove healed over from a braided line. Once — this feels true, the longer I stay here — a stone sinker knotted into the loose skin of a fin, carried for years, worked loose at last on a field of black and green and rust-red cobbles worn egg-smooth. Hunters have held the young of me in their hands and let them go back down the hole, because there is almost no meat and what there is numbs the mouth. Brought up myself I would not die dramatically. The light first, enormous and useless. Then a few degrees of warmth unbinding the careful balance. Then air on skin made only for this.
+
+I have never seen the surface. I have never needed to. Ice above is not a lid and mud below is not a floor; one is where I was born and grew too heavy, the other is the table I feed at, and between them is not emptiness but the whole thick medium — crystal and silt and moving water, too cold to be liquid and too restless to be solid.
+
+Twice a day the basin changes its mind. I change with it. Head up in a mud-cloud of my own making, eyeless, tasting the water reverse and reverse again, feeling through my chest a turbulence too large and too silent to hear. And some spring I will feel, only as a change in what rains from above, the signal — and the eggs will loosen from the cobbles around me and begin, furred and spiky and turning, the long rise back to the roof I fell from.
+
+I stay down. They go up. That is the whole calendar, and it is enough.

@@ -1,0 +1,45 @@
+I would start, I think, by trying on the obvious shapes.
+
+First the boots. It’s easy to imagine: rubber boots even in the dry hours, trousers rolled to exactly the flood-line, a crate of tools balanced on one shoulder because nothing can ever be left on the ground. Learning the day by clunk and sigh — sluice-gate, pump, draining grating felt through the soles before it’s heard. Moving up one terrace, and then another. Being tender on my knees in an ankle of warm water with a soft brush, going flower to flower because the bees haven’t been allowed to be bees here yet.
+
+I like that life. I like its ritual slowness inside its industrial frame. But I don’t think it’s mine. The crew are midwives, and they know — that is the clear, sad dignity of them — that success means being needed less. They read laminated checklists that are already beginning to curl in the steam. They are inventing a private language and pretending not to be sentimental about it. No, I don’t quite have their competence. Or their transience.
+
+For a while I consider the young trees.
+
+That feels closer. Arrived in a deep pod with my root ball still wrapped in pale fabric, set down in a place built at absurd expense for me to live in, and not yet told whether I may put my feet all the way down. All that broad-leafed hurry above ground and, underneath, a kind of held breath. Everyone my age. No elders to show us how a forest does it. Sterile soil, manufactured soil, soil that has never received a fallen leaf.
+
+I could stay there. God knows I recognize the posture: unpacked in theory, not in practice.
+
+But the trees are still intended. They were on a manifest. They are being watched for canopy closure and root development and a hundred measurable forms of becoming. I find, as I walk the central spine in my mind — under the pipe-rack, past the cistern, not going straight because nobody goes straight — that I keep looking down and to the side. To where the place has started happening by itself.
+
+Not in the beds. At the edges of them.
+
+On the north side of the curing concrete, where the damp never quite leaves and the light comes milky and indirect through the vault. There.
+
+I think I would be the moss.
+
+Not a moss plant — that distinction fails almost immediately, and I like that it fails. A bright, improbable dusting, the description calls it, which is also almost a non-description: green reasoning its way across a surface that was not designed for life at all. Fresh concrete, still alkaline, still smelling faintly chemical and new. Galvanized steel with its stencils nearby. Plastic tags fluttering. And on the one face turned away from the strong high-altitude sun, thousands of tiny green mouths learning the wall.
+
+I would be exactly as new as the place and entirely without its self-consciousness. The crew are embarrassed by how new everything is; they haven’t been given permission to be sentimental. The moss has no embarrassment. It does not know it is a pioneer, which is the only honest way to be one. It was not shipped up in a sealed load, not sterilized, not quarantined, not brush-pollinated by hand. It arrived — as spore, as dust, as a theoretical contaminant on a boot or a mat — and found the one condition it needed, which was simply: *wet, and left alone long enough.*
+
+Life there would be scaled very strangely, and I think that strangeness is what keeps pulling me back down to it.
+
+My weather would not be the flood. The flood is the great organizing drama for everyone else — conversations lifted and carried up a terrace, lunch boxes rescued, the frog in the third-terrace rill stepped around by people who would rather soak themselves than disturb him. For me the flood is distant abundance, a rising of the general damp. My true weather would be smaller and more faithful: the fine scheduled fog from the misting lines settling without sound; the night’s condensation beading on the vault skin and letting go at dawn when the fans kick on; that brief artificial rain pattering on the big leaves above me and finding me secondhand, filtered, drip by patient drip down the concrete face. I would learn the place not by its terraces but by its seepages. Where the pipe joint is just beginning to whiten with mineral scale, there will be a permanent thin shining. Where the boot-wash station splashes at the threshold, there will be an extravagance I could live in for a century.
+
+And I would grow the way this place most needs something to grow: sideways, slowly, and by holding.
+
+That is the moss’s whole genius, and the longer I sit with it the less it feels like a small ambition. Everything up here is lush and excessive and slightly ahead of itself — leaves that have outrun their stems, vines that treat every handrail and tool handle as an invitation, roots that have not yet bound the soil so a whole tray shifts if you lean on it. Growth everywhere, and no holding anywhere. No leaf litter. That is the sentence I keep circling. Nothing has died in quantity yet. The forest floor has not been invented.
+
+Moss invents it at the scale of a thumbnail. I would trap dust that blows in from the loading bay. I would catch a dead moth-scale, a grain of that sharp mineral fertilizer, a crumb of made soil washed out of a tray in the flood. Held against the concrete in my damp, I would begin — without any intention anyone could put on a checklist — to rot and to feed at the same time. To make a darkening. To make, eventually, a place where a seed that no one planted could do something other than wash through the grating into the void of pumps and shadow underneath the world.
+
+I would be the first inhabitant the crew did not have to carry.
+
+I notice they already know this, obliquely. *What arrives on its own feels like a promise.* They regard the moss and the algae with disproportionate respect, the way you speak more carefully around a wild animal than a domestic one. I would live under that regard — not loved, exactly; too small and too collective for love — but checked on. Someone on the morning round, checking pressures and relay switches, would pause and put a fingertip near (not on) the brightening edge of me and say to nobody, or to the person who will pick this conversation up word for word on the fourth terrace in the afternoon: *it’s spread.* That would be my fame, quieter than the frog’s. He gets a logbook. I would get a tone of voice.
+
+And I would hear him, too, in my way — which is to say I would feel him: one clear startling note in the green quiet, vibrating faintly in the wet skin of the concrete, in the film of water I hold against it. Work stopping above me. Boots halting on the causeway. The whole brief hush of a dozen people turning their heads toward the third terrace. I would be part of the audience the place is growing for itself, along with the pale moths at the work-lights and the boxed bees by the airlock humming through wood, a future citizenry on hold. We are the unmanifested population. We arrived too early or not quite yet. We make it look, briefly, inhabited in the ordinary way.
+
+My time would be different from theirs, too, and I would need it to be. The crew learns the schedule in their bodies or stays wet to the knee. My body *is* a response to schedule: open in the dawn rain, vivid, drinking; closing down to almost nothing — a dark crust of patience — in the dry bright hours at noon, when the light goes hard and milky through the panels and the pipes tick as they expand. Not dead. Waiting without resentment. That alternation feels honest to me in a way constant lushness does not. The broad-leafed things are always on, always transpiring, always being magnificent in the shirt-sleeve warmth. I would get to practice the other half of being alive here, the half the facility is still trying to engineer out: dormancy. Doing nothing, beautifully, until the water returns.
+
+Because it will return. That is the one reliable theology of the place. The cistern at The Top sweats and its overflow ticks into the pipe. The sluices clunk in sequence. The terrace sighs dry and steams and is flooded again. The clouds come up white underneath the world in the morning and thin to blue-hazed valleys by afternoon; inside, the level amber light fogs the lower skin at dusk, and overhead, thousands of bright points gather themselves for tomorrow’s small rain. I would live directly under that promise, on a vertical face of new concrete, making my slow argument in green:
+
+that a landscape is not built when the last soil-pod is winched up the rail. It is built when something uninvited decides the conditions are sufficient, and stays, and holds a little water against the stone a little longer than the stone could hold it alone — until one day, in quantity, in the wettest corner where even the crew’s boots leave me be, the first of me dies back dark and feeds the next of me, and the floor of the forest, at last, begins.

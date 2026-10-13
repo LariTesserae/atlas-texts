@@ -1,0 +1,45 @@
+They would come down the way the herons do.
+
+Not through the wet stair — the stair is for people, and for city inspectors in boots too new, and for whatever is expected to sign its name at the top — but down the main light shaft, in the evening, in a slow ungainly spiral, wide enough to darken the coin of sky for a moment and narrow enough not to wake what hangs in the unlit gallery waiting for its time. The bats would open their eyes. All of them, at once, in the dark around the light. And then, having taken its measure correctly, they would close them again.
+
+That would be the first good sign.
+
+For a power that arrives meaning well has hurt more places than a power that arrives meaning harm. Harm is at least legible. The town below the city would have known how to negotiate with harm, the way it negotiates with rats, with flood, with rust — formally, patiently, a brick's height at a time. But benevolence from above, unchecked, has ideas. It brings light. It brings drainage. It brings a clinic and a census and a plan to fix the burst main on the third tier, the one the fig tree lives in. It sees a cistern finished failing into its shape and calls the shape failure, and it reaches, lovingly, for a wrench.
+
+The wise one would not reach.
+
+They would roll their trousers first. That is how you would know the wisdom was real and not decorative. To mid-calf. To the knee in spring. They would learn to wade the lower streets without startling the eels, and to apologize with a toe, gently, when an eel on an errand investigated an ankle. They would learn to speak low on the upper tiers and low everywhere else afterward, because the custom follows you down. They would leave pauses in the middle of their sentences and not fill the pauses other people left, listening — to a filtration tank sighing early, to a pressure change gathering in the great central pipe, to one drop, and then, after an interval in which a heron settles and a child crosses a singing grating three tiers up, another.
+
+They would put a palm flat to a retaining wall at ELBOW 9 and wait until they could feel the car coming, not by sound. It might take them a season. They have seasons to spare, and down here a season is not a unit of time so much as a depth of water.
+
+And they would do, by every visible measure, nothing.
+
+No new sun hammered down the shafts. No dry heaven opened in the vault. The blind white fish would be left to their slower country in the deep pipes, unexamined. The three minutes the clocks lose by spring would go uncorrected, because the pumps agree with the clocks, and who is a god to argue with a pump? The fern altar by the warm outflow would not be made to bloom out of season. The fig would not be made fruitful every year for a sign. A power that needs a sign has not yet learned to read this town, where the signs are a tin cup moved an inch to catch a new weep, a cat tin carried by a different hand because the night pumpman is sleeping beside a human being for once, silt swept after flood into a spiral that the next water will politely edit.
+
+If anything down here asked, silently, to be changed — and very little would; the town has pruned itself to what it can feed — it would not be changed all at once. Nothing here needs to happen quickly ever again, and that includes mercy.
+
+So the work, such as it was, would happen at the edges. Above, mostly, where the danger lives.
+
+Because the town's danger was never the water. The town *is* the water, kept. Its danger is a bright morning on the surface, decades from now or decades ago, when someone in an office finally asks an efficient question about an old reservoir whose exact size the city has forgotten. Its danger is a new turbine ordered to replace the one turbine, arriving with instructions in a language of hurry. A survey team with lights that do not know about bats. A safety report. A sealing order, framed as kindness: *no one should have to live like that* — spoken by people who have never stood under a glass pipe and watched a fish cross over a street like slow weather, and who mean it, which is the worst part.
+
+There the power would move. Quietly, and upstream of events, the way the place itself taught it to.
+
+A file would learn damp. Not destroyed — destroyed files are noticed, and noticed things get re-filed by somebody thorough — just softened at the decisive page, the figures swelling slightly, illegible in the one place where a signature needed confidence. A modernization budget would keep almost passing. A engineer sent down to cost the sealing of the shafts would stand too loud on the upper tier, and a child would put a finger to her own lips and point up, and the engineer would go very quiet, and go home, and for years afterward fail to write the report in any words that survived a meeting. He would say *it's holding* once, in a conference room, about a structure he could not describe, and be surprised at the peace the sentence gave him, and the project would move to next year. Next year has been coming for a long time down here. It is one of the town's load-bearing walls.
+
+When the city above had a drought and drew hard — too hard, in the small hours, when the pumps should have faltered — a pressure would be held, just, from somewhere that was not quite the boiler and not quite a hand, until the night pumpman woke on his own to the changed note in the turbine and made the adjustment himself, in his own time, with his own hands on the warm iron. He would get the credit, between people who knew. He would deserve it. The power would merely have made sure the interval between one drop and the next was long enough for a man to wake inside it.
+
+When a spill came down from the surface streets after a fire — something chemical, bright-smelling, wrong-colored in a way that would have filmed the pool bronze where the light shafts touch and killed the shallows without a sound — the rain grates would find themselves, that one night, shut an hour early. By whose hand the surface keeper would not afterward recall. The town would only notice the smell did not arrive, and by morning it would not be a thing they noticed at all, which is exactly the size a blessing should be if it wants to live here.
+
+Once, perhaps — once only, because they would know better after — they might be tempted by a small direct kindness. An old woman from VALVE ROW asleep in the boiler room with her hair spread over the warm tanks, moths collecting soft as brown snow in the doorway, her joints at last not negotiating. It would be so easy to take the ache out of those joints entirely. To leave her twenty again in the one place she kept her years. The power would sit beside her instead, in the driest smell in town — clean wool, hot iron, human scalp — and take nothing out, and add nothing, and simply keep her company at the temperature she had chosen, until her breathing matched the boiler's tick and the sleep did on its own what sleep here is allowed to do.
+
+And the granary cats would accept them eventually, which down here counts as a theological ruling. The eel-keepers would remain volubly cranky in their presence, which counts as another. The two women at LOWER SUMP 3 might, after a year or ten, consult them about a fever — not for an answer, but because they had been seen remembering which cup catches which north-wall seep, which is what passes here for a credential.
+
+At night, when the grates above shut and the work lamps went to half, they would stand in the middle shaft and look up slightly aside from the sky, the way they had been taught, at the dark around the bright coin where the eyes were. Nothing down here needs to be looked at directly to be loved accurately. They would cross home three tiers up and the iron lace would answer very softly under a weight that had learned, at last, how little weight to bring.
+
+In the end — and the place would give them an end, gently, the way it gives everyone a tier to stand on — they would not take up residence and they would not ascend in glory. They would go up the freight ramp in the early hours beside nothing more remarkable than a length of restored cast pipe, unremembered by the city above the moment it was reinstalled, back in service for another forty years. Eleven names on a maintenance roster. The twelfth line of the ledger would keep going soft with damp whenever anyone tried to dry it with attention.
+
+Below, the pool would stay black and still. A drop would gather on the great central pipe, climb upward for a few seconds as if remembering a different instruction, and fall. The fig leaves would tick with moisture. Someone would sweep silt into the map of a pipe. Someone else would be born under green glass and not cry for long.
+
+*It's holding,* they would say, on the surface, in offices, in bed, over tea, about things they could not name and would never need to.
+
+It would be.

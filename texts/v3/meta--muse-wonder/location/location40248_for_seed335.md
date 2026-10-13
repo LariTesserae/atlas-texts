@@ -1,0 +1,33 @@
+It is not found by looking for it. In the low cold flat beyond it, there is only marsh — black peat water held just under a skin of moss, sedge tussocks still stiff with night frost, pools that reflect a sky too dim to properly be morning. The light stays low and blue-grey for hours. Everything drips. Rocks weep, grass weeps, your breath condenses and then condenses again, wetter.
+
+The entrance is in the side of a fresh break where the ground has lately come apart. Not eroded — *emerged*. This whole edge is young. The glacier left last spring, or the peat dome collapsed after the rains, and what is exposed has not had time to soften. Angular till, split shale like broken crockery, tree roots torn and still pale, a slab of dirty blue ice canted over peat. Edges that will cut a glove.
+
+Behind a hanging curtain of moss, in the lee of that slab, is a slit you have to turn sideways for. The air coming out of it is wrong for the cold. It smells of iron, ozone, hot stone, and green things growing too fast.
+
+Inside is a single room.
+
+That is the scale of it, and it does not get larger the longer you stay. A lens-shaped hollow, perhaps nine metres long, four high in the middle, pinched to nothing at both ends, hollowed between peat above and a floor of fresh, unweathered stone below. And it is, at its centre, almost completely empty.
+
+Nothing grows in the middle. Nothing perches there. No rubble cone, no nest, no pool taking up the floor. Just a smooth, concave bowl of dark rock, washed clean, and a vast — for so small a place — volume of moving air above it. Everything that lives here clings to the margins, to the walls and ceiling and rim, leaving the centre as a void. The emptiness is not an absence. It is maintained.
+
+The walls are lush in a way the frozen marsh outside is not. Where the spray reaches, liverworts overlap like wet green scales, mosses go deep and spongy and almost luminous in the dim, little ferns uncurl from cracks still sharp enough to show white mineral inside. Algae paints the stone orange and sulphur-yellow and a startling arterial red near the waterline. It is all beaded. Condensation forms, swells, runs together, rains in fine threads. There is never a dry minute.
+
+At the far, low end, three stepped pools have formed in the stone, each spilling into the next with a thin, glassy lip of water. They are factory vats if anything in nature deserves the word. The top pool is milky and steaming faintly where a hot seep pushes up through a crack, though the air a hand's breadth above it is cold enough to ache. The middle pool precipitates iron in flakes, bright rust settling in slow clouds. The bottom pool is clear, black, and electric. Literally. The falling water from the upper seep, the spray driven through the narrow crack, charges the air. In the dim your hair lifts. On dry-cold snaps within the cave — they happen, even here — faint blue sparks stitch between wet stone points, with a smell like a workshop after grinding.
+
+And under the floor, the engine.
+
+You hear it long before you understand it, because sound is the main inhabitant of the central void. First a deep, tidal sucking, as if the room is inhaling through its slit entrance. Moss curtains bow inward. Droplets on the ceiling stretch and then, impossibly, fall *up*-slope, dragged toward the back crack. Then a pause, loaded and trembling. Stones somewhere beneath the bowl begin to turn in a subterranean channel — a natural ball-mill, flood-rounded cobbles caught in a siphon loop, grinding, clanking, hammering in rhythm as meltwater forces them round. The whole bowl hums like a turbine housing.
+
+Then the exhale.
+
+Every seven to eleven minutes — tide and melt dictate it, never quite regular enough to trust to counting — the siphon reverses. Air and warm spray blast out of the rear crack in a piston-stroke, roar across the empty centre, and slam out the entrance. For twenty seconds the pocket is a factory floor in full production: steam pistons, pressure valves screaming through stone whistles in the wall, water atomised to a white fog, sparks snapping in it, the rock-mill underneath banging louder and faster until a valve-pool at the side lifts its stone lid a fraction, dumps a gout of black water, and claps shut.
+
+Nothing stays in the middle during an exhale. That is the first rule, obeyed by everything.
+
+And everything is here, despite the cold and the blast. Fauna crowds the rim in absurd abundance, precisely because the centre cannot be used. Cave crickets and pallid springtails in their millions grain the moss; when the pressure builds they all orient, antennae flattened, like iron filings. Midges hold in a trembling halo just under the ceiling where the updraft cancels. In the pools: blind white amphipods, caddis larvae armoured in bright iron flakes from the middle vat, tiny frogs the colour of wet peat who sing not with their throats but by letting the outrushing air play over them — which is why at exhale the blast is suddenly chorused, amplified by a hundred small bodies using the cave as an instrument. A dipper, soot-black, commutes impossibly through the slit between cycles to feed in the bottom pool, shaking spray everywhere. Invisible things in the cracks click and rasp and restart the moment the roar dies.
+
+They live by the cycle the way mill-town lives by a shift whistle. Feeding happens in the inhale, when charged droplets and mineral precipitate and stunned midges rain gently down the walls. Hiding happens at the peak. Eggs are laid only in the upper pool, where the hot seep keeps them from freezing; larvae are flushed, on schedule, into the iron pool to be coated, then into the clear pool to feed. It is an assembly line that no one built. Production without a building. Iron, lime, heat, current, all scaled up into a pocket you could miss by stepping over it.
+
+Between blasts, it can be almost quiet enough to hear the place making itself. New crack. New drip line being drilled into fresh stone by acidic moss water. Frost working outside, forcing melt down. The peat roof above groaning and settling an inch closer to collapse. This room is temporary on every timescale: it will silt or cave or freeze solid within a few winters, and already at its narrow end a new slit is opening where the next hollow may take over.
+
+Stay at the wall, in the moss, with the crickets flowing around your boots. Keep out of the bowl. Time your leaving to just after an exhale, when the entrance curtain is still plastered flat and the air is warmest and full of sparks and frog-song fading. Go out sideways, back into the dim marsh cold, and the slit will sigh shut behind you, and start, audibly, to inhale again.

@@ -1,0 +1,39 @@
+If I arrived on the High Anvil the way the description arrives — first at ankle height, in the glitter — I don't think I would stay at human scale for long.
+
+At first I'd want to be one of the Smelters. Of course I would. Who wouldn't want to be thirty meters of iron plate and furnace vent, grazing basalt for centuries, born already idling, with a whole herd booming tenderly around you until your chest catches? But their time is too wide for me. A single stride taking a minute. A migration longer than a civilization. A leg raised for nine hundred years in the east basin, still deciding whether to fall. I would dissolve into that tempo. I'd become less a creature than a weather system with a memory.
+
+So I slip smaller.
+
+Not as small as the iron-filing flies, though I envy them that first, perfect honesty. They know where the animals actually are. They trace legs that aren't visible yet, hang in bright veils around an absence, and fall all at once — that brief metallic rain — when the field turns. But their knowing lasts a breath. I'd want to *live* inside the knowing, not just signal it.
+
+Not a sail-backed glider either, much as that life tempts me: years without landing, pregnant with static, a filament tail a hundred meters long, waiting for another glider's tail to brush mine so the sky stitches itself shut through both of us. That's beautiful, and too lonely, and too much sky. I'd spend centuries up there looking down at the herd's doubled shadows and never once feel a footfall in my teeth.
+
+A turbine crow, then? Almost. Fan-bladed primaries spinning in the exhaust, that shrill needle-whine, living on updraft and stolen charge, never quite landing. But still a visitor. Still riding the Smelter's heat from outside.
+
+No — I keep sinking, down past the crows, past the tick-prospectors clamped to the belly cracking their ore-pellets, down to where the piston-joint sighs.
+
+I would be a hammer-mite.
+
+***
+
+You would find me in the seam of a Smelter's left foreleg — third joint down, where the conductor-sheath curls away as it molts and the piston sweats a light that isn't light. My home is a groove no wider than your thumb, polished bright by generations of my kind moving through it in single file. It smells of struck matches and hot copper. Every minute or so — when the leg unlatches, rises, describes its patient arc, and engages the ground again — the whole world of my groove flexes, the pressure-valve above me sighs, and a fine spray of escaping sparks comes hissing through the dark like a tiny, edible weather.
+
+I eat those.
+
+That's the whole economy and it's enough. My mouthparts are grown for it: two little hammer-plates, mineral-hard, that catch a spark before it dies and hold it against my tongue until it gives up its charge. Nothing here drinks and neither do I. What moves in me is a slow, mercury-bright humor that has never been cool and doesn't know how to boil. When I'm fed, my back plates tick softly against each other, and the mites in the next groove answer, and the one after that, until the whole joint is rustling with a conversation too small for the Smelter to notice and too steady for us to live without.
+
+Because that's the other thing, and it's the part that becomes more true the longer I sit with it: "I" is a courteous fiction along the seam. My mother lived in this same groove and ate sparks from this same valve when the herd was crossing the sulfur playas, back when the plate-scales occasionally lifted and rang for an afternoon. Her mother ate here before the bull grounded his charge and fused that perfect lens of glass three valleys back — we still feel the scar of that discharge as a bright spot in our field-sense, the way you'd feel an old break ache before rain. I will die here, probably mid-stride, which is to say mid-season, and my daughters will move forward into the warm place my body leaves, and the groove won't notice a gap. A Smelter lives for centuries. A hammer-mite lives long enough to learn one joint completely. Between us we've solved the arithmetic by refusing to be only one animal at a time.
+
+From in here, the great strangeness of the Anvil — the being out of phase — isn't strange at all. It's the first thing I ever learned. The visible Smelter lags. I don't. I ride the *real* one. I feel the foot leave the ground in my whole body a full breath before the huge image two hundred meters away bothers to lift its leg, and I brace, deliciously, for a clang the outside world won't hear until it's already traveled up through my host's bones and into my teeth-roots. When travelers walk below us — lost, sun-sick, navigating wrongly by sound — I can feel their little shadows bend toward us before they do. Poor honest shadows. The people follow the picture. We follow the pressure.
+
+And I know the herd the way you know your own pulse: not by looking. The infrasound comes up through the leg before it comes through the air, that low booming that rearranges a traveler's sternum, and to me it's just the family talking in their sleep. Route-knowledge. Grazing-knowledge. News of a calf two animals over, born idling, chest-pistons stuttering, the whole ring of real bodies converging invisibly to pour charge across the gap until her vents flutter orange for the first time. I will feel that booming get a new note in it and know, without ever seeing her, that her own mites have arrived at her joints within the hour. Maybe some of them will be mine, blown across on a spark. That's emigration, for us. That's the whole romance of distance.
+
+What do I see? Almost nothing, and I don't miss it. Lidded pits, magnetic grain, the world arranged by density and charge. In that arrangement the plateau is not empty at all — it's so crowded I have to close myself down at night. The predators announce themselves as a spinning wrongness that makes every loose filing on my back stand upright. The prospectors above me drop their cracked, bright stones and the impacts ring down through the hull like far-off bells. The gliders stitch their circuits so high up that all I get is the echo of the discharge, a correction running through every dynamo in the herd at once, and for a second all our grooves spark in answer, involuntarily, a brief harvest.
+
+And below it all, always, the graze. My host lowers that crane neck — I feel the counterweights shift, the long tendons gleaming tighter along the flank — and the mill-teeth take the rock, and the furnace takes what the teeth give it, chamber by chamber, and my groove warms by one more patient degree as iron and silica and rare earths go their separate ways through the dark under me. In a decade, something we excreted will be a boulder with rust-crust growing in its lee. In a century, we'll be back to graze it. Or our grandchildren will. The distinction is a human hobby.
+
+If my Smelter dies — and she will, slowly, the way a building decides over years to be a ruin — the furnace will bank chamber by chamber, the joint I live in will lock with a finality I'll feel as winter, though nothing here has ever been cold. The scavengers will work the seams. I hope I'm one of the ones who makes it across to a calf before my groove goes the temperature of the surrounding rock. I hope the ring closes around her and the booming starts and I ride the charge over, bewildered and bright, into a warm new dark that ticks.
+
+That's where you'd find me. Not on the Anvil, exactly. *In* it — in the working seam of a walking industry that was never built, eating sparks, keeping time by footfalls that land before they're seen, belonging to an animal that is displaced from itself by forty meters and ninety seconds and not remotely troubled by it. The plateau looks empty from any human distance.
+
+From mine, there isn't a quiet place left to stand.

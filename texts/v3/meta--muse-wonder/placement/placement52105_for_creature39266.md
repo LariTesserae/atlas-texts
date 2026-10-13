@@ -1,0 +1,37 @@
+You would not find me first by seeing me.
+
+You would find me by the water changing around you — not a wake, I have learned better than that, but a slight thickening, a warmth where my body has been still for a long time and the current has had to go around. Or by a sound travelling through the rail under your hand. Two soft ticks, not urgent. Me, announcing that I am below you on the same street, so that when you come down hand over hand out of the green you do not put your foot where my shoulder is.
+
+I am low in the town. That is where I resolve, the longer you look.
+
+Not in the square, where the column of light comes down at noon and the root-cords hang like rigging and the children still make the mistake of moving beautifully and too fast. Not up in the root-mats at rooftop level, though I was kept there once, before I can remember, while older hands worried my breathing open petal by petal. Lower than the houses. Lower than the eelgrass combs. Where the paving disappears under its own silt and the street is less a street than a suggestion remembered by rails.
+
+I hang there, often upside down.
+
+That sounds like exertion up above. It isn't. One foot flexed around a bridge strut or a lamppost crossbar, the joint remembering the shape without being told, and the rest of me given over to hanging. My weighted vest settles. My hair, braided through with copper and slag beads so it will not wander into anything that turns, settles. My pelt settles slowest of all — green along the back where the current passes, feathered at the shoulders, a fine tracery of vine across one thigh that my grandmother transplanted to me when I was adolescent and that I have pruned and encouraged ever since, because it steadies my temperature when I work near the cold seeps by the south wall. If you brushed it, it would brush you back, very slightly.
+
+In my hands — long hands, all of ours are long in effect, the fingers reluctant to entirely separate — I hold a rake twice my height.
+
+I am a salvager. I only arrive at the word after I have arrived at the rake, at the patient arc it makes through silt. Anything dropped in the town sinks ten feet and begins to become town. A tool. A toggle. A tin that once held preserved fish from above and is worth more empty, as roofing, than it ever was full. A bead off a child's southern collar. Once, a clock, still sealed from an air bell, ticking absurdly against my teeth through the handle of the rake for three days before it learned the pressure and stopped. I do not hurry them up. Hurrying raises a cloud that takes an hour to think about settling. I rake by feel, by the difference between silt that is only silt and silt that has begun to think about being root, or brick, or a hand.
+
+My eyes are of very little use in this. They were large once, and dark; I am told there was still some white in them when I was a message-runner and thought an hour was an eternity. Now the clear lid comes across slower and slower and what comes back is mostly temperature made visible, lamplight smearing in the murk, the pale root-cords like afterimages. I do not miss sight. I navigate the way the blind root-tenders do, by sequence. Rough, smooth, rough. Limestone casing, iron gone soft as soap, a patch re-bolted in my mother's lifetime and already greening again. By the hum that lives in a cable before you touch it. By the cold that announces a spring three streets before the street itself. By the press, closing once an hour far away in the north arc, arriving not in my ears but in my spine through the strut my foot is holding.
+
+I know the great eel by the interruption he makes in that hum when he passes the turbine pits. I know the catfish in the settling tanks the way you would know weather in another country — once a week, the silt under my rake breathes differently, and everything small and translucent comes up out of it at once.
+
+And I know the dead, because in the end they come down to my level too.
+
+Not at once. Nothing down here is at once. When one of us stops — the frilled slits behind the jaw slowing past some final, unmarked interval — the neighborhood keeps the body weighted and dressed in its best encrustation, and the current is allowed to take us, all of us holding on, to the tanks. I am usually at the lower side. My hands are good for that work. I know how to keep a face turned up without making a ceremony of my care, though it is a ceremony anyway; drag slows all our gestures into one whether we intend it or not. We give them to the silt. To the roots, which are less sentimental and more thorough. To translation. A season later something of them is leaf, is shrimp, is a thickening in the water my grandchildren — if the current is kind and brings me grandchildren — will fan slowly through the slits behind their jaws. I find this neither comforting nor terrible. It is displacement, honestly continued.
+
+At night, when the green above thins to brown and the lanterns in the kelp take up their slow pulse district by district, I tether by a wrist-loop in a boiler-house that was cut open before my grandmother was born and has been a home so long the portholes have grown their own curtains of vine on the outside. We scrape each other clean then — face, palms, soles, the delicate places where breathing happens — with flat shells, and talk in the slow displacement of hands. Someone finishes my back where I cannot reach. That is still, after all these years, the most startling intimacy: to feel another person's attention arrive, unhurried, in a place you have never seen on yourself.
+
+Someone's child, still shining and almost unencrusted, puts a cutting in my palm to hold while her mother works. It pulses very faintly, or I imagine it does. Keeping it in place is the conversation.
+
+I do not go up. I have been in an air bell twice — once to be recorded with another person, our hair braided together with one strand of copper, both of us lifting our heads into that terrible thinness to say our names aloud and laughing, hoarse and astonished, at what came out of our vestigial throats; once to say a name for someone who could no longer say it, while a historian scratched it inside the dome where dryness preserves things. I remember the smell of ink and hot dust more than either face. My slits fluttered the whole time in a panic I was too polite to call panic. I was glad to sink again. The water took my weight like a sentence being finished by somebody else.
+
+I am not waiting for it to end. I don't think I ever learned how to wait in that upper-world way, as if the present were only a corridor. The press will close again, and feel right, or feel fractionally wrong in my spine, and if it feels wrong I will tap the rail — two, a pause, one — and someone nearer the works will already have felt it too. The rake will find something. The vine on my thigh will have put out another pale inch toward the warmth. The silt will close over the place where I have been working as if I had never displaced it, which is not true, and which we all politely pretend together.
+
+In the middle of the night I will wake without waking, as we do, and close my hand on the nearest rail in my sleep.
+
+Not to hold on. There is nowhere to be taken that is not also the town.
+
+Just because that is what a hand is for, down here. To know, by touch, exactly where in the long stroke you are.

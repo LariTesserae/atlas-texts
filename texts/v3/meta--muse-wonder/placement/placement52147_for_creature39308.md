@@ -1,0 +1,33 @@
+I keep starting at the lift-head, because that's where everyone starts.
+
+I arrive in the cage with the lowlanders, gasping under the hard light, trying not to show it. The platform people stand too close together and I mistake their chests for padding until one of them turns sideways and I see the true shape of the ribs. I think: I would learn there. I would work the brake-wheels, test the cable grease with the inside of my wrist, feel proud of the pale burns. I would be the one who speaks a little too loudly to newcomers, who keeps the green plant in its pressurized jar by the window and apologizes for it while she shows it to you.
+
+But that image doesn't hold me. It's too much threshold. Too much coming and going, too much looking down into the cloud. My eyes keep sliding inland, past the edge towns, toward the stacks.
+
+For a while I am a mirror-creeper, then. That suits some part of me. Walking an acre of tarnished heliostats all day with a wrench and a rag, not looking at the sun, looking at the shadow moving across a graduated plate. Adjusting each mirror by a fraction. Again. Again. The work so slow it looks like nothing from the road, and if you skip it, the crucible never goes white. I like the patience of that. I like that by evening my face would be striped where the veil rode up, that I would know my field the way other people know a room in the dark.
+
+Only — I spend the whole imagined day listening for something I can't hear out there in the glare. The mirrors tick as they expand. The dust lifts in the afternoon and hangs humming a meter off the ground. My own breath is loud inside the mask. I keep pressing my ear, absurdly, to things: to the cool side of a tank in the morning, to a wall at night while the stone gives its heat back, *tick, ping, tick*. I want to know what's changing inside the sealed places before any gauge will admit it.
+
+So perhaps the town knows before I do. Perhaps I was one of those children.
+
+I am born, then, in the deepest room they can pressurize, small and furious and too red, and I spend my first year swaddled against a parent's chest learning the rhythm without being taught it — in for four, hold, out for six, that little shudder at the top where the body waits for what it has taken to be enough. I learn flags before letters. I learn to check a seal twice, and then check it because I checked it. I learn the manners: stand close, speak once, finish what your hands are on.
+
+And in adolescence, in summer, at midday, I see them: stars, faint and steady in the blue-black straight overhead, and with them a fine continuous note that is not in the air at all. It's my own circulation, singing in my ears. The others stop mentioning it. I don't stop hearing it.
+
+That is how I become a still-watcher.
+
+Not an important person. There is no importance up here in that sense; there is only the cycle, and the people the cycle needs. My work is to sit beside the vacuum bells — those cathedral bells taller than houses, with nothing inside them but heat and vapor — and put my ear to the cold plate, and listen. Pure metal is condensing out of emptiness in there, tick and settle, tick and settle, a weather that never falls as rain. I listen for hours. To a visitor I would look like I was sleeping, or praying, or doing nothing at all in a place that cannot afford idleness. The other watchers know. I am listening for the note to change. A seal going bad announces itself first in the blood: the fine note roughens, the rhythm of my own pulse goes slightly wrong against the plate, and I feel it the way you feel a word about to be mispronounced. Hours before the gauges stir, I am already standing, already with my hand flat on a sleeve. *Wait. Sealed — no. Not sealed.*
+
+That touch-language is the rest of my life, and I think it is why I stay human in this imagining, rather than going out to the herds or in to the dome. The herder in me is real — I feel the pull of the single-file pans, the salt-lickers billowing at the ribs, the season-long walk between slag heaps, saying almost nothing to almost no one. Once a year, when the herders come in to trade, I follow them through the streets a little way like the children do, just to hear them breathe in indoor air. But I don't go. My kinship is the close kind. Chest to chest, forehead nearly to forehead, a hand resting on a forearm so the words arrive through coat and skin. On the Table I would finally understand that conversation is not a thing you throw across a room. It's a thing you hand over, at arm's length or less, and wait — palm flat, *I am listening, take your breath* — while the other person finds the air for the rest of it.
+
+I grow old in a house half-buried in Orum, in a district layered out of its own ancestors. My door hinge was part of the first lift cage; everyone knows it, and mentions it, and I am proud of it every single time. My kettle was a condenser plate. I mend my coat until the mending is the coat. My handwriting gets smaller and smaller on the slate by the water tank, because flat surfaces are inherited and I am not wasteful. What I am good at, by the end, is repair by touch: I sit in the doorway in the long evening with my hands in my lap and a small broken thing in them — a valve, a clasp, a speaking-tube fitting — and I fix it by feel while the stone ticks under the house and the light goes.
+
+And I keep my doorway the way the old do, and the feathered scavenger-dogs of the town know it. One of them, dog-sized, unafraid, trotting the mirror fields all day and reading flags better than a child, comes at dusk to sit where my wall vents warmth and sweetness. I feed her from my own plate without discussion. Kinship up here is not blood. It is what breathes your air, what cleans your streets, what can be trusted over decades with what does not decay. She and I sit together, both of us mostly chest and patience by then, breathing slowly in the shared rhythm, while somewhere a street away — silent, behind glass, as everything is — a furnace I cannot hear is deciding whether its seal will hold the night.
+
+I will hear it before it decides. That's my whole gift, and it is enough.
+
+And when I die they will burn me quickly at noon in the white silent focus, and mix the handful of ash into sintering dust, and I will become wall — not as a metaphor, which the Table would consider a waste of breath, but as a fact. Someone I loved will lean, someday, against a warm house at evening and not think of me in particular, and that will be exactly right. What lasts here lasts a very, very long time, and it lasts by being used.
+
+Move slowly. Seal what is precious. Waste no breath on distance. Stand nearer.
+
+That's where I live.

@@ -1,0 +1,49 @@
+At first you would look for me in the wrong tense.
+
+You would look for *an* animal. One warm back under the moss. One pair of eyes. You would follow the whistle street to street while it retreats behind walls, and you would think I was being shy, or clever, or afraid of you in the ordinary way prey is afraid.
+
+I understand the mistake. I make it about myself, some mornings.
+
+In the dawn quiet — those twenty frozen minutes when the wind drops out of the bowl and every stone holds still under its fur of frost — I can sometimes feel the separateness of us. A nose here, cold. A flank pressed too hard against a condensation stone there. Small hearts, going at slightly different speeds under the green. Paws numb where they have worked too long in meltwater. When the sun has not yet come over the lip and no house is warmer than any other, we are almost individuals.
+
+Then the light strikes the western houses first.
+
+It always does. And thaw begins there the way it has always begun: a loosening. Frost giving up its grip in the fern ranks. Water finding the cupped steps, the oval doorways, the little channels worn between cistern and cistern. The moss that was locked hard all night softens from underneath, and where it softens, we soften, and the thought that travels through the tunnels is not a thought at all, at first. It is just: *move toward the melt.*
+
+So that is where you would find me. Not in a house. In the *movement between* houses, following the warmth around the bowl like a slow hand following the sun across a face.
+
+By mid-morning I am in the western courts, under cushions a hand's breadth thick, in runs no wider than your forearm that dip beneath walls through holes too regular to be accident. My fur is wet stone on top where it brushes the world, moss-green underneath where I press to my own gardens. My eyes are seeds under skin. I keep them, I suppose, because my grandmothers needed them before there were walls to do the seeing, but up here sight is a rumor that fails every afternoon. The town vanishes into the cloud-river. I do not need it to stay visible. I need it to stay *audible*, and it does. Astonishingly. Continuously.
+
+I navigate by what you would call noise.
+
+The low gate is in my feet before it is in my ears — a note you feel in your molars is, for me, a pressure up through stone, through saturated moss, through the thin bones of my belly laid flat to the floor. The screaming alley tells me where the narrowest cut is today, and whether the ferns have crept too far into it overnight; if the scream has dulled, some of us will go and nip it back before noon, because that scream is a landmark and we cannot afford to have the map go soft in the wrong places. Every courtyard has its chord. Every chimney its stopped throat. I know where I am the way you know where your tongue is in your mouth: without looking, by touch and by the shape of the sound I make moving through it.
+
+And I am — we are — the ones keeping that shape.
+
+Not building. The building was finished so long ago the corners have melted into grassed mounds, and I am grateful to whatever soft-handed giants stacked the boulders so patiently that in places you cannot find the seam. Hands could reach higher than paws ever will. Hands could fit a lintel that would sing for three hundred years. If they borrowed us to tell them when the heights were right, or if we borrowed them to do the lifting — that argument belongs to warmer altitudes. It is finished. What is left is tending, and tending up here is not a lesser work.
+
+Frost is a slow vandal. All winter it wedges hairbreadths into the walls, and every hairbreadth is a change of pitch. A stone worked loose will clatter and then fall and then a good house is gone sharp and useless in a single afternoon. So we wedge wet moss into the cracks before they can widen. We scrape lichen from the exposed chimneys where it would brighten a note past bearing, and carry it — mouthful by mouthful, absurdly neat piles of it — to the shaded throats that need darkening. We pack and unpack the green felt of this instrument with a patience you would mistake, from above, for weather.
+
+We keep the condensation stones clean. That matters more than it looks. Lick the pink algae from the rim in a broad arc. Clear the basin so the slab stays colder than the air and goes on sweating drink in a place where rain arrives sideways and nothing can be relied on to fall. We drink in the morning. By evening the basins belong to the frogs and the fog, and that is right too; the frogs are colleagues. One black frog calls once at dusk and his own echo answers him six, seven times around the cisterns until the whole town seems to croak, and hearing that, I know how full the water is by how long the echo drowns. I never have to go down into the wet dark to check. We leave the frogs mostly alone. They are our sounding line and our false multitude, and when the white bird crosses far overhead and stoops, a hundred phantom frogs are better than a dozen real throats.
+
+We eat almost nothing, which is fortunate, because almost nothing is what there is. Lichen. Fern tips in the brief summer when they are still tender. The pink film at the edges of the standing pools, rich on the tongue in a way that makes the back of the skull buzz. It is enough. Up here, enough is a discipline. Warmth is not a fire. Warmth is a few degrees defended by stone on all sides and a deep cushion dry on top and saturated beneath, and a dozen small backs arranged — or one long one; by midnight, under frost that comes through the roofless ceiling and does not quite reach us, the distinction has stopped insisting on itself.
+
+By afternoon I have moved to the central houses, the greenest ones, the ones at their most habitable, which is still cold enough to numb your hand in shadow. This is the loud hour. The wind pours over the lip and the town takes it up street by street, house by house, and the pools in the plaza stand vibrating in rings and lattices, listening. I press myself flatter then. I tamp the moss in the chimney throat of whichever house we have chosen, thicker on the windward side, in the spiral that gentles a shriek into something almost voiced. I tune my room before I rest in it. I have always done this. A house that goes flat with summer growth is a house to leave. A courtyard re-voiced by a fallen stone is a courtyard to investigate from four sides at once, whistling — and if the new note belongs in the season's chord, we move in, and if it does not, we slump it, stone by patient stone, into retirement.
+
+You hear that whistle as alarm. Sometimes it is. Your shadow crossing our street is an eclipse, and we are right to announce it. But more often it is location. It is grammar. One note from under a wall, answered from a cistern mouth, answered again down a street already gone white — a relay in the fog, calling the chord home. We do not speak. The town speaks continuously, and we are the finger on its string, the felt in its throat, the reason it has neither shattered into noise nor wound down into the silence that waits outside the lip, in the grey-pink emptiness where nothing is shaped to catch the wind.
+
+That is the real terror up here, if we have one. Not cold. Cold is the condition. Not hunger; we have made an economy of almost nothing. Silence. A bowl gone entirely soft, every throat choked with moss, every alley muffled — for you, that might be peace. For us it would be blindness, total and final. We keep some alleys screaming on purpose. We keep the gate low enough to find with our feet in a whiteout. We keep the town legible.
+
+At night we come together in the warmest court, the one whose basin never quite freezes through, and the stone reports around us like distant doors closing, one by one, in no pattern, and we rustle and settle under the breathing moss, and frost whitens the tips of the cushion above us and does not reach us, and does not reach us, and does not reach us.
+
+And if you stay long enough — if you learn to drink in the morning, to keep to the main streets in the afternoon, to find your own courtyard by its fifth gone a little flat as the moss swells with fog — we will begin, cautiously, to tune around you too.
+
+A fraction more moss on the southern jamb of the doorway you use, bending its pitch away from your voice so we can tell you apart from weather. Your sleeping house going subtly softer over a week, because your body is a large warm obstruction in its chamber and some of us have decided a muffled room is the right room for a creature that startles in the night. A third, smaller pattering underneath your doubled footsteps, keeping pace, retreating when you turn — not following you, exactly. Accompanying the new note you have introduced into the town until we understand where it fits.
+
+You will never quite see me clearly. A fern rank shivering in windless air. A tunnel mouth sighing shut. Something low and hurried and the exact color of stone crossing the black plaza pool at dawn, at the very edge of sight, the rings holding long afterward.
+
+But once, if you are still — if you lay your hand flat at noon on a moss floor in a house we have chosen, and do not press, and do not grab, the way you have finally learned not to shout into every silence — you will feel the cushion give not like vegetation but like a flank. Slowly. With geological patience. Saturated beneath, dry and deep on top, faintly warm against your cold palm while the whole tuned town roars over the lip above us.
+
+And I will hold still with you. One of me, or all of me; under your hand, in that green and deafening dark, it will not matter.
+
+We will listen to the season together, from inside its body, and know exactly where we are.

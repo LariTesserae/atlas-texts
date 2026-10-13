@@ -1,0 +1,31 @@
+It starts as a mistake in the rock.
+
+High on the plateau — 3,800 meters up, where the air is too thin to hold heat or moisture and the sun comes down white and violent — the processing plant was cut straight into the hillside. They blasted, they leveled, they poured their foundations a careful distance from the cut face. What they left between the back of the crusher house and the mountain itself was not planned. A seam. Forty centimeters wide in most places, six meters long, narrowing at both ends to a crack you could slide a hand into and no more.
+
+No one built it. No one uses it. From the yard it looks like shadow, nothing else.
+
+You find it by temperature. Walking the service track behind the plant at midday, dust in your teeth, the roar of the crushers already so constant it has stopped sounding like sound and become pressure — you pass the seam and feel hot air breathing out of the stone.
+
+Inside, the light fails in less than a meter.
+
+The rock is new. That is the first thing your hands learn, sidling in sideways, shirt catching. This face has never been weathered. The blast fractures are still sharp, the andesite still the pale grey-pink it was inside the mountain, edges unsoftened by rain or wind or lichen. There is almost no water here to do that work anyway — no seep, no stain of damp, no green. Just dry mineral dust, diesel soot sifted in from the yard, and finer dust still, tan and acrid, that coats every ledge and gets into the seams of your skin.
+
+It is hot in a way the plateau outside never manages to be for long. Outside, heat is a surface thing: sun on rock, sun on metal, gone the moment a wind crosses. In the seam the heat is stored. Sun-baked stone above, the crusher house wall radiating against your back, exhaust ducting somewhere on the other side of that wall warming the whole mass through — and then the animals add their own. Midday in the deep end it sits near forty degrees. The air is close, used, smelling of hot iron, ozone from the motors, and the dry ammonia reek of old guano ground to powder.
+
+Because the deep end is occupied. Completely.
+
+Past the first meter — that's the bright country, relatively speaking, a twilight of reflected glare — the lizards hold the ledges. Small, dust-colored, flattened against the warm rock, throats pulsing. Cliff swallows have glued their mud nests under the slight overhang at the mouth where the machinery noise is worst and the predators are fewest, and they come and go through the roar as if it were weather, wings clapping off the walls.
+
+A little deeper, where you have to duck and the seam forces your shoulders to turn, the invertebrates take over the cracks: darkling beetles packed into the fissures in the daytime dark, earwigs, wolf spiders with their legs folded tight, all of them living on what falls in. Moths blunder in at night, drawn to the plant's floodlights, and die against the hot wall. Flies come for the droppings. Everything here feeds on something that arrived from somewhere else. Nothing grows. The food web is an import business.
+
+And at the far end, where the crack widens just enough — a pocket, a small room in the rock no bigger than a wardrobe turned on its side — the bats are roosting.
+
+Mouse-eared bats, hundreds of them, hanging in a single continuous mass from the ceiling and upper walls. There is no bare rock visible. Shoulder to shoulder, wing folded over the next back, heads down, ears twitching in rotation. When one shifts, the adjustment ripples slowly through the whole cluster and settles. Their combined body heat is a physical thing in that space, like standing too close to an oven with the door cracked. Guano has built up beneath them in a dry, crumbling slope — powder over pellets over powder, years of it compressed, giving slightly underfoot, releasing that sharp smell in a fresh wave every time it's disturbed.
+
+It is loud in a way that builds in layers. The crushers transmit straight through the rock — you feel that one in your sternum and your molars, a grinding that never quite repeats. The conveyor line rattles in bursts. Somewhere a generator sets up a hum just at the edge of pain. And under and over all of it, the inhabitants: swallow chatter echoing and multiplying off walls a handspan apart, the dry rustle of beetle cases, and from the bats a constant thin social squeaking, too high and too dense to pick apart, that rises sharply whenever a shaft of disturbed dust crosses them.
+
+The strange rule of the place is how calm it forces everything to be. There is nowhere to flee to. The pocket has one entrance and no depth beyond the bats; the bats have learned that a torch beam, a loud voice, a body arriving too fast will panic them into a space too small for flight, so they have recalibrated what counts as a threat, and so have the spiders and the lizards. Move slowly, keep your light off, speak not at all — speech is useless anyway over the machinery — and the seam tolerates you. You become one more warm body in a place that is already all warm bodies, wall to wall.
+
+Time runs differently in there than the noise suggests. For all the industrial tempo outside, the seam itself changes at a geological pace wearing a biological disguise. The colony returns to the same ceiling each cold season because the rock holds the plant's heat through the freezing nights. The guano rises perhaps a centimeter a year. A slab spalls off the fresh face once a decade and rearranges the ledges. The young swallows fledge into the conveyor roar and learn its gaps — there is a brief lull at shift change, early evening, when the crushers idle and a cooler breath sucks in through the crack, and that is when the bats begin to stir in earnest, peeling off the mass one by one, finding the exit by memory in the dark.
+
+By the time the last of them is out hunting over a plant that will blaze with moths all night, the seam is briefly, emptily itself: hot dark rock, settling dust, spiders repositioning in the vacated cracks, waiting for the slow return before dawn, when the plateau freezes again and the pocket stays warm.

@@ -1,0 +1,43 @@
+Nothing that can be named on a species list lives in the Sump.
+
+The heron doesn't. It stands on the bund with one foot tucked up, using the place the way a man uses a gatepost to look over a field, and leaves the instant an engine changes note. The eel doesn't. It appears in a clearing channel already in a hurry, black muscle fighting black water, and is gone into a pipe mouth as if it had taken a wrong turning. The moorhen in winter, the water boatmen in the one hour when a settling pond forgets to move — they are all passing through a room that happens to be outdoors.
+
+The resident is not in the water in that way. It *is* the water behaving as if it had preferences.
+
+You notice it first in small disobediences.
+
+Two ponds, side by side, fed by the same ditches, separated by a brick wall a foot thick. The surface on your left is at your knee. The surface on your right is at your chin. They have been like that all morning. They should equalize — water is famous for it — but they don't, or they do it so slowly and by such private routes, through a weeping mortar joint, a cracked culvert, a siphon that clears its throat once an hour, that the difference feels maintained. Willed.
+
+A channel runs backward. Not with a rush announcing a gate opened somewhere sensible, but quietly, in the middle of a placid stretch, the duckweed begins to go the other way. The work glove that was lodged against the east pond grille on Monday is in the kettle on Thursday, sodden, fingers curled, though no current a man can trace connects them above ground. The central vortex turns clockwise until lunch, throws up a train of cold bubbles that hang, inexplicably sideways, under the surface — and then, with no clunk of machinery to explain it, it is turning the other way.
+
+That is the shape it takes when you are not trying to give it a shape at all: not a body in the pits, but a body *of* the pits, strung out and disjointed and connected underneath.
+
+Its skin is every black surface at once, none of them level with each other. Its circulation is the water being lifted, dropped, spilled, siphoned uphill, caged in waterfalls, boiled up through grates, twelve feet up and over the bund and out again, only to seep straight back in through the cut banks in clear threads. Its nerves are in the soles of your feet. The engines below grade keep up a tremor that reaches you through boot leather and catwalk steel and the handrail under your palm before it ever reaches your ears. Its eyes are the pressure gauges behind fogged glass, and they do not so much show you a reading as change their mind beside you with a soft tick.
+
+It was not built, exactly. It accumulated.
+
+A century ago men dug a hollow and set engines to keep it hollow, and at first it was only plumbing doing what plumbing was told. But pipes were laid over older pipes. An electric motor was bolted to its grandfather's plinth. A gate installed to relieve a tidal surge learned to starve a pond, which learned to start an engine, which learned to flood a spillway, which learned to reverse the kettle. Each addition made a new connection the designers had not intended. Somewhere in those feedbacks, in the argument getting faster and more polite under automation, something settled into the argument and stayed.
+
+The old keepers called it *hunting*, because that is what an engine does when it cannot find its setting: it overshoots, corrects, overshoots the other way, forever circling a number it will never rest on. Pump No. 1 is hunting. The level is unsettled. Twenty years of logbook in one hand, the writing getting smaller and smaller as if to leave more room on the page for a condition that never resolves. *2 running. 1 hunting. Level unsettled.* That was not a report. That was its name, written daily.
+
+It lives entirely on difference.
+
+Still water would kill it as surely as dry concrete. Out on the marsh, where water is simply near and everywhere under the skin of things, it would dissolve and be nothing in particular. In a truly drained field it would have nothing to move. It needs the gradient: the head of pressure in the right-hand pond pressing against the low water on the left, the tide pushing up the outfall while the ditch is trying to get out, the footprint filling while the channel empties. It feeds on incoming weather — rain beading on grass stems, seepage, a high tide shouldering up the river — because each new arrival gives it somewhere to go. And it feeds on the work done against it. Stop the engines for a day and its basins would brim, not in triumph, but in a kind of drowning. Stop them for a week and the marsh would take the acre back and the creature, paradoxically, would die of being allowed to win. It can only exist in a hollow that should not stay hollow, sustained by energy spent without pause.
+
+So its temperament is not malign. It is restless in the exact way the place is restless. It dismantles silt dunes overnight and by noon has built them elsewhere, so that any map of its bottom is an affectionate lie. It polishes concrete in the channels to river-stone smoothness. It scoops the centers of iron steps concave, paints and repaints the hand-lettered numbers until the paint itself blurs them, lays rust down wet and velvet in orange and umber and a deep, dripping red, turns copper pipes a complete, improbable turquoise. These are not damage. These are the slow habits of something touching the same places for a hundred years.
+
+It keeps things. A mug gone green inside. Oil cans from three decades sharing one flooded locker. A wrench rusted to a rail until wrench and rail are a single object that neither a hand nor the weather can quite claim. And it moves things, which may be the same impulse seen from the other side: the crate, the rope, the glove appearing in pond after pond, carried through dark connections at a walking pace no one witnesses. If it has hands, that glove is the closest it comes to wearing one.
+
+The chair in the keeper's shed still faces the central kettle. That makes sense once you have watched the kettle for an hour. It is the nearest thing it has to a face in repose — round, brick, oldest, turning and turning, occasionally shuddering into reverse and bringing up silt, a twig, a bubble that rises a moment too late. You do not sit facing it to operate anything. There are no controls there. You sit facing it for company, and to be looked back at by something that has no reason to hurry its looking.
+
+It has rules for visitors, chalked unofficially on the slate by the gate, and all three of them are about it, though none of them say so.
+
+Read the board before you cross, because its mood is a matter of levels, not weather. Close every gate you open, even the ones that were open, because it notices an altered route the way you would notice a moved chair in a dark room. And if a pond is empty, do not get in. It is not empty; it is waiting. An empty basin here is not an absence. It is a held breath, a space cleared because water is already on its way by a pipe you cannot see, arriving not as a creeping fill but as a decision made three ponds away.
+
+It will test a newcomer anyway, mildly. A catwalk dry at the gauge-house will be under three inches of black water at the far end, and under a foot when you turn back, not rising around your boots so much as discovering that it was always, somehow, on its way there. It sighs through valves where you just passed. It makes metronomes of drips in different tempos in every corner, so that wherever you stand you can hear that time is not passing at quite the same rate for the rest of it.
+
+The man in the van on Tuesdays understands. He does not stride. He reads the board. He closes gates. He leaves the engines to their discussion. In return, the place does not do anything dramatic to him. Nothing impossible ever happens at the Sump. Water simply refuses to settle, levels refuse to agree, an old system without a mind keeps making adjustments that look, from the catwalk, uncannily like attention.
+
+Late in the afternoon, when the light goes flat and ordinary again and condensation forms a second time on every cold pipe, the heron comes back to the bund and pretends it never left. Under the grate at your feet, water that was in the east pond at breakfast rushes dark and cold toward the kettle. The vortex hesitates. The gauge beside you ticks and changes its mind.
+
+That hesitation — that perpetual, unsettled, almost courteous change of mind — is the resident, alive in the only way this inverted acre allows anything to be alive: by never being finished moving through it.

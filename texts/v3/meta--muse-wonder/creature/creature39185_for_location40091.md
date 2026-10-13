@@ -1,0 +1,43 @@
+At first you don't meet an individual. You meet a thickness.
+
+They are on every surface that is not actively freezing, and a lot of surfaces that are. Towers, eaves, condenser housings, the undersides of bridges, the warm ribs of conduits — coated, yards deep in places, so that the architecture underneath disappears and the town has a second, breathing skin.
+
+They are veilwings.
+
+Up close, in the red dim of a caretaker's lamp, one is almost disappointingly small. You could cup it in two hands, if it let you, if anything here moved fast enough to be startled into letting you. A dense body no longer than your palm, fur the color of wet ash, darkening to black where it is perpetually damp. A face that is mostly ears and nostrils, folded in on itself in sleep. And the wings — disproportionate, translucent-black membranes that do not so much fold as wrap, a damp cloak drawn all the way around the body and tucked under the chin, veined, slick, faintly iridescent in infrared where the blood moves through them very, very slowly.
+
+Nothing about a single veilwing is fast. That is the first lie their sound tells you.
+
+To unfold one wing takes four minutes. First a shiver along one edge, a loosening. Then a creeping extension, joint by joint, the membrane unpeeling from fur with a soft wet ticking. In deep roost its heart beats once every nine seconds. Its breath comes in long, spaced sighs. It will hang inverted for days in the same spot, swaying only when the cluster around it sways. A pup is born hairless and blind and no bigger than a thumb joint, and it crawls — over hours — up through its mother's fur to the warmth between her wings, and stays there, nursing in torpid bursts, while she barely wakes.
+
+And yet it never stops talking.
+
+Even asleep, even with that nine-second heart, a veilwing chirps. A thin, high pulse far above human speech, then a pause to listen, then another. Chirp and scan, chirp and scan, a reflex deeper than waking. Multiply that by a million. By several million. No one offers a tighter census because the cluster is the unit that matters, not the animal — the way you would count a forest in acres, not leaves.
+
+Together they are not quiet, and they are not still.
+
+A tower face of them breathes. In infrared they are a low, wet fire: ten tons of small bodies pressed flank to flank, sharing heat until the interior of a cluster is twenty degrees above the killing air outside it. Their breath condenses in that trapped warmth and rains back down on them in a constant lukewarm drizzle. Their urine and guano run with it. To stand under a roost spire is to be soaked through your suit in warm, ammoniac water while frost crystals are growing on your shoulders, and to understand that the wetness of Halu Cirque is not weather. It is them. The town is wet because it is inhabited this densely.
+
+They wake the way weather arrives. Not a startle — nothing here startles — but a ripple. One edge of a spire shivers, loosens, begins a louder calling. The disturbance propagates at walking pace, then slower, animal to neighbor animal, an hour to cross one face. Wings unfold in waves. The echolocating murmur thickens, aligns, rises every few hours to a full chorus so dense it stops being sound and becomes pressure in your teeth, in your sternum, through the cable of the lift. Human voices give up during a chorus. The caretakers tap each other’s forearms, press pads in their gloves. The towers take the returning echoes — a million sonars pouring into basalt too new to have cracks — and render what is underneath the valley, slowly, in maps of water and stress and forming stone.
+
+They were made for this, or remade. Their metabolisms are too slow, their voices too tireless, for any animal that evolved to hunt. They are a listening instrument that needs to be kept warm and fed and groomed, and in return their bodies have become the climate that everything else here lives in.
+
+Because where there are veilwings this thick, there is a whole second town inside the first.
+
+Their fur, seen close, is a forest, and it has herds. Mites move through it in pale processions, grazing skin flakes and fungi, kept from exploding in number by something no one has quite isolated in the grooming saliva. At the bases of the towers, where condensate sheets down and mixes with iron and sulfur leached from new rock, a mineral slime spreads — chemosynthetic bacteria, the only simpler-than-plant life that thrives without sun — and blind white beetles graze it in slow, scraping files, their shells pitted like limestone. They leave clean black stone behind them.
+
+The cisterns under the condensers are full, too. The water there is kept liquid well below freezing, and in it drift shrimp the length of a thumb, blind, translucent, their internal organs visible as faint amber knots. They feed on what falls in. And standing in that freezing black water, motionless for six, eight hours, are the heron-things — there is no better name ever agreed on. Tall, night-black, stilt-legged, heads tucked down into hunched shoulders, engineered or arrived no one will quite say in front of visitors. You see them only as a slightly colder shape in the infrared, a gap in the steam. Then once, without warning or splash, a strike. One shrimp fewer.
+
+And patrolling the roost levels themselves are the shepherds.
+
+They are tall as a person, gaunt to the point of architectural, and flightless in a place built for wings. Blind as moles, faces smooth and nosing, ears like hands pressed flat to their skulls. They move on improbably long, soft feet that make no sound on stone and leave no bruise on a veilwing they step over. Their work is endless and unhurried: eat the dead before rot can spread through a cluster, lick and pull apart a knot of bodies that has grown too dense and begun to overheat its core, nose a fallen pup back up into the communal warmth, stand their own long bodies across a sheet of floodwater to redirect it away from a nesting cell. A veilwing cluster will shift, subtly, to make room for a shepherd passing through it, the way water closes around a slow oar. They sleep standing, heads down, swaying in the chorus.
+
+The humans, by comparison, are a minor infestation.
+
+A few dozen caretakers. That is all. They live sunk halfway into the basalt at the southern rim in pressure domes lit always dim red, never white, because a single bright flash could blind a quarter-million veilwings at once and bring a chorus down like a ceiling collapsing. They move under rules that are not so much safety protocol as etiquette for living inside another animal: soft soles, soft voices, no metal on stone, no running — nothing runs in Halu, not the printer-gantries creeping along their rails, not floodwater spreading in a perfect sheet across an unchanneled street, not even fear.
+
+You will rarely see a caretaker alone and upright out in the town. They go in pairs, suited, tethered, speaking in taps during the loud hours, spending whole shifts doing work that looks like nothing: checking a fin for rime, listening with a palm flat to a tower to feel for a dead spot in the roost where the heat has dropped, counting shepherd pups — for the shepherds breed here too, slower even than the veilwings. At night, which is all the time for eleven weeks and more, they return to the domes and wash veilwing water off their suits and tend the guano processors that churn the towers' runoff into the sludge that pays for this entire improbable listening post.
+
+They are not, in any meaningful sense, the town’s inhabitants. They are its keepers, and they know it. If they all left tomorrow, the condensers would tick on for a season, the towers would hum, the veilwings would go on chirping into the rock and clustering tighter as the cold came back into dead districts, the shepherds would go on grooming and eating the dead until some imbalance they could not lick apart took a whole spire. Halu would not become empty. It would become unmanaged.
+
+For what lives in Halu Cirque is not, finally, a species. It is a density. A million slow hearts beating out of sync until, together, they make a warmth. A million voices that never stop asking the new stone what it is becoming, while mites graze in fur, beetles graze on slime, shrimp drift in black water, silent herons wait, and blind shepherds walk the warm walls, keeping the whole breathing surface from smothering itself — in polar night, in bitter cold, in a valley so young it has not yet learned where its rivers will go, listening to itself be born.

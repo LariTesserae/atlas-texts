@@ -1,0 +1,37 @@
+It would not descend.
+
+No light over the rim, no voice in the cisterns, no sudden greening of the roofs. A power that was both benevolent and wise would look first, for a long time, and looking here takes longer than it does in other places. It would need at least one full turn of swifts arriving and departing. At least one lawsuit. At least one generation of masons.
+
+It would learn what could not be learned from below.
+
+From below, it looks like deprivation: no trees, no gardens, no clean facades, no silence, no separation between the people and the vermin. The obvious mercies arrange themselves at once, bright and simple. Drain the canals. Seal the nesting holes and give the people smooth walls. Kill the rats, the lice, the midges. Bring soil up the cliff in the freight lifts and lay parks over the guano terraces. Cure the scurvy, straighten the bent backs, raise the lintels, quiet the dawn.
+
+It would consider each one, and put each one down gently, the way a loft-keeper puts down a bird that is not his to keep.
+
+Seal the facades, and the chimneys foul, and the swifts go, and the midges rise uneaten out of the canals until the air itself is a food no one can breathe. Kill the rats cleanly and the cats starve and then the rats return to a city without enemies. Plant trees in soil brought up the cliff, and the roots find the cisterns, and the leaves fall into the warm water and rot, and for one green summer everyone is delighted, and then the pumps begin to fail. Give them silence and half of them would not sleep. Give them cleanliness and they would not know, in the dark of a windowless room, whether the wall beside their child was warm with life or cold with loss.
+
+This is not a broken version of a lowland city. It is a whole animal, thinking slowly, made of stone and feather and human hands. The people are not living *in* the habitat. They are one of the ways the habitat happens.
+
+So the power would do what the city itself does with everything: it would enter the loop, or it would not enter at all.
+
+It arrives, if arrival is the word, on a freight lift, with the grain. No one remembers afterward whether it was a clerk in the nest-rights court who could always find the one precedent that let both parties keep their ledges, or a canal grandmother who taught three generations of children to quarantine a sick loft before the sickness learned the bridges, or simply a mason, unremarkable, who tapped walls and sometimes said *not this one, not yet* in a tone that made other masons leave a beam, a cavity, a stair unrepaired for reasons they believed were their own.
+
+Its miracles are sized to fit through the existing doors, ducking.
+
+In a hard late winter, when the pickled greens run out and old scars begin to reopen, the imported tea in the communal kitchens tastes a fraction more sour than it did — not enough to name, enough that a keeper's wife, hoarding it for a woman after childbirth, finds there is enough for the old men too. Nothing new has been planted. Nothing that photosynthesizes has been asked to die more slowly on basalt. It is only that the things already being eaten have been persuaded, very slightly, to give more of what they had.
+
+In a year when a sickness comes up from the lowlands in the grain sacks — a sickness that in another history would have found the pigeons first, then the bats, then the warm walls going cold tenement by tenement through the winter — it finds, instead, a loft already emptied and lime-washed, a bridge already closed at dusk for repairs that took a suspiciously convenient week, a court clerk who delayed the reopening of a disputed roof by exactly the length of one incubation. Two hundred birds die, and are mourned, and burned. The city never learns how close the quiet came.
+
+On the rim, where the wind cuts and the lift cables weep and fray a strand at a time over decades, a cable does not part on the morning when the car is full of children going down for a marriage. It parts three nights later, empty, in fog, with a sound like a book the size of a building being dropped. The engineers call it luck. It is not luck. It is attention sustained past the point where any human watchman could have been asked to sustain it.
+
+And once, perhaps once in a century, when men from below come up — not traders, who understand the loop because they eat from it, but improvers, men with drawings of a clean plateau, a white city made whiter, facades rendered smooth and silent and modern, rents doubled, birds abolished by ordinance — the power does its largest work, which is almost invisible: a file is lost for forty years. A surveyor's chain breaks. A key investor catches a fever on the long climb and goes home with a lasting dislike of heights. A judge in the nest-rights court, a woman who began the case in her marrying year, asks one more question, and then another, with genuine interest, until the improvers are old men explaining rookeries to their grandchildren, who have begun, despite themselves, to be good with bats.
+
+That is all. That is the size of its love: not to make the place other than itself, but to widen, almost imperceptibly, the margin inside which it can go on becoming itself.
+
+It does not cure the stoop. The stoop is how they pass under the lintels without waking the nests. It does not give them back the lowland sky; the emptiness up there is occupied, and the occupation is their weather. It does not even, in the end, take away the fleas, the hoarse voices, the white forelocks of the twenty-year-old scrapers. Where it can soften a thing without unraveling the knot that thing is tied into, it softens it: a bathhouse fire that starts at night and finds the watch awake; a child who seals a nesting hole for fun and is found, before punishment, by someone who sits with him on the parapet until he understands arson; a little more depth in one cistern, dug by grandfathers who think it was their own idea, so that in the drought year no one can foresee, the canals go low and brown and stinking but do not stop.
+
+And when it leaves — if leaving is the word — it leaves the way everything leaves here. It does not ascend. It is carried, after the formalities, out onto the black terraces under the hard sun, to dry and whiten with the rest, to be sacked and sent groaning down the cliff to feed fields it never saw, which will send up grain for grandchildren it will never meet. A benevolent and wise power could ask for no better proof that it had understood the place: that it was willing to be used by it, slowly, completely, without waste.
+
+Centuries later the lowlanders will say that nothing ever happened up there. The lifts still climb for an hour. The cloud still forms by mid-afternoon and the rain still falls, mostly, inside the rim. The pigeons still go up all at once over the steaming canals, circle twice, and settle.
+
+Only the keepers, if pressed, might admit that the loop feels — not easier, never easier — but a fraction less likely to close around a throat. As if something had once taken the city's full weight into its attention, and set it down again in exactly the same place, and stayed just long enough to make sure the stone could bear it.

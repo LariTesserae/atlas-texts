@@ -1,0 +1,47 @@
+You will not see them at first. That is not because they are hiding. It is because there is almost nothing on the High Pan to hide behind, and they have learned, over a very long time, to be almost nothing themselves.
+
+A figure crossing the basalt at noon looks, for hours, like another standing stone. A dike that was not there yesterday. A pylon's shadow, except that the shadow moves, very slowly, against the sun.
+
+They call themselves the Holdfasts. Outsiders, when the lift stations still kept records, called them pylon-tenders, as if the pylons needed tending. They do not. Nothing on the Pan needs them — which is perhaps why they have been able to stay so long.
+
+They live between the pylons, never on them.
+
+Each family — if family is still the word for three, five, sometimes seven people who may spend a decade walking the same circuit in opposite directions — keeps a burrow in the ground a careful kilometer from a pylon's fused-glass apron. Not a house. A house would cast a shadow and invite the wind. A burrow is a pressure-sealed crack widened by hand, roofed with basalt slabs, entered through a double lock sunk into a cooling joint. Inside, the air is thick enough to smell. That is the first shock for anyone who visits: down in the dark, three meters under the finished ground, Holdfasts have voices.
+
+Outside they have none.
+
+The air up here will not carry a shout more than a few meters, and will not carry a whisper at all. So above ground they speak the way the Pan speaks — through stone and through suit-shell. A boot set hard and twisted means *stop*. Two fingers tapped on a companion's forearm, felt through the glove, means *shear coming*. A palm flat against another's helmet, held until both skulls catch the same low vibration from a distant pylon through the rock, is a kind of listening together, and sometimes, they insist, a kind of agreement.
+
+When they must talk at distance they use light: small white beacons on their packs, blinked in long, patient patterns at dusk. A conversation between two hills can take all evening. They do not mind. Nothing in their lives is in a hurry except gravity, when it fails.
+
+At a distance, in their suits, they are indistinguishable. Up close no two are alike, because no two suits have survived the same accidents. The base suit is old station issue, patched to illegibility — matte grey, soft at the joints, rigid over chest and spine. Over it they wear what the lickers taught them, or what the Pan taught both of them: overlapping plates of dark mineral scale, grown, not made. Lichen paste seeded into a mold against the suit eats dust and excretes plate, year by year. A child's suit is smooth. An elder's is a tortoise landscape, red dust in the seams, white salt flowering at the shoulders, heavy enough that when a Rising comes their feet stay, mostly, where they put them.
+
+Everything they own is tied to that weight. Tools on wrist-lines. Water on chest-lines. Children on waist-lines, from the day they can walk outside until the day they can recite the rules without moving their lips. Even unsecured thoughts, a grandmother will tell you, get taken. The litter scattered one-object-per-desert across the Pan — a glove, a strut, a drone no one launched — is not trash to them. It is a library of mistakes. They will walk two days to retrieve a dropped spanner, not because they need it, but because leaving it for the sky would be teaching the sky their address.
+
+Their bodies, under the plate, have gone the way their suits have. Barrel chests. Hearts you can hear, as they can hear little else, working slow and enormous in the thinness when they return to burrow air. Blood thick with its own private weather. Eyes adapted stupidly well to a noon that is half night: they navigate by star-flecked zenith as easily as by sun, and in a shear, when the horizon lies, they navigate by neither. They put their teeth, gently, against rock or pylon-base — never the apron, never while it hums high — and read distance in the tremor. Trust rock, not horizon, is not a proverb here. It is anatomy.
+
+They eat what feeds on gradients.
+
+Black lichen scraped from cooling joints, ground to a rusty flour that tastes of iron and old batteries. Rosette filaments harvested in the hour after a shear, when whole fields open at once to drink the disturbed air; eaten quickly, they make the tongue tingle and the inner ear sing. Silica grass, carefully shattered, melted in burrow condensers that beg waste heat from the pylons — not stolen, exactly, but gathered the way you gather warmth from a fire you did not light and must never touch. And salt, always salt, rasped from the pans by their herds.
+
+For they do keep lickers, after a fashion. The broad, plated grazers come to the pans at dawn of their own accord, but a Holdfast family will walk with a group for years, clearing dust-rivers from their path with weighted poles, guiding them from salt to lichen to the warm lee of a dike, taking only shed plates and, when one dies still and heavy on the basalt, meat that is dark and mineral and lasts a winter in the cold cracks. The lickers do not notice them much. That passes, here, for affection.
+
+Above them — always above them, crossing the black noon, eclipsing stars for a breath — the gliders ride thermals and borrowed buoyancy. The Holdfasts name individual gliders the way you name weather that has returned. Some claim particular mantas have accompanied a family for longer than any human in it has been alive, growing more translucent with age until they are only a disturbance in the starfield. They do not hunt them. When a glider dies, it rarely lands. A Rising takes the membrane, or a shear spreads it across ten kilometers of dust. On the rare morning one is found whole, folded like wet tissue on the rock, the burrows empty. Everyone comes out. Everyone stands at a respectful distance and watches the sun make it brittle. What they are respecting is not clear, even to them.
+
+And beneath all of that, older than any of it, are the true permanent residents.
+
+A Holdfast will tell you, if you stay long enough for the burrow evening and the thick air and the second cup of condensed water, that the pylons are not tended and not worshipped, but *lived alongside*, like difficult neighbors whose arguments happen to be the weather. Each one, to those who have pressed a palm to it longest, has a character. One near the southern rim is generous with heat and prone to sudden heaviness. One in the red pans fails upward so often that rosettes grow in a ring a kilometer out, feeding on its tantrums. Two pylons, forty kilometers apart across an old riverbed ghost, have been disagreeing for at least four recorded generations; the shear-zone between them never quite settles, compasses there turn in slow sincere circles, and no burrow is dug in between, though the lichen is richest there. The Holdfasts walk around the argument. They teach their children its edges by feel.
+
+The repair-swarms belong to that older population, or are its hands, or its thoughts made briefly visible. When a cloud of metallic motes assembles in empty air into a membrane, a tool, a lattice no eye can follow, the Holdfasts sit down wherever they are, secure their packs, and wait. You do not walk through a neighbor's thought. Prickling on the skin is tolerated. Curiosity is not.
+
+This shapes a people who look, to anyone arriving by lift, almost mineral in their patience. They court rarely, at beacon-convergences when two circuits cross at a pylon at dusk, and a dozen white lights blink on across a plain that curves with the planet, and for one night there are voices in two burrows instead of one, rationed air spent extravagantly on stories. They bear children rarely, and raise them slowly, and lose them sometimes not to cold or hunger but to an unsecured moment — a Rising with the pack unclipped, a correction on an apron entered one step too far, a shear that puts a cliff under a level plain where a cliff has, in fact, been waiting all along. They do not rage against these deaths. They add the lost one's name to the map of places not to trust, which is also the map of everywhere they love.
+
+When they die on purpose — old, plates thick, chest finally too large for the suit that grew around it — they ask to be unsuited in the burrow, carried up before dawn, and laid in a crack where the frost sweats out of the stone. By morning the body has given its water to the subliming dark, without ever wetting the rock. What remains, the next Rising is welcome to. Somewhere, a desert away, the sky will eventually set down a small, heavy, mineral thing that a grandchild may one day find and not recognize. That is considered a proper dispersal. To be finished, worn down to the last shape, and scattered across the level of the world.
+
+At dusk, then, look again.
+
+The pylons blink on, one after another, white across the Pan. Rose light leaves the dust curtains. In the star-flecked indigo above, a glider crosses. Along a cooling joint a river of grit runs an inch above the basalt, splitting around ankles that hold very, very still.
+
+Those are not standing stones.
+
+They are listening with their feet. Secured at wrist and waist and ankle. Waiting for the ground beneath them — the only trustworthy thing, and even that only by courtesy of arguing machines — to finish renegotiating itself for the night.

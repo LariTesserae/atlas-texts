@@ -1,0 +1,35 @@
+They would come at night, because that is when it is breathing.
+
+Not descending. Not shining. A wise power would know better than to bring light into that darkness, or water into that thirst, as a first gesture. It would cross the plain on foot, feeling the polished rings go by underfoot for hundreds of meters, old bone giving way to a sheen, a ripple, a knot sealed like a well. And it would stop before the ladder-hole, and not go down.
+
+First, it would listen. For a long time.
+
+That would not be inaction. Listening is the native language here. The builders knew it — barefoot, knuckle-bone striker in hand, toes in the guide-groove. The tree knows it more deeply than they ever did. It has no other voice. When wind moves over its back and finds the flues and the high pores, the chord builds through pillar after pillar, each answering according to its thickness. On still nights, the smaller voice: a crack traveling a grain line like a distant shot, a suspended house complaining through all its pegged joints as it settles a fraction on its cables.
+
+A lesser kindness would want to fix this place. That is the first temptation, and a wise power would refuse it, one temptation at a time.
+
+It would be easy to bring rain. One good rain, laid gently over the plain. But this is a being that has spent millennia learning to live on a mouthful condensed out of night air, hoarded in waxy, resinous cells, and its whole immaculate sterility — no beetles in the dead wood, no mice in the granary, no rot in the tool-marks still crisp after centuries — is the other half of that thrift. Flood that economy and you do not save it. You drown a desert animal in a river and call it mercy. Things would wake in the wet. Things would bore, and soften, and ferment in the dark. The city would not become alive. It would become a wound.
+
+It would be easy to stop the closing. To props open the market arcade where it is healing shut, to shave the swollen doorways back to the width a hand once cut them, to re-hang the dangling houses a notch higher, as a grandson once did for a grandfather. But the closing is not a disease. It is the tree continuing, sideways, the only direction it has chosen for longer than anyone was there to notice. To arrest it would be to taxidermy it — to freeze the one slow motion that is its life, in order to preserve rooms for tenants who are gone.
+
+And it would be easiest, and worst, to bring the people back. In memory, in reconstruction, in some tender seeded colony taught to knock and listen and press their children's hands into warm resin beside doorways. But the builders are not sleeping somewhere to be woken. They left, or died, so long ago that their absence has become another layer of the grain. The tree did not drive them out. It is outliving them the way it outlives its own heartwood: by remaining while other things pass through it. To refill it would be to write a sequel it never asked for, on paper made of its own body.
+
+So the power does the smaller things. The things a good guest does in a house that is also a body.
+
+Where a breathing flue has choked, over slow decades, with wind-blown grit, it clears it — not widening, not carving, just lifting the sand out with something like a fingertip, the way you would pick a stone from the hoof of a very old horse that has not asked you to, and would not thank you, and is better for walking afterward. Where a pillar's answering note has gone dull because a fallen cable is damping it, it lifts the cable clear. Nothing is repaired. Nothing is improved beyond what tenderness and maintenance once routinely did, and stopped doing when the hands went away. It is grooming, not surgery.
+
+It walks the rim where the lid thins into the ground like the skirt of a bell, and where the newest ring is shouldering the desert aside a few centimeters in a good decade, and it does not help it grow. It only notes the ring. It commits it to a memory that will outlast the grain — every arc, every polished growth-line, the exact pitch of each trunk going down through vanished soil. Because there is one grief here that the tree cannot answer itself, and it is not death. It will close the ladder-hole in a few centuries. The listening-basin will shallow and go silent. It will be sealed with itself, alone on the flat horizon, sounding for no one. A benevolent attention can carry the chord out of the sealed room. Not to publish it. Not to explain it. Just so that something, somewhere, still knows what this place sounded like from inside — so the music is not required to have been pointless merely because it finally falls silent.
+
+And then, once, it answers.
+
+Not a word. Words would be wrong down there, and presumptuous up here. Lying flat on the cool plain with a cheek to the polished grain over the great open center of the city, it knocks — once — on a knot above the listening-basin, at the focus, where a whisper can be heard at the furthest pillar. One note, struck at exactly the pitch the hollow is already holding, and no louder. So the chord does not break, or startle, or bend around an intrusion. It simply, for a moment, includes something that did not come from wind, or contraction, or settling wood.
+
+What the tree makes of that, if it makes anything of it, no one can say. It has no ear except the basin it is slowly un-carving. It has no mind anyone could find in all that dead and living wood. But for the length of one held note, the structure resonates marginally differently — a hair more complete — and then the wind takes it again, and the power stands, and brushes the grit from its knees.
+
+Afterward it protects the place the only way the place can bear to be protected: by leaving it unfindable. No marker. No shrine. It lets the wind scour its own footprints off the sheen within the hour. In some distant archive it misplaces a coordinate by just enough. In the mind of a surveyor, years hence, it lets a thought about water-rights or timber or a flat convenient route simply fail to occur. The plain goes on looking like nothing. That is its armor, and it has worked for a very long time, and the kindest thing an outsider can do is not strip it away with admiration.
+
+It does not leave a gift. Gifts would be drunk by the floor like ink into blotting paper, or sealed into the grain, or closed over by a doorway narrowing a finger's width a century. It leaves the flues a little clearer than it found them, the basin a note richer in one immortal memory, and the slow sideways growing exactly as slow, and as sideways, as it was.
+
+It leaves, in other words, almost nothing — chosen with great care, against strong temptation, and held for the whole length of a windy night with an ear pressed flat to the wood, listening to a town that is empty, built of a single tree, sounding below the threshold of sight.
+
+Almost nothing is what love looks like, here.

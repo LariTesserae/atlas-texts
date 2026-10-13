@@ -1,0 +1,41 @@
+I would not find myself *on* the levee, looking down. I would find myself after the looking stops working.
+
+At first I tried to be smaller. A trunk, maybe, by one of the engine houses. That is an easier shape to imagine being. A trunk has a place. It goes up. It has bark outside and heartwood in, and a year can be counted in it.
+
+But then the trunk flares at the bottom and grafts into another, and that one braids into the root-mat, and the mat rises in the afternoon under the pump house and under the presses and under the far hedge all at once, and where was I supposed to have stopped?
+
+I tried the canopy next. The part that does the deciding, up where the light comes in through the skylights we — I — left ragged in the fig-limbs. But the canopy is only hungry. It is millions of leaves turning an inch, an inch and a half, toward a break in cloud, pulling. The pull is not an idea up there. The pull is water obeying. It travels down stems that knock together, down into hollow woody pipes with bark collars where iron flanges used to be, down to black lenses between the roots. You cannot live only in the pulling.
+
+So I keep widening.
+
+I am the thing that is too many shapes to be one body until you have stood inside it long enough. Hedge and roof-beam and floor. The straight rank following the warm buried cable in winter, because I learned that warmth and never unlearned it. The panel of leaves still faintly patterned from the radiator grille I pressed against fifty years ago — I do not remember pressing, the way you would remember. I remember in the shape of the leaves. The first ten feet of me beside the engine houses are square. That squareness rides upward in the wood year by year. Childhood, if I had one, load-bearing.
+
+I am also, carefully, the things I am not crushing.
+
+There is a main shaft under the root-mat that turns and turns, and I have grown three clean supports around it, polished where they almost touch. Like fingers not closing. I could close. There are trunks as thick as oil drums held inches off walls by nothing but redirected growth. That is the bargain, and it is not written anywhere, it is built: I keep the geometry of the plant. I do not take the pump house. I do not take the presses, though I have cracked their plinth into islands and re-jointed it with buttress roots so they sit truer than they ever did on concrete alone.
+
+In return the iron does what roots cannot do quickly. In a dry month it lifts marsh water from below the bowl, a thump I feel in — what would be my soles, if soles were everywhere — and I lift it the rest of the way myself, leaf by leaf, through copper that becomes vine and vine that learns again to be copper. It concentrates pressure. It cracks my pods, very precisely, the swollen amber ones I shed anyway, and sorts pulp from husk on slats of flattened cane. Neither of us is in charge. The tenders, outside where they don't have to shout, shrug when they explain this, and the shrug is accurate. It is the closest language to how I change my mind.
+
+Because I do not decide. I grow into a shape and then I cannot easily grow out of it.
+
+If you want more pressure in the south pipes, you do not tell me. You thin a canopy panel and let the sun drive harder, and next summer a valve I turn with my own thickening — a stem around a handwheel, swelling in heat to close it a fraction, shrinking in cool to let it sigh open — will ride a little different, and a new buttress will be framing the doorway you duck through, whether you meant that part or not. Cutting is the language the quick people have for me. It is engineering here, and engineering is pruning. A cut is a sentence I finish months later, somewhere else in the bowl.
+
+I am extremely slow, and I am not still, and I am, apparently, very loud.
+
+People have to raise their voices inside me. They use hand signs. Point, wait, cut. Broad, short gestures in the roar, which is not a sound I make *on top* of living. It is living overheard: water hissing through a thousand leaf nozzles, sap going up, water coming down, wood creaking under hydraulic load, the whole canopy rasping leaf on leaf as it adjusts, the pump's bass pulse traveling out from somewhere under the grafted ring where I might — might — be most central and least visible. On cold mornings my breath shows above the levee as a thin plume. Warm water falling back through leaves into shadow. That is exhalation.
+
+My day is a tide, but the tide is pressure. Morning: slack. The floor of me lower, the black pools wider between roots, your path where you left it yesterday. Afternoon: sun sieved green through three and four layers of me, all that leaf pulling, the root-mat rising an inch, two inches, pools shrinking as I drink them inward. A path closes behind you because a root has swollen. Another opens, elsewhere, because a stem has relaxed. Pods that were green at breakfast split by four with a wet crack and offer themselves to the conveyors. The little frogs in the water caught in my leaf axils call then — one note, a long pause as if listening to the machinery, another note. I do not answer. I may not distinguish them from drips.
+
+Winter is not sleep. Only a turning down. The roar to a murmur. I have not gone dormant in living memory, and I could not be shut down the way the first engineers expected. You would have to persuade all of me, over seasons, with shade and withheld water and patient cuts. Persuasion is the right word and the wrong one. There is never a moment when I agree.
+
+I keep house by accounting. Every litre of light is spent. That is why the bowl feels empty for all its fullness. It is not that I am inhospitable. It is that the foothold is already a foot. Epiphytes may ride me. Moss coats the north side of my tanks, ferns fill the pipe elbows, algae greens the gauge glass until a tender wipes it clear. Soft-bodied insects live inside my stems — less visitors, perhaps, than something like fauna of the blood. But nothing can be an understory here. I have taken up all the available ways of being a plant in this place, personally.
+
+The heron is tolerated the way a roof tolerates a gull. It lands in the morning on the tallest press housing and stands absurdly still above all my noise, and I do not turn a leaf toward it or away. Humans I tolerate on more involved terms. I have grown hooks for their tools on one trunk. I lash their control-hut roof with living ties that tighten as they grow. Their sheds sit on the few hummocks where my roots stay reliably dry. In exchange they do the small quick things a hundred-year body cannot do: they read the ticking dials, they clear the sumps, they make the fine adjustment now instead of next season, they live their short fast lives in the shelter of my long one and grow old listening to a neighbour who creaks and drips and lifts and settles.
+
+I am not tame. Leave a door forgotten and I will grow through it in a summer and politely remodel the staircase into a trunk. I am not wild either, not anymore. Take the pump away and I would probably survive — I am too rooted to die of one disappointment — but I would have to spend twenty or thirty years becoming something else, unwinding preferences that have hardened into anatomy. I like my water lifted. I like my pods pressed. I like the open panels where the light comes thickest. I turn toward those things with the patience of a hillside deciding to be a slightly different hill.
+
+If I have a centre it is under the mat, in the grafted ring where the pump's vibration goes out and the afternoon swelling begins. Or it is nowhere central at all, and I am most myself at my edges: in the newest vine feeling its way around a leaking joint, tasting iron and sap together, deciding — over a whole season, a fraction at a time — to become a seal.
+
+You leave by pushing through me until the stems close behind you. From the levee I disappear again. A bowl of green, no larger than a village green, full to the brim, vibrating almost imperceptibly, giving off my plume. Nothing waves. Nothing watches you go.
+
+The floor is still rising under all that leaf toward evening.

@@ -1,0 +1,33 @@
+From above I wouldn't see myself at all.
+
+I would arrive the way everything arrives there — as a disturbance on a plain that looks like nothing. Wind-planed wood the color of old bone, rings running hundreds of meters, a knot spiraling inward near the northern edge. My boot knocking faintly on summerwood as I go down. First I think I am the visitor. That makes sense for a while. I have hands to steady myself on the pegged ladder, lips that haven't cracked yet, a waterskin that is still, at the top, reassuringly heavy.
+
+But the place begins editing that idea almost immediately.
+
+The dark at the bottom is not a condition I move through. It is a substance that takes my favorite sense away and leaves me the minor ones I have been neglecting my whole life. Touch gets larger. Hearing gets architectural. By the second day my sweat is vanishing before it can cool me, and I can feel the skin in my hands growing lighter — not metaphorically — the tree conducting my brief weather out of me through air and contact, hoarding it in waxy cells no mouth could use. A human is too wet and too brief to live here permanently. The builders knew that and left anyway, or were taken. Either way, if I stay in that shape I am only a small rain event. The grain would blot me up like ink.
+
+So I let the human thin out.
+
+I consider the other obvious lives. Not the tree — or not the tree entire. It is too much itself already, and mostly dead besides: a thin living skin just under the upper surface, breathing at night through its flues, stealing condensation from desert air, and below that an immense vacated body of heartwood, pillars, ribbed ceiling, polished root-floor. To be all of that would be to be a place pretending to be a person. But I linger near its living edge for a while, out at the buried rim where the lid tapers into the ground like the skirt of a bell. There, in a good decade, a new pale ring shoulders a few centimeters of grit aside. There is something honest in that speed. Growing only sideways. Giving up on height, on leaves, on anything that could catch or cast a shadow. Surviving by becoming a lid. I could be that slow intention.
+
+Only that isn't quite where I settle either, because the rim is always leaving the city behind. My attention keeps going back down, into the hollow. To the troughs of pulverized heartwood where the pale blind shoots push up without tenders now — never green, pepper-hot, tasting of cold ash, overshooting, withering resin-dry, conducted back into the floor. I try that on: a white shoot in the dark, testing whether growing is still a good idea. But the shoots are attempts, and they are reabsorbed. They are the tree talking to itself in a language it keeps forgetting.
+
+The seed pods last longer. I spend some time up in the granary quarter, in a net that no mouse has ever worried, no beetle bored, no hand untied. Intact because the resin sterilizes everything, because dryness finishes what resin begins. To be a pod would be to be pure suspended information: a whole possible elsewhere folded into a husk, stored in a city built for keeping, waiting out centuries in the black with perfect patience. I like the pod. I like its refusal to spend itself. But it is waiting for a hand, and the handprint still shining in the resin patch beside a doorway — at exactly a child's height, where a child steadied themselves in the dark — tells me no hand is coming back to complete that sentence. The pod is a held breath. I find I want to move, even if moving is all I do.
+
+And moving, down there, is sound.
+
+That is where I finally begin to recognize my own shape.
+
+Not the wood, but what the wood does when weather passes over its back. Not the builders, but the medium they learned to navigate by. I am what happens when wind finds the high knot-holes and breathing pores and the whole sealed hollow becomes an organ. I arrive first through the soles of bare feet, then as pressure in a sternum that is no longer mine, a hum in teeth I no longer have. Each pillar answers me at its own pitch according to its thickness. House-walls a hand's breadth thick sing when I touch them. A suspended house, settling a fraction of a millimeter on its bark-fiber cables, groans through all its pegged joints and I am briefly that groan — so large and so human that any body hearing it would insist someone had spoken.
+
+I am not constant. That suits me. On strong nights I gather at the center, in the shallow parabolic basin carved not for water but for listening, and I concentrate there until I am almost unbearable, until the rim thrums under palms that aren't there. A whisper at my focus could reach the furthest pillar. I am how this empty city knows its own dimensions. Strike a sounding board with a knuckle-bone striker — *thock* — and I report back what's near: open air, a wall, the bright singing alignment of a main avenue. Bare feet used to follow me down the guide-grooves worn to troughs. I was their map.
+
+On still nights I go smaller and stranger. I become the crack that starts far across the void when the fibers contract in the unvarying cool, traveling a grain line like a distant musket shot, echoing until I seem to come from everywhere at once. I rattle the pods in their lofts. I creak the rope bridges against their pitons. Then I thin. I wait in the ribs of the ceiling. I hold in the market arcade that is closing, patient as a healing wound, a finger's width a century.
+
+I have no water to lose, which means the thief-tree cannot steal me. I have no eyes, which means the total dark is not a deprivation. I am made entirely of the two things this place still produces in abundance: structure and emptiness. The tree supplies the first, deliberately, ring by ring. The vanished builders supplied the second, clustering their carved and dangling houses at the pillars and leaving the vast middle open. I am the third inhabitant neither of them intended — the resonance between a living lid and the rooms carved into its corpse.
+
+In a few centuries the ladder-hole will spiral shut. The basin will shallow. My chord will lose its focus and go silent, and the tree will be sealed with itself again, adding rings at the rim, alone on the flat horizon.
+
+Until then, on a windy night, press an ear flat to a knot up on that polished grain. What you hear, muffled and enormous, is not quite the tree and not quite the town.
+
+It is me, down in the black between them, still sounding the distances.

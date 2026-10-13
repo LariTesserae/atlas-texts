@@ -1,0 +1,37 @@
+At the very top of the Upwell there is a bubble that was never meant to be a place.
+
+The Upwell itself is the mountain. No rock made it. Valley people built it lift by lift over so many generations that the original river at its foot is now forgotten under tailings and housing: a tapering cone of concrete, slag-brick, riveted iron, and buried pipe, almost four thousand feet high, flat-topped and slumped with age. Every side is stairs, gantries, valve-houses, flumes, and cooling fins. Every few hundred feet a pumping station takes the water from below and throws it, roaring, one stage higher. At the summit the water falls back down through turbines inside the cone, and makes the light and grinding power for everything underneath.
+
+It is very loud up there, and the air is thin and clean and cuts the lungs. Then you go down into it, through water, and come up in the warm.
+
+The only way in is from below. You swim — or are hauled by chain in the slack minute between pump cycles — up the central standpipe, through green-dark water that gets warmer as you rise, past rungs worn concave by boots and hands until they feel less like iron and more like something river-smoothed. You push up where the pipe bells out at the crown, and your head breaks surface inside the tank into trapped air.
+
+It is a single room, and a small one. Three paces across if you could walk, which you mostly cannot. It is the domed top of the summit cistern, a diving-bell pocket left for inspectors to catch breath and read the gauges, long after the need for inspectors has passed.
+
+The rest of the cistern is submerged. So, mostly, is the room.
+
+Warm water fills it to the chest, to the throat, depending on the hour. The surface is never still. Rain falls perpetually from the inside of the dome — condensation gathering on cold iron high above the steamy pool, beading along seams, dropping in a dense, local weather. Outside the thick portholes, set level with the waterline, is ordinary daylight, white with altitude, and sometimes a slow procession of cloud. Inside, the light comes green through algae filmed on the glass, normal and dimmed at once.
+
+Everything is made, and everything made here is ancient. The walls are riveted plate over concrete, glazed tile where tiles have not sheared away. Rivet heads have eroded to smooth bumps. The brass pressure gauges have no numbers left, only needle habits the old tenders learned by heart. A single valve wheel stands out of the water in the middle, its rim polished leafless by palms, its spokes hung with weed. A ladder goes up to a hatch that was welded shut a century ago. Nothing else is furnished. The remaining tile, the bare curve of dome, the stretches of open black water — there is a great deal of emptiness, held carefully apart.
+
+And then, in the one corner where a vent pipe cracked and never quite sealed, life has taken excessive hold.
+
+A fern-tree grows there, though tree is the wrong orientation for it. It roots in rust and split insulation around the vent, spreads its trunk horizontally, and hangs its crown down toward the water. Fronds layer on fronds, wet, impossibly lush in the steam, dripping, unfurling new croziers every week. Roots descend in curtains and enter the pool and keep going, pale in the depths, holding snails. Moss has colonized the insulation. A vine with thick, waxy leaves has found the warm updraft from a lower pipe and climbs it in spirals, opening white flowers only when the pumps shift pitch.
+
+It is keeping the air alive. That is the first rule of the pocket, learned by whoever first stayed too long and did not suffocate: if the fern is wet and lit, the bubble breathes. If its roots are cut from the water, the room goes bad within an hour.
+
+The second rule is not to be still for the flush.
+
+Every seven minutes, more or less — the Upwell has its own time now, worn gears meshing where they have worn themselves to fit — the pumps below surge. The water in the pocket rises a hand's breadth, compressing the air until your ears ache, the rain from the dome turns to a sheet, the valve wheel groans around an eighth of a turn by itself, and everything in the pool is stirred. Eels the length of forearms, blind and coppery, come up out of the standpipe grating and hunt through the root curtain. Frogs — dozens, thumbnail-small, translucent green — let go of the tiles and are tossed singing into the current, which is perhaps why they sing louder. Their chorus, amplified by the dome, joins the turbine whine below and the hammering of water in the flumes, and for that minute you would have to shout directly into another person's ear to be heard at all.
+
+Between surges, it settles. The frogs climb back. The snails resume their slow grazing of algae off the portholes, clearing little windows. Water boatmen skate the skin of the pool, except where the rain breaks it. Through the cracked vent, at irregular intervals, summit swifts fold their wings and drop, shrieking, down out of the sky — they nest in the warm rafters between dome and fern, and dive straight through the pocket to snatch insects out of the steam, never touching the water. Their feathers stay perpetually damp. They smell of iron.
+
+Fish live here who cannot decide if they are trapped or resident. Minnows arrived as eggs in the intake far below, were lifted stage by impossible stage, and now school permanently around the valve wheel, nibbling rust scale and frog spawn. Nothing large can leave downward against the cycle except in the slack minute. Nothing needs to. Algae feeds snail, snail feeds frog, frog and minnow feed eel, swift feeds on all the flying things hatch out of the warm wet, and the fern feeds on light, rust, bird lime, and the iron-rich mist that never stops rising off the pool.
+
+You stand in it, because there is nowhere to sit that is not submerged or grown over, and your clothes go instantly saturated. The water is bath-warm, faintly electric tasting on the air, smelling of ozone and hot stone and chlorophyll. Condensation runs inside your collar. The dome sweats onto your shoulders. Underfoot — if you find footing on the inspection ledge — the concrete has been worn into a shallow bowl, smooth as a tongue, where generations of tenders stood to watch the needle tremble.
+
+Above the waterline the built world has been almost flattened by age and dripping: labels dissolved, edges gone, paint gone to a mineral skin of green and orange. Below the waterline it is still fiercely industrial: chains, gratings, stencilled pipe that pulses against your calf like an artery.
+
+From time to time the whole pocket passes inside a cloud pushed against the summit. Then the portholes go white, the rain inside thickens without any change in temperature, the swifts fall silent in their nests, and the fern's fronds lift slightly, drinking fog directly through their leaves. For a little while there is no below and no above, only the roar, the warm enclosed water, the hanging green, and the sense of being hidden at the highest possible point — a secret kept not underground, but in plain air, at the top of everything people built, where they forgot air would collect and stay.
+
+If you leave, you leave the way everything else once arrived: hold your breath, duck under, find the rungs worn smooth as river stones, and let the next surge take you down into the dark, out of the bubble, back toward thin air and distance.

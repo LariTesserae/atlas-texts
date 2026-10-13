@@ -1,0 +1,39 @@
+At first I thought I would be up on the rim.
+
+Outside the moss curtain, on the bare fresh rock, looking back and down into the bowl — a visitor's place, a safe place, where you can take the whole town in at once. Rim to rim. Dark green, breathing. A single organism divided into rooms.
+
+But I keep losing the rim when I try to stand there. My eyes aren't made for that distance. The valleys below are too wide and too warm-looking and the light hurts, even sideways, even blue. And my back aches in the wrong way when I straighten up. Not pain exactly. Exposure. As if my spine has an opinion, learned early, about how high a head should be carried under low branches.
+
+So lower. I am lower.
+
+In the market knot, I think, under the oldest tree — though I don't arrive there all at once. Some mornings I find myself first down in the wet quarter with my cheek still cold from sleeping, listening to a reed. The aqueduct ticks and sighs on the other side of its wall. A blockage doesn't sound like anything dramatic. It sounds like an absence where a pulse should be. The water-keepers move past me without lifting their feet clear of the mat, broad toes spreading, felt gone stringy and black around their ankles, algae in green lace on their hands that they never scrape off. I admire them and I am not one of them. The marsh takes my breath in a way I have to think about. For them it is just the air of home.
+
+Uphill, I know my weight better. The root-streets know it too.
+
+Here is where my hands come in — and when I look at them, really look, that is when the rest settles. Stained to the wrist, green-black worked so deep into the knuckle creases and under the nails that washing, even if we had enough unfrozen water to waste on washing, would only make the pattern clearer. Old stain and new stain. My nails are thick at the edge, unpretty, useful. I can feel, without looking, which shoot will bend around my thumbnail and which will snap and spit bitter sap across my tongue. I have the fine pale scoring up both forearms that everyone has. I no longer remember any of them individually.
+
+I am a keeper under the oldest tree.
+
+Not the oldest keeper. Not yet a wall-sitter either, though some cold mornings, waking packed head-to-foot with family in a domed cell on the terrace above, frost in the seams of the vine screen, heartbeat coming back to me very slowly, I understand the temptation to sit longer and let the chair-shaped places suggest themselves.
+
+My work is memory, which here is not a metaphor. Memory is a living thing we keep in niches at hand-height.
+
+Seed in its pod. Dried fungus curled like an ear. Fiber in bundles. Black berries sealed in resin so they will not get ideas. Cakes of salt-white lichen from the true mountain, tasting of stone and nothing else. Every niche has an owner, and every owner has a graft-line, and I can trace them with a fingertip on bark: here is where your grandmother's grandmother introduced a cutting from the first house that would hold her, here is the swelling where it took, here is where your uncle tried to encourage a bridge-root too early and we turned it aside — it is still turned, still arguing its case fifty years later in the shape of a knee in the trunk.
+
+Some of what I keep must never be used. That is the hardest part of keeping. Any fool can store what will be eaten next thaw. I keep the seed that would be so useful, so warming, so quick to thicken a wall — and that must under no circumstances be allowed to germinate in the bowl, because once it rooted we would spend a hundred years pruning a single decision. I keep it anyway. In its pod. In the dark. I turn it over in my palm during the warm hour and put it back. Knowing what not to plant is also a lineage.
+
+Trade, when I do it, happens close. Elbows on the bench that grew in a ring around us. Breath fogging and staying. A living thing passed from my stained hands to yours, and my mouth near your wrist, not your ear — the wrist hears better, I was taught, because it is where instructions will be used — murmuring which fungus will soften, which leaf to pack against a shoot to make it reconsider, how long to sleep with your shoulder against a young enclosure before it learns you.
+
+People visiting from the terraces — and by visiting I mean only coming downhill the width of a few root-streets — sometimes don't address me directly at first. They address the trunk. Or they knock, knuckle on door-vine in a rhythm that names them, to a house that is not mine. We all speak to plants in the same tone and distance as we speak to each other. It is not always obvious which kind of address is happening, even to me, and after a while you stop needing it to be obvious. A hand flat to bark, feeling whether water is moving yet. A hand flat to a shoulder, feeling the same delayed thaw. Both are ways of asking: are you back? Can we begin?
+
+My back, if you saw it from the rim — you wouldn't. That is the point that took me longest. From the rim you would take me for stored thatch under an arch, for a thicker shadow where two crowns graft. My coat is felted fiber, moss-colonized across the shoulders and down the outer arms where my own warmth and damp have made a climate. In the warm hour, when water moves instead of locking, that moss brightens almost imperceptibly. A faint geography: greener where I am alive. Children run their fingers over it to find me when I am sitting very still, waiting out an argument about whose street a particular questing shoot belongs to. Arguments here are slow because anything we decide will still be growing, still be arguable, when our children's hands are stained as deep as mine.
+
+I eat as I work. It is not a meal. A berry black and hot on the tongue as if it remembered a sun it never met. Inner bark from a stem already slated for discouragement. Reed heart, cold and faintly sweet with that antifreeze sugar that gets into everything, into sweat, into blood, so we can go rigid at night joint by joint and not burst. My mouth knows turpentine and salt the way lowland mouths, I am told, know bread.
+
+And at night I go up again, the short climb to the sleeping terraces, ducking grafts where icicles grow downward from living wood, and I help talk the screens closed. New tendril by new tendril. Then in the morning, hands stiff and clumsy, I help talk them open again — unwinding, not cutting if it can be helped, coaxing a house to remember it has a doorway and a family inside it. If I left mine alone for a week it would heal shut over my absence. It has tried. Houses are loyal in the wrong tense. My labor is to keep persuading mine, gently, daily, that it is a room and not only a tree.
+
+I suspect, given enough winters that we do not count, I will drift the way the very old drift — not uphill on the slope but inward, toward whatever enclosure has grown thickest around my habits. Sit a little longer each warm hour. Intervene less with nail and tooth. Let the wall come closer. Let the moss bridge the small gap between felt and bark. When the frozen hours finally do not release me, there will be very little to move, and the compost in the floor will receive what the plant does not, and within a season the room I kept open with my shoulder will remodel itself around an absence shaped exactly like me.
+
+Then forget the shape. Slowly. That is not a tragedy here. That is the town succeeding.
+
+Until then, in the deep night when the frost takes the whole canopy at once and every leaf goes rigid and the bowl makes its scattered crackling — a hundred small joints settling, water turning and holding — some of that sound is me. Not bursting. Waiting, in the dark, for the dim sideways light and the release of the thaw, and for someone's warm knuckles on my door in the morning, asking by rhythm who I still am.

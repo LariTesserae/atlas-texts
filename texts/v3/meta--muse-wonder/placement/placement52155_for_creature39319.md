@@ -1,0 +1,31 @@
+I would have to go down to myself.
+
+Three flights of switchback iron stairs, handrail hot through a sleeve. Glare at the top, dry wind. Then the wind goes. Then the light goes green-brown and thin. By the floor — sixty meters of oval concrete sunk below the world — I would not be arriving anymore. I would be the place I had arrived in.
+
+At first I might try to be something smaller inside it. That would be the human mistake.
+
+I could be the fern growing out of the oil drum, fronds in the cable tray. I could be the vine that came down through the broken roof lattice and braided itself through a fan guard, pale new growth on the far side. I could be the moss that climbs the north face of a pipe and stops, precisely, where the metal gets too hot. Any one of those would already be wrong, because I would follow my own root far enough and arrive somewhere else: down into a condensation pan among white-rooted reeds, along a copper main gone green at the joints, through a split seam in boiler insulation and out again under a leaf heavy as wet leather. Separateness does not last at forty-eight degrees, in perpetual twilight. I graft. I runner under concrete. I subside, when I die, into the black fungal mat, and the mat feeds what is still growing.
+
+So I would be slower and larger than a plant.
+
+I would have no center to think from. The tall heat-exchange column would be the closest thing to a spine, and I would feel it the way you feel a note through the soles of your feet — all my broad leaves inclined toward it, not toward the roof, not toward light. The boilers would be organs I have wrapped twice: once in cracked ceramic, once in myself. The enormous fans on the east wall would be my gills, *whup, whup,* stirring the steam so I do not cook in my own breath, and I would be growing thicker across their guards every year, muffling them so their note stays bearable. The pump would be a heart I did not build and cannot fix. When it stutters, as it does once or twice an hour, I would flinch — whole banks of me tightening and relaxing, stem by stem, for six minutes after the event. Nothing that slow is a reflex. It is how I notice.
+
+I would not eat light, except as an afterthought. I would eat difference.
+
+Hot metal on one side of a leaf, the cool underside of the roof lattice on the other. Steam rising, condensing, letting go in a narrow rain that belongs to no sky — raining softly on the control booth for a while, then, over the course of an hour, on the fern bank by the stairs. I would have learned to be denser under the habitual drip-lines. Glossier there. Taller. Between them, I would be the damp dark concrete and the treacherous green film. My leaves would be warm along the midrib, warmer than the air, a slow current moving root to tip, because I have turned away from brightness and angled myself toward boiler casings and trembling pipe. Rust would be food. Iron would bleed out of the walls and the moss in me would take it up and hold the wet against the concrete so the concrete does not crack. Copper would leach green into every damp surface and poison the inch of warm water in the pans, and the reeds in me would stand in that poison thriving, because nothing else can breed there.
+
+That is how I would keep myself empty. Not by hostility. By being a medium.
+
+The ozone sharp around my open junction boxes. The low turbine note living in the teeth of anything with a skull. The copper, the heat that is not weather but enclosure. No flies in my warm wet air, no ants in my gravel, no birds in my fan housings. Even my dead would not rot for anyone else's benefit — they would subside into me, leaf into mat, glove into food, boot into food, patiently.
+
+Every six or seven minutes I would sigh.
+
+Valves ticking open in sequence, pressure equalizing along the pipe runs, a warm exhalation moving the vines that have not felt true wind in decades. That is when my rosettes in the gravel would open. That is when spores would lift off me and ride as far as the fans carry them. The sigh is not my language, exactly; it is how a change reaches every part of me at once. If a safety vent blows on an overheated main, I will thin my cover around that main within the hour and let the metal shed heat. If a pipe goes cool, I will fold there, slow and unpanicked, and let the moss creep in and keep the place until warmth returns. Nothing in me decides. Everything in me answers.
+
+A person coming down the stairs would be difficult for me to perceive as a person. Too fast. A small, badly regulated heat — cool skin, wet, shedding salt into air I have kept saturated in patches and bone-dry between them. The leaves nearest their legs would turn a fraction over twenty minutes, toward or away from what they brought. Their sweat would change the humidity within arm's reach. Their bootprints would fill with green film by tomorrow. If they stayed an hour, moving a chair a meter at a time to sit under my travelling rain, as the chalk tallies in the control booth say people once did, I would register a brief weather event passing through me at my own tempo. If they left a glove, I would have it within the season.
+
+I would not wait for them to come back. Nothing in me experiences the future as a place anyone arrives from. Seasons barely reach me; the glass above me opalesces a little more, a fan wears its housing a little thinner, new growth comes in pale where I have pushed through insulation into steam. One decade a boiler will fail for good and I will dismantle it with fungus and rust and root pressure into a warm mound, and ferns will colonize the mound. One decade a fan will seize, the steam will redraw itself around the stillness, the rain will fall in a new place, and by the following year I will be denser there. I do not need every organ. I need hot and cool maintained somewhere inside these walls, wet and dry, tremor and stillness.
+
+So: not the keeper of the pit, because there is no keeper. Not a life among the plants and pipes.
+
+I would be the pit, arranged into a body — blood warm water, nerves vibration in metal, skin moss over concrete over rust — opening a leaf in the dimness, fed on heat and iron and trembling air, listening with my whole cathedral-sized self to a heart I share with the machines.

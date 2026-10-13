@@ -1,0 +1,43 @@
+It should be cold up here. That is the first wrong thing.
+
+You come up the switchback road for two miles through thin, pale air, expecting wind and a tightening in the chest, and instead heat rises to meet you on the last ascent. It comes through the basalt under the road, through the soles of your shoes. The plateau of Sarrat Alto opens ahead of you — broad, regional, big enough to lose a weather system in — and it is steaming in dim light, like something lifted still dripping from a bath.
+
+The sun is up there, but you would not know what hour it is by it. A low, brown-grey canopy hangs over the whole basin, not cloud exactly and not fog, but the city's own breath made permanent. Hot ground, cold high air. Moisture rises, hits the thin chill above the rim, condenses, sinks, is heated again. The light that reaches the streets is filtered through this slow circulation until everything is the color of wet amber and ash. At noon it is dusk-colored. At dusk the streetlamps — sodium, industrial, still lit on their timers — hardly change anything. They just make pools in the murk where the steam is more golden.
+
+And it is a city. Unmistakably, undeniably urban.
+
+Terraces of apartment blocks climb the inner slope of the old caldera, five and seven stories high, built of pumice-concrete and black volcanic stone, their roofs layered with pipes and cooling fins. Factories with tall, fluted towers occupy the flat center. There are markets with iron canopies, a railway siding, reservoirs, bathhouses, administrative halls with colonnades, aqueducts on arches marching from one district to the next, substations, workshops, schools with their names carved in lintel stone. It has the density of construction of a place made for a hundred thousand people.
+
+It has almost no one in it.
+
+Street after street stands hollow. Windows are open holes, or filmed blind with mineral scale. The great market hall could hold a fair; inside, rain falls gently from its own ceiling, drop by drop onto empty stalls, because warm wet air collects under the iron roof and condenses there even on days — especially on days — when outside it is not raining at all. Entire tram depots are vacant except for a single car, parked, ticking as its metal contracts and expands. Between one inhabited boiler house and the next lit window there might be a quarter mile of silent facades.
+
+The emptiness is not ruin, exactly. Sarrat Alto is old, and settled into itself. Steps are worn into shallow dishes. Drainage channels in the basalt have been polished smooth by a century of hot runoff. Doorways have been re-cut when floors rose with salt deposits. It has the balance of a place that found its final form long ago and now simply maintains it. What maintains it is mostly machines.
+
+Because this was never quite a city for living in. It is a city built as an apparatus, and people fitted themselves into its spare corners.
+
+Its industry is water and heat taken from the earth. Under the plateau the rock is fractured and close to magma. Wells drop everywhere between the buildings — cased in copper gone green, in riveted steel gone red — and they weep and sigh and sometimes, on their own schedule, throw columns of scalding water twenty feet into the dim air. The pumping stations take that water in. Long, slow piston engines, flywheels turning at walking pace, move it through mineral separators, through lithium pans and sulfur settling beds, through cooling towers shaped like hollow apartment blocks. Those tower-homes nobody ever lived in: their rooms are vertical shafts, their windows are vents, their balconies are catwalks for inspecting scale. From the road below, the whole skyline sweats.
+
+Water is nearly everywhere, and almost none of it is kind.
+
+It runs in open channels down the centers of streets, too hot at the source to touch, steaming, milky with silica. It condenses overnight on the undersides of bridges and rains upward-tasting of iron in the mornings as the stone warms. It beads inside your sleeves. It finds old routes. The masons here learned that porous basalt remembers a channel; block a drain and seal it with concrete, and within a season the wall beside it will darken, bloom white with salt, and begin to drip along the ghost of the original line. So the engineers stopped fighting it. Buildings have gutters inside their hallways. Houses have interior rain chains. The railway station has a beautiful, permanent waterfall descending its main stair, diverted three times, now accepted as architecture and marked with a small plaque.
+
+There is no green. Nothing with leaves can hold here.
+
+The runoff is too hot, too alkaline, too full of boron and sulfur, and the ground itself sterilizes seed. Courtyards that in another city would be gardens are raked fields of volcanic glass and white crust. What life exists is simpler and more mineral than plant: microbial mats in the cooler edges of the channels, ribbons of mustard-yellow and milk-white and rust-red bacteria that thicken, tear loose, and regrow in a few days; a pale slime in the cisterns that cleans the copper and must never be scrubbed entirely away, or the pipes begin to corrode; tiny blind shrimp, translucent as fingernails, in the deepest reservoir — rarely seen, only when a filter is pulled for maintenance, twitching in a bucket, a brief rumor of animals.
+
+Fauna otherwise is a rumor too. A lizard on a hot wall, gone before you focus. Moths around the substation lamps at night, their wings edged with damp. Once, perhaps, a high thin bird crosses the steam above the caldera rim and calls, and the sound seems to come back to you minutes later from some hollow tower, altered.
+
+Mostly it is quiet. That is strange given the engines, but the air is so saturated it eats sound, and the machines themselves were built large and slow. You do not hear the pumps so much as feel them through the pavement, a pulse in your teeth, a thud in the sternum every four seconds. Far off, a pressure valve sighs. Near at hand, dripping. On metal roofs, the irregular ticking of expansion moves from one sheet to the next like something walking just out of sight. When a cooling tower purges, there is a soft, enormous exhalation and the street disappears for a minute in warm fog that smells of wet iron, hot dust, sulfur, and faintly of boiled stone.
+
+The human rules developed accordingly, and some of them are still posted, enameled signs gone cloudy:
+
+Drink only from the blue pipes; the clear water from clear pipes will take the enamel off your teeth and then the rest of you more slowly. Never close a building completely — a sealed room will fill with its own weather and burst its windows outward within the week. Leave doors pinned, leave vents pinned, let the city breathe through your house if you take one. Do not store paper below the second floor. Tools will be longer by evening than they were in the morning; measure twice, at different hours. Sleep, if you can, in the hammock rooms slung high in the ventilated halls, where the caretakers — and there are caretakers, a few dozen people for all this, boiler-tenders and channel-walkers and one woman who maintains the clocks — rest through the worst of the artificial afternoon, when the heat stacks up under the condensate ceiling and even the steam seems too tired to rise.
+
+They keep the system cycling because if they stopped, the wells would not. The city would fill from below. So the flywheels turn for no market that still exists, the separators fill pans with salts that are carted to a siding and sometimes taken away, and the reservoirs discharge in timed, steaming floods down the polished runnels, out through the southern gate to terraced evaporation flats that shimmer dimly for miles.
+
+Late in the day the cycle completes. The canopy thickens, the light fails to bronze, the built-up moisture over the factories finds its weight and falls — a warm, sudden, strictly local rain that drums on iron canopies, hisses in the hot channels, fills every interior gutter at once. For ten minutes Sarrat Alto is loud with water arriving everywhere it has been trying to arrive all day. Then it thins. Runoff gathers. The pumps change pitch by a fraction. Under the plateau, something deep shifts and a new well begins, patiently, to weep through a seam in a courtyard where no well was drilled.
+
+The caretakers will note it in a ledger upstairs, where paper keeps. They will not try to seal it.
+
+They will cut it a channel, give it a name, and build — if it lasts — a small roof over it.

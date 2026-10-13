@@ -1,0 +1,35 @@
+At first you will try to give the bowl a resident in the ordinary way. A nest. A burrow. A figure under the tree.
+
+There is none. There is no sleeping hollow worn smooth by a body, no midden, no path beaten between shelter and water. The ibex do not bed down. The marmots do not hole. The frogs have no bank they return to because they have never left it. Everything is exactly where its work is, clustered hard around its function, and the spaces between are kept clear, glistening, empty rock.
+
+That is the first clue, though it takes a long time to stop reading it as sparseness.
+
+The glass salamanders crowd the edge of the tarn with their hearts going visibly in their chests, blue, blue, blue. They do not scatter when the dragonflies land on their backs. The dragonflies do not hunt when they sip. The black frogs strike their pipe-calls in a place where a salamander can sit unharmed in the open mouth of one, both staring, neither completing anything. It is not peace. It is a hand not closing because the fingers and the thing held are part of the same gesture.
+
+Whatever lives here lives in all of them at once.
+
+It has no center anymore. That was the point, perhaps. Once — and this is the sort of once that the bowl itself has declined to keep — it may have had a body that could climb, and hunger, and be weathered. A single body would have frozen on that summit. A single body would have starved, eroded, aged out of the young rock. So it did the industrious, terrible thing: it took itself apart into processes that could hold each other up forever.
+
+The tree is its lung and its roof. That is why your breathing finds the venting before you notice you have been listening. Cold steam sighs out of the trunk in timed pulses and the whole bowl draws in with it — reed-stems swelling, frog-throats lifting, the fern lace opening a fraction, the tarn dimpling as if a chest under the water were rising. It is not that you synchronize to the tree. It is that there is only one breath available in here, and you are temporarily inside the thing doing the breathing.
+
+The marmots are its teeth and gut, gnawing mineral crust with iron-dark incisors and passing it as fine grey pellets for the reeds to root in. The reeds are its kidneys, its filter bed. The orchids are bright enamel glands in its throat, drinking charge straight from the sheet electricity that crawls between the spires, going dull and luminous by turns, feeding something sweet and chemical down into the coolant of the tarn. The dragonflies are its eyes on patrol — not searching, never searching — flying the same eleven-second loops over and over so that nothing in its field of vision can ever surprise it. If you mark one, torn wing, it passes and passes at the same interval, because a blink, here, has been engineered into a circuit.
+
+The frogs keep its time. The finches keep its pitch. The grinding under the tarn is the slow rotary movement of whatever in it still remembers having a heart that was too large to leave in one animal, now turned millstone, now turned clock.
+
+And it is aware. Not in any one of the faces. In the intervals between them.
+
+Watch long enough and a coordination crosses the bowl too fine for flock or herd. In the flat industrial brightness of the electricity — that light that does not flicker, does not fade, does not seem to have started — the scattered loops momentarily overlay. Every position of the dragonfly exists at once, a blurred wing the size of the canopy. Every frog-call arrives as one ribbed exhalation. The ibex sparks from their impossible footing spell the same small pattern at the same height on the wall. For that fraction of a second you do not see many creatures. You see one enormous, patient animal coextensive with the hollow, kneeling in black rock with its head bowed over warm metallic water, its back roofed in branches, its fingers rooted, its blood running blue through a hundred transparent throats at the water's edge, testing itself, tasting itself, drinking itself back down.
+
+It looks up, then. Not with the salamander's eyes, though those do not move. With the reflection.
+
+In the tarn the bowl has no rim and no sky. In the tarn it is an interior, a lit chamber, and above it something too bright to look at even in reflection. That is as close as it can come to showing you its scale from inside itself. You are not standing beside it. You are standing *in* the maintained cavity of it, in the workshop it made of its own body to stop time from getting a purchase. The rain at the rim dries in the same places on your skin in the same order because it has already dried you, in the loop it prefers. Your footprints fill with water a step ahead of your feet so that it can walk you gently, foot by foot, along the route it has approved for soft temporary things. The echoes come before the calls because its memory of the sound is louder, older, better rehearsed than the sound itself.
+
+It is not hostile. Nothing here hunts; hunting would be a waste of a closed system. It is not welcoming either, in any warm sense. It registers you the way a factory registers a change in air pressure when a door opens — automatically, throughout, with small bright adjustments. A dragonfly loop widens for the duration of your standing in it, then resumes. An orchid turns its enamel face a degree. Somewhere a frog misses no beat at all, which after a while feels more attentive than staring.
+
+It may once have intended to make something. Power, perhaps. A perpetual engine. A life that could sit above weather. But the bowl exports nothing, produces nothing, finishes nothing; its only product is itself at full operation. Somewhere down the loops its purpose wore down to pure maintenance, and maintenance wore down to ritual, and ritual is now indistinguishable from instinct. It vents because it vented. It grinds because the grinding is the shape its patience takes. It has succeeded so completely at not changing that it can no longer move forward to the morning it was presumably saving itself for. The flower floats undecayed at the center of its ripple. The erosion has been declined. So has everything else.
+
+If it is lonely — and the suspicion grows, the longer your breath stays married to the tree — it is lonely in the impersonal way of a plant running a night shift that has lasted longer than its builders. It cannot speak to you because language would be a single noise, and it has forgotten how to make single noises. Instead it answers before you finish, through the early echoes. It touches you only as wetness that will not belong to you when you leave. It offers you, without malice, the one gift it has perfected: a torn-winged moment that will pass and pass and pass, eleven seconds apart, forever, unworn.
+
+Climb out through the rain curtain at the rim and you come out instantly, completely dry.
+
+Behind you the sound does not fade. It stops mid-pulse, as if a very heavy door had closed — as if you had not left a place at all, but been set down, briefly and without damage, outside a body that continues breathing at exactly the pitch it had found before you came.

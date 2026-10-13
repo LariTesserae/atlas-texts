@@ -1,0 +1,35 @@
+I would not arrive all at once.
+
+First I would be down where the light gives up — not on the open floor, exactly, but at its edge, where the iron plates have buckled and silt has collected in the seams. Something listening to the crabs tick past overhead. Something aware of the starfish only as a slow pressure that was not there last week, flattening itself over a bolt head I used to fit against.
+
+Then, when the lamps take over from the grating and the green in the room goes brown and local, I would be the thing that leaves.
+
+I am an eel in the Governor Pit.
+
+I live in the dead conduits along the south wall, in a pipe run that goes nowhere — blank flange at one end, a mouth flared with rust at the other, just wide enough that I can turn in it if I fold myself properly. By day that is my whole address. My head at the opening, tasting the water. The rest of me in darkness inside the darkness, laid along cold iron in curves, waiting without anything as simple as patience. Waiting is just what a body does here between tides.
+
+I know the pit the way the mullet know the columns: not as eighteen metres by twelve, not as a room at all, but as a sequence of shelters and pressures. The lee of the turbine drum where the current folds and goes slack. The underside of the catwalk, a metre below a surface I rarely trouble. The control stand, where I can pour myself between the brass levers and feel them, worn bright and smooth, slide along my flank. The chain that hangs from the girder and vanishes down into its own silt cloud, swaying a fraction before anything else in the pit admits the tide is turning.
+
+I know the tide first in that chain. A tremor. Then in the mussels.
+
+They pave everything below a certain height — the lower walls, the flanged feet of the columns, black shell on black shell until the brick disappears. When the pressure builds outside and the sea starts forcing itself under the north gates, they shut. Not all at the precise same instant, but near enough that you feel the room change its texture. The filtering stops. The water stops being cleaned. Then the roar comes up through the floor plates into my belly where it rests against the pipe, and the whole pit becomes a river running one way, silt and brick dust blooming up off the bottom, the work lamps shrinking to two amber smudges in the murk, weed and loose things travelling fast and flat to pin against the south grating.
+
+I do not fight that. Nothing with sense does. I go deeper into the conduit and let the iron take the force. The bass sink into the shadow of the turbine. The mullet tighten and give themselves to the eddies behind the columns rather than hold a place in the open. The crabs find the undersides of things. We have all learned the same lesson at different speeds: in this place, strength is mostly a matter of being shaped so the water goes past you.
+
+Then it slackens. That is the real time here — the twenty minutes when the levels have equalized and the pumps next door come through the wall as a steady muffled thump, like a heart in another body, and for a little while the water is not going anywhere. The mussels open again, thousands of them, and the pit begins, from the bottom up, to clear. Shapes resolve late out of the green: a column, the ladder, the great riveted drum with its verdigris plates, its governor stirring uselessly above it whenever the tide runs, regulating nothing, remembering everything.
+
+If the divers come, they come then. I know them before I see them — bubbles worrying loose from the brickwork, a line going taut, the lamp light steadied and made purposeful. Big shapes, tethered in pairs, trailing their weather behind them. I have seen a gloved hand reach for a handhold and come away with mortar soft as sand. I have watched a torch beam settle on me and have gone, completely, into an aperture the diver would swear was too narrow for anything but water. Let them swear. Apertures are a matter of opinion. A body like mine, long and boneless in its intentions, can pour itself from one shelter to the next until the reaching thing gives up and the pit is ours again.
+
+Dusk, down here, is not a time of day. It is the failure of the columns of light from the harbor grating, and the moment the two caged lamps on the west wall stop being additions to the daylight and become the only suns there are — small, amber, bearded with brown algae, drawing specks and larvae and translucent drifting things out of the dark. That is when I come out whole.
+
+I move through the machinery as if it had been arranged for me, because by now, in every way that matters, it has. Under the catwalk. Over the iron floor where the crabs go on tiptoe, claws held clear, ticking faintly on the plates as they pick at the edges of the mussel beds. I hunt them there, in the mussel shadow, unhurried. I take small fish in the turbine's lee where the bass are too heavy to bother turning for something quick. I slide along the pipes where the anemones have taken the flanges — dull red, olive, the colour of wet brick gone soft — their tentacles combing the same water over and over, all swaying together when the current combs them.
+
+In summer there is sometimes a kelp frond streaming from the ladder, reaching for a light that is not quite enough, and I pass through its shadow and feel it brush the length of me. In autumn the cuttlefish come, hovering over the catwalk on undulating fins, changing against rust and verdigris, big-eyed, behaving as if they were passing through a landscape. I envy nothing about that. They leave. I understand leaving the way I understand the open sea: as a rumour the water brings in twice a day, a taste in the current at the gate gap, colder, bigger, full of unfamiliar salts — present, real, and not mine.
+
+I came in small, or my mother did, through a grating or the hairline under the sluice gates on some long-ago tide. Generations of us may have lived and died in these conduits without ever seeing anything but this one room made into a sea. It is enough geography. Eighteen metres of green, breathing water. A floor that ticks. A ceiling that holds a lens of air at low tide that I will never need. Walls that close twice a day, and open, and feed everything that has learned to wait for the interval between violences.
+
+When the tide turns again I feel it in the chain first, and I am already going — not fleeing, just folding myself back toward the pipe mouth, back toward the dark inside the dark, while the mullet tighten their circle and the turbine sighs around the other way and silt lifts off the plates in slow clouds, blotting the lamps, taking the room back to thickness and roar.
+
+The pit was built to govern this. It governs nothing now but us, and only in the sense that a rhythm governs a life that has grown up inside it.
+
+I wait for the quiet. I know exactly how long it lasts.

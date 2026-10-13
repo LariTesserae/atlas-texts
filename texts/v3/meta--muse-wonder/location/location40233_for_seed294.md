@@ -1,0 +1,43 @@
+There is no valley where the pass should open out.
+
+You come up through thinning, cold air, over a saddle worn almost featureless by weather, and instead of a town in a hollow or a meadow with a river through it, there is a lake held impossibly high. It fills the whole bowl from rim to rim. Under dim, overcast light its surface is slate and hammered silver at once, dragged sideways by gusts, then smoothed again. Only when a gust clears it do you see that it is not deep in the way lakes are deep.
+
+Under the water, very close beneath it, are roofs. Streets. Terraces descending in broad steps.
+
+Everything under there is made.
+
+You go in from what was once a causeway, now a long spine of paving just breaking the surface, slick and black. The cold takes your breath in a clean, mineral way. It is snowmelt cold, river-head cold, with no summer in it. Below the skin of wind the water should be stiller. It is not.
+
+It pulls.
+
+Not in one direction, like a river, but in many, all at once, arguing. A current takes you left along a submerged boulevard while ten feet deeper another takes suspended grit right, fast enough to sting. In a wide plaza an upwelling simply lifts you, turning you slowly, full of bubbles and tiny stones ticking against stone. Over a staircase a down-flow presses, neat and irresistible, precisely as wide as the stairs. It is turbulent everywhere, and almost quiet. No roar. Just the muffled knock of a loose slab somewhere, the soft clatter of pebbles rearranged in a gutter, your own breath made large.
+
+The quiet is the strangest part for the first minutes. The water is visibly violent — scarves of silt tearing around corners, vortices standing upright in doorways, spinning fast enough to bore pale spirals in the sediment — but stone and cold and depth swallow the noise of it. The violence arrives mostly in your shoulders, in being suddenly wrong about where down is.
+
+Nothing here is natural ground.
+
+Even at the far edges, where the lake meets the rim, the rock has been cut away and replaced. The floor is flags. The slopes are retaining walls. The apparent hills under water are hollow — cisterns roofed over and paved, their domes now shouldering up through the lakebed like the backs of whales. What looks from above like an island is a valve-house; what looks like a shore is a spillway lip, worn perfectly smooth.
+
+And worn is not quite the word. Eroded, to a final form. Nothing sharp has survived. Balustrades have become swells in a railing-sized ridge. Inscriptions are fields of dimples. A colonnade along the main avenue is still a colonnade, but each column has been river-rounded, narrowed in the middle by centuries of passing water, so they stand like patient, hourglass bones. Statues in niches have lost faces, fingers, insignia; they are human suggestions, polished. Doorways are ovals. Steps are scoops. The whole place has been tumbled in place, too large to move, until architecture and cobble have nearly become the same thing.
+
+There is no plant life to soften it. No kelp, no weed in the joints, no green on the sunward walls. The scour prevents it, and the cold, and the dimness that never quite becomes darkness. Ten, fifteen, twenty feet down the light is the grey-green of late afternoon in winter, enough to see districts away along a straight canal-street, never enough to warm a color. What lives on the stone instead is a faint mineral skin — white bacterial mats in the lee of blocks, rust films around old iron stains where fittings vanished long ago, freshwater sponges the size of fists in sheltered corners, mustard-grey and porous, pulsing almost imperceptibly.
+
+And yet the place is crowded with animals.
+
+That is the next correction. First you think: flooded ruin, dead city. Then a school of char — hundreds, silver-flanked, cold-water fish with pale spots — comes down the boulevard in a single coordinated flicker, using the cross-current rather than fighting it, and vanishes all at once into holes bored in a wall. The holes are regular. Rows and rows of them, at different heights, in walls that have no windows. Loaches are in the gutters. Crayfish back slowly across the polished plazas at midday as if across ice, claws raised into the flow. Mussels have cemented themselves in the angle of every step where the rush falters for an inch, black shells half-open, filtering. In the deeper basins, eels occupy the drains and come out in braided, unhurried groups when a siphon changes. Otters cut down from the bright surface, turn once in a doorway full of bubbles, and are gone into a roof-space where there must be trapped air.
+
+The animals know a timetable you have not learned yet.
+
+At intervals — eleven minutes, perhaps, perhaps nine — something in the system shifts. A basin to the east finishes filling over a sill, a stone siphon buried in a wall catches, and an entire district quietly empties itself into the next one lower. No gate moves. There are no gates, no wheels, no chains, no machinery at all to find; only levels, lips, U-bends of dressed stone, gravity, and water doing what water cannot help doing. The flush is sudden. Fish leave the open streets. Crayfish flatten. A street that pulled left now pulls hard right, and the vortex in the plaza doubles and sheds smaller vortices that travel down side alleys, carrying leaves that cannot exist here — wait, not leaves: pale shreds of sponge, a feather, a drowned moth — detritus rained or washed in from the world above, which is what, in the absence of any weed or algae, feeds everything. The lake eats the mountain weather: insects, pollen dust, carrion flies, snowmelt full of grit. The mussels strain it. The fish eat what strains and crawls.
+
+Then you understand it was never a town.
+
+The proportions give it away once you have drifted three or four districts, past the sparse, widely spaced valve-houses and the long, empty sorting terraces. These were not houses. Those long rooms were tanks. The avenues are flumes. The plazas are settling basins, their centers dished toward drains. The rows of holes were refuges, deliberately sized, for fish to escape the main force of a flush. The broad stairs are fish ladders, or water ladders, or both — each tread a pool, each pool a pause. Even the statues were gauges: waist, knee, ankle, marked in bands now almost erased.
+
+Someone, using nothing that remains to be called technology — no metal that lasted, no engine, only cut stone and an exact understanding of levels — built an entire high valley to be underwater. They quarried out the original bottom and rebuilt it as a machine for moving cold water slowly enough to clean it and fast enough to keep it alive, terrace by terrace, before letting it fall away to somewhere below the mountain. Then they left, or the maintenance left, or the distinction stopped mattering. The siphons go on without them. The erosion has simplified everything toward the shape water would have chosen anyway, which may have been the intention all along.
+
+At the center the terraces turn inward to a spiral basin, the one place where the sound rises — a low, continuous boom through the stone, felt in the teeth. Water enters around the rim and leaves, you sense rather than see, through a throat under the lowest dome. Standing columns around it vibrate faintly. The spiral tightens, clears, tightens again. Fish circle it at a precise distance, thousands now, a living ring taking oxygen from the churn, neither swept in nor willing to leave. Beyond them the surface above is brightening and failing as clouds move. A snow squall crosses the lake, needling it white, and for a minute the underwater light goes almost to dusk and the whole system — streets, tanks, cisterns, walls — is only looming smooth masses with currents drawn visible in snowmelt clouding down through them.
+
+You cannot rest here. That is one of the rules. Every ledge slopes a degree or two; every floor carries you on. Handholds have been polished away. The air pockets under domes are old, cold, and smell of wet lime, and the otters will watch you from them with more claim than you. The only stillness is inside the refuge holes, inside the deepest tank corners, inside the brief moment between one siphon letting go and the next catching, when for perhaps twenty seconds the whole drowned valley holds its breath, fish hang motionless in doorways, grit settles, and you can hear, from somewhere far above the surface, nothing at all.
+
+Then a sill spills. A bend catches. The pull resumes, patient, chaotic, ancient — and the place goes on working, empty of people, empty of plants, full of water and animals, at the top of the world.

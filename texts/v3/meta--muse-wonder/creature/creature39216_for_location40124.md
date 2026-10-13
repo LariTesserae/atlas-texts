@@ -1,0 +1,31 @@
+Nothing lives there, in the way a place is usually lived in.
+
+That is the first, mistaken impression, and it takes a long time to correct itself.
+
+You look, at first, for the keeper. There ought to be one. A catchment this size cannot tend itself — the pans want sweeping, the drains want scraping, the oak sluices want lifting and lowering with the seasons. So you look for a hut tucked against the valley wall, a smoke-hole, a store of baskets and rope, a bed. But there is no wall that is not a basin and no flat that is not a pan. There is nowhere a hut could stand without plugging a funnel. Nowhere to lie down. Nowhere to be dry, or in shade, or off the work itself.
+
+Whoever tended it must have come up the stair in the morning and gone down it again at night, like a man visiting a machine. Their hands are still in the place — in the lever polished dark where a palm turned it, year after year, in the grooves where a rope ran, in the chisel-marks, parallel and patient, in stone that has never softened — but the hands are not. No foot but yours has broken the little crystal gardens in the corners lately. No voice carries. No bird crosses down to drink the bitter water and risks that broken, ten-thousand-fold light.
+
+And yet the valley is not empty. It is occupied, completely, rim to rim, by the thing that was built there.
+
+It has taken the place of ground. It has taken the place of weather, too. It makes its own rain in miniature. All day the cold stored underneath it rises through the stone, and the bright mountain air, touching that cold, gives up water it did not know it was carrying. Beads form on the domes. Funnels sweat. Walls darken to their tops on the shaded side. At night a sheet of mist settles on the broad central pans and is caught before it can lift, filmed and glittering before sunrise. What falls into it goes down through throats of clay pipe into the dark, and what is lost in the day sighs up again through the ventilator shafts and condenses in the night. It drinks, it sweats, it drinks again. A loop so slow it is easy to call it inanimate, until you have spent enough hours on the rims to understand that slowness is only its scale.
+
+Under your feet is its body.
+
+Not a lake, not a river — water kept in vaults and cisterns, in a second, inverted town of pillars and arches that no one enters. That is where the life of the place retreats in winter and gathers in summer, settling a fraction higher, a fraction lower, behind stone. You cannot see it. You can sometimes hear it if you kneel on the wet limestone and put your ear to a drain: a trickling far below, a hollow *plink* arriving from a distance you cannot judge, a deep tick at dusk as the cold stone contracts. When the wind finds one of the hooded shafts that rise from the reservoir, the whole hollow underneath speaks for a second — one low, empty note, like air across the mouth of a jar — and then thinks better of it.
+
+That water is the only inhabitant that stays the year round.
+
+It is not kind water. It is bitter with lime and salt, white on the lips, drying to drink. Nothing green can take hold in it, no insect can skate it, no moss can find a purchase in the shade. It does not nourish; it preserves and deposits. It furs every rim with mineral crust. It lays down tide-rings in the funnels, pale on paler. Where it stands longest, it skins itself smooth as glaze, and grows, in the undisturbed corners, small branching gardens of crystal — clear, salt-white, frost that never melts. They grow a fraction of a millimeter in a season. A careless boot breaks a year's work at a step. They begin again, without resentment or hurry. They are the nearest thing here to flora, and they are stone pretending at botany, grown by the water out of itself.
+
+So the valley is inhabited after all, but by a single, spread-out, mineral creature of human making that has outlasted the brief, warm animals who made it.
+
+It has no face to turn to the sun; instead it has ten thousand small mirrors, each pan and trough throwing light back until there is almost no shadow in the place. It has no mouth; instead it has funnels in the east, deep and stepped for storm rain, and shallow pans in the center for dew, and settling troughs in the west where it rests and clears and drops its white load before sending one modest stream out through a stone doorway, downhill, toward people who may or may not still be waiting for it. It has no hands; the water itself now does what hands once did, equalizing level to level through channels underground, swelling the oak gates shut, leaving them open. It grows its own white skin faster than weather can wear it away, so that it looks forever newly made, knife-edged, uncovered only last spring. It is always, in effect, repairing itself by accretion, one crystal, one bead, one lime-ring at a time.
+
+You cannot join it. That is the final clarity the place offers. You are the wrong tempo entirely — you need dry ground, food, fire, a night's sleep, and it offers none of these, only a narrow rim between one water surface and the next and a wet boot by the second hour. You burn and shiver at once on it. You leave salt on your mouth. To live here you would have to stop being an animal and become a process: cold underneath, bright on top, patient across seasons, feeding on rain and night air, exhaling a single low note when the wind chances on you, growing gardens no wider than a thumbnail in the places where you are left alone.
+
+Perhaps that is what it has done, slowly, since the keepers stopped coming up the stair.
+
+Behind you as you descend — as the masonry gives way, all at once, to unshaped mountain rock — the valley goes on shining without you. The condensation is already forming on the eastern sides of things. A bead loosens and runs down a funnel into a hole no wider than a wrist. Below, in the dark, the stored water takes it in and gives up its cold to the stone, and the stone gives that cold to the evening air, and the air, faithfully, begins to weep again.
+
+Drop by drop, in silence, for no one.

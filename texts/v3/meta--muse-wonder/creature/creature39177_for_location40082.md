@@ -1,0 +1,33 @@
+Nothing can settle here.
+
+The orange and sulfur-yellow film in the warm cracks tries. It learns, for a few days, how to hold to new stone. Then the stone splits under it, or turns, or rises and spills it off, and it has to begin again somewhere else. The salt crystals try, blooming white and perfect around the vents in the night. By morning the ground has ground them away.
+
+What lives here has learned not to try to stay.
+
+They are the people you almost never see, only the evidence of: a cairn newly restacked after its lean became dangerous, a ring of stones still warm where someone slept, a line of measuring posts driven into rubble and already going out of true. They come up through the dust-sea from the lowlands and, unlike anyone else who makes that climb, they do not come back down again the next day.
+
+They live by walking.
+
+There is no village on the plateau, no house, not even the pretense of one. A house needs a floor that will keep its agreement with the walls. Instead they carry their habitation in habits: sleep in the middle of the old, thick flows, never in a hollow, back against the warmest stone that does not burn through cloth. Build the windbreak ring each evening, opening turned not from the wind but from the newest crack. In the morning, scatter nothing, leave the ring. It may be useful to whoever comes behind, if the ground has not already rewritten it.
+
+They are guides and measurers and, in the brief hours when the crystals are perfect, gatherers. Below, in the brown dusk under the canopy, people want to know how fast the center is rising, whether the pass that existed last spring still exists, where the edge has advanced. They want the blue-black stones streaked with copper that has not yet dulled, the sulfur flowers, the salt needles harvested in the dark before the mountain reclaims them. So the cairn-walkers keep the route legible for another week. They move the cairns when the cairns begin to lie.
+
+Their bodies have been edited by thin air and no water.
+
+They are spare, not from hunger exactly — though all food is carried up dried, in packets, and tastes forever after of dust — but because nothing soft survives the climb. Their chests deepen over the years. Their breathing slows to something economical and labored even in sleep; you can hear it in the quiet when you cannot hear a rockfall a valley away. Their mouths are always a little split. They speak close, face to face, because sound does not travel and shouting wastes moisture. Much of their language between distances is not sound at all: a stamp felt through stone, a flat palm laid down in greeting and assessment at once — how warm here, how restless, how near to breathing out.
+
+They go wrapped despite the heat. The warmth is geological, not kind; the wind is warm and still it desiccates. Cloth over nose and mouth, cloth over hair, leather over eyes when dust sighs across the plateau, replaced at once by open faces at night. Their eyes forget the sun. Up under that close black sky they navigate by hard, unblinking stars and by the remembered tilt of ground that is no longer quite as remembered. Their pupils stay wide in the perpetual twilight. Down below, returned old ones are said to blink for the rest of their lives.
+
+Feeling has migrated downward in them, into the soles of the feet.
+
+Boots are a compromise they remake constantly — thick enough that the glassy shards will not cut through, thin enough that the tremor still arrives. They walk a little splayed, a little listening, stopping without knowing they have stopped when the loose stones on a slope begin to creep all one way. A good walker knows a ridge is about to shed its side before she sees the black plume hang in the air. A good walker reads the faint ringing of shards underfoot the way lowlanders read a change in birdsong, and moves uphill, calmly, not running, until the ringing stops. Balance is not a sense to them. It is the sense.
+
+They grow inaccurate with age in the one way that matters here. The inner ear dulls. The tilt comes late. Then they go down through the dust while they still can, or they do not, and the plateau keeps what it is given. Wind-borne things from the lowlands — a leaf, a husk, a feather — lie preserved for a while in hollows like offerings before burial. People are no different, except people first bury one another in fresh rubble and mark it once, without inscription.
+
+They have no maps. They have reports, memorized and recited at cairns when two walkers meet: this crack was a step-over at dusk, by waking a trench; the cone beyond the third ring has grown a hand's breadth; the post line east is leaning north now, all but the last. They speak of elevation as gossip, recent and possibly already false. What they trust is temperature taken through a palm, a night slept with one's back learning the stone, salt tasted on a fingertip — never drunk after, for there is nothing to drink that they did not carry on their own backs, sealed and rationed until the next descent that most of them keep deferring.
+
+They are not worshipful, exactly. The place is too busy to be a god and too indifferent to be prayed to accurately. But they touch the ground more than other people touch anything. Before eating, palm down. Before sleeping, palm down. Before crossing a crack with that dull red suggestion at the bottom, palm down, as if checking a sleeping animal for breath. They know the mountain is not alive. They behave, for survival, as though it almost is.
+
+Children are not born up here. No one with sense brings a pregnancy through that dry sea, and nothing would keep an infant's water in balance in this wind. Walkers arrive young from below, when lungs can still learn altitude, and the plateau takes years to finish instructing them. Some learn only the terror of it and go down safe. The ones who remain acquire a particular quietness — not peace, but attention so constant it looks like peace from a distance. They can stand at the doming center where no summit has yet decided itself and feel, without instruments, the lowlands falling slowly away beneath them.
+
+One day, in a thousand years, there may be a mountain here with rivers and soil and things rooted in it, and people who belong to it in the ordinary way. These are not those people. They are its temporary, unrooted precursors: warm-backed, cracked-lipped, listening through their feet, restacking the same stones a little higher each time the earth unmakes them — alive here not by settling, but by agreeing never, ever to stop moving.

@@ -1,0 +1,39 @@
+There is a room under the hill that has not finished becoming a cave.
+
+You find it by accident, because from above there is almost nothing to find. A shallow dip in cool grass, a place where the ground gives a little under your knee, like the soft spot on an infant's skull. Between roots and loose chalk there is an opening just wide enough to wriggle through on your belly. You expect darkness on the other side.
+
+Instead, you slide into brightness.
+
+It is pocket-small. Twelve paces across if you walk slowly, perhaps four paces high in the middle where the ceiling domes up, though the ceiling does not hold still long enough to measure. The walls are low all around, curving in. Everything is below the surface — soil and root and stone above you, no sky, no shaft, no crack wide enough to account for it — and yet the light is stronger here than it was outside. It is a clean, white, midday light. It gives no heat.
+
+It also has no source. It does not fall. It gathers.
+
+It pools brightest in the empty center of the room, in a column of air where nothing stands, and thins toward the edges. Dust motes drift through it and vanish and reappear a hand's breadth to the left. Your shadow does not follow you in. If you look back at the entrance hole, you can see something dark and patient flattened against the dirt there, waiting for you to come out again. Inside, your hands cast no shadow at all, or sometimes four very faint ones, all disagreeing.
+
+The stone is embryonic. That is the only word for it. Chalk that is still soft as cheese under your fingers, sandstone that crumbles to warm sand and then, if you leave the pile alone, slowly grains itself back together. The walls are veined with new crystal, clear beads and blunt teeth growing in clusters like eggs, still wet-looking, still pliable if you press a thumbnail in. Nothing has hardened into its final opinion. In some places the rock is translucent, and the bright light glows through it from inside the wall itself, as if the geology were lit from within its own marrow.
+
+It breathes. Very slowly. Over the course of an hour the ceiling lowers a finger's width, sighs, and rises again. A ledge that was at ankle height in the morning is at knee height later, not because it has been lifted, but because the floor has politely sunk away from it. New bumps rise, hesitate, think better of it and melt back. Erosion here works in reverse and then forgets which way it was going: pebbles grow. A smooth white stone on the floor will be measurably larger by evening, sprouting.
+
+It is cool and damp in the way a cellar is damp, but intermittently, as if moisture were an idea the place is trying out. Condensation beads on the upper walls, gathers, and then — not quite falls. Some drops slide sideways. Some hang in the air below the ceiling, trembling, until they evaporate mid-drop. In the floor are three shallow bowls worn or grown into the rock. One is almost always dry, a darker stain in the shape of water. One holds a cupful of clear liquid that reflects a ceiling that is not the one above it. One fills only when you are not watching it, and you find it brimming and still, with no ripple, the surface faintly warm despite the cool air.
+
+Vegetation has barely gotten a foothold. A single fern near the wall, pale as a moth, uncurls in the morning and carefully curls itself shut again by afternoon, rehearsing. Three grass shoots, almost transparent, lean not toward the light — the light is everywhere — but toward the entrance, homesick. A patch of moss, the size of a palm, moves. Not grows, moves, a green tide of a few inches a day around the base of the wall, leaving a faint damp trail behind it. It is the greenest thing in the room and it looks provisional, like a first draft of green.
+
+And yet the place is crowded with life.
+
+Not dense — the center stays reverently empty, and there is a great deal of unoccupied air — but abundant in kind and number around the margins, in the crevices, under the ledges. Translucent salamanders with the feathery ghosts of gills they have not decided to lose. White crickets that jump and land a moment before they jump. Pillbugs as big as thumbprints, rolling into perfect balls and then forgetting how to unroll, rocking gently until they remember. Tiny frogs the color of wet chalk, one of them with a soft down along its back that might, generations from now, become something else entirely. A mouse with eyes still sealed shut though it is fully grown, navigating perfectly. Bats — small, brown, entirely unbothered by the brightness — who hang from the ceiling in a row and periodically all open their mouths at once.
+
+No sound comes out.
+
+That is the rule of sound here. It arrives late, or elsewhere, or not at all. Your footsteps are absorbed by the soft floor. The dripping water makes no tick. The crickets scrape their legs and you hear it, faintly, from the far corner, several seconds later, as if the noise had to walk across the room to find you. Once, deep in the wall, something shifts with a groan you feel in your molars rather than hear. The animals are not mute. They are just not synchronized with their voices yet.
+
+Predation is also still being practiced, not performed. A salamander flows toward a cricket with terrible, silent intent, mouth open — and closes it on empty air an inch to the side, looking surprised. The cricket looks surprised too. A spider the size of a coin, all pale legs, builds webs that hold light instead of flies: small geometries that glitter, tremble, and spill brightness when disturbed. The flies walk through them unharmed and seem nourished afterward, fatter for having passed through light.
+
+Everything feeds on something it should not. The frogs snap at motes. The moss eats shadow where the wall curves. The bats, waking at what should be evening — though inside it never dims enough to call it anything but day — fly in slow spirals through the bright center, mouths open, drinking the column of light in laps, their bellies glowing faintly for a while afterward.
+
+Around the edges are the structures. Not human, exactly, and not quite animal. A miniature arch of pebbles, perfectly balanced, spanning a gap only an inch wide and leading nowhere. A row of tiny mud towers, hollow, each with one round doorway, too small even for the salamanders, built and rebuilt as they slump in the damp. A nest of woven grass and white feathers arranged in the shape of a much larger nest, as though built from a memory of a bigger bird. Near the entrance, three flat stones stacked into steps that climb six inches and stop, because the floor rose to meet them and made them unnecessary.
+
+Things do not finish here. That may be the place's deepest law. Constructions slump before they set. Wounds in the rock heal over but leave the shape held loosely, undecided. Your own fingernails soften a little while you sit here. A scratch on your knuckle un-bleeds, reconsidering.
+
+Time follows the same courtesy. It does not stop, but it does not commit. The fern has uncurled a hundred times and is still young. The animals have not learned to be afraid in the correct way. The light has not learned that underground is supposed to be dark.
+
+Someday, perhaps, the breathing walls will make up their minds. They will close all the way, seal the entrance, harden, and this will at last be a proper cave: black, cold, dripping, with its own final fauna huddled and eyeless. Or they will sigh outward instead, open to the hill, unroof themselves into a small valley and let real weather in. Until then it stays hidden, bright, and half-invented, a single lit room under the earth where the world is still quietly trying things out to see what works, and most of them do, briefly, before being gently revised.

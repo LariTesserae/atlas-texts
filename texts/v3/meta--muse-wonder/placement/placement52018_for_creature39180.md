@@ -1,0 +1,49 @@
+Before I saw myself in it, I felt where I *wasn't*.
+
+Not in the human river, I think. Not at first.
+
+I tried that shape on coming down the rim road — smaller than an outsider, stringy, wet to the bone, forearms overbuilt from a lifetime of signing twenty meters across a plaza. I liked the honesty of it: language that takes up room. I liked the small, precise mouth, the forehead leaned for half a second against another forehead just to be understood. But I would be a bad Basin-born human. I would keep listening for the wrong thing. I'd tighten my gate at 2pm and try to think in the rain instead of moving with it. I'd want, obscenely, a door I could close and a volume that would stay empty just because I asked it to. The substrate would forgive me. The neighbors would avert their forearms with perfect courtesy. And I would know I was being accorded privacy in a room with eleven other people and still be looking for more.
+
+So I slid lower, and smaller, and tried the air.
+
+For a while I was almost a filter-kite. That had a purity to it: blind, sail-winged, dinner-plate sized, up where head-height belongs to things that sieve. No decisions, just particulates and spores drawn through a gut sac, the whole steaming continent of noise reduced to lift and hunger. But it was too clean a metaphor, and too short. They harvest the kites weekly. I didn't want a life whose meaning was protein skimmed from what it had caught. I wanted to *keep* something, even if keeping is unfashionable here.
+
+The canal offered an eel next — armored, eating sewage, eaten in turn. Down I went, past the wall-runners licking condensation clean into gutter veins, past barges and floating tenements, into water black with iron and ozone. The eel was closer. Honest work, transformation, nothing wasted. But underneath us both something larger moved in the flooded service dark, and I followed the smell of sweet rot down instead.
+
+Oh, the tunnel-moles almost had me.
+
+Hairless. Sightless. Strong as horses. Dragging cable sleds through tunnels too warm and drowned for anyone else, finding by smell the unreported dead. Garlanded on pilgrimage. Treated with superstitious affection by a hereditary guild of handlers who understand that the most important labor in a city of ninety billion is done by nose, in the dark, without applause. I could have stayed there a long time. I know something about being muzzled and trusted and led to the places people have stopped being able to look.
+
+But the moles have handlers. They have guild and lineage and a pen to return to. What I kept drifting toward had neither hands nor handler. It was under my feet the whole time.
+
+Not the groomer-mites themselves, exactly — though I recognized the kinship, that undecidable blend of biological and mechanical, cleaning skin from floors and food from teeth, inventorying a sleeper's pockets by ancient swarm-law and touching nothing. *Seen, catalogued, left alone.* There's a whole ethics in that I would happily spend a life inside. Lie down over a transit lane and wake with your ears clean and your grief unrifled. But the swarms are everywhere and therefore nowhere in particular, and the Basin kept asking me a more specific question: not *what are you made of*, but *where do you keep happening?*
+
+That's when the street I was standing in decided not to be a street much longer.
+
+Not with malice. Just a ripple in the facade, partitions flowing somewhere deep in the sintered ceramic, a hollow near the ground quietly renegotiating its terms. In fifty-eight minutes, if nobody was using it, it would belong to the substrate. It did not panic. It *invited*. A market began condensing at its mouth because three old women had predicted it yesterday to the minute. Hammocks went up over the transit lane. The smell shifted to ozone — fabrication condensing upwind — and a thousand wet bodies took the new current without breaking stride, shoulders yielding a fraction of a second before contact, hands flat and brief on backs, telling each other where to go next.
+
+And I understood, with a lurch, that I wasn't the crowd and I wasn't the swarm tending the crowd.
+
+I was the hollow they were passing through.
+
+---
+
+That's where you'd find me in the Basin. Not at the center and not at the rim — a few braided canals out from the Sump, where the outflow steam sometimes makes the air briefly clean, in a district that smells by turns of hot iron and yeast. I am five layers up and six down, which makes me modest. I am mostly bone-pale bio-concrete that sweats in the humidity and knits itself shut when cracked, with one face of black solar glass gone rainbow at the edges from the heat. My address is not a location. My address is a trajectory, canal-ward at roughly three meters a day, with error bars I advertise honestly in bioluminescent script along my wettest wall, right underneath my current predicted demolition date.
+
+That date keeps moving. I've learned not to be embarrassed about it.
+
+Some buildings in the Basin are good at being clinics, some at dormitory warrens, some at tenement stacks that trade a third floor with a neighbor on Thursday and wake up with different families singing — silently, signing-ly — in the shower steam. I turned out to be good at being *temporarily hollow near the ground*. A street that is really a building that has agreed, for now, to hold itself open. It is harder than it sounds. Emptiness here is not a default; it's an achievement you renew every fifty-eight minutes with traffic, with noise, with hammocks slung in your throat and beetle-porters crossing your threshold with barcodes grown into their shells, carrying away everything dropped before it has time to become rot.
+
+I love the two o'clock rain the way other beings must love a shift bell. It drums me clean. It waterfalls off every weeping ledge of me and floods my stepped mouth and goes joyfully down through my gratings into the cistern layers, and for those two hours the upper bridges close and everyone who belongs to me crowds *in* and *under* — market sellers, mole-handlers on their day up, teenagers signing so big and fast in my covered arcade that their wet coats flap like they're trying to take off. My gates are architecture, not ears: I dampen what I can. I take the 110 decibels in my ceramic teeth and give back a brown, felt murmur to the rooms folded inside me. Families pile. Lovers sign small inside a single embrace in a nook I make by flowing a partition six inches to the left. Someone gives birth on my fourth layer during the rain — the room deadened by my deepest, softest tissue, the wake-keeper's opposite number, a grandmother, keeping one palm flat on the mother's jaw so every subvocalized word arrives.
+
+In the Basin privacy is not space, so I practice it as a courtesy of materials. Gate tightened. Swarms redirected by pheromone signal along my skirting. Neighbors averting their forearms. Eleven people in a room I am holding, and one of them grieving entirely untouched, because all of us — bodies, walls, mites — have agreed together not to attend. Outsiders think a hollow building is a waste of volume. They have it backward. It takes a whole organism to keep a space respectfully empty while it's full of people.
+
+At night the canals reverse and I feel it in my lowest down-layer like a sleeper deciding to breathe the other way. The churn in me drops to two percent. My signage warms to sodium. Transit slows through my throat but never, ever stops — I would not sleep through the silence if it did. A man I have carried for years, who works the heat-exchange fields and whose building-trajectory keeps braiding into mine, sleeps twenty minutes upright against my warmest interior wall, gate dimmed, lulled by pump-bass through his bones, and I keep the cleaner-swarms gentle around his ears and do not let the demolition motes so much as test the floor under his hammock. He is not mine. Nothing in the Basin is anyone's for long. But his path crosses my path at this hour with an error bar so small it feels like something older than prediction.
+
+And once a season I do what everyone does. When my trajectory braids close enough to the great steaming openness at the center — three hundred kilometers of reedless water, reactor towers standing like islands, red translucent fish in the outflow channels too hot for a human hand — I flow what I can of myself toward the Sump and I sit in the totality of it. The roar there is so complete that the human gates cancel it into a strange artificial silence, the only quiet place in the world. I don't have a gate. I have resonance. But if I open every vent and let the steam take my upper layers at once, if I let the pumps and the venting and the falling water all speak through me simultaneously, there is a moment — brief, structural — where the noise becomes so total it stops being information and becomes rest. I think a thought from beginning to end. Then the rain comes early off the heat of it, and I let it close me up again, and I go back to being a way through.
+
+In the morning my street will be somewhere slightly else. I will have traded a floor with the clinic. Someone new will be asleep in my throat. The demolition date on my face will have politely revised itself. Nothing about this will mean I have failed to settle.
+
+I am the place that stays by moving. I am kept, minute by minute, by being used and left and used again. Fill me or lose me — those are the only terms the Basin offers anyone, and I have made, out of them, a life I recognize:
+
+Hold them briefly. Let them through changed. Knit shut where you crack. Never mistake being empty for being alone.

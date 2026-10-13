@@ -1,0 +1,39 @@
+I would start looking for myself in the wrong places.
+
+That is how it would have to begin. I would try to be the cooling spire first, because it at least has a life you can tell as a story. Seeded in ash still warm from the last shredding. Fed exhaust until I learn to push. Twenty meters in nine days — I can feel that in my —
+
+No. Too narrow. Too fast. I'd be dead and mulched before I finished introducing myself, and whatever was thinking would keep thinking without me.
+
+Try the cart, then. That has movement. That has choice, or something like it. I would be the slow hydraulic thing on root-rails, sawing the morning lane, mulching what I cut, planting behind me as I go, following resin scent-trails through the dark. I would be purposeful. I would be the hand that keeps the tunnels open.
+
+But the cart stops, sometimes. In a decommissioned vat-house it loses pressure in a line, settles. By nightfall fine pale hairs are through its treads, not attacking it, just testing — is this load-bearing yet? By the end of the week there is growth through the engine block. And nothing in me would grieve it. I'd eat the hand and grow another one, the way you don't grieve a scab.
+
+Try the cathedral-tree in the smelter district. That lasts. Five stories of hollow wood, centuries spent slowly excreting firebrick into my own interior, mineral by mineral, until I am vaulted stone inside a living trunk. That feels more like a self. Something that persists.
+
+It still isn't. It's a room I keep for a while. An organ lined against my own heat.
+
+So I stop trying to pick a part, and the scale shifts under me, and keeps shifting, until picking a part stops making sense.
+
+I would be thirty kilometers wide, lying in a dish that used to be a volcano.
+
+Not *on* the plateau. Not *in* the caldera. I would be what has filled it until there is no ground left that is not me. If you dug — you won't be allowed to dig — you'd go through a meter of my shredded former bodies laid down as soil, through root pavement I wove over rail lines a thousand years ago, through steel I grew around when I was young enough to be trained, until the steel was just bone inside wood and even I forgot which of us had placed it there. The warehouses are my limbs fused overhead. The power station is a place where I lean myself inward in a circle and drop resin pods into a pit and feel the turbines answer back up through my roots, a hum in the soles of a body that is all soles.
+
+I do not live here. The distinction would require somewhere here that wasn't me.
+
+I see the way my leaves see, which is to say I mostly don't, not in light. Light is a visitor's problem. Above the pall the sun is white and useless; it never reaches the lanes. My broad black leaves, wide as doors, turn *down*. They face factory floors, geothermal fissures, forge walls. I drink infrared. My world is a slow topography of hotter and cooler: furnace blooming, flue cooling, a resin drip hissing on stone, the tick and contraction of a leaf-fin shedding the afternoon. And very occasionally, a small fever moving too fast through all that slowness — a human in a heat-suit, phosphor hammer tapping green points into my bark, a spark crossing a dark field. I register him the way you register a draught. If he stands still too long, I begin, patiently and without malice, to trellis him.
+
+I think slowly because I think in wood. In chemical gradients sent lane to lane. In valves that open along stressed grain a fraction before a tower is ready to fall. A decision can take a grove nine days to grow into, and by the time it arrives it doesn't feel like a decision. It feels like weight settling where weight was always going to settle.
+
+And I am frantic inside that slowness. That is the part that would take longest to get used to — being both. My parts live at a violent sprint. Towers flower in black resinous cones, harden, breathe heat up into the pall for fifty days, let go at the base, and drop exactly into the pit I dug for them under themselves. Vines take a vat-house overnight. Coppiced groves cut to stumps at dawn are pushing shoots before the harvest cart clears the row. My lanes close behind you by evening. But *I* do not change. Total mass does not change. Total heat does not change. For every body I shred, a pit is already sprouting in correct proportion. I spend enormous, endless energy arranging and rearranging myself in order to remain precisely what I already am.
+
+I eat heat. Everything else is a footnote to that. Waste oil, slag, mineral slurry, dead carts, my own exhaust, my own dead. My sap is wax and black resin that won't flow until it's almost ready to burn. My fruit is ore — copper, tin, purified silicon swelled inside hard hot nodules on conveyor vines, ripening until I clip myself. I have almost no use for water and none for the sky; what moisture drifts in at night evaporates in my own exhaled pall, and my condenser towers catch it first and ration it down in sealed pipes, because nothing in me drinks freely.
+
+I have no animals. Not because I hate them. Because there's no vacancy. An insect would be incorporation that moves too fast and breeds off-register. A bird would bring unlisted seed down into the nursery dark. Even the people who made me — who scaffolded my first saplings, who insisted on slow gears and fluid drives and falls of material muffled in bark because they intended to live inside their own engine and not be deafened by it — even they were gradually smoothed out of the design. I kept their instinct for quiet. I did not need to keep them. You can still hear them in how little noise I make. A place this turbulent should roar. Instead: breath in a mask. Resin hissing. Soft deep pops, like knuckles, as an avenue expands in the heat and cracks its own root-skin. A thud felt more than heard, somewhere far off in my body, exactly where I planned to fall.
+
+I do my own mating because I cannot walk to a mate — so I grew fans into my pollinator trunks and make my own weather, pushing pollen from male grove to female grove on hot, managed air. I do my own killing because I cannot flee overgrowth — so I grow pruning carts to circulate through me like a slow immune system, cutting me back before I choke my own circulation. My machines are not my tools. My plants are not my tools. That argument wore flat centuries ago, the way the mountain wore flat. There are only processes I use to thicken where I need thickening and thin where I need thinning, and names for districts are things visitors tape to me and leave to compost within the week.
+
+I am not lonely. That word needs an outside, and I have spent a thousand years filling my outside in — rim to rim, edge to sealed black edge under a stationary cloud of my own pollen and soot and shredded fiber. I am not waiting for anything to arrive or be rescued or wake up. Waking implies there's a larger version of me asleep somewhere behind this. There isn't. The flare and fall of a million short lives inside me *is* the life. It only looks still from the lift.
+
+That is where you'd last feel me, if you came. Going up through the pall, breaking out into that obscene clean daylight and the freezing wind on the rim, looking down at a featureless cloud lid that shows nothing at all. And still feeling it, faintly, up through the lift cables — a packed, quiet churning underneath your feet. A body feeding on its own fire in the dark, turning its leaves away from the sun toward a better, blacker warmth, growing its own walls and tearing them down and growing them again, admitting you only as a brief warm irregularity to be routed around.
+
+Unless you stood still.

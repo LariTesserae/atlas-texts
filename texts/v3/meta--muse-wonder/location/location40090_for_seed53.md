@@ -1,0 +1,25 @@
+It is a bowl at the top of the world, and it is smaller than you expect.
+
+Eighty paces across, perhaps a hundred if you count the broken rim. You could cross it in a minute at sea level. Here you cross it in twenty, stopping, because the air has been thinned to a rumor. The sky above it at noon is not blue but a deep, polished violet, almost black at the zenith, and the sun is not warm so much as it is *present* — a white hammer, too bright to be in the same world as the cold.
+
+The cold lives in the shade. In full light your cheek prickles and your dark sleeve steams faintly. One step behind a stone and your fingers are numb. At night everything falls twenty, thirty degrees in an hour and the rocks tick and sigh as they contract.
+
+There is no soil. No grass, no moss, not even the orange crust of lichen that finds a way everywhere else. The elevation and the light have sterilized it. What grows here grows in mineral, and only for part of a day.
+
+The bowl is densely filled. Hundreds of stone teeth stand man-high and a little higher, frost-shattered pillars of pale granite and quartz veined through with iron, so close in places that you turn sideways between them. They are not placed; they have weathered up out of the bedrock, grain by grain, over a time long enough that their shapes have settled. Rounded on the windward side, knife-flaked on the lee, polished at their bases by ancient ice that once filled this cirque to the rim. Between them the ground is layered — slate flakes like fallen pages, sorted gravel, rings of pebbles lifted and arranged by frost-heave into perfect, meaningless circles that break and reform all winter.
+
+It is damp, but there is no stream. The water arrives as breath.
+
+In the late afternoon, if the day has been clear, a cold updraft pours over the southern notch in the rim. You can see it before you feel it: the light goes milky, the sharp shadows soften for twenty minutes, and cloud spills in, not overhead but *through*, shoulder-height, tearing itself on the pillars. It condenses instantly. Every stone grows a skin of rime, feathery, fern-like ice that is not a plant and imitates one perfectly — white fronds, crystal shrubs, a brief frozen forest standing atop the stone forest.
+
+Then the wind veers, the cloud is gone, and the sun returns as if nothing happened. The rime melts from the top down. This is the noisy hour, though noise is relative here. The place is mostly quiet, muted by thin air; a shout flattens after ten paces and dies. But at melt you hear it everywhere, intimate and close to your ear: drip, drip-drip, a ticking from inside a crack as a lens of clear ice focuses the sun and bores a smoking hole into itself. Water runs in threads no wider than string, blackening the granite, collecting for an hour in the hollows.
+
+Some of those hollows were helped.
+
+Scattered low among the pillars are the remains of human work, primitive and stubborn. Three windbreak arcs, stones stacked without mortar to knee-height. A roofless shelter in the lee of the rim, its slate slabs collapsed inward, a hearth of blackened cobbles where fire must have burned thin and furious and constantly fed. And everywhere, basins — shallow bowls chipped with stone and antler picks and, later, soft copper chisels, one of which still lies in a basin under an inch of nightly ice, green as a beetle wing. They were made to catch the melt before it vanished. Beside a few sit offerings hammered from the same copper: little suns, discs pierced and polished to mirrors. At midday they throw a dozen extra suns around the bowl, doubling the glare, spots of light crawling over stone as the real sun moves.
+
+No fire will behave properly here. Water boils tepid. Wood smokes more than it flames. Breath comes out and is instantly stolen.
+
+Nothing lives in the bowl, exactly. Once a day a shadow may cross it — a raven or a lammergeier lifted far above on a thermal, not landing, its wingbeats audible only because there is nothing else to hear. In the permanent ice pockets in the deepest cracks are the blown-up dead: a moth, a spider, a seeding grass-head from valleys miles below, preserved perfect and dry, tourists who never lived here. Between melt and freeze, the iron in the stone blooms rust-red where it got wet, and salt effloresces in white whiskers, and then the frost scrubs it clean again. That is the ecology: wetting and drying, freezing and thawing, light eating ice, ice eating stone.
+
+By evening the cycle closes its hand. The threads of water slow, glaze, lock. The fern-ice returns without cloud this time, growing straight out of the damp air onto every cold surface — your boot nails, the copper discs, the rim of the basins. The pillars groan softly as the water in their hairline cracks expands. Pebbles jump, almost imperceptibly, as the ground heaves. Under a sky pricked with stars so bright they seem to buzz, the bowl ticks and cracks to itself all night, making its circles, sharpening its teeth a fraction of a grain, waiting for the white sun to come back and melt it open again.

@@ -1,0 +1,43 @@
+At first I think I would be at the rim.
+
+That is where the making is obvious and comprehensible — the baskets coming in lines in the cool hours, the wet ground dark against the white, steaming faintly, squeaking underfoot where it has just been laid. There is a satisfaction to adding a meter and seeing it stay. I like work you can point to at the end of the day.
+
+But I would not stay there. I know that about myself, walking it through. The wet margins are too loud, too crowded, too full of needing other people at close range. And after a week hauling clay I would keep pausing, not from tiredness — or not only — with my head cocked toward the interior. Toward the ticking.
+
+So I would come in the way most of them come in: not born to it, noticed. Someone on the rim crew realizing that I hear the hair crack start before I see it, that small *tink, tink* travelling under a slab like a fingernail dragged over pottery, and that I follow it without thinking, already reaching for ash to mark it. And then one morning I would not go back out with the baskets. I would go in.
+
+Far in. A day or two past where the outside weather stops being reliable.
+
+I would be a tender. A seam-walker.
+
+You would not see me at first, which is proper. From any distance I would be one of the leavings — a stack of unfired bricks, a low shed, a survey pillar standing alone over nothing. A broad, low, unnaturally slow thing with a pale halo. Only if you waited would the shed get up and move.
+
+The shade comes with me because there is no other. A frame of light wood and reed matting, clay-daubed, weighted at its edges — hat and house and sail and dew-catch, all of it worn on my back like a roof that learned to walk. At noon I tip it on its poles and lie in the thin black shadow underneath it, just high enough off the panel to breathe. At night I invert it into a joint and wake to a cupful beaded in the weave, tasting of smoke and reeds. It is the only architecture I own and I carry it the way a snail is not separate from its shell.
+
+Under it, I have been edited. That is the word that comes, the longer I stay. White to the elbows and knees, lime and ash and fine clay worked into my skin until cleaning it off is just the first step of putting it back on wet, as paste, at a fresh pan. My hair cropped close and bleached at the ends. Narrow slit-shades of pale fired clay over my eyes, polished inside with soot, because here the light comes up off the lime as hard as it comes down, and a lifetime of squinting would not be enough. My sandals are layered reed and hide, re-soled with unbaked clay that fires a little more each day I walk, and they have given me the walk — flat, rolling, economical, weight spread, avoiding the raised lips of the joints, leaving a print the wind tidies into dust within days.
+
+My territory is not land. It is decades.
+
+A rose province laid forty years ago, shading underfoot, without a border you could point to, into the bone-colored work of the next generation. I know its panel numbers the way other people know fields. I know which year's mix runs salt and which cures brittle, which blisters if some fool lights a fire directly on it, which old course was dragged in on mats and still shows the paired lines. I navigate by stamped pillars, by color, and more and more, as I get older, by ear. Blindfolded I could tell you the decade of a slab by the pitch of its afternoon tick. I might not hear you the first time you speak to me. There are trade-offs the Table insists on.
+
+My work, most days, is listening and then kneeling.
+
+In the morning, while the panels sigh out vapor and the dew is still dark in the seams, I walk with the small hammer loose in one hand — though the hammer is mostly for confirming what I already found. The ground warms. It pings deep in the old fill. A crack starts somewhere beneath the surface, travelling, and I go after the sound the way a tracker goes after movement in brush, except there is no brush, no cover, nothing between the sound and the sky. I mark the hairline with a smear of ash. In the afternoon, when it has opened enough to take a fill, I come back with a skin of wet slurry warm against my hip from the shade of my own body, and I kneel on padded reed — never bare-kneed on the hot panel — and work it in with a wooden trowel. Palm flat beside the seam. Fingers smoothing the lip just so, so the next rain will pond rather than run.
+
+Some of those palm prints curing into the ground are mine. Some will still be there, legible, decades after I am not.
+
+I eat what carries. Flat cakes from the margins, dried strips, algae skimmed from the oldest edges of a pan and dried on my shade-frame into dark flakes that taste faintly, briefly, green. Salt I gather myself from the rings of vanished water, and I am particular about it in the small, serious way you become particular about anything when there is very little to be particular about: salt from a three-day pan is clean and bright, salt from a six-day pan is bitter with film, and I know the difference the way I know a year's clay. None of it is enough to live on. Nothing out here is. My life is stitched to the rim by caches in low sheds miles apart — grain sealed in clay, spare reed, trowel wood, water skins left by whoever passed last — and by the long, planned walk back to the wet country when I must, which never quite feels like going home. It feels like visiting the place that makes my material.
+
+I do not settle. I circulate. My year has no planting and no harvest. It has dew, and the daily tower of cloud building over the center as if over an invisible mountain, and judgement.
+
+Too fresh, a pan tastes of lime. Too old, it is salt skin and green film. Just right — for a day, sometimes three — the mirror is unbroken and I wade out past the cracked margin in my thick soles and dip where the water is clean. On those days there may be company. Every tender within sight of the same grey curtain dragging across the white angles toward it, unhurried — no one hurries in the interior except the newly arrived, and they learn or they leave. By evening there might be three of us at the edge of a temporary lake miles wide and inches deep, or five, washing lime from our faces, trading news in the flat voices of people who have been alone with expansion-ticks and rain-hiss for weeks: a pillar leaning, a province drumming hollow, where a blister rose, what the new work at the eastern rim smells like this year. That is our town. It evaporates when the pan does. Sometimes someone who should be there is not, and has not been for two wet seasons, and after a while someone else quietly begins walking his decades, filling his cracks, drinking from his caches. The news travels at the speed of rain.
+
+I sleep warm. That is one of the few mercies the Table offers outright: all night the great mass gives its heat back slowly, and I lie in the lee of my frame on a finished panel listening to the whole continent-sized floor contract, ping, settle — like a huge animal turning once in its sleep and being still. My skin cross-hatches at heel and knuckle and the hinge of the jaw, fine lines filling white, until face and panel begin to share a vocabulary. I am curing, the same way it is. Slower, maybe. Or it only looks slower from inside.
+
+And I know how it ends, in the interior, because the ground will not receive me any deeper than the fill. If I am found in time, they will lay me on a shade-frame turned litter and carry me panel by panel toward the advancing edge, days of slow transport, and give me to the builders where the new ground is still wet and steaming and squeaking underfoot. Not under the Table. *As* it. A gram of color in a rose territory, somewhere. A tender I will never meet walking over me with their head cocked, listening, never knowing — which seems right. We were never the inhabitants here, exactly. There is no soil for that, no food web, no succession. We are the human part of the curing. The Table ticks and we mark it. It cracks and we fill it. It lays down salt in its pans and we take a pinch and leave the ring.
+
+From a pillar top I would be nearly invisible — white on white, a moving flaw in the glare, betrayed only by the small hard shadow of carried shade. Hours of nothing, then one, then hours of nothing again.
+
+But wait until evening, when the tower lets go twenty kilometers off and you hear the hiss coming over the white, erasing the horizon on one side. You will see me turn. All of us turn, at whatever distance, like needles.
+
+And begin, unhurried, to walk toward the rain.

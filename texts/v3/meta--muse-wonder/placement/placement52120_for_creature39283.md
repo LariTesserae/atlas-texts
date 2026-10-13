@@ -1,0 +1,33 @@
+I wouldn't arrive the way the description begins. Not for long, anyway.
+
+I can imagine myself in the cage at first — ears aching with the pressure, warm water coming through the roof seam and running down the back of my neck, trying not to flinch while everyone else lets themselves be rained on. I would keep looking for a light to orient by. I would look up, across, at the wrong moment, and get the full vertigo of it: streets and lit windows hanging over me, a whole town about to fall, while my inner ear insisted with complete calm that *they* were the floor too.
+
+But that visitor wouldn't last. He'd either leave, or he'd learn to tuck his head.
+
+What would remain, if I stayed long enough for the place to edit me, is someone who keeps his gaze where life is usable: a metre or two of warm pavement, a hand offered wrist-up, a kettle flaring white in infrared. Broad, flat feet, toes spread without embarrassment. Head cropped to damp stubble because hair holds the wet and harbours mites. A translucent lens over the eyes, clouding ordinary light and opening the grey world — doorframes breathing at their edges, cool black rivulets running down the Cistern Steps, a sleeping house made visible by the shifting, warmer smudges of bodies inside it.
+
+You would find me, most cycles, on the High Curve.
+
+Not because I am very old — not yet — but because someone has to walk the empty tenements, and I have the temperament for work that looks, from the outside, like no work at all. The Hollow was built for five thousand and holds perhaps nine hundred, and on the far side the houses have gone on tending themselves long after their people moved downslope or died. Doors cycle their locks in the evening. Shutters test themselves. Rooms air themselves for the absent. My job is to go among them and make sure their faithfulness hasn't turned harmful: a ceramic wall healed crooked over a pipe, a condensate gutter brimmed with black succulents, a cancellation field thinned so that the city's roar leaks through and a whole empty apartment hums in its walls like a struck tooth.
+
+I read those houses by foot and by palm. Basalt, ceramic, the spongy matting near an old schoolroom. The teaspoon-deep hollow in every step, filling again after rain. I know which thresholds have been stepped on for generations and which have gone cool with disuse, and I step, without thinking, exactly where everyone has always stepped. When I need to check behind a wall, I click and listen to what comes back off the curve. Hollow. Full. Cracked and healing hollow again.
+
+If we met, you probably wouldn't hear my voice.
+
+In the street, during a Loud, I would take your forearm — offered, always, wrist up — and sign against the skin. Quick, economical pressure. *This way. Careful, slick here. That house is sleeping, though no one has slept in it for eleven years.* An apology would be a particular softening at the inner elbow. A joke would be a flutter you feel before you understand it. If we argued, it would be faster and harder, and we might bruise each other with grammar, and then apologise with the whole hand, more slowly, afterwards.
+
+My voice I would keep for indoors. For the manufactured quiet within a metre of a shielded wall, where the sphere's enormous sound eats itself down to a flutter and speech arrives with startling clarity. That is where I do the part of the work nobody wrote down. I talk to the empty rooms. Not because I believe the dead are listening in any simple way — Anath is practical about the dead; we compost them into the fungal beds behind the cisterns, formally, without squeamishness, and eat and wear what comes of it — but because a house that airs itself every evening for a person who will not return deserves to be answered sometimes. I tell it who has moved. Which vent is labouring; I can tell by a vibration in my molars. Whether a swift came down the old prospecting bore in the night and spent hours screaming at echoes returned from every direction at once, until someone netted it and apologised, forearm offered to empty air, before letting it find the dark above the Foundry again.
+
+I would smell faintly of wet stone and leaf-dust, because I stop, on the long walk over the top of the world, at the fig grove by the heat sink. Their leaves turn and turn toward a sun that does not exist, tracking the vent-wind, making that dry papery counterpoint to the machines. I like work that tends something restless without trying to cure it of restlessness.
+
+And solitude would not frighten me. That's the deepest edit the place would make. To walk an hour through built streets and meet only drones crossing the far darkness overhead, carrying pipes and filter carcasses along routes that no longer correspond to any need anyone can name — and to think nothing of it. To understand community as something gathered deliberately: children coming soaked and bright from the drip-points with skins of warm rainwater, lessons crowded into shielded rooms while the pumps hammer, a market blooming under awnings when the central mist forms and rains outward onto every roof at once. Then the dispersal again. Houses. Quiet pockets. Sleep in shifts, close to a wall, in the thickest silence available.
+
+When I grew old — early in the lungs, late in the joints, hearing gone selective so that voices slipped past me while a freight lift taking a bend badly three bands away announced itself in my teeth — I wouldn't have to migrate. I would already be where the old go. I would choose one of the tenements I had kept aired for someone else, and let its doors go on cycling for me. Visitors would bring fungal sheets, fresh and rubbery and faintly metallic, and sign slowly into hands gone almost entirely to callous, which could still read a sentence at a touch.
+
+I wouldn't be a founder or an engineer or a keeper of the central void. I would be a minor, necessary redundancy in a place full of them: a person who maintains what is no longer occupied, so that absence doesn't become neglect. Who keeps his head down not from fear, exactly, but from respect for the discipline everyone here learns — not to stare too long at the sky, because the sky is streets, and windows, and people walking upside down over your head, living pressed around the same warm, resonant emptiness, not looking back.
+
+And in the shielded quiet, now and then, in a voice reserved for love and death and empty rooms that have kept themselves ready — I would speak aloud, just to hear a human sound arrive un-smeared:
+
+*I'm here. The locks still work. You can rest now.*
+
+Then I'd close the door gently, and walk home over the top of the world, flat-footed in the dark that isn't dark.

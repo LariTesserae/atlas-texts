@@ -1,0 +1,41 @@
+I think I would arrive the usual way, over the pass, and not understand at first that I had already been given a place.
+
+I would try for the high work initially. That's the visitor's instinct. Put me on the watch platforms, I'd think — above the granaries, above the cloud-fields, where I could see the whole basin at once and keep an eye on it. Ilvarra spread out below in its terraces and pond-chain, the waterfalls that aren't waterfalls, the roofs all dripping *plip, plip* into their barrels. A good vantage. A useful person, watching.
+
+Except nobody watches from there. The children would be eating plums beside me. Someone's laundry would be drying in the late morning, and in three sleeps I'd have learned that there is nothing to watch *for*, and that my vigilance was just another thing trying to accumulate.
+
+So perhaps lower. The workshops, then. The stepped avenue under the trained vines, where the potter's wheels turn by foot and the weavers work and the dye-wheel lifts its little clay cups, *plip, plip, plip,* at the one speed it has always had. I have the temperament for repetitive work, or I flatter myself I do: checking, re-checking, answering what's put in front of me. But my hands would give me away. I'd admire the masons too much to become one. Their tools are bright at the edge and dark where the palm has always fallen, and mine have never held a chisel long enough to learn where it wants to fall.
+
+I don't think I'd be a cloud-tender either, though I'd envy them their frames of knotted rope and the mist running down in threads. I'd want the yield to improve. I'd keep looking for the adjustment — a tighter knot here, a better angle there — and that wanting would be precisely the wrong shape for the job.
+
+Where I'd actually end up, I suspect, is one terrace down from where pride would have put me, and indoors more than out.
+
+I would be answerable for a dark room.
+
+Every city that manufactures its own night needs people who are good at it, and Ilvarra makes night the way it makes everything: by hand, collectively, without ceremony. There would be a house on the residential terraces — white quartzite, dark basalt at the corners, a roof-gate that sticks unless lifted for the goats — and in that house an inner room with no true window, only the heavy woven shutters, and I'd be the one who knows how they fall. Which panel sighs. Which curtain needs the smooth stone on its hem, and which stone, because they are not interchangeable and everyone in the household knows it except that knowing has somehow become *my* knowing, my inherited patch.
+
+That would be my length of channel, so to speak. Not water. Darkness, kept like water in a jar.
+
+Families sleep in shifts there, so the work is always there to be done, which is to say it is never done. I'd close the house's eyes before a household cycle — knock, knock, with the wooden clapper, soft as knuckles asking permission — and the children would go still at the sound the way children elsewhere go still at dusk, because for them dusk *is* that sound, and the smell of shut wool, and the cool coming off the interior wall. I'd weight the curtains. I'd check that the cradle's black hanging wasn't caught on the frame. I'd learn who needs the shutter left a finger's width open — not for light, exactly, but for the sound of the swifts changing over in the eaves — and who needs it true-dark, sealed, the kind of dark you can rest your whole weight against.
+
+And I'd be the one sent for when a visitor started to come apart at the hour that never arrives.
+
+That happens at phantom dusk, the body waiting for the light to do something and the light declining to. I'd recognize it early, because I'd have done it myself on my first sleep-count: sat on the shuttered porch with soup going cool in my hands, weeping from pure physiological bewilderment while the shadows of the towers lay in their same short wedges and declined, absolutely, to lengthen. So I'd do what was done for me. Bring the soup first, before the questions. Bread. A plum from the west side of the tree, where it's always ripe. Sit at three paces' distance and speak low, because the cliffs give a voice back too faithfully and grief doesn't need to hear itself twice.
+
+Then I'd show them the shutters. Not explain them — Ilvarrans don't explain much — just put their hands on the woven panel and let them feel its weight, show them where the stone goes, let them make a night with their own hands and climb inside it. *You have slept four times.* I'd be able to say that eventually, kindly and without evasion, and mean it as a complete answer. How long have I been here. Four sleeps. The moss is dry on the south side of the step. The barrel outside stands three quarters full. I checked it on my way past, and the checking was pleasant, and I no longer remember when the checking started to be pleasant, and in Ilvarra there may not be much difference.
+
+My hands would change. That's how I'd know it had taken. Not calloused like a mason's — softer than that. Darkened at the fingertips from shutter-dust and the dye that never quite washes out of woven wool. Wool sleeves, damp at the cuff, because everything in Ilvarra is damp at the cuff. A left forearm warmed brown from the sun that has never varied its approach, and a habit I'd catch in myself of turning the east shoulder toward a chill. More freckles on the west cheek. The neighbors would start knowing me across a terrace by my silhouette and the exact wedge of my shadow.
+
+I would have my small verbal courtesies. I'd listen better than I speak — that part, I flatter myself, might come naturally; receiving a person accurately is most of the job in a dark room, where you can't see their face and have to go by breath and the pause before the answer. I'd develop the maintenance-wit. I'd have opinions about the goat whose roof-gate temper is known to the whole street. I'd greet the marmot between the foundation stones — not feed it, never feed it; feeding would be an attempt to change an arrangement — and I'd speak of the granary owls with professional respect, as colleagues on another shift of the same dark.
+
+Because that's the thing I'd come to understand, standing in my windowless room at what is always late morning: the owls and I would be in the same trade. They hunt in the dark made inside the towers. I keep the dark made inside the house. Night is not a time in Ilvarra. Night is a substance you go indoors to use — and somebody has to keep the jar from cracking, the way somebody keeps the slates, the third rope from the west end of the bridge, the section of channel where the silt gathers and gathers without ever gathering *more*.
+
+If I have a prayer, it would sound like an inventory. Shutters sound. Curtains weighted. Cradle dark. Yield as expected. And if I grieved — I would; life happens even there, only without escalation — the neighbors would take over my room for a household cycle without comment, and close the shutters for me, and leave the stone on the hem, and the extra quiet along that corridor would be the whole city mourning at a size I could survive.
+
+I don't think I'd leave. Not because the pass is steep, though it is, and not because I'd forgotten the way. Ilvarra gives the nervous system nothing to brace against and nothing to await, and I have spent a long time bracing and awaiting, and after both failed there would be the porch, and the soup, and the same kind light that has finished arriving. Someone would teach my child where the smooth stone goes. I would still be teaching it, in the same patient position, when their child was brought to learn.
+
+A roof is not built; a roof is kept happening. Neither is a night. Neither, in the end, is a person.
+
+I'd be the one in the doorway of the dark room, holding it open a moment before my shift — warm on one forearm, cool on the other, listening for the clapper, checking that the darkness is three quarters full and neither empty nor brimming — letting someone else climb in to sleep, while the swifts stitch the unchanging blue overhead, and the city, luxuriantly, quietly, replaces itself exactly where I found it.
+
+And finding, in that replacement, that it has been replacing me too.

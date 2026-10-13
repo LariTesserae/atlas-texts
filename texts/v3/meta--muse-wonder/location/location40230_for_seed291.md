@@ -1,0 +1,45 @@
+It starts as flatness.
+
+Low land, as far as you can see, under a normal, pale sky — not dark, not glaring, just daylight doing its work hour after hour on a place that has not finished deciding what it is. The horizon is wide. A regional plain, a valley without proper walls. And it is cold in a way that gets into seams: into boot leather, into the hinges of doors, into the lungs if you breathe too fast. Your breath comes out white and stays for a moment in front of your face, as if reluctant to leave something warm.
+
+There is no river. That is the first wrongness for land this green.
+
+There are pockets, seeps, black mirrors in the hollows between building sites, condensation beading and running down every cold surface — but no running water to speak of. The ground is too young for rivers. It hasn't learned how to carry them yet.
+
+Because this is new land. Not reclaimed, not cleared — emerged.
+
+Where a glacier thinned and a shallow sea withdrew, the bottom rose up still soft: grey silt, unsorted gravel, clay that remembers being under immense pressure, beds of crushed shell that have not yet become stone. In places it is still rising, a centimeter a month, a hand's breadth in a bad week. In places it sinks back and sighs out a smell of iron and rot. Small hills push up overnight like knuckles under a sheet. A street paved on Tuesday is, by Friday, gently domed. A flat lot develops a spine.
+
+Erosion hasn't really begun here. Creation is still ahead of it.
+
+And on this unfinished plain, packed shoulder to shoulder, a city is being built faster than the geology can object to it.
+
+It is dense beyond reason because only some of the ground can be trusted, and everyone wants the trustable parts. Raised pads of compacted slag and basalt, old moraines, rafts of interlocked concrete — on those, everything crowds. Housing against factories against greenhouses against warehouses against housing again, roofs overlapping, walkways bridging gaps that aren't wide enough to be streets. There are no empty lots in the core. Where a gap tries to open, something fills it: a steam vent wrapped in insulation, a market stall, a coop, a stairwell going down to rooms dug into the warm silt, a vertical frame of pipes growing tomatoes in the waste heat.
+
+It is industrial to the bone. Low, broad plants with riveted skin, electric rail yards, compressor stations, smelters for the black sand, canneries, machine shops that never fully close. Turbines turn day and night, but — and this is the second wrongness — it is mostly quiet.
+
+Cold does that. Snow does that, even the thin, intermittent snow that melts as soon as factory heat touches it. Thick walls do that. Law does that, too: no bells, no unmuffled engines, no shouting in the open between shifts. The whole turbulence is visible rather than audible. Cranes swinging silently behind fogged glass. Sled-loaders gliding on electric rails. A hundred people crossing a yard in padded suits, jostling, gesturing, none of their voices carrying past the frost. Through a canteen window, the night shift looks like an aquarium in a riot — frantic, bright, sealed.
+
+The damp is manufactured as much as it is weather.
+
+The air is dry with cold coming off the plain, but the city sweats. Every cooling tower, every heat-exchange fin, every human body in an insulated suit generates a small cloud where warm meets freezing. Moisture condenses on pipework, freezes into beards of rime, melts at noon, drips. In the alleys between the hot buildings, it rains a private, local rain that never falls on the roofs. Gutters are not for storms. They are for this constant weeping of metal and stone. People harvest it by the sheet and brush — roof-felt, cold glass, hanging nets in the vent-ways — because for all this wetness there is very little to drink. Water is rationed by warmth: if your building leaks enough heat, you'll have enough melt to wash in.
+
+And because of that leaked heat, the vegetation is indecently lush.
+
+Not out on the open plain, where the colonists are still modest: moss in black and emerald cushions, lupine, Arctic willow no taller than a finger, sedges shivering in the seeps. But in the city, in every crack where a pipe runs, life gets ambitious. Ferns unroll in January beside boiler housings. Horsetail forests waist-high in the drainage sumps. Green walls inside the transit tunnels — algae, liverwort, trailing sedum fed by lamps and breath. Greenhouse frames are stacked three and four high between apartment blocks, glowing faintly, fogged from within, and their overflow escapes: tomato vines exploring a fire escape in the snow, bean tendrils finding the warm side of a smokestack, a fig tree that has taken over an abandoned substation and pushes its roots through the cable ducts exactly the way the cables went.
+
+That last part happens often enough that the maintenance crews have a word for it. The young ground is impressionable. Drop a wrench in soft silt and come back in a season and the silt may have extruded a stony, wrench-shaped lump. Basalt on the eastern edge cools into columns that stand in unnervingly architectural rows. Moss follows buried heating lines and draws perfect circuit diagrams across a hillside in green. It isn't mimicry anyone can prove, and it isn't consistent, but on bad nights after a heave — when stairwells have to be re-cut and flexible thresholds stretched to meet a floor that has risen two inches — people prefer not to leave metal tools outside. They prefer not to sleep on the ground floor with their shoes pointing toward the door. Superstition accumulates faster than sediment here.
+
+The fauna has learned the city faster than the people have.
+
+Ravens own the cooling towers. Arctic foxes commute through the fauna passages that building code requires in every new foundation — waist-high tunnels, warm, hay-lined, that no human is allowed to block, so that a block of flats may have a fox highway through its laundry level. Gulls inland beyond reason, seals in the brackish pockets at the plain's edge where the sea thinks about returning, reindeer drifting between rail sidings and eating the greenhouse trimmings tossed out for them. Inside: mice in the insulation, sparrows nesting in junction boxes, moths as big as ash-leaves circling the grow-lamps through the winter. The canneries draw everything. The greenhouses hum with escaped pollinators. It is not wilderness pressing in from outside. There is no outside line. The animals are in the density too, woven through it, given corridors and ledges and warm pipes just like everyone else because it proved impossible — and then illegal — to keep them out.
+
+Life runs by accommodation with movement.
+
+You cannot own a plot outright until it has been still for seven years, which almost nothing has, so most addresses are leases measured in months and written in pencil on the registry wall. Maps are reissued on Mondays. Numbering follows elevation, so if your building heaves, your address legally changes and the mail carriers — bundled, silent, on little tracked sleds — learn the new vertical before the new street name. Foundations stand on screws that crews turn at dawn, or on sleds that can be winched sideways when a seam opens. Doors are kept deliberately loose in their frames. Old people can tell how restless the week will be by whether their tea stays level in the cup.
+
+Work is constant re-work. A crew lays a bright new pipeline; a crew behind them is already insulating the fern growth off it; a crew behind *them* is tapping the pipes clear of internal ice with wooden mallets, a soft knock-knock that is one of the few regular sounds, along with dripping, the squeak of snow under boots, the faint ticking of cooling metal, and now and then, from far out on the plain, a deep subterranean crack that you feel in your teeth more than hear. Then silence re-absorbs everything.
+
+By evening the light goes ordinary and blue. The greenhouses brighten. A thousand windows fog and clear as heating cycles turn. Somewhere a new seep has opened in a market underpass and stallholders are moving their crates — fish, machine parts, dried peas, secondhand gloves, seedlings — a few feet uphill, without complaint, without noise, as if participating in a tide. A new warm hill has pushed up through a rail siding and the engineers are already arguing, in whispers and hand signals, whether to cut through it or lay track over it and let the gradient become part of the route. A fox crosses the siding with a chick in its mouth. A vine, finding a fresh crack in a factory wall, puts out a leaf still wet from a place that has not yet rained.
+
+The plain extends beyond all of it, pale and flat and half-formed, still rising out of its old compression, still trying out shapes. The city does not sit on it so much as it argues with it, densely, electrically, greenly, day after day — too cold to be comfortable, too damp to be dry, too quiet to sound like the upheaval it unmistakably is.

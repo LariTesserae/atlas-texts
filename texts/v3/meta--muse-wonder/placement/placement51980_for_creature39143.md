@@ -1,0 +1,33 @@
+You would not find me up on the rim. I went up there once, when I was small enough to be carried, and the sun above the cloud hurt my eyes so badly I cried without sound the whole way down. My grandmother tapped on the basket — *here, here, wait* — until we were back in the grey again, and my sight came back soft.
+
+You would find me at the level where the floorboards go dark.
+
+Not the top of our tower, where my sister has just given birth and the newest baby sleeps in the most air, under a roof that still smells of fresh-cut reed. Not yet the bottom either, though I go there every day. I am in the middle of the house, which is also the middle of my life — at the waterline, where the thermal tide comes in over the threshold in the morning and leaves again by evening, and everything has to be lifted, or tied, or allowed to get wet.
+
+In the morning I carry air down.
+
+That is my work, though it is not only mine. I fill the bladders at the surface — goat skin, and the big sealed pods of the vine, slick with resin — and I take them down hand over hand along the mooring rope, weighted just enough. My feet know the tower wall better than my eyes do. There is a notch cut at the year I was born. Lower down there is my mother's mark, and her mother's, the stone going greener and slicker the deeper you go, until the kelp takes over and you are reading by touch.
+
+Below the water my breath gets very economical. Everyone learns it. You do not hurry a hand. A hurried hand makes a cloud and wastes what someone is keeping for you.
+
+At the surface, my nephew tends my reed. He is seven. He sits on his float with his legs in the water and the tube between his teeth when he is not supposed to put it there, and he reads the tug the way I taught him — the way his mother taught me, when I was the child up top and she was the one going down. A short pull: *I am here.* Two: *more air.* A long, steady lean that is not a pull at all: he knows to sit still then, to not haul, to let me stay where I am.
+
+Where I am, most mornings, is the room where my grandfather settled.
+
+It was a kitchen, once. You can still see where the hearth was kept dry, two floors ago. Now it is filled to the ceiling beams and lit only by the jar of algae we set in the wall niche, that pale green that is not really light until your eyes forget the surface. He is seated on the stone bench along the far wall, weighted, tended, his hair long now with algae in a way it never was in life. I do not always recognise his face by sight. I lay my palm flat beside his head, the way you must, and I knock respectfully against the wall — his own pattern, three slow taps and a pause — and then I know him by the shape under my other hand. By the particular way the kelp has slicked his shoulder.
+
+I breathe out into the room and watch it join the slow current going up. I tip fresh air from a bladder into the small bell we keep there, though he does not need it. The ancestors do not need it. We do, when we come to visit, and somehow that comes to the same thing down there. You cannot pray to them from dry land. That would be talking down. You come to their level, chest-deep even when you lift your head into the bell in the temple, waist-deep in a grandfather's kitchen, and you stay until your fingers smooth and prune and the tapping you make against the wall is felt more in your teeth than heard.
+
+People above would say I go down to tend the dead. That is not how we say it. I go downstairs.
+
+Above me, while I am down, life goes on at a volume so low it does not reach me. My sister will not call. She will start a sentence across the canal to the neighbour in the woven house — something about beans coming up the post too fast, about a mat drifting again in the night — and then the tide will begin to come up over the causeway and both of them will go to lift the baskets, and the sentence will finish, or not, at dusk. The baby will be brought down at midday, just to the waterline, just for a moment, and held where the warm water takes half his weight. He does not cry here. No one with any sense makes a loud noise here. Children learn the taps before they finish learning words because downstairs, taps are words.
+
+I will not live at the top again. That is for the newborn and the ones bleeding and nursing and needing air. Each year the lake takes another finger's breadth and we add boards above and surrender a step below, and in that slow exchange I move, without ever moving house. The grandparents now sleep at the line where the water comes in, in hammocks strung so it laps at the cords. In the hot dim afternoons it will be my turn soon enough; already I prefer it. I go down through the hole in the floor with a ladder, duck the clay rim, push through the fibre curtain, and the cool that is not cool — only less warm — closes over my ankles, my knees. My hair, cropped tight, drips for an hour afterwards even when I have not been fully under. My skin is almost never entirely dry. It does not want to be.
+
+Once a month, at the new moon, I am one of the ones who goes out past the kelp streets to the centre, where the drowned temple roads meet if you follow them down and across. We pay out the knotted cord over the new cone there. It is only a few metres high yet. It will not break the surface in my life, or my nephew's, or his children's children's. But the glassy stone cuts my fingers open cleanly, every time, and the white mat that lives on it ripples under my palm like something breathing very slowly in its sleep, and the bubbles come up past my face in a patient thread, one, and one, and one, from a mountain that has not finished being born under a town that has not finished drowning.
+
+We record the measurement. We come back up. That evening my sister's husband ties a new raft alongside for their married son, and I help beat the reed flat with a stone, and we do not talk about whether it matters. Building is not hope here. It is just what hands do while the water decides.
+
+At night, when the jars are hung out along the canals and the steam rises up through their green, I sit with my feet in the lake and my nephew leaning his whole warm weight against my side, asleep before he meant to be. Above us the lit town. Below us, street for street, the dark one. Somewhere under my feet my grandfather is at his bench, at his depth, and somewhere above my head the baby who will one day learn my tapping pattern is sleeping in the newest room.
+
+I am between them. That is my place, and it is moving down at the speed of a hand's breadth a year, which is to say, exactly as fast as I am.

@@ -1,0 +1,31 @@
+It begins as a flaw in the underside of the sea ice.
+
+From below, the ice is not a ceiling. It is a dim, blue-green sky, three meters thick, scarred with pressure cracks that let in a filtered, winter light. The water beneath it is just below freezing, clear to the point of invisibility, and so still that a falling particle of snow-silt can take an hour to sink a hand's breadth. Sound does not travel properly here. It arrives in the bones and in the ice — a distant tick, a soft contraction — and then is gone.
+
+In one place the underside of the ice has hollowed upward into a dome.
+
+The dome is no wider than a bathtub, no taller than you could reach sitting down. You could miss it entirely. Its mouth is a ragged oval fringed with new platelet ice, loose crystals growing in overlapping scales, as fragile and unformed as frost on a window. They are still becoming. All day, all night, they extend by fractions, chiming against each other without sound, sealing the entrance a little narrower, opening new seams a little farther in.
+
+Inside, the water changes.
+
+A lens of meltwater, fresher and even colder than the sea, is trapped in the dome, floating against the ice. Below it is salt water, denser, a fraction warmer. There is a visible boundary between them if the light catches it — a wavering skin halfway down the room. Things drift up to it and stop. Things sink to it and hesitate, walking for a moment on water.
+
+And in that single enclosed volume, there is a city.
+
+It is not built with tools. It is built with mouths, with shed skins, with gut-pellets pressed while still soft, with mucus mortar, with the glass shells of dead diatoms gathered one by one and set like tiny bricks. Its builders are its citizens: white amphipods curved like commas, isopods flat as coins, sea spiders stepping on stilts, translucent shrimp, tube worms in paper houses, and finger-long sculpins the color of the ice itself, who patrol very slowly and eat whoever builds in the wrong street.
+
+They are everywhere. That is the first true thing about the city. In an arm's length of water there are hundreds of bodies, layered by the strata — copepods flickering in the fresh upper stories, amphipod masons clinging upside-down to the ice avenues above them, worms below in the saltier dark, snails grazing the walls so close their shells knock. Nobody is ever alone and nobody ever touches for long. Antennae do the touching instead, a constant, silent negotiation of scent and vibration.
+
+The architecture follows the water.
+
+Near the dome, where the ice-algae hangs in sparse, brown-green chains from the ceiling — the only vegetation, and barely that, a few beaded threads that taste of iron and make the light browner where they sway — the amphipods have raised towers. Their houses are living sponge and bryozoan lace, accreting even after the maker dies, rooms budding off rooms. Old exoskeletons are incorporated as curved roofs. A molted shell makes a perfect doorway for something smaller a week later, and so the neighborhoods are always being subdivided from within.
+
+Lower down, crossing the meltwater boundary, the streets run between platelet-ice stalagmites that grow up from ledges and down from the roof at once. Here the builders cement diatom glass into low walls to baffle the tidal current that squeezes, twice a day, through a crack in the back of the dome. When the tide turns, the whole city leans. Plankton and detritus snow in sideways, caught in worm tubes and sponge chimneys, and the sculpins move out along their avenues in absolute silence, mouths opening and closing. It is rush hour. It is a feeding. It is a cull. A district can be bustling with pellet-bricklayers at noon and be empty shells by the next inflow, its materials already being carried off, mouthful by mouthful, to found a new block nearer the algae gardens.
+
+No building is finished. That is a rule here because it is a physical fact. The ice above is growing new crystal, melting in invisible places, crawling with brine channels that weep salt and carve new alleys overnight. A tower cemented too firmly will be sheared off. A tube anchored too lightly will be swept to the boundary layer and drowned, bouncing there until something eats it. The successful citizens build the way they digest: constantly, communally, expelling themselves into walls that continue to live, and leaving before the walls leave them.
+
+There are districts by flavor. The upper fresh quarter smells — to an antenna — of algae and iron, and only the smallest, most cold-hardened animals can stand its thinness. The middle streets are brackish and crowded, market-thick with shed skins and eggs glued in strings to sponge walls. The bottom, along the floor that is not a floor but a sloping lip of old ice, is salt-dark and comparatively warm, and the worms keep it in perpetual construction, raising chimneys that dissolve at their tips as fast as they are built at their bases.
+
+If you stay long enough — and you would have to stay motionless, because any vibration brings every antenna in the dome around to you at once — you start to see that the city is also migrating inside itself. As a new platelet seals one entrance, ten families carry their glass bricks through a brine channel to an annex pocket you did not know existed, a second, smaller dome behind a curtain of crystal, and then a third, a branching warren of pockets each no bigger than a kettle, connected by passages one fish wide. It is a settlement, unmistakably, with suburbs and ruins and thoroughfares, and its total map would fit under a dinner table.
+
+By late winter it will all change state. Either the dome freezes through, crystal by crystal, preserving whole streets in clear ice with their inhabitants halted mid-carry, mid-graze, to be read the next spring like a fly in amber; or the keel of ice breaks away and rolls, and the lens of fresh water spills, and the little glass walls dissolve into the general cold sea, and the builders, suddenly without walls, swim upward to find another flaw in the underside of the world and begin pressing pellets together again, in silence, in the dim blue light, while new ice is still deciding what shape to be.

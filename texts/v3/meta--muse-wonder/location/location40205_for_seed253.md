@@ -1,0 +1,39 @@
+There is a sea on the roof.
+
+You reach it only after the climb has stopped feeling like a climb. For days the ground has been rising under thin, cool air that makes your lungs work for every breath and turns exhalation into fog, and then — because the range is so old, so completely worn down — it simply stops rising. The peaks that once ringed this place have eroded into long, soft backs, almost a plain. Nothing sharp remains. Nothing young remains. It is a high, flat world at an altitude where weather should be bright and violent, and instead everything arrives softened, muffled, final.
+
+You hear it long before the water shows itself.
+
+A roar, first. Then, inside the roar, a chorus.
+
+The sound does not swell or fall. It is a steady falling of water from level to level, and reeds humming in a constant wind, and frogs — thousands of frogs — and under them a deep, percussive booming made by large waterbirds striking hollow stems with their beaks. It is loud enough that you have to raise your voice at the edge of it, and loud in a way that has no event in it. Nothing is starting. Nothing is alarming anything else. It is just the volume the place maintains, the way it maintains its temperature, its water level, its light.
+
+It is always almost dark here.
+
+Mist lies on the plateau in a permanent, low sheet, and below the mist the water is covered. Not choked, exactly — covered by design. Broad floating leaves, each wider than a doorway, lie separated by hand's-widths of black water, so evenly that the spacing looks tended. Between the great leaves are lanes of open water. Above them, emergent reeds and small, crooked trees rise at very wide intervals, sparse presences on a regional scale, their trunks vanishing down into the flood. From a rise in the old rim you can see the system extending valley-wide and beyond: terrace after terrace of still, leaf-covered pools, stepping almost imperceptibly down across the plateau, each one held by a low, curving wall.
+
+There is no shore. There is no natural edge to find.
+
+Every edge here was made. The terrace walls are not stone — there is no stone to be found anywhere in the basin, not in the walls, not underfoot, not at the bottom, if there is a bottom. They are woven root, living and dead together, generations of reed and willow and water-tree trained, braided, packed with peat and allowed to thicken until a wall became a bank and a bank became indistinguishable from ground. The islands are made the same way: floating mats that were anchored, loaded, planted, built up century by century until they held trees. The narrows between pools are sluices of hollowed, hardened wood. Even the low hills of the rim, when you cut into their turf, are old dams inside — compacted fiber gone dense and dark as bog oak.
+
+And yet there is no technology in it. No metal has ever rusted here, no wheel, no cut beam, no nail. It was built with hands and teeth and roots and time, and the building never exactly stopped; it just passed out of human keeping. Beavers now patch the terrace lips with woven green sticks. Weaver birds repair the reed screens that slow the current. Otters clear the sluices. The plants themselves do most of the work: a root that finds a gap grows through it, hardens, becomes the wall again. What was made has grown, and what has grown was guided. After this many thousands of years the distinction is ceremonial.
+
+To enter is to be submerged by degrees that never complete.
+
+You wade first across a mat that gives under your weight like a lung, water welling up cold around your ankles through the weave. Then the mat ends, deliberately, at a lane, and you are waist-deep, then swimming, in water the color of strong tea. It is cool enough to ache in the teeth and wrists, cool without ever being winter-cold, and it will not warm around your body. Above the leaves the mist beads on every surface. Below the leaves, the light fails in a few feet.
+
+Underwater is the true architecture.
+
+The sparse trees you saw from above are the tops of pillars. Their trunks descend through black water, widening into buttresses, into hollow chambers, into lattices where roots from neighboring trees were once braided together and have since fused. Fish live in those chambers in ordered multitudes — pale, slow schools turning as one in the currentless water, nesting in woven root baskets that may have been made for them or may simply have been adopted so long ago the fish now repair them with mouthfuls of fiber. Blind cave-dark catfish, though this is no cave, nose along the pillar bases. Frogs cling at every depth, not just at the surface, calling through the water so that a diver feels the sound in the ribs. Snails graze the submerged wood in shining roads. Eels thread the lattices. Dragonfly larvae, water beetles, freshwater shrimp like glass, turtles paddling ponderously between terraces carrying gardens of algae on their shells — the water is abundant with animal life in a way the spacious surface never suggests. The emptiness above is a kind of politeness; below, in the dark, everything is occupied, and has been occupied in the same arrangements for a very long time.
+
+For nothing here changes at the speed of living.
+
+The water in the highest pool falls to the next at the same rate it did, presumably, a thousand years ago, because inflow and outflow and evaporation and the slow seep through root-walls arrived, ages past, at a perfect agreement. A leaf rots precisely as fast as another leaf unfolds. A terrace wall subsides a finger's width in a century and grows a finger's width in the same century. The frog chorus does not have a season. The birds boom at all hours under the mist, because there are no hours distinct enough to object — a grey, leaf-filtered twilight at noon, the same grey deepening only slightly at night, stars never quite visible, sun a brightening in the fog overhead like a lamp behind cloth.
+
+This is the final form of the place, and it knows it. Erosion did not destroy the high terraces; it completed them. It rounded every woven corner, settled every mat, ground the surrounding mountains down to a rim just high enough to hold the flood and no higher, as if the landscape had spent its entire existence deciding exactly how much drama it intended to keep, and chose almost none.
+
+The rules, once you have been wet a while, become plain.
+
+You cannot get dry; even the tree-islands are saturated, their interiors dripping, their hollows lined with moss that holds water like a sponge. You cannot get to the bottom; there is only deeper weaving, older and more compacted weaving, water pressing between fibers all the way down. You cannot be quiet, and you cannot make silence happen — the falling water and the reeds and the ceaseless animal music cover a shout in seconds and render a whisper irrelevant. You cannot hurry the ecology: a footprint dented into a mat will still be there, slowly not healing, next season, because healing and decay have balanced each other out of visible motion.
+
+And you cannot, finally, tell where the garden ends and the wilderness resumes, because there is no wilderness left inside the rim. Every root lattice was placed, every lane of open water was kept open, every pillar tree grows where a builder — human, animal, or the tree's own trained ancestor — intended a pillar to be. It is a wholly constructed world that has forgotten construction and become a sea: cool, black, high above the clouds that sometimes fill the valleys far below, loud with frogs, dark under its leaves, and holding perfectly, perfectly still in the middle of its perpetual falling.

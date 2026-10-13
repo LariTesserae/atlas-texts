@@ -1,0 +1,31 @@
+I would not arrive all at once.
+
+No one does, up there. You come up the service path beside the cable with your pack banging your knees in the thin air, and your ears fill with the roar before you can even see the rim, and for the first day you are just another rotation — shouting too loud or not loud enough, stepping off the grating because the moss *looks* so soft and solid, reaching for the wrong tap because water is water.
+
+I would stay after that.
+
+Not because I was assigned to stay. Because the handovers would keep happening around me. Someone else's boots under the bench. Someone else's voice reading the gauges over the tearing of the fans. And I would realize I was the one showing them where not to step, where the rock is hollowed for a pipe, which valve changes its note before it fails. I would realize my mug was already on the blue tap.
+
+I am the keeper. The soft part of the machine.
+
+Low, because the bowl makes you low. The wind comes through the notch in the southern rim all day, slow and heavy as a river, and anything tall gets leaned on until it learns. Broad in the chest, not from strength exactly, from years of taking a shallow share of every breath and deciding it will be enough. I move at the speed the place permits — the fans turning once, twice per breath, the cloud coming through the mesh at a walking pace, the filters clearing at a walking pace — and if you tried to hurry me you would only hear me place each foot more carefully on the steel grating.
+
+My hands would tell you before my face did. Fine white seams across the knuckles where the young basalt — sixty years out of the earth and still splitting pale inside like bone — has cut me and cut me until the cuts became a kind of writing. Oil under the nails that lives there now. A green stain between the fingers that never washes out, copper-green from the pipe joints, algae-green from the settling tank. I scrape that same green off the fan guards every morning with a flat blade, or the moss that has learned the iron would choke them in a week, and the work takes its color back into me.
+
+I am always a little wet. That is not a condition up there, it is the medium. Steam from the powerhouse and real cloud pour through the notch until they are the same thing, and every surface weeps. My cuffs. My hair, cut short for it. The fig leaves against the powerhouse wall ticking drip onto drip onto drip. At noon, for one hard clear hour, I dry out in the sun while the basalt ticks as it expands, and by evening I am wet again.
+
+I drink only from the blue tap. I would stop you from drinking anywhere else without thinking about it, the way you'd catch a wrist near a hot pipe. Every other water in the bowl has been through something and carries the station in it — mesh, engine jacket, the warm beds under the plants. The blue tap tastes of stone and almost nothing, and I taste it the way you check your own pulse. In the morning when the cloud-sea rises and the towers disappear in white and the drip-rate doubles. At night before I sleep. If it changed, I would know it in my mouth before any gauge admitted it.
+
+Because the water going down the eastern pipe, bracketed to the cliff all the way to the farms under the cloud — that is what the station is *for*, but it is not what I do all day. What I do is keep the waste going.
+
+The lushness is on life support and I am the one who knows it in my body. The fig that has no business at this altitude, flat against the wall over the exhaust. The feral mint. The broad-leaf groundcover someone carried up in sacks of soil decades ago. Moss a hand thick over liverwort over black rock that should be bare. If the circulation pump stopped pushing warm water under the beds, if the diesel faltered out of its idle shudder, if I turned anything off for one still night to finally hear myself think — the air up here can drop below freezing in twenty minutes, even in summer. They would blacken. All of it. So I never turn anything off. I feed the bowl before I feed myself: oil before dinner, a filter before tea, a leaking joint packed while cloud tears itself apart over my head and calls itself rain.
+
+At night I sleep in the lower bunk of the hut, stone below and iron above, with one hand on the floor. Not for balance. For information. The generator settles to a heartbeat that comes up through the stone and the bedframe and the grating outside. The fans slow. Under it, deeper and less regular, the young mountain has its own pulse. I sleep between the two rhythms and keep them in time without deciding to. A pump labours, a valve finds a new note, the cistern under the floor changes its ticking — and I am awake, standing in the steam in my wet cuffs before I have a thought to go with the waking.
+
+The choughs that nest in the rim-teeth scream over me in the last clear minutes and do not alter their line. I am weather to them. The pale moths batter past my face in the powerhouse doorway, impossibly far from any tree, and I let them. When a bee gets blown up on the same slow wind that feeds the condensers and panics, bright and doomed, around the fig, I cup it in these cut hands as gently as I can and put it back in the warm leaves. It will die there anyway. Slower is something I understand how to give.
+
+Down the cable, people would ask when my rotation ends. I would have stopped having a good answer. Rotations come and go and learn the rules until the rules accumulate in them — stay on the grating, go slowly, drink from the blue tap — and then they go down into thicker air. I stay up through the seam between them. Different faces condense out of the steam beside the sweating tanks, for a while. Mine keeps being the one.
+
+Not a hermit. Not quite crew. A function that grew a body because the machine needed one part that could taste, and listen through its ribs, and feel a pressure change in its teeth in the dark.
+
+In a green bowl forty paces wide at the top of the world, where below the rim everything falls away for thousands of meters and above the rim there is nothing, I move slowly among ferns and iron, smelling of hot oil and wet earth, keeping something alive through the night by never, ever letting the engines stop.

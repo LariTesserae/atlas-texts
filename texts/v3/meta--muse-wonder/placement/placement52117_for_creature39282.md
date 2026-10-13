@@ -1,0 +1,39 @@
+It begins, for me, with not trusting the floor.
+
+Not fearing it. That is different, and they would know the difference through their soles before I had finished explaining it. Fear makes you stamp. Fear makes you grip. I would not last long on a narrow causeway if I was always trying to hold the world still.
+
+So I don't think I would be found in the middle of a village, if village is even the word for twenty gourd-houses held miles apart by green distance. The middle would be too much like ground. People would expect me to settle, to add my known weight to a known swelling in a tower-tree, to let a doorway lower itself politely over my grandchildren.
+
+At first I think I might be one of the Repair-walkers. That has an honest pull to it. Young, or young enough, with a stone adze tied to my wrist and fresh fiber coiled over one shoulder, walking the lines with my feet doing the listening. Finding the dull place. The give that is wrong by half a degree. Cutting the dead weave out and planting the new and then hammocking there, over a mile of warm white emptiness, while the repair learned how to be a floor again.
+
+I would like the tenderness they show those walkers. Midwife and undertaker in the same hands. Braiding in my sleep.
+
+But I stay with that image and it shifts under me, the way everything there does. Repair is a whole life of leaving. You are always somewhere the world has thinned. And I think — testing it with a toe, the way the old people test empty air — I think what rushes up to meet me is not a path but a *place where paths are handed over*.
+
+So: not the center. Not the high umbrella canopy, either, though I would go up there during the Flowering just to be less hungry in a shaft of sun, my skin faintly green, tasting light while the pollen filmed every bowl gold. And not quite the Underlooming, though it would know me.
+
+You would find me at a root-door.
+
+Where one of the great anchor trunks goes down through the mat, thick as a district, and the world on either side of it starts to disagree about down. Where a dropped cup doesn't fall so much as *decide*, slantwise, and comes to rest against bark an hour later and a surprising distance away. Where the woven stems have mineralized silver-grey from a thousand years of hands and rain, and there is a wart-like widening grown into the side of the trunk — not a house, exactly. A passing-place. A place to turn face to face and revolve slowly, hands linked, like dancers. A bowl-hollow of black still water that no one drinks from because it is for watching the frogs' throats go dark in sequence from a point outward.
+
+I would be the keeper of that widening. If keeper is not too heavy a word. A lean person, even by their standards — narrow-boned, ribs showing, hair dark with oil and damp and threaded through with one bone needle that used to be someone's browser, someone's great-grandparent, depending on how you count. My ankle-cord would not be loose out of habit. Mine would be language. I would tie and untie it without looking while I talked.
+
+Because that is the work, there at the lean: receiving what the two worlds drop into each other.
+
+From above, during the day that is never brighter than green twilight: a shell knife older than rivers, slipped from a wrist-cord during the Pruning, still smelling of green juice. A seed meant for planting that chose to go up instead and then, reconsidering, came down in the wrong district entirely. A child, once — I hold that possibility carefully, testing its weight — a child who slipped a tether in the Flowering light and arrived slantwise and indignant into my widening, with moss in her hair and a story her feet were telling too fast for her mouth, and had to be soothed through the trunk itself, heel pressed to bark, until the rhythm reached her grandmother two villages away and came back slower: *held, held, held.*
+
+From below, in the pale inverted orchards: fruit that ripens toward the cloud-sea and falls up into a waiting hand. Arrangements of petals that are not decoration. Cats have been here. Cats will be here again, moving through the lean near the trunk as if gravity were a suggestion. Tools returned without comment. Sometimes — rarely — a word spelled out in dropped things, because foot-speech does not translate upside down. The soles say one thing against a floor and another against a ceiling, and somewhere in the trunk a message has to be turned over gently, like a sleeper in a hammock, before it can be sent on.
+
+That turning-over is what my hands would be for. Long fingers, palms grooved dark by fiber, braiding always. Rope to send a message down in knots. Rope to haul a returned adze up. Rope to tie a visitor loosely to the widening while they slept through the Long Sway, so they could wake feeling the whole continent move in their knees in time with strangers they will never meet, and understand in their bodies that none of them are being carried separately.
+
+I would speak very little out loud. A breathy, rounded-off voice for a few feet of green dusk. Most of what I had to say would go down through my heels into the trunk, where the grain has learned to carry it to both sides. *Stop.* Precisely held stillness. *Danger.* A drag of the toe. *Someone is coming across the bridge, be patient at the widening.* *An elder has died in the tower district during the Sway, make room in the weave.* *Pollen-cake, still warm, left at the root-door for the pale cousins, no thanks arranged.*
+
+And in between messages, I would sit with my back against the warm inner curve of the passing-place and do what everyone there does without deciding to: persuade. Prune a shoot that wanted to close the doorway. Train a young vine across a gap and then leave it alone for twenty years. Press my foot, idly, into the empty air beyond the edge at dawn — not expecting a step, not *not* expecting one — and feel that young, springy rush under my sole as something in the mat hurries to meet me because I believed, correctly, that it might.
+
+I would not be important. That matters, there. Looking straight at someone is for festivals and deaths; the rest of the time you attend to each other peripherally, a polite way of saying *I am not the most important warm thing in your landscape.* I would be attended to that way, and I would be grateful. A known slight weight on a known widening. A pair of hands at the place where up changes its mind. Someone who catches the upward rain in her mouth without commenting on it as it passes, because some of it is meant for her and some of it is only passing through on its way to become weather.
+
+And when I got old — when my joints, used to micro-sway, outlasted my eyes, when the mold in my hair went from green toward the white of the below-people because I spent more and more time hanging in the lean, reading petals — I would not move up into a tower to become architecture all at once. I think the widening would simply grow around my habits. A sleeping alcove swelling where I always slept. A handrail polished where my palm always landed. A doorway lowering, year by year, until everyone who came to leave pale fruit or fetch a returned knife had to bow a little to enter the place where I used to sit.
+
+And after, when they wove me in during the Long Sway — cut the dead weave out, plant the new, same gesture, no more solemn and no less — some part of the passing-place would keep expecting feet at the turn. Travellers face-to-face on the widening would feel it through their soles, faint as a held breath under the moss:
+
+*Slowly now. Hands linked. I am still carrying you across.*

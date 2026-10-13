@@ -1,0 +1,43 @@
+It is not on the way to anywhere. High up, above where trees stop trying, there is a mountain that has not finished happening yet, and inside it, a room that has not decided to be outside.
+
+From a distance the peak is wrong for a mountain. It is too fresh. No scree slopes softened by weather, no gullies cut by rain, no rounded shoulders. The rock is still black glass and unbroken basalt, planes meeting at knife edges, as if it were pushed up yesterday through the crust and left there steaming. The air up there is thin and clean and hot for no reason the wind can explain. It tastes of pennies and struck matches.
+
+You find the pocket only because the rock is still growing. Once a day, when the sun is almost overhead, a vertical seam on the south face sighs open a hand's breadth wider than it is at night. Not a cave mouth. A pressure crack. Warm air comes out of it in a slow, regular exhalation, and if you turn sideways and hold your breath you can slip through into the hollow behind it.
+
+Inside, it is not dark. That is the first failure of logic.
+
+The hollow is no larger than a small chapel — maybe twenty paces across if you could walk straight, which you can't, because the floor is new. It should be sealed in stone, but plain daylight fills it, white and ordinary, falling from no visible sky. It arrives at the angle the sun *will* have in about twenty minutes. When a cloud passes outside, the shadow of it crosses this inner floor before the cloud reaches the peak.
+
+And it is lush in here. Impossibly, dryly lush.
+
+There is no water. Not a drop, not damp stone, not even condensation in the coolest corner, because there is no coolest corner. The walls radiate a steady furnace heat, 40 degrees and rising toward the back, and the air shimmers faintly over the floor. The floor itself is fresh ash the color of graphite, un-trampled, un-eroded, grains still angular underfoot. It crunches like snow that has never melted.
+
+Scattered across that emptiness — very scattered, with long stretches of bare black sand between them — are five plants. Five only. Each one is so overgrown, so thick-leaved and tangled, that from the entrance you think the place is a jungle. Up close you see the gaps. The emptiness is part of it.
+
+They are not plants that drink. They have no interest in water at all. Their roots do not go down for moisture; they go down for heat and pressure, flattening into white-hot filaments where they enter cracks in the basalt. What moves up their stems instead of sap is a clear, viscous mineral oil and, in the oldest stalk, a thread of molten salt bright as wire. It ticks as it cools and reheats.
+
+The tallest is a kind of furnace-fern, three meters high when it is extended, which is not always. Its fronds are thick, translucent amber plates veined with copper, each leaf hinged at the midrib with a bimetallic strip of its own growing. Heat makes them curl. Cooling makes them snap open. One whole frond takes most of a day to complete the gesture. Days of slow coiling, then a sudden, silent unfolding that stirs the hot air and makes all the other leaves chime faintly against each other.
+
+Below it, a low rosette grinds.
+
+There is no better word. Its outer leaves are stone-heavy, edged with silica teeth, and they rotate — a degree an hour, patient as a millstone — around a central depression in the rock. It is making the first soil this mountain will ever have, chewing raw basalt into that graphite ash, exhaling a faint plume of sulfur and iron vapor from its center. The vapor is its breath. The fern drinks the breath through pores on the undersides of its fronds. Nothing here wastes anything because nothing here can afford to import anything.
+
+Along the back wall, where the rock is hottest and actually glows a dull cherry in the seams, an ivy has spread that should not be able to climb. Its leaves do not face the light. They face the heat that the light had yesterday. Its vines are hollow and jointed like bamboo, like pipework, and inside them something pistons back and forth with the daily expansion of the stone. You can put your ear near it — not on it, it will blister you — and hear a deep, hydraulic sigh, once every few hours, as a stem extends by a millimeter and locks with a soft mineral *click*.
+
+This is the factory. Nobody built it.
+
+No walls were laid, no machines installed, but the pocket refines. It does, slowly and without purpose, everything a small industrial plant does on the surface. It generates power: when the fern-fronds snap open, piezoelectric crystals in their hinges discharge, and a blue arc will sometimes jump, spider-thin, from the tip of the tallest stalk to the ivy — that is pollination here, since there are no insects, no birds, no animal life at all to carry anything winged or furred between the five isolated presences. It smelts: the ivy draws metallic vapor up from the deep crack and condenses it, bead by perfect bead, in the axils of its leaves. Copper. Tin. Once, near the floor, a bead of something almost gold that was too soft to be gold. The beads grow over weeks, detach with a clear musical *tink* that is almost the only sharp sound in the place, and land in a shallow groove the rosette has worn in the stone.
+
+Then, over months, the groove conveys them. Not because it is a conveyor. Because the floor is still tilting, infinitesimally, as the mountain grows underneath it. The beads roll — a fraction of a millimeter a day, in fits — back toward the central crack, where they crack open in the heat and release their metal again as vapor, and also a single black seed like a ball-bearing. Nothing leaves the loop. If you took a cool bead in your palm and carried it out through the seam, by the time the thin outer air hit it, it would have unmade itself into dust and a smell of ozone. It was never meant to exist at a lower temperature.
+
+The quiet is physiological. Your own breathing sounds intrusive. The plants make no rustle unless touched by their own electricity. Every few hours a leaf clicks. Every few days a bead drops. Between those events there is only the faint ticking of cooling rock that is not, in fact, cooling; it is reheating in a cycle so slow you have to leave a marker to prove the crack widened.
+
+And weirdness pools in a pocket that is still being formed, before the ordinary rules have had time to erode it into consistency.
+
+Your shadow enters a second before you do, stretching across the ash to show you where you are about to step. Sound arrives with a similar courtesy and warning: you will hear the *tink* of a bead, turn to look, and then watch it fall. The plants grow not toward where the light is falling now, but where it fell when their seeds germinated, so the whole small canopy leans toward a sun that was in a slightly different place in a slightly different season, giving the room a skewed, remembered summer.
+
+Gravity, politely, is negotiable near the back wall. Ash grains loosened by your foot do not always fall down. Some hesitate, drift sideways toward the hottest seam, and stick there, building tiny stalactites horizontally out of dust and static. If you stay too long — and the heat makes too long arrive sooner than you think, sweat evaporating off you instantly, lips cracking, eyes stinging with dry air that steals moisture it never returns as rain — you begin to feel the slow pump of the place trying to recruit you. Your heart wants to sync to the ivy. Your temperature wants to rise to meet the room.
+
+That is the rule: everything in here circulates at geological speed, and anything quick and wet and animal is only a visitor. It cannot pollinate, it cannot feed, it cannot stay. There is no food. There is no water to refill what the heat takes. The lushness is not for eating. The leaves are glass and copper and boiling salt; they are beautiful the way a still furnace is beautiful, heavy with stored work, reflective, throwing back hard white daylight in amber and green flashes even though their green is not chlorophyll-green but the green of oxidized metal.
+
+One day, not soon, the seam will stop opening. The mountain will finish this increment of itself, the pressure will seal, and the pocket will continue for a while in its enclosed daylight that comes from nowhere, five plants trading vapor and sparks and ground stone in the dark that thinks it is noon, until the heat source shifts deeper and they slow, and slow, and lock open or lock closed mid-gesture. For now it is embryonic. Raw. An industry before industry, a garden before soil, making itself out of heat and light and stone in a hidden room in the sky where nothing has ever lived, and nothing yet has ever died.
