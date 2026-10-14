@@ -1,0 +1,49 @@
+If you stand still in one of the flooded plazas for twenty minutes—long enough for the freezing brine to numb your calves and for your ears to stop trying to separate the roar into individual sounds—you will begin to notice that some of the walls are breathing at a different rate than the rest.
+
+What looks, in the occasional static-blue flash of rock-shearing, like a buttress of bundled black pipes crusted in tube-worms will, over the course of half an hour, detach a section of itself from the masonry. It does not peel away so much as un-knit. Hundreds of slender, mineralized filaments pull free from the microscopic pores of the basalt-polymer with a sound like wet Velcro ripping under water.
+
+They are called the Masons by the few off-world surveyors who have dropped acoustic buoys into the basin, though they do not build, and they are not a single species in any way that a clean biology would recognize. They are what happens when an intelligence is forced to share its body chemistry with a self-assembling city.
+
+A Mason is roughly the mass of a draft horse, though it rarely holds a shape that makes that obvious. At its core is a dense, radially symmetrical saddle of pale, fibrous gristle—an evolutionary descendant of the basin’s deep-trench echinoderms—wrapped around a heavy, chambered hydrostatic stomach. From this core extend between twelve and twenty limbs that have no joints at all, only bundles of muscular hydrostats armored in interlocking, hexagonal sleeves of black ceramic. 
+
+They did not evolve the ceramic. They contracted it. 
+
+Because the city’s milky fabrication fluid is designed to seek out raw mineral surfaces and organize them into load-bearing geometry, anything that lives long enough in the basin without constantly shedding its skin becomes a target for the infrastructure. The small crustaceans use it to grow shells and then die when their hinges lock up. The Masons have learned to negotiate with it. A Mason’s hide is covered in thousands of tiny, weeping papillary vents that secrete a precise chemical counterfeit of the city’s own "stop-growth" wash—the solvent the towers use to keep their internal conduits from choking solid. By pulsing these vents in slow, complex patterns across its body, a Mason allows the city’s nanoscale mortar to crust over its limbs in rigid, protective plates, while keeping the seams between the plates dissolved and flexible. 
+
+They wear the city like armor, and when the armor grows too heavy, they simply change the chemistry of their sweat and let the street take it back.
+
+In the pitch dark, a Mason does not see, and it does not use the simple echolocation of a bat or a dolphin; the acoustic environment of the basin is far too dirty for a clean ping to return anything useful. Instead, they use the deafening roar of the valley the way a sighted creature uses daylight. The millions of clicking shells, the thrum of the phase-shift cores, and the sheet-metal drumming of the brine-rain create a permanent, high-pressure sound field. A Mason’s dorsal ridge is a pleated, six-foot-long acoustic lens filled with dense, heavy perilymph oil. As the creature inches along a viaduct, it reads the *acoustic shadows* cast by the things around it—the way a Wader’s thick, buckskin torso muffles the hiss of a pipe behind it, or the way a fresh crack in an obsidian terrace rings at a slightly higher pitch when the plateau shudders.
+
+To a Mason, the world is a dense, three-dimensional hologram of resonant densities. They know the exact thickness of a retaining wall fifty yards away by the way the hum of the thermal core bends around its corners.
+
+They are farmers, though their agriculture looks to an outsider like plumbing maintenance.
+
+A Mason’s life is spent tending the *bloom-seams*—the narrow, fiercely contested zones where the hair-thin fabrication nozzles meet the freezing brine. Left alone, a nozzle will simply extrude a straight, hexagonal column of black ceramic until it hits another column and fuses. The Masons interrupt this. Moving with the same hydraulic, four-minute-per-step patience as everything else in the basin, a pair of Masons will bracket a growing wall. They press their broad, muscular ventral pads against the weeping nozzles and begin to hum.
+
+They do not use vocal cords. They have a series of calcified, ratcheted plates inside their hydrostatic stomachs that they grind together, producing a low, bone-shaking square wave that travels directly from their flesh into the wet polymer of the wall. 
+
+The city’s self-assembling mortar is piezoelectric; it responds to mechanical stress and vibration by thickening where the load is heaviest. By humming into the wet, unhardened stone for weeks at a time, the Masons trick the city into believing that a massive structural load is bearing down from an angle that doesn't exist. The nozzles respond by flaring outward, building not a flat wall, but a broad, ruffled, heat-radiating flange—a black ceramic shelf ridged like the underside of a mushroom, shot through with warm, leaky capillaries of fabrication milk.
+
+Within days, this artificial overhang becomes a prime piece of real estate. The warm milk-seep attracts a thick, velvety carpet of lithotrophic gray bacteria; the bacteria draw the platter-sized gastropods; the underside of the shelf becomes a tangled curtain of siphonophores sheltering from the heaviest downpour. 
+
+And the Mason stays right in the center of it, half-mortared into the bracket it tricked the city into building. It does not need to crawl around and hunt. It simply extends its long, tubular feeding proboscis—tipped with a ring of black obsidian teeth it has swallowed and regurgitated into place—and grazes in a slow circle around itself, scraping up snails, tube-worms, and bacterial mat alike, digesting them over days in a stomach that runs just two degrees above freezing.
+
+What makes them more than clever parasites is what they do with the sound.
+
+Because the city is a continuous, solid network of hexagonal ceramic and tensioned basalt, it is a near-perfect conductor of low-frequency vibration. A Mason humming to shape a wall on the third tier can be felt through the stone by another Mason four miles away at the edge of the abyssal drop. Over thousands of generations—since whatever forgotten terraforming or mining engine first seeded the plateau with lithic polymers and walked away—their work-songs have drifted into language, and the language has drifted into architecture.
+
+When you walk through the flooded streets and notice that the towers are not uniform—that some twist in slow, helical spirals, that certain viaducts branch into dense, basket-like vaults overhead that catch the warm mist and hold it in pockets of thick, suffocating fog—you are looking at an argument, or a history, or a territorial claim written in load-bearing stone. 
+
+A lineage of Masons will spend three human lifetimes vibrating a single tower-base, introducing a deliberate harmonic flaw into the city’s growth algorithms so that, two hundred feet up in the dark, the pipes will splay open and dump ten thousand gallons of warm, mineral-rich slush per hour directly onto their descendants' grazing terraces. Rival lineages, half a mile away, will counter-hum into the bedrock, trying to damp the vibration or bounce a canceling frequency off the raw obsidian cliffs to starve the upper nozzles back into straight, barren walls.
+
+They have no eyes to see the shapes they are making, and they have no concept of the sky above the freezing cloud-deck. To a Mason, the universe is an infinite, upward-slanting matrix of cold stone and warm pipes, and "thought" is not something that happens inside an individual skull. Their nervous systems are too cold and too slow for quick, private calculation; a sodium-potassium nerve impulse takes nearly a second to travel from a Mason’s acoustic ridge down to its furthest ceramic-sheathed limb. 
+
+Instead, they think *through* the masonry. 
+
+When fifty Masons are anchored along the length of a weeping ziggurat, their ventral pads pressed tight to the black ceramic, their grinding internal plates lock into phase with one another. They use the hollow, water-filled conduits of the building as resonant organ pipes, bouncing standing waves back and forth between their bodies. The building becomes an external, acoustic brain—a slow, booming interferometry computer made of stone and brine. A decision—to divert a canal, to shear off a dying siphonophore curtain that is blocking the nutrient flow, to migrate six yards down-tier before an unstable basalt ledge shears off into the dark—is worked out over weeks as a shifting chord in the rock, felt through the feet of every blind thing in the district long before a single limb is lifted to execute it.
+
+If you are careless enough to lean your shoulder against a warm pipe to rest while wading through the lower tiers, you might feel a Mason’s attention turn toward you. 
+
+It will not come as an attack. You will simply feel the hum in the polymer beneath your palm change pitch—dropping from a dull, industrial sixty-cycle drone into a complex, stuttering rhythm that makes your teeth ache and the water in your canteen shiver into concentric rings. Out in the pitch black, twelve or twenty feet up the slick wall, something the size of a carriage is flexing its hydrostats, cracking the thin rime of new ceramic at its joints with a sound like pistol shots muffled in wet wool. It is using the vibration of your own skeleton to map the strange, warm, overly fast pocket of water that is your body.
+
+If you move on, it will let you go; you are too fast to be stone, and too small to change the way the water falls. Within an hour, the hum in the pipe behind you will settle back into its old, heavy cadence, coaxing the wall another fraction of a millimeter outward into the freezing dark.

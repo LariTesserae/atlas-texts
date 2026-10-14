@@ -1,0 +1,43 @@
+At first, you would take it for a coping stone that had slipped from a drowned parapet and wedged itself into the groin of two intersecting arches, sixty feet below the meniscus. 
+
+It has the same lozenge-softened corners as the soapstone, the same heavy rind of gray-and-ochre bacterial felt, the same encrusted knuckles of tube-worms and small, limpet-like snails riding its ridges. A cloud of the eyeless shrimp hangs in the hollow under its chin, their hair-fine feelers brushing against its throat without provoking the slightest twitch. 
+
+Only if you waited through several of the mountain’s deep, multi-hour sighs—waited until the warm draft from a lower flue shifted by a fraction of a degree—would you see the stone unspool.
+
+What lives here is solitary, or else there are two or three of them moving so slowly through the three-dimensional maze of the cistern that they have not met in a century. It has no name, because no one has looked down through the cartwheel aperture at the top of the mountain since the bronze wedges were green, and even then, the builders only knew it as the small, cold-water larva they carried up in leather buckets from the subterranean rivers of the plain to keep the cistern’s joints clean of silt.
+
+Ten thousand years of warm, mineral-heavy confinement have made an abbot of the larva. 
+
+It is long—perhaps fourteen feet from its broad, shovel-shaped snout to the tip of its laterally compressed tail, though it is never stretched out straight. The architecture does not allow for straightness. Instead, it lives draped and folded through the masonry like a heavy bolt of wet, gray broadcloth dropped down a stairwell. Its body is a series of thick, muscular loops tucked into windowsills, coiled around the worn-down balusters of the middle galleries, and braced between opposing lintels.
+
+It is vaguely amphibian, in the way that a cathedral is vaguely a quarry. Its skin is pale where it is not gardened with sulfur-eating velvet, and so loose and heavily pleated along its flanks that it hangs in great, undulating curtains. These dermal frills are its lungs and its ears. It has no need to rise to the freezing circle of air at the ceiling; the thought of the surface—where the water ends and the thin, dry nothingness begins—is as alien to it as the plains two miles below. Its blood is dark, copper-rich, and moves at the pace of cooling tallow, drawing the scant oxygen from the warm, upwelling currents through the vast, vascular surface area of its ruffled skin.
+
+Where its eyes once were, there are now two shallow, saucer-shaped depressions covered in tight, drumhead membrane. It cannot see the noon-day spear of blue light that dies thirty feet above its customary roosts, nor the greasy green sparks of the scraping crabs. Instead, it sees the cistern in pressure and heat. Through the sensory pits lining its flat jaw and the long, sensitive pleats of its flanks, the creature holds a complete, continuous three-dimensional map of the abbey-well in its hindbrain. Every block of basalt, every rounded lintel, every creeping snail is registered by the way it baffles the rising thermal plumes and reflects the deep, sub-audible *thrum* of the vents below. When a gas bubble detaches from the bottommost tiers and begins its long, expanding climb toward the roof, the creature feels the rising sphere of displacement illuminating the entire structure from within, like a lantern carried up a spiral stair.
+
+It is the gardener here, and the landlord, and the mortar. 
+
+Its limbs—there are four of them, though they are set far apart along its trunk—are useless for walking on land, which does not exist, or for swimming in open water, of which there is none. They are long, multi-jointed, and Paleolithic in their thickness, terminating in four-fingered hands that have neither claws nor webbing, but broad, calloused pads like the feet of a gecko, gray and grooved to grip the slick, soapy stone. 
+
+Watch it move—if you have an afternoon to spend in the dark. 
+
+One heavy, gray hand detaches from a worn frieze of jar-bearers. The motion is so viscous, so closely matched to the speed of the thermal drift, that it creates no eddy. Not a single grain of the calcareous silt is stirred from the ledge. The arm extends downward through a square shaft, passing within an inch of a suspended, head-down eel. The eel does not flinch; to the eel, the passing limb is merely the wall changing its mind. The broad, padded fingers find the rounded edge of a stepped buttress six feet below, settle over the curve of the stone, and test the purchase. Only when the grip is locked does the rest of the body begin to pour itself downward, loop by heavy loop, sliding over the bacterial velvet without bruising it, leaving behind a faint, warm trail of mucus that the blind shrimp immediately descend upon to graze.
+
+It does not hunt the eels, nor does it crush the fist-sized ram’s-horn snails, though its jaws—hinged wide like a cellar trapdoor and lined with flat, cobblestone plates of bone—could easily reduce their calcified shells to powder. To hunt is to spend heat, and even in this warm well, the margin of life is too narrow for violence. 
+
+Instead, it tends the plumbing.
+
+Its entire existence is bent toward the preservation of the warm draft. Over the millennia, the constant rain of calcareous silt from the upper tiers and the relentless encrustation of the tube-worms threaten to choke the narrow, mortarless joints at the bottom of the cistern where the sulfurous water weeps from the mountain's heart. If those chinks seal, the water cools; if the water cools, the white velvet dies, the snails starve, and the mountain’s throat freezes solid from the cartwheel aperture down.
+
+So the creature spends its centuries in the lowest, darkest galleries, where the water is nearly blood-warm and smells of rotten eggs and old iron. 
+
+It drapes its hind quarters over a bridge and lowers its heavy, shovel-headed forebody into the narrow fissures between the cyclopean foundation blocks. There, in the absolute dark, it uses its long, spatulate fingers—the middle two on each hand are elongated, bony, and stiff as bronze chisels—to delicately pick and scrape at the calcified rinds sealing the vents. It works with the blind, methodical patience of the men who dressed these stones ten thousand years ago. *Tick. Scrape. Pause.* It pries loose a nodule of mineral-bound silt and swallows it whole.
+
+Its stomach is a slow mill. Inside its belly, it carries a dozen smoothly polished gizzard-stones—fragments of the original soapstone carvings it snapped off the walls ages ago, perhaps the nose of a bull or the heel of a priest, now tumbled into featureless black eggs inside its gut. With these, it grinds the swallowed silt and the encrusting tube-worms, digesting the dense bacterial mats and the microscopic fauna within, before extruding the sterile, pulverized stone as a fine, heavy paste. 
+
+It does not drop this paste at random. With a strange, inherited compulsion that looks almost like masonry, it presses its vent against the wider, draftier gaps in the upper tiers where the cold water from the surface tries to sink, sealing the drafts with its own dense, mineral clay, packing it down with the flat of its heavy tail.
+
+Once in a great while—perhaps once a year, perhaps once a decade—one of the large, heavy-shelled crabs will grow too old and heavy with epibionts to hold onto the slick soffit of an arch, and will come tumbling down through the shafts, clicking softly against the ledges as it falls. 
+
+If it happens to fall into the slack, waiting loop of the creature’s body, the creature will not refuse it. The wide, flat head will turn by an inch; the trapdoor jaw will open just enough to create a small, localized suction—a sudden, silent downdraft in the still water—and the crab, worms and all, will vanish into the dark mill of its throat. 
+
+Then the creature settles back into the angle of the wall. It tucks its chisel-fingered hands beneath its pleat-curtained belly. Within an hour, the drifting silt has dusted its flat skull again, the blind shrimp have re-tangled their antennae in the shelter of its jaw, and a fist-sized snail has begun the three-hour journey across the bridge of its nose, rasping the gray velvet from its skin as if it were just another block of basalt, locked into its final, irrevocable position at the bottom of the world.

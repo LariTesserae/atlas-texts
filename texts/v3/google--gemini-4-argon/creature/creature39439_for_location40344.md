@@ -1,0 +1,43 @@
+At first, it looks like a bucket of grey tallow that has been tipped over onto an inspection grating and left to melt through the slots.
+
+A thumb-thick rope of grease hangs down from the underside of the catwalk, swaying slightly in the rising thermal draft. Then the drip pulls itself back up. It does not snap back like rubber; it hauls itself up with the slow, deliberate, hand-over-hand gather of warm dough being kneaded by invisible fingers.
+
+What lives here has no skin, because skin is a wall designed to keep moisture in and heat out, and in this chamber, anything that resists the heat is eventually cooked by it. Instead, it is a shifting, cohesive mantle of heavy cylinder oil, rendered paraffin, calcium soap, and iron filings, bound together by a dense, rubbery mat of mycelium that has learned to drink electricity and breathe scalding mist. It has no Latin name, because the engineers who sealed the vault doors forty years ago never saw it, and if one were to open the doors today with a wrench and a lantern, he would look right at it and see only a weeping gasket that badly needed packing.
+
+The station’s blueprints call for three hundred weight-jars—heavy cast-iron canisters filled with lead shot that ride up and down on greased wire ropes to balance the steam-valves. If you were to count them through the amber gloom, you would find three hundred and four. 
+
+The extra four do not ride on cables. They hang by thick, translucent tendons of their own hardened grease from the undersides of the horse-sized manifolds. They have the exact dull, graphite sheen of the real counterweights, because their outer rinds are armored with black scale scraped from the boilers and fine basalt grit chewed from the walls. When a real counterweight inches downward on its twenty-minute cycle, the false weight beside it lowers itself at the exact same speed, matching the descent millimeter for millimeter, not out of camouﬂage—there is no one here to fool—but out of a deep, sympathetic compulsion to remain in balance with the room.
+
+They are the Sump-Wives, though there is no one to call them that. They are the chamber’s unscheduled maintenance.
+
+When the twenty-minute louvers drop open and the cool, damp breath of the aqueduct rushes in, the creature wakes from its torpor. As the pearly fog blooms around the bronze condensers, one of the hanging masses will unspool itself. It does not drop; it lowers a long, flat ribbon of itself down onto a copper trunk-pipe, spreading out like batter on a hot griddle until it is a yard wide and no thicker than a heavy flannel shirt. 
+
+It moves by rolling its own substance forward—an eerie, frictionless glide over the rivets and flanges. Where the pipe is blistering hot, the creature’s underside bubbles slightly, releasing a faint, sweet smell like scorched lard and pennyroyal, which is how it sheds excess water. Where the pipe is cool, it thickens, gathering the oily indoor rain on its back in beads that it rolls toward its center and swallows into small, dimpled mouths that open and close wherever they are needed.
+
+It is not an animal, and it is not a fungus, though it began as a marriage between the two: the tallow-based lubricants the builders swabbed onto the leather drive-belts sixty years ago, inoculated with deep-crust lithotrophic spores from the freshly blasted basalt and fed for decades on stray direct current leaking from the lead-sheathed cables. Over thousands of twenty-minute rainfalls, it has grown large, distributed, and proprietarily fussy.
+
+Look closely at the brass pressure-gauges where the glass is weeping. A pale, grease-colored band, no wider than a watch-spring, is extruded from a crack in the mortar. It creeps across the brass bezel, slips *under* the loose glass cover, and delicately licks the condensation from the painted tin face of the dial, careful not to touch the trembling black needle. It eats the green copper-sulfate crusts that threaten to jam the small balance-levers; it digests the copper into its own tissues, which is why, when one of the larger masses passes in front of a caged Edison bulb, its translucent margins glow a deep, bottle-green around a core of dull orange shadow.
+
+Its relationship with the sulfur-vines and the wire-ferns is one of slow, ruthless gardening. The vines are greedy for the light of the bulbs; left to themselves, they would wrap the wire cages so thickly that the heat would build up and pop the carbon filaments, plunging that sector of the latticework into cold darkness. The creature cannot abide the dark—it uses the dull infrared of the lamps to orient its blind, sprawling parts across the chasm. 
+
+So, in the three-minute window of the warm rain, while the vines are turgid and soft with drink, a lobe of the creature will haul itself up a vertical ladder—not using the rungs, but flowing up the side-rail like a slug made of glazier’s putty. Reaching the lamp, it wraps itself entirely around the bundled vines. There is no struggle, only a quiet, wet *squeak* like a cork turning in a bottle. Within an hour, it withdraws, leaving the vines pruned back by half, their severed ends neatly cauterized with a smear of heavy grease so they do not bleed sap onto the hot glass.
+
+The creature has a voice, though you could stand on the catwalk for an hour and never know you were hearing it. 
+
+Because it is deaf in the way things with ears understand deafness, it perceives the chamber entirely through the thrumming in the ironwork. It knows the health of the boilers three miles down by the pitch of the hum in the anchor-chains; it knows when a surface district above is waking up and drawing steam because the leather drive-belts tighten and sing a half-tone higher. To keep its own scattered bodies—some as large as a bolster pillow, others no bigger than a thumb-smear of lard—in communication across the forty-pace chasm, it plays the station.
+
+When a Sump-Wife wants to draw another fragment of itself toward a leaking flange that is growing a particularly rich terrace of sweet calcium scale, it does not call out. Instead, it flows over the end of a weighted governor-lever, adding just three or four ounces of its own heavy grease-flesh to the iron ball. 
+
+The lever drops an eighth of an inch early. *Clack.* 
+
+Across the gulf, a pint of steam is vented three seconds ahead of schedule. *Hiss.*
+
+The pressure in a secondary return pipe drops by half a pound, causing a cooling brass flange forty feet higher up to contract. *Tink-tink-tink.*
+
+To an outsider, it is just the station’s endless, syncopated symphony of small noises. To the thing living in the ironwork, that slightly early *clack-hiss-tink* is a sentence. It means: *The seal on the third-level northern condenser is weeping iron-water; come and graze.*
+
+At the very bottom of the pit, beneath the uninsulated bellies of the low-pressure boilers where the heat is nearly sufficient to char paper, lies the Grandmother—the oldest, densest part of the colony. It no longer climbs. It lies in the shallow concrete trough between the boiler pedestals like a spilled load of asphalt, ten feet long and crusted over with a permanent, brittle shell of white lime and black rust. 
+
+Out of this shell, rising six inches into the shimmering air, grow dozens of hollow, fluted chimneys made of secreted calcium and hardened tallow, looking remarkably like the pipes of a melted toy organ. When the great intake louvers swing open and the draft rushes across the pit floor, these chimneys catch the air. They do not whistle; they are too wide and too soft for that. They produce a low, wet, vibrating *flub-flub-flub*, almost below the range of hearing, like a thumb being dragged across the skin of a slack bass drum.
+
+When the Grandmother sounds this note, every smaller parcel of the creature throughout the vertical village pauses in its creeping. The grey ribbons on the copper trunks flatten down; the false counterweights stop their slow, sympathetic bobbing; the thin tendrils inside the pressure-gauges retract a fraction of an inch. For the three minutes that the warm, oily rain patters down through the amber dark, the entire scattered organism holds still, listening through its belly to the resonance of the pipes, checking the tension of every bolt, the thickness of every scale-crust, and the pulse of every valve, making sure that the great, hot iron beast that feeds it is going to live for another twenty minutes.

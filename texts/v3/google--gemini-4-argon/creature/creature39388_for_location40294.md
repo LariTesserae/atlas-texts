@@ -1,0 +1,47 @@
+To find the tenant of the condenservat, you must look for an absence of bubbles. 
+
+Every fixed surface in the tank—every cast-iron grate, every waxy leaf-margin, every brass bolt-head—is frosted with stationary pearls of oxygen. Therefore, a surface that is bare, matte, and clean has recently moved. 
+
+Halfway down the southern quadrant, wedged into the ninety-degree cleft where a bronze-anodized H-beam meets a dormant secondary boiler, there is a patch of velvet moss that does not have bubbles on it. Look closer, through the syrupy chartreuse light, and the moss resolves into a shoulder.
+
+There is only one of him. He is not an intrusion; he was lowered into the tank by the assembly crew during the final week of commissioning, before the upper louvers were bolted down, like a sterile plecostomus dropped into an ornamental pond. He was meant to be the gap in the schematic—the soft, flexible instrument that goes where the rigid maintenance gantries cannot reach.
+
+At a glance, he looks like a heavy-duty vulcanized utility suit that has been inflated with warm wax and left to snag in the foliage. His exterior is seamless from the soles of his weighted feet to the crown of his skull: a thick, matte-black elastomer that matches the gasket rubber so precisely that when he presses himself flat against a manifold flange, he disappears entirely. Across his left deltoid, still legible in faint, pale blue assembly-chalk, is a dry-dock inspection stamp: *PASSED / LOT 44-B*. 
+
+He does not swim. In a volume packed this tightly with rigid leaves and unyielding iron, swimming is an invitation to be snagged or impaled. Instead, he climbs, wedges, and oozes. He has the heavy, deliberate geometry of a coconut crab and the patient hydraulic articulation of the pistons he tends. His joints—knees, elbows, the four heavy knuckles of each hand—are reinforced with pleated bellows of tougher, ribbed rubber, allowing him to bend his limbs at angles a standard skeleton would reject. 
+
+Because the water is thirty-two degrees and supersaturated with gas, he has no need for the silver cylinders that would otherwise clank against his back. He breathes through his collarbones. Twin wide-bore intake vents of brushed brass sit flush against his upper chest, drawing the gin-clear water across a dense internal labyrinth of synthetic, vascularized gill-velvet that fills his thoracic cavity where lungs used to be. When he exhales, two warm, depleted plumes of water shimmer out from exhaust slits beneath his shoulder blades, waving the nearby orchid petals in a rare, localized current. 
+
+He has no eyes—in the blinding, clinical glare of the upper twenty feet, eyes would quickly burn out, and in the deep, manifold-choked bottom, they are less useful than fingers. Where a face would be, there is only a smooth, convex faceplate of dark, opaque horn, blind and featureless as a welder’s mask. Beneath this plate sits a dense cluster of ampullae—pressure-sensitive gel-pits that read the low-frequency *thrum* of the lower manifold gates. Every fifteen minutes, when the brass pressure-gate clicks open a millimeter and sends its bass note tightening through the tank, the sound acts as his sonar. He feels the echo bounce off the cast-iron grates, the copper coils, the banquet-table leaves, and the creeping steel collars of the pistons. In that tenth of a second, the entire cathedral-sized maze maps itself in three dimensions inside his head: he knows which valve is choking on root-hair, which flywheel is about to be locked by a woody liana, and where the next leaf will be sheared in half.
+
+His life is lived at the speed of the pistons: four inches an hour. 
+
+To move faster in thirty-two-degree water is to cook oneself from the inside out. If he thrashed, if he exerted himself like a terrestrial animal, his heavy rubberized hide would trap the metabolic heat until his core boiled. So he has become ectothermic in his habits. He takes three minutes to reach out an arm; he takes five to close his hand around a yellow catwalk railing. As he pulls himself through a narrow vertical shaft between two walls of bottle-glass foliage, the millions of clinging oxygen bubbles are scraped off the leaves by his chest and flanks. They do not burst; they roll up the matte-black valleys of his spine, merging into silver plums that detach from the back of his neck and wobble lazily toward the roof, leaving a clean, dark trail behind him.
+
+His job is simple: the flora has no herbivores, so he must be the winter.
+
+The plants were engineered to scrub and oxygenate the column, to drink the nitrates pumped up from the earth two miles below, and to hold the heat like a green thermal battery. Left entirely to themselves, however, their aggressive, crowding geometry would blind the pressure gauges, burst the vulcanized gaskets with wedging roots, and choke the intake manifolds until the great spine below cavitated and shook itself apart in the clouds. 
+
+He carries no tools that can be dropped and lost in the lower grates. His right hand terminates not in fingers, but in a heavy, spring-loaded pruning shear of bright, uncorroded cobalt steel, fed by a pneumatic line that runs up into the muscle of his forearm. His left hand has three thick, spatulate digits tipped with bronze scrapers, shaped to fit the exact curvature of the thigh-thick copper heating coils.
+
+Right now, he is working on the primary manifold thirty feet above the bottom grate. 
+
+A cluster of giant, translucent tubers has wedged itself behind a brass pressure-relief valve, their pale roots wrapping so tightly around the wheel-handle that the valve is pinned shut. He has been here since the sun was on the eastern glass; the sun is now directly overhead, pouring white, alpine fire down through the louvers. He has anchored his weighted feet into the spokes of a stationary cast-iron flywheel. With his left hand, he hooks a single bronze-tipped finger behind the thickest root and applies a steady, hydraulic pull. 
+
+There is no struggle, no jerking. The tension simply increases until the pale, pressurized sap inside the root shifts, the woody fibers part with a dull *tock* that travels through his wrist-bones, and the root comes free. With his right hand, he brings the cobalt shears around—slowly, as if moving through cold honey—and snips the liana where it threads through the valve stem.
+
+A cloud of milky, nitrate-rich sap blooms in the clear water, hanging like woodsmoke between the leaves. 
+
+He does not let it go to waste. Below the brass intake vents on his collarbones, where a human throat would be, a circular sphincter of pleated black rubber dilates, revealing a toothless, grinding peristaltic mill. He leans his blind, horn-plated head forward into the milky cloud and drinks the sap out of the water, along with the severed four-inch section of tuber. He does not eat the tough, copper-barked lianas or the big waxy leaves—those he lets float up to the surface to rot in the five-foot gap of hot, oil-smelling air, where they will eventually liquefy and drip back down as fertilizer—but he harvests the starch-heavy tubers and the bloated, oil-filled bladder pods. The lighter-than-water oil from the pods is what lubricates his internal hydraulics; the starch from the tubers is what keeps his slow heart beating once every forty seconds.
+
+When the sun begins to drop toward the silver cloud deck outside, the fierce emerald glare in the upper tank shifts to a long, horizontal amber that pierces straight through the four glass walls. For an hour, you can see all the way through the vat—a glowing cube of gold-green water, black iron silhouettes, and millions of rising silver beads, hanging suspended in the thin blue sky.
+
+This is when he rises.
+
+He does not use his limbs. He simply stops venting the oxygen from his gill-slits, allowing the supersaturated gas he extracts from the water to collect in two expandable bladders along his ribs. Slowly, he becomes buoyant. He unhooks his heavy feet from the flywheel, tucks his shear-hand against his chest, and lets the tank lift him.
+
+He drifts upward through the six tiers of overlapping foliage at the exact speed of the severed leaves around him. He brushes past the pale, fleshy orchids choking the yellow handrails; he slides between the grease-sheened pistons, his black rubber flank kissing the descending steel collars without leaving a mark; he passes through the forest of taut, humming bladder-stems, setting them vibrating like bass strings as his shoulders nudge them aside.
+
+He stops just beneath the surface, in the blinding, hot top inch of the vat, and hooks one bronze finger over the lip of an upper gantry chain.
+
+His blind faceplate breaks the surface into the five-foot gap of tropical air. The condensation dripping from the louvered glass ceiling patters softly against the crown of his head, running down his matte-black cheeks like sweat. For a long time—until the sun drops below the cloud deck and the tank plunges into the sudden, freezing dark of the upper troposphere—he simply hangs there in the smell of hot machine oil, wet iron, and bruised hyacinth, listening to the thin wind whistle past the glass forty feet away, waiting for the copper coils below to click on for the night.

@@ -1,0 +1,51 @@
+To find the apex of this quiet, industrial ecology, you do not look for huts or chimneys. You look for a place where the steam plumes of the arthropod furnaces do not rise at random, but in a straight line.
+
+If you follow that line across the curve of a graywacke swell, you will eventually feel the change in your boots before you see anything. The ambient prickle of the plateau’s background current—that chaotic fizz of grazing herds and root-batteries—smooths out. It becomes a steady, rhythmic thrum, like the floor of a powerhouse. Every four seconds, a clean, heavy pulse of direct current rolls through the wet mattress of the peat. 
+
+Wait in the drizzle, and the mist will part around a Dredger.
+
+From a distance of half a mile, you would mistake one for an erratic boulder left behind by a vanished glacier, or a particularly dense, storm-flattened hummock of dwarf pine. They stand seven feet at the shoulder, though they rarely stand upright. Their posture is a permanent, ground-eating crouch, cantilevered forward over a center of gravity that sits just above the moss. They are broad—nearly five feet across the chest—and lack a distinct neck; the head is a heavy, wedge-shaped prow faired directly into the curve of the spine, built to part the waist-high tangle of woody brush the way an icebreaker parts pack ice.
+
+As it comes closer, the illusion of stone gives way to the illusion of rusted machinery, and then, finally, to flesh. 
+
+A Dredger is vaguely hominid, if a hominid were redesigned by a hydraulic engineer to operate at forty degrees Fahrenheit in an acid bath. Their skin is two inches of dense, pickled hide, the color of bog-oak, naturally tanned by the tannins and sulfuric leachates of the water they wade through from birth. They have no hair. Instead, their backs and shoulders are shingled in overlapping plates of biological goethite and magnetite—the same dull, cast-iron biomineral the boar-grazers have on their hooves, but grown here in broad, scarred Flanges that shed rain like a slate roof. In the joints of their elbows, knees, and knuckles, pale green lichens and copper-tolerant mosses take root, turning their creases into living gaskets that filter out the abrasive metallic silt of the tarns.
+
+Look at its face, and you see what the plateau requires of a mind. There are no external ears—sound carries poorly here, and an ear canal is just a trap for freezing water and parasitic worms. There is no mouth to speak of, only a narrow, keratinized ventral slit under the jaw for taking in crushed tubers and rendered fat, flanked by two heavy, piston-like grinding plates. The face is dominated by the rostrum: a broad, flattened shovel of spongy cartilage covering the nose and brow, perforated with thousands of tiny, dark pores. Each pore is filled with a stiff, conductive jelly. 
+
+They do not look at you with their eyes—though they have two, small and amber-colored, tucked deep under shelves of iron-plated bone to protect them from the glare of the wet leaves. They look at you with the rostrum. To a Dredger, you are not an image of light and shadow; you are a warm, salty interruption in the electrical field of the bog, glowing like a lantern in the dark because of the beating of your heart and the sodium in your blood.
+
+They are not animals. You realize this when you see what it is dragging.
+
+Behind the Dredger, woven right into the living surface of the cushion-plants, is a cable. It is fifty yards long, thick as a man’s thigh, and braided from the stripped, copper-sheathed roots of the smelter-plants, bound together with the tough, fibrous gut of the rubber-skinned amphibians. The Dredger is not pulling it; it is *growing* it. With its massive, three-fingered hands—the fingernails thick and curved like iron spades—it reaches down into the five-foot mattress of the peat without breaking stride, locates the live runners of the dwarf conifers, and deftly splices them into the braid. 
+
+They are wiring the plateau.
+
+The Dredgers are geological farmers, or perhaps biological electricians. They have no use for fire—nothing on the plateau is dry enough to burn, and the air is too thin to fan a flame—and they have no use for forged tools, which would only rust away in a season. Instead, they manipulate the wet-cell battery of their world. 
+
+Follow one back to its wallow, and you see the scale of their work. In the lee of a great whale-backed swell, where a tarn collects the heavy, mineral-rich runoff, a dozen Dredgers will have altered the drainage over the course of three hundred years. They do not dig trenches; the peat would simply swell and close them up again. Instead, they plant barriers of smelter-tubers in precise, geometric curves, forcing the plants to extrude their metallic slag into submerged weirs and retaining walls. Over generations, the clinker fuses with bog-iron to form living, self-healing dams.
+
+Within these terraced pools, the Dredgers regulate the acidity and the current. By cross-breeding and pruning the conductive root-mats, they turn a five-acre basin into a massive, low-voltage capacitor. 
+
+In the center of the tarn, five or six of them will be resting, submerged up to their iron-plated brow ridges in the dark, tea-colored water. The water around them is eighty degrees, heated not by fire, but by the controlled resistance of the root-cables they have braided into the basin floor, supplemented by fifty-pound spheres of oxidizing iron-nodules they have robbed from the hand-sized arthropods and packed into the mud around their hips. Plumes of oily, pine-scented steam rise from the tarn, vanishing into the low stratus fifty feet overhead.
+
+They are completely silent. You can stand ten feet from the edge of the wallow, watching seven-foot-tall beings of leather and iron tending their submerged root-looms, and hear nothing at all except the *clink-tink* of slag settling on the dam and the drizzle pattering on their armored backs. 
+
+Yet the air is thick with their society. If you drop your bare hand into the warm water at the edge of the tarn, the nerve endings in your skin will light up with a complex, shifting tapestry of tingling pressures. They are talking. Through a specialized bundle of modified muscle tissue in their calves and forearms—organs not unlike those of the electric eel, though tuned to infinite subtlety rather than shock—they modulate the current of the tarn. 
+
+Their language has no words because it has no discrete pauses; it is a continuous, three-dimensional chord of voltage gradients, frequencies, and interferences. One Dredger does not *tell* another that a herd of six-legged grazers is crossing the eastern trough three miles away; it simply reproduces the exact electrical signature of the herd’s hooves compressing the peat, projecting a miniature, phantom map of the valley into the water for the others to feel against their skin. They share memories of great storms by recreating the static charge of the clouds; they argue about the placement of a copper-root splice by sending opposing waves of resistance through the mud until one wave cancels the other out.
+
+When they hunt, they do not chase. A Dredger weighs nine hundred pounds; it cannot run through the sponge-turf without sinking to its thighs. Instead, two or three of them will lumber out to a valley trough where the wool-grazers are feeding. Moving with the slow, inexorable patience of cranes in a shipyard, they will squat in the brush half a mile apart and sink their spade-like hands deep into the wet peat, grasping the buried root-cables they laid down decades before.
+
+For ten minutes, nothing happens. The drizzle falls; the white sky glares off a billion waxy leaves. 
+
+Then, the Dredgers begin to hum—not with voices, but with their calves. They generate a false herd-signal, a phantom pulse of safety and rich browse, throwing their electrical voices a mile down the valley. The six-legged boars, trusting the prickle in their iron hooves, turn and drift silently through the waist-high ferns, straight into the basin between the hunters. They walk right past the Dredgers, who have grounded themselves so completely into the moss that they are electrically invisible—mere dead spots in the bog, indistinguishable from boulders of graywacke.
+
+When the herd is centered over a submerged mat of copper-heavy roots, the three Dredgers link their circuits through the wet earth and dump the stored charge of a nearby tarn-capacitor straight through the herd’s feet.
+
+There is no flash of lightning. There is only the dull, heavy *thump* of a thousand gallons of bog water expanding at once as the current spikes, a faint whiff of roasted pine and ozone, and the sound of forty iron-snouted grazers collapsing simultaneously into the sponge-mat without a single squeal. The wet wool settles. The drizzle continues. The Dredgers rise from the fern-tangle, water cascading in brown sheets from their rusted shoulders, and begin the slow, methodical work of butchering the meat with their spade-nails, packing the heavy iron-plated snouts into the peat to feed the roots that fed the current.
+
+They have lived here since the mountains were tall. As the frost ground the peaks down into whale-backs, and the moss swallowed the stone, the Dredgers simply sank with the landscape, trading speech for conductivity, fire for oxidation, and stone tools for the slow, patient metallurgy of the roots. 
+
+If one notices you standing on the swell, it will not attack. You are too small to be worth the discharge of a capacitor, and your flesh is too poor in iron to bother rendering. It will simply pause, knee-deep in the silver-green cushion plants, its rusted back slick with mist. It will turn its blind, porous shovel of a face toward you, sampling the strange, frantic, ungrounded fluttering of your nervous system. For a second, you will feel a heavy, warm pulse rise through the soles of your boots, travel up your shins, and settle in your teeth—a single, low-voltage query sent out to see if you are part of the circuit. 
+
+Finding that you do not conduct, that you are an insulated, silent thing cut off from the hum of the world, it will turn back to the tarn, reach down into the freezing water, and go back to braiding the roots.

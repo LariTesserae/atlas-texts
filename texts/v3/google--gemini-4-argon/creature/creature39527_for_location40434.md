@@ -1,0 +1,41 @@
+To see them, you have to stop looking for upright shapes. Nothing in the basin stands tall if it intends to stay where it is. Between the sideways push of the wet wind and the greased-glass friction of the basalt, height is a liability. 
+
+If you wait inside one of the corbeled stone huts, sitting on a dry mattress of shed chitin plates that rattle softly against each other whenever the bedrock shudders, you will know they are approaching not by sight, but because the pitch of the nearest vent changes. Someone outside has just kicked a bone wedge out of a keyhole aperture. The local chord drops a third, losing its throatiness, reverting to a raw, wet shriek. 
+
+A moment later, a figure pulls itself through the low crawl-tunnel. 
+
+They are human, or were on some long-forgotten branch of the tree, though the basin has pared them down to essentials just as it planed the rock. They are short, immensely broad across the pelvis and shoulders, and heavy-boned. They move through the crawl-space on all fours with the fluid, swinging gait of creatures that spend half their lives on their knees. 
+
+When they stand up inside the cramped dome—which is only five feet high at its apex—they don't quite straighten. Their spines have a permanent, load-bearing curve, hunching their heads forward between thick trapezius muscles. 
+
+First off comes the slick-suit. It is a heavy, segmented poncho made from the cured skins of the slate-colored predators, stitched together with gut and rubbed constantly with blister-fat rendered from the grazers. Over the knees, shins, and forearms, they wear strapped guards of overlapping crustacean shell. Without these, a single slip on the basalt at a walking pace would strip the flesh to the bone. Their footwear is the masterwork of their technology: broad, oval sandals woven from stiff, calcified sinew, the undersides set with dozens of tiny, downward-pointing teeth of chipped flint and meteoric iron. When they walk outside, they do not lift their feet; they skate and crunch, biting into the microscopic imperfections of the blue-black stone, sliding with a wide, bow-legged waddle like speed-skaters on bad ice.
+
+In the gloom of the hut, lit only by a shallow stone dish of burning seal-grease with a braided hair wick, the builder strips off their head-wrap. 
+
+The face is wide and flat, the skin the color of tallow from a lifetime beneath the iron-gray stratus, though the cheeks and bridge of the nose are webbed with tiny, broken purple capillaries from the constant sting of the sideways mist. Their eyes are dark, small, and deeply recessed beneath heavy brows that shed water. Over their eyes, they wear snow-goggles carved from rib-bone, with hairline slits not to block glare, but to keep the relentless, wind-driven brine-spray from blinding them.
+
+The most striking thing about them is the hair—or the lack of it. Every builder, male or female, old or young, has a scalp scarred by systematic, decorative plucking. In a world without fiber, hemp, or flax, their own bodies are the only source of cordage. They grow their coarse, black hair in rotating patches on their scalps, letting a section reach two feet in length before harvesting it at the root to braid into the fine, rot-resistant nets stretched across the holding pans outside. A person’s age and industry can be read by the silvery patchwork of bald, calloused skin across their skull. 
+
+They do not speak when they enter. If there are two or three of them—they rarely travel in larger groups, as a single shelter’s pans can only feed four mouths at a time—they communicate in a rapid, percussive language that requires no vocal cords. 
+
+Nothing with a voice could compete with ten million clicking shells and the twenty-minute tidal organ-roar of the vents. Over generations, their larynxes have gone largely unused. Instead, they keep two flat, dense ovals of polished basalt tucked into leather pouches at their belts, or simply use the shell-guards strapped to their forearms. By striking stone against stone, or rapping their armored knuckles against their breastbones, their collarbones, and their teeth, they produce a complex, syncopated morse of clicks, clacks, and hollow thuds. 
+
+Even inside the muffled quiet of the hut, they don't bother to whisper. One sits back on their heels, pulls a horn spoon from their belt, and taps twice against their lower incisors—*water?*—then raps a three-beat rhythm against the shell plate on their left shin—*the pan on the north side is silted with dead shrimp.* The other answers by clicking their tongue against the roof of their mouth and sliding two fingers across their slick, greased collarbone. 
+
+Their ears are strange. The outer pinnae are thick, cauliflowered, and flattened against the skull, damaged by the constant barometric trauma of the vents and the sheer decibel level of the flats. Yet their hearing is extraordinarily acute—not through the air, which is full of junk noise, but through bone conduction. 
+
+When a builder wants to know what is happening a mile away, they do not look into the pewter fog. They drop to their knees, press their forehead or their chin directly against the wet basalt floor, and close their eyes. Through their jawbones and skulls, they read the stone. They can feel the heavy, slithering belly-thump of a nutcracker-jawed seal sliding between the shoals half a mile off. They can feel the distinct, rhythmic *chink-chink-chink* of another builder’s iron chisel re-deepening a drainage groove three shelters away. They can feel the deep, subterranean groan of the water table beginning to swell thirty seconds before the vents begin to whistle, giving them time to step clear of the wider apertures before the brine blows.
+
+They are never still for long. The basin does not allow for stagnation. 
+
+After an hour of chewing on cold, salted paste made from pounded blind-shrimp and bacterial scum—which tastes fiercely of sulfur and iron, and wears their molars down to flat, blackened pegs by the time they are thirty—they go back to work. 
+
+Their relationship with the basin is one of endless, petty maintenance. They are the plumbers of the abyss. If they leave the carved channels alone for a month, the weeping mineral water deposits a rind of pale travertine that chokes the grooves, and the bacterial blooms die off, and the grazers move elsewhere. So the builders spend their gray, shadowless days on their knees in the wet, chip-chipping at the stone with short-handled mauls, their iron-toothed sandals anchored behind them. 
+
+When they need meat, they do not hunt the fast, dangerous seals unless one is old and dying. They harvest the grazers. A builder will wade into the middle of a clicking, ankle-deep shoal of the dinner-plate crustaceans. The creatures have no eyes to see the hunter, and their own collective clatter drowns out the crunch of the iron sandals. The builder simply bends down, slips a flat bone pry-bar under the edge of a shell to break its suction on the greased rock, flips it onto its back, and crushes the soft underside with a stone maul. They take only one in a hundred, moving slowly through the herd like a farmer picking turnips, while the remaining millions continue to rasp their mandibles over the dead one's spilled yellow blood.
+
+At night—which is only a thickening of the afternoon twilight into an absolute, wet black—they seal the crawl-tunnels with flat stones. 
+
+They do not sleep lying down; the cold of the basement rock seeps through even the thickest pile of shells. They sleep sitting up, wedged tightly together in the center of the beehive cairn, knees drawn to chests, wrapped in their greased skins, resting their chins on their knees. 
+
+Every twenty minutes, the ground beneath them tightens. The heavy moon pulls at the deep brine. Outside, the bone-harps wedged into the vents begin to groan, then hum, then roar in a massive, trembling chord that shakes the stacked basalt slabs of the roof and makes the grease in the unlit lamp shiver in concentric rings. The builders do not wake. Their bodies simply rise and fall with the vibration, breathing in time with the stone, waiting for the hollow, wet *glug* of the rock inhaling, which tells them they have twenty more minutes of quiet before the world blows again.

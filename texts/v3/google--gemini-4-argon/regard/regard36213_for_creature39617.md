@@ -1,0 +1,51 @@
+A lesser power, looking down into the pewter gloom of the basin, would have pitied them. 
+
+A lesser power would have parted the thermal clouds to give them the sun, not knowing it would blind eyes tuned to the dark horn-light and bake the velvet slime that fed the crabs that fed the city. A lesser power would have smoothed the razor-edges of the basalt into gentle slopes, not realizing that the sheer, unweathered friction of those fractures was the only thing keeping the mortarless towers from sliding into heaps of rubble. A lesser power would have silenced the deafening roar of the birds, and in that sudden, terrifying vacuum, broken the rhythm of a people whose hearts beat in time with the noise.
+
+The benevolent power that turned its gaze upon the valley did none of these things. It watched the two men in the ankle-deep plaza, foreheads pressed together, humming the price of rendered fat directly into the bones of each other’s skulls. It watched the old woman with the spliced whalebone staff, her ear pressed to the wet black rock, listening with total devotion to the groans of the earth so her neighbors would not be crushed in their sleep. It watched a child slip on the bacterial film and tuck cleanly into a ball before hitting the obsidian, popping back up with a sharp, triumphant *clack* of her little shell thimbles.
+
+The power saw that this was not a place of suffering. It was a place of staggering, ferocious grace. The people of the basin had taken the rawest, most hostile nursery on the planet—a cooling wound of black glass and scalding steam—and without a single tree, without an ounce of iron or a handful of dirt, they had built an eternal equilibrium. To alter their hardship would be to insult their mastery. Their morality was maintenance; their love was touch and bone-deep vibration. 
+
+Yet, the power was wise, and because it was wise, it looked not just at what *was*, but at what was coming.
+
+It looked three miles down, beneath the feet of the shuffling citizens, into the deep magmatic throat of the basin. The earth here was young, and young earth is restless. The cooling crust was not settling evenly. Deep in the blind dark beneath the western quarter, a massive blister of trapped volcanic gas and superheated brine was building pressure against a fault line of brittle, glassy basalt. In twelve years—or perhaps fifteen, time measured in the molting of waterfowl—that blister would rupture. It would not be a gentle shrug that the Chinkers could lever back into plumb. It would be a catastrophic drop of the valley floor, a sharp, snapping shear that would topple ten thousand dry-stone towers in three seconds and flood the labyrinth with boiling brine. 
+
+And the power saw something else, something much smaller, happening every day in the quiet, grease-lit interiors of the corbeled houses. It saw the older weavers and flint-knappers rubbing their eyes with knuckles dusted in snail-lime. The constant, sulphurous steam and the smoke of the dung-fires took a slow toll on human corneas, clouding them with a milky film years before their bodies gave out. And when a Chinker went deaf from seventy years of the avian roar, or when an old mason’s arthritis finally locked his hips so he could no longer do the flat-footed shuffle, they went up to the rookery-roofs a little sooner than they wanted to, laying themselves down on the black stone while their minds were still full of the city’s songs.
+
+So the power decided to act. It would not come as a god in the sky, for they had no sky-priests and did not look up. It would come the only way anything entered the city’s economy: from the stone, the steam, and the bone.
+
+Deep beneath the valley, in the crushing dark where the magma chamber met the fractured basalt, the power reached in with fingers made of tectonic patience. It did not stop the cooling of the earth, for that was the engine of the city's warmth. Instead, it began to score the rock. Molecule by molecule, it opened a thousand microscopic capillaries through the dense basalt around the building blister of brine. It braided the fault line, turning a single catastrophic shear-zone into a million tiny, interlocking teeth. 
+
+Instead of one city-ending collapse twelve years hence, the pressure began to bleed off immediately in a series of rhythmic, gentle sighs. 
+
+Up in the pewter light of the alleys, the Chinkers were the first to notice. An old man named Tov, his cheek scarred by childhood obsidian, pressed his ear to his whalebone staff against the foundation of a cistern. He frowned, closing his eyes. Beneath the *shhhhhh* of the steam and the rattle of the crabs, the deep, erratic groaning of the valley floor had changed. It had found a cadence. *Thrum... thrum... shift.* It was a slow, predictable pulse, like the breathing of a sleeping giant. When the wall shifted a quarter-inch, it did not grind with the jagged malice of breaking glass; it settled with a heavy, resonant *hum* that traveled up Tov’s staff and warmed his jawbone. 
+
+The Chinkers began to gather in the plazas, pressing their foreheads together, humming in amazement. The earth was speaking more clearly. The warnings were coming hours before the stone actually moved, giving the lever-crews ample time to unhook their horns, wedge the seams, and ease the blocks into their new beds without a single pinched finger or dropped lintel. The city was still shifting—their purpose, their sacred maintenance, remained intact—but the malice had gone out of the rock.
+
+Next, the power turned its attention to the weeping walls. 
+
+Into the deepest thermal vents, where the groundwater boiled through beds of sulfur and heavy minerals before rising to condense on the masonry, the power introduced a single, novel strain of extremophile archaea. It was a microscopic organism, entirely invisible, thriving in the scalding dark. As the vapor rose, it carried the metabolic trace of this new life with it.
+
+Within a season—measured by two molts of the great flightless geese—the pale, soap-slick velvet of the wall-lichens began to change in the lower courses of the alleys. Where the condensation pooled thickest in the pecked basalt basins, a secondary growth appeared alongside the grey slime: tiny, rubbery nodules the size of a thumbnail, translucent and tough as cartilage, filled with a clear, cool gel. 
+
+The crabs ignored them, preferring the bacterial slime. The birds could not reach them in the narrow drainage cracks. It was the children, crawling through the weep-holes with their shell-thimbled fingers, who found them first. A boy pried one loose with his thumbnail, popped it into his mouth as children do, and found it tasted faintly of clean salt and cold stone. 
+
+When the women boiled these rubbery pearls in their vent-pots, the gel did not turn to grease; it dissolved into a clear, heavy broth that smelled of nothing at all—the first scentless thing the valley had ever known. When a flint-knapper with milky, sulfur-burned eyes washed his face in the cooled broth, the film on his corneas slowly cleared over a dozen washings, dissolved by the gentle enzymes of the gel. When rubbed into the raw, chafed creases behind the knees and between the toes, it formed a breathable, invisible barrier that kept the snail-lime in place and stopped the grey rot cold, smelling cleaner and lasting three times longer than tallow.
+
+Finally, the power gave its last gift, the smallest and the deepest. 
+
+It looked at the great, hook-billed waterfowl that crowded the rookery-towers—the heavy, leathery birds whose fat lit the lamps, whose skins kept off the wet, and whose hollow leg-bones were split into needles or spliced into listening-staves. 
+
+The power touched the marrow of the flock. In the next generation of birds, the mineral density of their femurs and wing-shafts shifted ever so slightly. The calcium matrix grew in a tight, spiraling lattice, infused with trace silicates drawn from the volcanic water they drank. 
+
+Three molt-cycles later, when a bone-carver sat by his grease-lamp and split a seasoned goose-femur to make a needle, he found that the bone did not splinter dryly. It cleaved with a long, singing *ping*, revealing an interior structure that was dense as ivory, yet flexible as green horn. 
+
+When a Chinker spliced three of these new bones together to make a listening-staff and pressed it to the basalt, he gasped. The spiral lattice of the bone acted as a natural acoustic amplifier. He could not only hear the grind of the stones thirty feet down; he could hear the water trickling through the seams of the neighbor’s cellar, the heartbeat of the mason standing ten paces away, the subtle, musical tension of every corbeled roof-stone locking into its neighbor above his head. 
+
+And inside the houses, when the heavy slab doors were dragged shut against the roar of the world, someone discovered that if you took one of these hollow, spiral-grained wing-bones and blew softly across its notched end, it did not get swallowed by the low thrumming of the walls. It produced a pure, resonant, bell-like tone—a note so clear and low and sweet that it traveled straight through the chests of everyone sitting around the tallow-bowl, vibrating in their ribs just like a forehead-hum, allowing one person to sing to ten at once without anyone having to touch.
+
+The benevolent power watched from afar as, in a dark room smelling of wet flint and bird-grease, a circle of stocky, hairless people sat with their eyes closed, listening to an old woman with clear, unclouded eyes blow a slow, three-note melody through the leg-bone of a bird. 
+
+Outside, the millions of swifts shrieked in the pewter fog, the blind crabs rattled their claws against the razor-sharp basalt, and the warm walls wept their endless mineral tears. Nothing had been broken. Nothing had been tamed. The city remained as sharp, as dark, and as deafening as the day it was wedged into the cooling crust. 
+
+Satisfied, the power withdrew its hand, leaving the people of the basin to their work.

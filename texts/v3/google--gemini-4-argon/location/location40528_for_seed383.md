@@ -1,0 +1,27 @@
+The floor of the basin is ten miles across, dropped eight hundred feet below the surrounding crust by a geological subsidence so ancient that the fault scarps have long since slumped into smooth, rounded shoulders of gray clay. There are no sharp edges left anywhere in the terrain. Every stone is a loaf; every ridge has been worn down to the gentle curvature of an old bone. 
+
+Above, the ceiling of the sunken basin is not rock, but a permanent, high-altitude bank of dense white mist that sits trapped below the rim, diffusing the fierce, high-elevation sun from the world above into a shadowless, glaring brightness. The light comes from everywhere at once. It reflects off the wet, pale clay of the basin floor and the wide, shallow sheets of condensation that gather in the depressions, turning the entire sunken valley into a vast, cool, blindingly white amphitheater. You have to squint to look across it.
+
+Because there is no soil, only the endlessly ground-down paste of ancient silicates and water-slicked shale, nothing roots here. There isn't a blade of grass, nor any moss or lichen. The mineral ground is sterile, cool to the touch, and smells faintly of wet chalk and ozone.
+
+Yet the basin is frantic with movement, and it is entirely built over.
+
+Spread across the pale mud is a sprawling, sparse metropolis of dry-stacked slate, sun-baked clay brick, and pale animal bone, constantly collapsing and being frantically rebuilt. The ground here is not solid; it is hydro-plastic. Subterranean pressure shifts the water table beneath the ancient clay in erratic, churning waves. Without warning, a hundred-yard wide section of the basin floor will liquefy into a slow, boiling heave, or drop six feet with a wet, heavy sigh, or bulge upward into a blister of slick gray silt. 
+
+Because the mud absorbs all vibration, this relentless geological violence happens in near-total silence. 
+
+A watchtower of fitted gray shale, thirty feet high, will begin to lean, its mortarless seams opening like gills, and then slide sideways into a freshly softened trough of silt—and the collapse makes no more sound than a heavy coat dropping onto a bed. Just a muffled *thump*, a quiet *slosh*, and the tower is gone, swallowed into the bright mud.
+
+Immediately, the rebuilding begins. The city is inhabited by thousands of builders—and by the abundant, pale fauna that share their streets. 
+
+The builders work at a feverish, unceasing pace, using only stone adzes, wooden sledges, bone levers, and woven fiber slings. Because they cannot build permanent foundations, they build for migration. Their architecture is modular, wide-spaced, and restless. Low, walled compounds, stepped ziggurats, and long, raised causeways of flat river-stones are laid out across the bright flats with wide avenues of empty, glistening mud between them, giving the city a scattered, open feel despite its miles of reach. When a district begins to sink or tilt, a hundred figures descend upon it with wooden pry-bars. Working in practiced, breathless silence, they dismantle the walls stone by stone before the mud can claim the materials, loading the flat slabs onto wide-runner sleds.
+
+Pulling the sleds are the basin’s abundant beasts: thousands of wide-bodied, six-legged creatures the size of oxen, covered in overlapping plates of translucent, keratinous shell that clatter softly like fingernails when they move. They have no vocal cords. They breathe through spiracles along their flanks that let out a faint, rhythmic *hiss* of cool air. Alongside them scuttle smaller, long-legged scavenger crabs that feed on the grey biofilm that blooms in the condensation puddles, and flocks of heavy, flightless birds with white, hair-like plumage that dart between the crumbling walls, hunting the crabs. 
+
+The entire city is an anthill in silent fast-forward. 
+
+Look out from the top of a newly raised earthwork—built only four hours ago and already developing a three-degree list to the north—and you see the sheer scale of the turbulence. Half a mile away, a great central plaza of concentric stone rings is warping like a wet canvas; three hundred people and forty shell-beasts are racing along its perimeter, unstacking the outer ring and running the stones up an incline to firmer ground, their bare feet slapping quietly against the damp clay. Beyond them, a mile-long aqueduct made of hollowed-out bone troughs is being frantically rerouted because the spring it tapped has just migrated two hundred yards to the east, erupting as a silent, bubbling dome of muddy water. 
+
+Everywhere, the glare is intense. The dampness clings to skin and stone, making every surface shine like polished grease under the bright white sky. Plumes of cool steam rise where deeper, slightly warmer pockets of groundwater are forced to the surface by the churning clay, drifting sideways in the brisk, erratic winds that drop down from the basin's unseen rim. 
+
+Even the wind is quiet here, having nothing to rustle. There are no leaves to whisper, no corners sharp enough to make it howl. It just pushes heavy and cold against the backs of the builders, drying the grey mud on their calves until it cracks and flakes off, while all around them the ancient, liquefied floor of the world rolls and shifts, and the city flows across it like a skater on rotting ice, tearing itself down and throwing itself ahead of the sinkholes, brick by hand-laid brick, without a word spoken.

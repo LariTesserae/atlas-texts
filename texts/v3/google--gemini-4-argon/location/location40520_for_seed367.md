@@ -1,0 +1,35 @@
+High on a plateau that the wind finished flattening forty million years ago, there is a sinkhole no wider than a courtyard, and at the bottom of it, wedged under an overhang of polished, salmon-pink quartzite, is the Hollow. 
+
+Above the lip of the sinkhole, the world is a blinding, bleached pan of ancient gravel where nothing happens anymore. The mountains have long since slumped into low, rounded whalebacks of stone, sanded down to their stubbornest cores. There is no rain up here. There are no clouds, only a pale, brassy sky that presses down with dry heat.
+
+Down in the Hollow, however, the air is thick, dim, and furiously alive.
+
+The space is no larger than a great hall in an old manor, perhaps eighty paces from the slumped scree at the entrance to the dark pinch at the back. Time has smoothed the interior walls until they feel like greased soapstone, curving inward to form a low dome that traps the day’s warmth and holds it through the high-altitude freeze of the night. Light enters only by reflection—bouncing off the pink gravel above, striking the angled lip of the pit, and filtering down through a dense lattice of pale roots and woven awnings as a bruised, amber twilight. 
+
+You hear the Hollow before you see it. It sounds like a dry fire. There is a continuous, layered rustling—millions of chitinous legs, stiff scales, and papery wings scraping against bark, stone, and dry mud. Beneath that is the rhythmic *clack-clack-clack* of wooden spindles, the dry *hiss* of winnowing baskets, and the low, percussive humming of the inhabitants, who speak in throat-clicks and short, vowel-heavy murmurs so their mouths don't dry out.
+
+Nothing here is wet, yet everything is lush. 
+
+The flora of the Hollow has abandoned water entirely, running instead on heavy, volatile oils, waxes, and a slow, metabolic circulation of mineral salts drawn from the deep seams in the rock. Thick, muscular vines the color of tarnished pewter—*grease-vines*—rope across the ceiling, their leaves plump and heavy as oiled leather. From the floor rise dense thickets of *tallow-ferns* and squat, swollen trees with bark that peels in translucent, papery sheets like birch, smelling strongly of camphor, crushed sage, and hot beeswax. If you snap a stem, it doesn’t bleed sap; it oozes a slow, warm paste that smells of nutmeg and turpentine.
+
+Packed into this single, sunken room, braided right through the thicket of wax-trees, is a dense, vertical village. 
+
+Because the floor space is scarce and buried knee-deep in centuries of dry husk-litter, the settlement climbs the walls and hangs from the grease-vines. It is an architecture of wicker, daub, and bone. Hundreds of small, gourd-shaped dwellings and flat, cantilevered platforms are mortised directly into the ancient, rounded crevices of the stone or lashed between the trunks with cords of braided hair and sinew. The mortar used to plaster the basket-work walls is made from pulverized rock mixed with plant resin and insect shell; when it cures in the warm, dry air, it turns hard and shiny as amber. Runways of split, polished wood—slick from the bare feet of fifty generations—crisscross the dim air at five or six different levels, connected by knotted rope ladders and notched climbing-poles.
+
+There is no iron here, no smelted copper, because an open fire in this oil-rich, enclosed pocket would turn the whole village into a furnace in thirty seconds. Instead, technology is a matter of leverage, friction, and carving. Pulleys carved from dense ironwood whine softly as baskets of dry, yellow tubers are hauled up from the root-cellars dug into the basal dust. Women sit on the third-tier balconies using chipped obsidian blades and sandstone files to shape the horn-like carapaces of giant beetles into bowls, spades, and armor plates. 
+
+And the beetles are everywhere. The fauna does not merely inhabit the Hollow; it constitutes half the mass of the place. 
+
+Every surface that isn't actively swept by a broom of stiff fern-fronds is moving. The stone walls are carpeted in a shifting mosaic of flat, saucer-sized woodlice with shells like polished tortoiseshell, grazing on the dry lichens that grow in the rock pores. Fat, velvet-skinned geckos with huge, light-gathering eyes hang upside down from the undersides of the village walkways, snapping up the clouds of moth-gnats that swirl like golden dust motes in the shafts of amber light. 
+
+Down on the floor, among the roots and the stone pilings of the lower huts, blindly snuffling herds of *dust-badgers*—low, heavy creatures covered in stiff, sandy bristles rather than fur—root through the deep layers of shed bark and droppings, turning the dry compost over and over, generating a steady, animal heat that rises through the floorboards of the houses above. Above them, in the canopy of the grease-vines, colonies of wingless, gliding squirrels with membranes like stretched parchment leap from house-roof to tree-bough with soft *thwaps*, stealing resin-nuts from the drying racks and chattering furiously at the children hired to shoo them away with long, feathered wands.
+
+The whole pocket is a single, tight-wound engine of consumption and recycling. Nothing is wasted because there is nowhere for waste to go, and nothing new ever washes in from the dead plateau above. 
+
+Watch a single square yard of the second-level plaza for five minutes: a carpenter pares a curl of waxy wood from a spoke; before it hits the woven mat, a domesticated, six-legged scavenger the size of a terrier darts from under a bench and swallows it; the scavenger drops a dry pellet of frass through the chinks in the planking; halfway down to the floor, the pellet is caught in a funnel-web spun by grey, thumb-thick spiders; a boy on a lower catwalk sweeps the web down with a hooked stick, feeds the spider to a caged, flightless rail kept for its rich, oily eggs, and dumps the web-silk into a vat where an old man is carding it into thread.
+
+Around four in the afternoon, the angle of the sun outside shifts past the lip of the sinkhole, and the indirect light dims from amber to a deep, ruddy violet. 
+
+The temperature in the pit holds steady—warm as the inside of a shirt—but the shift in light triggers the evening turn. The noise level doubles. Ten thousand cicada-like insects hidden in the papery bark of the trees begin to stridulate all at once, a massive, rhythmic *shhh-kuh, shhh-kuh* that vibrates in the teeth. The day-geckos retreat into the thatch of the roofs, passing the night-skinks coming out on the same narrow rafters. 
+
+The villagers don't light lamps; they take small, perforated clay pots filled with luminescent, wood-eating grubs and hang them from the eaves, giving the dense, stacked tangle of huts and balconies the look of a dying bonfire full of green embers. People gather on the middle platforms, rubbing their skin with pressed fern-oil to clean off the day's dust, scraping it away with curved bone strigils, and tossing the scrapings down into the dark, seething floor where the badgers and the beetles are already waiting.

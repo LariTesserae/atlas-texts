@@ -1,0 +1,37 @@
+If you were to reach down into the moving blanket of black cobbles—past the first foot of frantic, clicking stones, down to where the gravel is packed tighter and moves in a slower, grinding creep—your hand would eventually brush against something that gives. It does not feel like fish-scale or crab-shell. It feels like waterlogged, mineral-cured leather, or the callus on a heel, rubbed to a velvet matte by a century of pumice.
+
+The fishermen in the skin-boats two hundred feet above have no name for what lives here, though they know it by its work. They know it when a willow-root trap comes up not crushed flat by a migrating dune of stone, as is normal, but cleanly *unwoven* from the inside out—the tough spruce lashings untied, the heavy river-stone weights removed and replaced with a single, neatly coiled knot of the rubbery black whip-kelp. 
+
+To live in the basin is to accept that you cannot stand up. Anything with height is a sail, and the water will tear a sail to ribbons. Whatever lives here has surrendered entirely to the horizontal, to the heavy, and to the round.
+
+At first glance, through the dirty-green smudge of noon, one of them looks merely like a slight humped congregation of the basin’s own debris—a turtle-backed mound of dark, greased hides, stitched and layered over a low, flexible frame, roughly the size and shape of a sea-lion that has been flattened under a heavy press. They have no true head, no neck to be snapped by a sudden reversal of the current, no dangling limbs to be crushed between bowling-ball-sized basalts. Instead, they are built like a hand with the fingers curled in.
+
+Beneath that thick, gravel-scoured mantle of blubber and vulcanized skin, they are all cartilage, dense white muscle, and heavy, leaden bone. Their ribs are not a cage, which could be stove in, but an overlapping series of broad, flat plates that slide over one another like the leaves of a truck spring. When a three-foot wave of black stone rolls over one, the creature does not fight it; it yields, flattening down into the greasy slate of the bedrock, letting the stones clatter and *shhh-klok* over its sloped back until the dune passes.
+
+They do not swim. Swimming belongs to the lighter water above. They *haul*. 
+
+Folded beneath the thick apron of their mantle are six short, terrifyingly stout limbs, arranged radially like the legs of a tick, each ending not in a flipper or a claw, but in a broad, calloused pad split by two opposing thumbs of bare, horn-sheathed bone. They move across the basin floor with a slow, deliberate, clockwork purchase. One heavy limb reaches out through the pea-soup murk, wedges its bone-thumbs into a seam in the slate or around the base of a kelp-whip, and pulls the five-hundred-pound bulk forward a foot. Then the next limb reaches. They are heavier than the water by a significant margin; if they let go, they do not float away—they simply settle into the gravel like an engine block.
+
+Because there is nothing to see in the wet ash of the water column, they have no eyes. Where eyes might have been, the skin is unbroken and two inches thick. Instead, their entire broad back is a subtle, living tympanum. They read the basin through the low, muffled percussion of the stones. To them, the *shhh-klok* of the rolling floor is as detailed as daylight. They can feel the difference between the rhythmic, hollow thud of a grooved stone anchor dragging its frayed hemp tail half a mile away, the dense, oily silence of a sleeper shark drifting ten feet overhead, and the crisp, wooden creak of a freshly dropped willow trap settling into a trough.
+
+They are the reason the traps are dropped here at all, though the men above think they are fishing for the heavy, skillet-flat bottom fish or the blind crabs. 
+
+The creatures down in the stones are cold, slow thinkers. Their blood is thick and dark as molasses, antifreezed with urea and wintergreen-smelling lipids, pumping once every two minutes. A single thought—an intention to move from one seam of bedrock to another—can take an hour to complete. Yet they are not animals, or at least, they are not *only* animals. They have an industry of their own, conducted in absolute blackness at the speed of growing bone.
+
+All along the underside of their mantle, tucked into warm, greased folds of skin out of the current’s tear, they carry things. 
+
+They are hoarders of the anomalous. In a world that has been ground down to two things—smooth black stone and rubbery black weed—anything with a grain, a corner, or a fibrous twist is a miracle from the sky. When a trap falls from the world above, the creatures feel its strange, light, buoyant thud in the gravel from miles away. Slowly, over the course of a tide, two or three of them will haul themselves through the flying silt, converging on the wooden cage.
+
+They do not fight over it. Their social lives are conducted entirely through touch—long, slow, grinding presses of shoulder against shoulder in the dark, sharing the deep, rumbling vibrations of their guts. Two of them will huddle together over a trap, shielding it from the rolling cobble-dunes with their own sloped backs, creating a tiny, quiet lee in the storm. 
+
+Beneath this shelter, their heavy, twin-thumbed hands go to work in the dark. With immense, patient dexterity, they feel out the knots in the rawhide and the spruce roots. They do not break the wood; wood is precious. They untie it. They harvest the curved driftwood ribs, tucking the best pieces into their skin-folds. They take the three-strand hemp ropes and, over weeks of slow, rhythmic chewing with flat, basalt-hard molars, work the fibers with their own oily saliva until the rope becomes a dense, rot-proof felt, which they use to line the shallow depressions in the bedrock where they birth their single, pillow-shaped young.
+
+They take the bait—usually rancid seal fat or salted fish heads—and they eat it, yes, with a circular, rasping mouth located dead-center on their undersides. 
+
+And then, almost always, before they disperse back into the flying gravel, they leave something behind for the men above. 
+
+Sometimes they re-weave the willow rods into a tight, solid mat that cannot catch anything, weighted neatly in the center with a single, perfectly spherical stone they have carried for years in their gullets to grind their food. Sometimes they lash three or four of the blind, matte-shelled crabs directly to the trap’s hauling line using strips of peeled kelp, tied in a knot no fisherman on the strait has ever used—a complex, self-tightening hitch designed by minds that have never seen a rope, only felt its tension in the dark.
+
+Why they do this is impossible to say. Perhaps, in their slow, pressurized minds, they understand that if the lines come up entirely empty, the strange, soft things of wood and fiber will stop falling from the grey smudge above. Or perhaps it is simply the habit of a creature whose entire existence is defined by friction and exchange: nothing in the basin moves one way without pushing something else the other. 
+
+When the hauling line goes taut, vibrating like a harp string in the current as the men in the fog begin to pull, the creatures have already settled back down. They press their pale, calloused undersides against the greased slate, pull their short legs in tight, and let the black stones roll back over them, disappearing completely into the *shhh-klok, shhh-klok* of the moving floor.

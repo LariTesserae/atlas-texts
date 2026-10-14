@@ -1,0 +1,47 @@
+Look closer at the exhaust manifolds, just past the greasy black birds fighting for piston-heat. Look into the recessed alcoves between the secondary boilers and the main ballast tanks, where the cast-iron ribs form narrow, vibrating galleries sheltered from the razor-dry wind.
+
+There is brass wire woven between those ribs, and that wire did not grow there, nor was it placed by the lowland foundries that built the dredges.
+
+What lives in the Caul—what truly inhabits it, rather than merely grazing or scavenging its margins—lives *on* the machines. They are the **Stokers**, though they have no word for themselves, because they have no words at all. 
+
+At a distance, a Stoker looks like an accumulation of debris snagged on the dredge’s ironwork: a squat, five-foot-tall bundle of silver-black moss, shed bird-feathers, and overlapping plates of translucent glider-hide, bound together with strips of copper tubing and braided fern-wire. They have the broad, barrel-chested proportions of an ancestral people who spent generations adapting to thin air, and then several more generations forgetting they were ever anything else. 
+
+When a Stoker drops from the under-girders into the bruised, violet glow of the machine’s wake, it moves with a low, wide-kneed gait—a swaying, rhythmic waddle timed precisely to the *shhhk-tick* of the six great legs around it. If a human is a creature of the stride, a Stoker is a creature of the pendulum. They never stand fully upright; to stand upright is to stick your head out of the warm, damp boundary layer of the machine’s exhaust and into the freezing stratosphere six feet above the turf.
+
+Beneath their swaddling of felted moss and grease-cured leather, their skin is the color of tarnished pewter, thickened by hyper-keratosis and smeared with a half-inch rind of dark, tallowy machine-sludge and crushed fern-oil. Their blood is so rich in hemoglobin it is nearly black, moving sluggishly through extremities that are short, blunt, and calloused into clubs. You never see their faces. A face exposed to the Caul’s dry air loses moisture through the eyes and nostrils in minutes. Instead, they wear cowls of cured glider-membrane—translucent, cartilaginous hoods sewn directly into their collar-wrappings. Inside the hood, a baleen-like mesh of stiff quill-fox hairs traps the moisture of their exhalations, letting it freeze on the outside while keeping a pocket of damp, lukewarm air against their wide, flat noses and immense, dark-adapted eyes.
+
+They are entirely mute. Their ancestors’ vocal cords atrophied into simple, muscular valves designed to hold pressure in the lungs—a biological air-lock to force sparse oxygen into the bloodstream. 
+
+Instead, they speak through the iron.
+
+Every Stoker carries a short, heavy crook of salvaged brass—part pry-bar, part tuning fork. When a Stoker on the forward comb-assembly needs to alert the two or three others living in the aft boiler-nook, it does not waste a lungful of warm air to shout. It strikes the cast-iron chassis with the heel of its crook. A sharp *tink-tink-pause-tink* travels through the five-ton frame at the speed of sound in metal, bypassing the thin, dead air entirely. Across the machine, another Stoker resting with its cheek or collarbone pressed against a warm brass conduit feels the syntax in its skeleton and taps back. 
+
+Each of the dozen dredge-engines in the Caul carries a tiny, inbred clan of four to six Stokers. A single machine is their entire geography. The underside of the main boiler is the winter village; the breezy, oil-slicked catwalks along the sorting-sieves are the hunting grounds; the greasy, warm hollow behind the gyroscope housing is the nursery and the grave.
+
+They are not the masters of the machines. They do not steer them. The dredges follow ancient, hard-coded barometric and magnetic loops burned into their mechanical governors centuries ago. Rather, the Stokers are symbiotes—janitor-priests who keep the iron beasts immortal.
+
+In this hypertrophic wilderness, a feral machine left to itself would eventually choke. The metallic ferns are tough, their roots coiled like spring-steel; they jam the raking-combs. The mineral nodules are heavy with silicates that score the pistons and clog the sorting chutes. Without hands to clear them, a dredge would seize up, its thermal pile would cool, its pilot light would gutter out, and within twelve hours it would be a cold iron reef buried under creeping black moss.
+
+So the Stokers tend their mount. When the gyroscopes click and the great crab-engine pauses at the lip of a basalt gully, the Stokers swing down from the undercarriage on greased leather slings. In the weird, bruising purple light of the crushed flora, they work with frantic, economical speed before their body heat bleeds away. They pry wedged basalt cobbles from the iron teeth. They hack away the rubbery rosettes trying to colonize the intake valves. They scoop rich, fermented sludge from the machine’s condensation-traps and pack it into the leg-joints as lubricant. 
+
+In return, the machine gives them everything. 
+
+It gives them the *crucible-harvest*: the small fraction of mineral nodules that contain native copper, tin, and iron-sulfides, which the Stokers smelt in tiny, parasitic clay furnaces clamped directly onto the primary exhaust pipes. It gives them food: a Stoker will lie motionless for hours on top of the brass intake-chimney, draped in dead lichen, waiting for a five-foot glider to settle over the warm vent. A quick upward thrust with a sharpened brass spoke, a silent struggle of leathery wings against iron, and the clan has meat full of rich, volatile fats, and translucent skin to patch their wind-hoods. They harvest the black birds like fruit from the manifolds, snapping their necks without waking the rest of the flock, and they set wire snares beneath the belly-plates for the quill-foxes that grow too bold among the rakes.
+
+They drink from the brass weeping-nipples they have tapped into the machine’s return-condensers—warm, metallic water that tastes of rust and forty-year-old cylinder oil.
+
+Because the machines are territorial, spacing themselves miles apart across the ten-mile basin, the clans almost never meet. For months at a time, another clan is just a distant orange pinhole in the dark, dragging its fading half-mile tail of violet bruise-light across the opposite rim of the world. 
+
+Yet they are aware of one another. When the barometric fog drops—when the whole ten-mile bowl turns into a freezing, clammy soup that conducts low-frequency vibration slightly better than the dry air—the Stokers on every machine climb down and press their brass crooks against the bare basalt where the rakes have stripped the turf away. They hammer slow, heavy rhythms into the volcanic bedrock, syncing their strikes with the sub-audible thrum of their engine’s thermal core. It is a census across the dark: *This engine still walks. This fire still burns.*
+
+Once or twice in a human decade, two machines’ algorithmic grazing-paths will intersect on the central flats. Their brass proximity-whiskers will brush in the dark; their governors will click, vent steam, and command both engines to pause for ten minutes while their gyroscopes recalculate a divergence.
+
+In those ten minutes of hissing, diamond-dusted silence, the two clans drop into the violet glow between the machines. 
+
+There is no fighting—violence takes too much oxygen, and a torn wind-hood is a death sentence for both combatants. Instead, there is a frantic, silent bazaar conducted entirely by touch. They press their mittened hands against one another’s chests to feel the heartbeat and health of the stranger. They trade packets of rendered bird-grease, spools of drawn copper wire, and specific, irreplaceable machine parts salvaged from the **Cold One**—a thirteenth dredge that threw a main rod two hundred years ago and now sits three miles toward the northern rim, a black iron mountain completely swallowed by the yard-thick moss, visited only by brave young runners who sprint across the freezing dark with heated stones tucked into their armpits to chip spare brass gears from its corpse before they freeze.
+
+And during those ten-minute crossings, the young are traded. A boy or girl, swaddled in three layers of glider-skin and tied to a warm iron brick, is passed from one clan to the other to keep the bloodlines from knotting too tight. There are no goodbyes. The gyroscopes finish their clicking, the pistons sigh, the great lichen-muffled legs lift with a wet *shhhk*, and the two warm islands drift apart into the indigo void, dragging their purple scars behind them.
+
+When a Stoker finally grows too old—when the lungs stiffen from decades of metal-dust and rime, and the black blood can no longer keep the fingers from freezing—they do not wait to be left behind in the moss. The moss is cold, and the quill-foxes have no respect for the dead. Instead, they unlace their glider-skin hoods, climb into the primary ash-pan beneath the thermal pile, and pull the cast-iron hatch shut behind them. 
+
+Their fat goes to grease the great gears; their calcium-dense bones are raked out a week later and carved into needle-cases, toggles, and valve-shims by their grandchildren. In the Caul, nothing is wasted, nothing is spoken, and the warmth is kept inside the iron.

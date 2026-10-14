@@ -1,0 +1,33 @@
+To a lesser mind, the limestone bowl would look like a place of lack—a life pared down to the bone, begging for a miracle. A lesser power would be tempted to strike the rock and bring forth a gushing spring, or warm the air so the barley could grow in the plazas, or carve a broad stair down the cliff face so the eleven would not be so alone.
+
+The wise power looks down through the bleached linen sky, listens to the solitary *plink* of the water drop, hears the low, warm hum of voices behind four feet of stone and sedge-mat, and knows better. 
+
+To give them a spring would be to ruin the taste of the second cistern and render the stone orchard meaningless. To warm the air would kill the hundred-year lichen and take away their purpose to the valleys below. Their life is not a deprivation; it is a completed chord. Every stone roller, every smear of lanolin, every rest-step is a note held in perfect, fragile tension against the altitude. If you add a single loud note, the music stops.
+
+And yet, the power loves them. It loves the boy with the mallet; it loves the old woman with the shoulder-blade; it loves the way they do not waste their breath in the dry afternoon. And because it is wise, it sees the three slow, silent clocks that are ticking toward the ruin of the bowl—things too large or too deep for bone scrapers and stone rollers to fix.
+
+So the power waits until the cedar shutter is barred and the crown-finch has tucked its head beneath its wing. Then, in the pewter dark, it reaches down and does three small things, each entirely invisible.
+
+First, it goes to the stone orchard. 
+
+It finds the monolith in the third row—the one the eleven speak of in the dark, the one dragged up the southern scree-chute by their great-grandfathers, which has a hidden hairline flaw at its heart. Left alone, a wet winter three years from now will drive a wedge of ice into that fault, and the ten-foot slab will shear in half, crashing across the runnels and shattering the geometry of the plaza. The power lays a hand of no weight against the cold slate. Deep inside the stone, in the blind dark where the rock remembers being mud at the bottom of an ancient sea, the minerals are coaxed to shift. A microscopic vein of quartz—the same sweet, flinty quartz that flavors the second cistern—bleeds slowly across the fault line, knitting the separated grains back together. Tomorrow night, when the boy taps the base of the slab with his wooden mallet, the *tock* will not have the faint, dull flat-note it has carried for his entire life. It will ring half a tone higher, clear and whole. Inside the house, that evening, they will talk for two hours with quiet wonder about how the stone has finally settled into its socket.
+
+Second, it goes to the sheer outer cliff, a hundred feet below the notched parapet.
+
+The ancient, wrist-thick shrubs that burn without flame take a century to grow an inch. Even burning one twist of wood a day, eleven people over four hundred years are slowly outpacing the mountain. The reach from the rope-crane to the living roots is growing longer and more dangerous each decade. The power does not make the bushes grow faster; fast wood is soft wood, and soft wood smokes and dies in an hour. Instead, the power reaches into the deep cracks of the lower cliff face, miles out of sight, where seeds blown from the bowl have lodged in dry crevices and died for lack of a single summer’s dampness. In forty hidden ledges along the cliff, the power turns a pinch of dry limestone dust into water-holding clay. The seeds will wake. They will still take a hundred years to gain an inch, and their wood will still sink in water, but when the boy with the mallet is an old man, and his grandchildren swing out on the horsehair rope to gather fuel, the cliff will not be bare.
+
+Third, and last, the power goes to the gatehouse, and then drops down the three hundred fathoms of the void into the hot, damp valleys below.
+
+The arithmetic of the bowl is nine to fourteen people. That is the law of the cisterns. Aesthetics and industry can keep the water flowing, and the barley coming up in the baskets, but eleven is a terribly small number for blood. Generation by generation, the cousins marry cousins, and though their ribcages are deep and their eyes are calm, the river of their blood is narrowing toward a dry bed.
+
+Down in the high pastures of the valley—not at the very bottom, where the air is thick like soup, but on the steep middle benches where the herders live who hook the barley-baskets to the rope—there is a young woman. She is twenty years old. Her family has lived at the foot of the great cliff for ten generations. Because of some forgotten mix of blood, she was born with the wide hips and the deep, barrel-shaped chest of the mountain top, and she has never fit the valley. The lowland air makes her head heavy and slow; the chatter of the village sounds to her like cobblestones dropped into a tin bucket. She spends her days on the highest scree-slopes, watching the Alpine choughs, moving with a slow, rolling rest-step she taught herself so her heart wouldn't race.
+
+Two weeks ago, she gashed her shin to the bone on a piece of sharp shale, and the valley damp got into it. Now she lies in a stone hut, burning with the blood-fever. Her brothers have already gone to the headman’s chest and fetched a tiny, stoppered horn vial—the last of the grey paste from the autumn trade—and smeared it over the angry red line on her leg. 
+
+It will save her life by morning.
+
+As she sleeps and the fever breaks, the power leans over her straw pallet and leaves a single, clear image behind her eyes, waiting for her to wake. It is not a voice or a command. It is simply the memory of a sound she has never heard: the sharp, dry click of a crown-finch’s claws on a stone rim, carrying across sixty yards of flat, shadowless silence. And with it, the certainty that at the top of the three-hundred-fathom rope, the air does not hurt to breathe.
+
+When the spring haze thickens into grey wool, and the four figures at the top of the world swing the heavy timber crane out over the abyss, the wicker baskets will come up heavy with barley, rock salt, raw wool, and mutton fat. And in the last basket, sitting with her hands tucked into the opposite sleeves of her coat, looking up at the bleached linen sky without squinting, will be the twelfth.
+
+Having arranged this, the power withdraws. It leaves no footprints in the limestone dust of the runnels, and it does not stir the dew-nets. The night wind whistles softly through the northern notch, the embers glow white under their blanket of ash, and the stone bowl waits in the dark for the morning cloud.

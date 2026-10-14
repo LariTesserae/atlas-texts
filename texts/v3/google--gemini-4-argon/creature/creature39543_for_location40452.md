@@ -1,0 +1,39 @@
+To look for a creature of blood and bone in the basilicas—something with lungs to choke on the steam, or eardrums that would rupture in the hydraulic screaming of the streets—is to misunderstand what the city is doing. Nothing walks the stairs because the stairs are not for walking. They are for tuning.
+
+What lives here is born directly from the three things the city has in infinite supply: the deafening, unvarying chord of the acoustics; the scalding, sterile water; and the knotted, overlapping mistakes of the geometry.
+
+If you stand in one of the miles-deep courtyards that fits inside a ten-foot alley, and you let your eyes unfocus against the flat four-o’clock light, you will first notice the interference patterns. Because the roaring of the city is entirely constant—never rising, never falling, a solid architectural note held for ten million years—the sound waves do not scatter. They stack. In the vaulted rooms and across the five-lane vine bridges, the acoustics lock into standing waves of tremendous physical density. 
+
+In the troughs and nodes of this noise, the air is as hard and slick as greased glass. And it is within these acoustic pockets that the first layer of inhabitants can be seen.
+
+They look, at first, like slow-moving lenses of heat-shimmer, or bundles of clear, boiling musculature made entirely of water and pressurized air. A runnel of water pouring down a calcified root-wall will hit a spot where the stone vibrates at a specific pitch; instead of splashing down into the gutter, the water catches on the sound. It spools into the air, spinning into a dense, hovering torus of blood-warm liquid held together by acoustic levitation. 
+
+These are the smallest things, the local fauna of the colonnades. They are jellyfish-like knots of cymatic water, ribbed with standing ripples that look like translucent cartilage. They do not swim through the air so much as they are passed from one harmonic chamber to the next. When two of them drift through the same doorway—or when one passes through a wall that is simultaneously fifty feet away and directly in front of it—their ripples interlock, their geometries multiply, and they become something larger.
+
+The true residents of the metropolis—the things for which the ten-story tenements and the high, unglazed windows actually exist—are not merely water caught in sound. They are what happens when that water and sound become trapped in the city’s broken depth.
+
+Think of the six-foot loop of rain that falls from the gutter onto the stone above it. The water in that loop has been falling through itself for geologic eras. Because there is no evaporation and no decay, the kinetic energy of the fall has nowhere to go. Over centuries, that closed loop of water thickens. It develops an internal architecture of microscopic, pressurized eddies—a vascular system of pure turbulence. It becomes heavy with memory and friction.
+
+There are thousands of these spatial loops throughout the city, and the things that live in them have grown vast, complex, and stationary, only to eventually detach and wander the folded avenues.
+
+To look at one is to experience a quiet, profound crisis of the optic nerve. A single entity might occupy an entire stepped plaza, yet have no mass you could weigh on a scale. It consists of a lattice of shimmering, pressurized membranes—sheets of water stretched tight as drumheads between invisible struts of sound—folded through five or six overlapping perspectives at once. From the front, it might look like a towering, twelve-legged loom of spun glass and dark, wet obsidian-shadow, straddling an aqueduct. Step three paces to the left, and you realize it is not straddling the aqueduct at all; it is inside the window of a housing block half a mile behind you, and the "legs" are the vertical shafts of light falling between the colonnades, bent into a solid, load-bearing anatomy.
+
+They do not have eyes, because the light never changes and nothing ever hides. They do not have mouths, because nothing rots and nothing needs to be consumed. Instead, they have *apertures*—shifting, iris-like valves of acoustic pressure and refracted four-o'clock light. 
+
+They feed, if it can be called feeding, on the city’s spatial contradictions. 
+
+An entity will press its vibrating, liquid bulk against a corner where a foreground terrace sits behind a background spire. By shifting its internal chambers—by dilating a valve of hot mist here, or pinching off a resonant frequency there—it alters the pitch of the room. The alteration in pitch shifts the standing waves, which marginally bends the local geometry. The creature slides through the impossible seam between the two stones, drawing the paradox into itself like a lung drawing breath. As it moves, the "wear" in the center of the stone steps appears beneath it—not eroded by the friction of feet, but smoothed down by the intense, localized gravity of a creature made of folded space and screaming air passing over the rock.
+
+They are the city’s minds, or perhaps the city is their shell, grown around them the way a chambered nautilus grows its spiral. 
+
+In the grandest district, where the five needles converge, the largest of them reside. These are the basilica-things. They are so deeply integrated into the non-Euclidean masonry that you cannot tell where the banyan-ash roots end and the creature’s anatomy begins. If you look through the opaque stone of the nearer archway into the wet brickwork of the far tower, the shifting, iridescent geometry that allows you to see both at once *is* the creature. You are looking directly through its nervous system. 
+
+Its thoughts are hydraulic and tectonic. Because the city's roar is a single, unbroken chord, any minuscule change made by one of these entities—a single drop of water diverted from an upward-flowing trough, a single doorway muffled by a membrane of spun steam—alters the harmony of the entire mountain range at the exact same instant. They communicate across the vertical archipelago at the speed of sound through solid rock. A shift in posture by a creature in the high eastern spires immediately changes the harmonic ripples on the skin of a creature hanging over the western abyss.
+
+They are engaged in a slow, ecstatic, million-year calculation. 
+
+Having no need for shelter, no fear of death, and no concept of time—since the afternoon never darkens and the leaves never fall—they spend their eternity re-tuning the mountain. They are trying out different configurations of space. In the deep courtyards, three or four of them will gather, overlapping their impossible bodies until the air between them turns black and silver with crushed light. Together, they will focus the screaming acoustics of twenty thousand hollow columns onto a single, dry patch of greywacke stone, vibrating the rock and the saturated air until a new archway crystallizes out of the mist, or a staircase bends backward to meet itself, creating a brand-new loop of falling water.
+
+That is how they reproduce. They build a new paradox in the masonry, seed it with a chord of trapped thunder and a gallon of blood-warm rain, and leave it to fall through itself for ten thousand years until it wakes up and begins to wander the avenues.
+
+Nothing moves in the city, because they do not need to cross distance to arrive anywhere; they simply adjust which part of the city is currently in front of the eye. If you were to stand in the central plaza, deafened by the organ-roar, slick with the endless condensation, you would think yourself entirely alone in a dead, green monument. You would not realize that the four-o’clock shadow falling sharply to the east is actually breathing; that the miles-deep courtyard inside the narrow alley is turning its attention toward you; and that the deafening, unvarying scream of the architecture is the sound of a billion tons of stone, water, and folded space quietly clearing its throat.

@@ -1,0 +1,43 @@
+To visit the Basin of Phase-Change—as some catalogers have dubbed it—you must prepare not for a wilderness expedition, but for an entry into a vast, hyper-delicate thermodynamic instrument. You are an ordinary human stepping into an extreme alpine vacuum where the margin for physical error is razor-thin, and where your mere body heat makes you a bull in a china shop. 
+
+Here is how you must prepare to survive the altitude, navigate the labyrinth, and leave the ancient clockwork intact.
+
+### 1. Atmospheric and Physiological Prep
+The sky is a "dark, bruised indigo" at midday. On an Earth-like world, this visual cue places you well into the death zone—likely above 24,000 feet (7,300+ meters)—or in an atmosphere significantly thinner than our own. 
+*   **Acclimatization and Oxygen:** If your translation method drops you directly into the basin from sea level, you will suffer acute mountain sickness, cerebral edema, or pass out within minutes. Spend two weeks stepping up in altitude before you jump, or bring a closed-circuit supplemental oxygen rig. Take acetazolamide (Diamox) three days prior to arrival.
+*   **The "Silent" Gas Hazard:** The floor vents exhale a "faint, odorless" gas that bubbles through the ice traps. Because the basin is a sunken amphitheater, it acts as a natural sink for heavy gases. That odorless breath could be pure nitrogen, carbon dioxide, or carbon monoxide. **Do not rely on your lungs.** Even if the ambient altitude is survivable, the knee-high mist layer might be completely anoxic. Wear a clip-on multi-gas detector (specifically monitoring $O_2$ displacement and $CO_2$) at both chest height and knee height. Never sit or lie down to rest on the scree floor.
+
+### 2. Protection from the "Ricochet" Glare
+The ultraviolet radiation here does not just come from above; it bounces infinitely off milky quartz, white rime, and clear ice lenses. 
+*   **Ocular Defense:** Standard polarized sunglasses will fail you; the light will leak in from below and behind, scorching your corneas (photokeratitis, or snow blindness) in under an hour. You need Category 4 glacier glasses with opaque leather side-shields, or heavily tinted, UV-blocking sealed goggles. Bring a spare pair clipped inside your jacket. If you lose your eye protection here, you will go blind in a stone maze.
+*   **Dermal Defense:** No bare skin. The UV glare is described as "scouring"—it has killed even the extremophile black lichens. Wear a UPF 50+ balaclava that covers your neck, chin, and nose, integrating seamlessly with your goggles. Coat your lips and the undersides of your nostrils (where light bounces up from the floor) with dense, chalky zinc oxide. 
+
+### 3. Thermal Regulation and Layering
+You are stepping into a violent micro-climatic war zone. The ambient air is sub-zero, the sun is a "furnace door," and your ankles will be bathed in freezing, wet condensation.
+*   **Vapor-Barrier Liners:** You will be moving slowly (stopping to observe) and then working hard (squeezing through tight rock gaps). If you sweat, that moisture will freeze instantly inside your clothes when you step into the deep shadows. Wear a vapor-barrier base layer to keep your outer insulation bone-dry.
+*   **Hydrophobic Outer Shell:** The bottom three feet of your body will be wading through a constant, rising mist that flash-freezes onto cold surfaces. Your trousers and boots must be coated in a heavy DWR (Durable Water Repellent) finish, or else you will quickly build up pounds of solid rime ice on your shins, weighing you down and chilling your legs. 
+*   **Radiant Heat Management:** Wear matte, mid-tone gray or slate-colored outer gear. Black gear will cause you to overheat violently when a razor-sharp shaft of sunlight hits you; stark white gear will turn you into a blinding beacon that disrupts the light-play of the basin.
+
+### 4. Footwear and Physical Navigation
+The basin is no wider than a village square, yet it is a dense labyrinth of smooth, bulbous stone where you cannot walk three paces in a straight line.
+*   **The Footing:** You are walking on "deep beds of silver scree and flat, ringing slate" interspersed with "invisible skins of ice" over liquid puddles. Leave the long, rigid mountaineering crampons at home—they will catch on the loose slate, twist your ankles in the deep scree, and shatter the delicate rock floor. Instead, wear stiff-soled mountaineering boots fitted with low-profile tungsten-carbide micro-spikes. They will give you bite on the invisible ice lenses without turning your feet into clumsy clubs on the bare rock.
+*   **The Helmet:** This is completely non-negotiable. As the sun tracks, "bulging collars of clear blue ice" shear off from thirty to fifty feet up and drop onto the slate. A twenty-pound collar of high-density blue ice falling from forty feet will kill you instantly. Wear a high-impact climbing helmet (preferably with a layer of polycarbonate and expanded polypropylene foam), and keep your chinstrap tight. *Look up before you step into a sunbeam.* The sunbeams are the drop-zones for melting ice.
+*   **Packless Entry:** The pillars are packed tightly together, "narrow at the waist and bulbous at the crown." If you wear a bulky expedition backpack, you will become wedged between the quartz-schist balusters, or worse, your pack will snag and smash one of the ancient slate-and-bone birdcages wedged into the gaps. Carry all your gear—oxygen, water, repair kit—in a flat, chest-mounted harness and hip-belt configuration. Keep your profile as slim as possible.
+
+### 5. Water and Rations
+*   **Do Not Drink the Local Water:** It will be deeply tempting to harvest the falling drops or break the ice lenses to drink the liquid water below. **Do not.** The water is laced with unknown volcanic gasses, heavy minerals (evidenced by the white salt crusts on the sinew), and, most importantly, it runs through *impure lead bowls* and oxidized *copper hoops*. The basin’s water cycle is likely heavily contaminated with lead and verdigris (copper acetate/carbonate). 
+*   **Insulated Hydration:** Bring all the water you need in vacuum-insulated titanium thermos flasks strapped close to your body. Standard hydration bladders and drinking tubes will freeze solid in seconds.
+
+### 6. Navigating the Labyrinth
+Though the amphitheater is small, the visual repetition of hundreds of identical, bone-like pillars, combined with the disorienting strobe effect of dark shadows and blinding light shafts, will strip your sense of direction in minutes. 
+*   **No Chalk, No Cairns:** Do not mark the pillars with climbing chalk, and do not stack the flat slate into cairns—you will ruin the pristine, untouched aesthetic and potentially disrupt the airflow from the floor vents. 
+*   **The Breadcrumb Method:** Bring a spool of high-tensile, ultra-thin dark gray Kevlar thread. Tie it off at your point of entry (or portal anchor) and pay it out behind you as you weave through the waist-narrow gaps, reeling it back in as you retreat. 
+
+### 7. Etiquette for an Ancient Machine
+Finally, prepare your mind. You are visiting a masterwork of abandonment. Whoever built the slate cages, bent the copper, and tied the sinew calibrated them to the millimeter along the shadow-lines. 
+
+*   **Mind Your Shadow and Breath:** Your body is a giant, 98.6°F (37°C) radiator, and your shadow is massive compared to a copper hoop. If you stand in the wrong place at midday, your shadow will keep an ice-lens from melting, causing the lead bowl beneath it to miss its beat. If you exhale directly onto a frost-trap, your warm breath will prematurely trigger it. Wear a breath-deflector mask that channels your exhalations downward into your jacket, and pay constant attention to where your shadow falls.
+*   **Acoustic Discipline:** The slate floor rings, and the stone swallows noise quickly. Walk by placing the flat of your foot down evenly to keep the scree from sliding. Do not speak. 
+*   **The Zenith Protocol:** Aim to be in position, tucked safely beneath the overhang of a bulbous pillar crown, at least twenty minutes before local solar noon. Turn off any humming electronics. Lock your gaze (through your dark lenses) onto one of the slate cages. 
+
+When the sun spears straight down into the stone ribcage, let the golden haze of sublimating mist rise around your knees. Listen to the *tick-tick* of the rock, the whisper of the frost, and the sparse, halting *thunk* of the lead bowls playing their slow music for an audience that left millennia ago. Witness it, take nothing, leave no footprints in the silver scree, and slip out before the shadows slide east and the water turns back to glass.

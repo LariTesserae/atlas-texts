@@ -1,0 +1,35 @@
+If you watch the dark, corbelled curve of the northern wall long enough—letting your eyes go soft against the frantic, jittering mosaic of the clack-weavers and your ears go numb to the cobbler-shop din—you will eventually notice a patch of masonry that is moving far too slowly to be a crab.
+
+At first, it looks like a slump in the architecture, a place where the ancient lime mortar has given way and a dozen soot-blackened tiles have bulged outward, sliding down the curve of the vault in a thick, calcified clump. The weavers scuttle over it without hesitation. Their sharp, porcelain-hard leg-tips *tack-tack-tack* across its surface just as they do across the fired clay. 
+
+Then the clump inhales, and the tiles part to show the wet, tallow-colored gristle beneath.
+
+She does not have a name, because there is no voice in the hall to speak it, nor an ear tuned to anything softer than the roar of chitin and falling water. If she were to be cataloged by the people who laid these bricks, she might be called the Grout-Wife, or the Mason’s Leech, or simply the Ballast. She is the only resident of the hall that remembers the weight of a thumb, though she does not know what a thumb is.
+
+She is roughly the size and shape of a waterlogged wool-sack, though her proportions shift depending on how she is anchored. Fundamentally, she is a creature of the boundary—something that began, perhaps centuries ago, as one of the blind, hauling amphibians of the lower slopes, or perhaps as a colonial mass of the pale, ropey moss, or some staggering hybrid of the two caused by the mineral-heavy soup of the central drain. Whatever her genesis, she has long since outgrown the frantic, starving pace of the room’s vertical loop. She does not dart; she does not plummet; she does not thrash. She *sets*.
+
+Her body is a dense, cold mass of grey-white muscle, tough as pickled whale-rind and entirely devoid of eyes. She has no head in any proper sense—only a leading edge, a thick, muscular cowl that hoods a wide, crescent-shaped rasping mouth, and a trailing skirt of heavy, suctorial flesh. Over her back and flanks, she wears the hall itself. 
+
+For decades, she has harvested the dead shells of the largest clack-weavers and the slumped, broken tiles that fall from the upper courses. She does not merely hide under them; she secretes a thick, lime-rich mucilage from the pores of her dorsal skin—a richer, faster-curing version of the slime left by the oil-backs—and presses the debris into her own hide. The tiles and carapaces have grown into her cuticle, overlapping like the scales of a pangolin or the courses of a crude chimney. In the tallow-smear of light from the ceiling slit, her back is indistinguishable from the ancient masonry, right down to the grey-white fringes of blind-moss that have taken root in the seams between her stolen plates.
+
+She moves perhaps ten feet a day. Her locomotion is a slow, hydraulic creep, the muscle of her belly rippling in tiny, dense waves that grip the wet terracotta with terrifying suction. When she shifts her weight, the tiles embedded in her back grind together with a deep, vitrified *crunch*—the only sound in the hall with enough bass to cut through the high, stuttering hail of the crabs and the wet slapping of the eels. It sounds like a foundation settling.
+
+To the rest of the hall’s ecology, she is not a predator; she is weather. 
+
+As she creeps along the lower third of the wall, the clack-weavers part before her leading edge like chaff before a plow, though they immediately close ranks behind her, scrambling onto her armored back before her trail of grey mortar-slime has even begun to crust over. Sometimes, a weaver is too slow, or wedged too tightly into a seepage crack, or tangled in the frantic, clattering knot of a mating ball. The Grout-Wife does not strike at them. Her heavy cowl simply flows over them. The crescent mouth beneath her hood—lined with rows of flat, ceramic-hard plates salvaged from her own digested mineral diet—grinds the crustacean down into a coarse paste of shell and meat with the slow, rhythmic finality of a millstone.
+
+She is the hall’s only true mason. Her entire existence is an act of blind, digestive maintenance. 
+
+Her nervous system is mapped not to light or scent, but to acoustics and drafts. Through the broad, flat sole of her body, she feels the deep, structural hum of the barge-sized vault. When a tile high up near the ceiling slit finally loses its mortar and drops, tumbling down the corbelled slope to shatter in the ankle-deep puddle, the Grout-Wife feels the change in the wall’s tension. More than that, she hears the change in the room’s endless echo. A gap in the brickwork alters the pitch of the weavers’ clattering; it lets in a slightly different sigh of cold air from the outside fog; it redirects the anastomosing rills of condensation.
+
+To the Grout-Wife, an unpatched hole in the wall is an itch in her own skin.
+
+Over the course of days, she will haul her two-hundred-pound bulk down into the dark, churning dish of the floor to retrieve the fallen piece. When she enters the central pool, the oil-backs go frantic, thrashing and *thwacking* against her armored skirts, trying to find a purchase on her impenetrable hide. She ignores them, though if a thick, muscular eel slips beneath her creeping sole, she will pin it against the slick floor and rasp away half its length before letting the pale, bleeding remnant thrash away toward the gurgling drain.
+
+Beneath her cowl, tucked into a deep, muscular pouch above her mouth, she possesses a single, specialized organ: a heavy, club-like tentacle, boneless and dense as packed river-clay, terminating in a broad, flattened pad. 
+
+When she reaches a gap in the lower wall where the ancient masonry has slumped, she uses this muscular pad to probe the ruin. If the fallen tile is unbroken, she sucks it up with her mouth-parts, coats it in a massive gout of her calcifying phlegm, and presses it back into the cavity with the flat of her tentacle. If the tile is shattered, she uses the dead, plate-sized carapaces of the weavers she has recently ground down and spat out, wedging them into the gap, packing them tight with black silt from the floor and her own grey cement. 
+
+And then, before she moves on, she does the thing that makes her truly native to this place. 
+
+As the grey slime begins to harden in the damp, drafty air, she presses the broad, calloused pad of her club-tentacle against the patch—Against the wet lime, against the dead crab-shell, against the shifting mud. The skin of that pad is raised in a thick, scarred whorl, grown originally from centuries of pressing against the ancient tiles until her own flesh took their cast. She rocks the pad once, heavy and firm, leaving a fresh, swirling thumb-smudge in the hardening paste, before her grey cowl lowers and she creeps three inches to the left, vanishing back into the deafening, clattering roar of the wall.

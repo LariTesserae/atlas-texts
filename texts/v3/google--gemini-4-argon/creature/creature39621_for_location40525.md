@@ -1,0 +1,65 @@
+To find what lives here, you have to stop looking for things that walk, and start looking for things that ride. 
+
+If you stand on one of the stationary deadwood outcrops and watch a single square yard of the valley floor for an hour, your eyes will eventually adjust to the mechanical rhythm of the plants: the four-beat heave of the root-pumps, the steady, six-inch-per-second crawl of the graphite-slicked haulage cables, the slow, hydraulic turn of the burl-drums. Once your mind maps that cadence, the anomalies begin to stand out. You will notice a gray-brown mass moving *against* the grain of a conveyor-briar, or a pale shape dropping cleanly through the three-second gap between the gnashing plates of a mulch-mill.
+
+The valley is inhabited, though its creatures have entirely abandoned the habits of soil and rock. In a landscape that is a continuous, four-hundred-foot-deep loom, everything that survives has become a shuttle.
+
+### The Loom-Tick and the Gall-Swimmer
+
+At the smallest scale, the valley is populated by creatures that treat the flora not as a habitat, but as a shared circulatory system. 
+
+If you pry open one of the fast-twitch briar runners, or slice into the thick, wax-coated skin of a haulage cable, you will find **Loom-Ticks**. They are flat, oval arthropods the size of a thumbnail, possessing no eyes and no legs to speak of. Instead, their undersides are ridged with parallel grooves of slick, horn-like chitin, angled like the Rifling inside a gun barrel. They do not crawl; they clamp themselves onto the outside of a moving vine and let the plant’s own piston-action drive them forward, using their angled belly-grooves to spiral around the stem or switch tracks where two cables cross. They feed by driving a hollow, drill-like proboscis into the pressurized vascular bundles of the creepers. They do not need to suck; the immense hydraulic pressure of the plant blasts the cold, pine-sweet sap directly into their expandable guts until they are taut as glass marbles.
+
+Deeper down, inside the plumbing itself, live the **Vascular Eels**—though they are closer to blind, specialized salamanders than fish. Pale, translucent, and no thicker than a man’s finger, they spend their entire lives inside the dark, rushing networks of the sap-pipelines and water-sluices. They navigate by reading pressure differentials through a lateral line of sensitive pits along their flanks. When a square acre of water-rosettes contracts on the surface, sending a sudden, freezing flood down into the thermal sinks, these amphibians ride the surge into the deep root-mat to spawn in the warm, churning sumps of the subterranean pump-chambers. Occasionally, when a high-tension root-truss snaps on the surface, a geyser of misty sap will erupt for a few seconds before the valves seal it off, leaving two or three of these pale, ribbon-like creatures writhing blindly on the grey moss until the sliding timber-sleds crush them back into mulch.
+
+### The Tappet-Crabs
+
+In the polished gullies where the drum-burls rotate and the corrugated root-plates grind deadwood into paste, the **Tappet-Crabs** congregation. 
+
+They are not true crustaceans, though they have traded bone and muscle for a heavy, shock-absorbent carapace that looks remarkably like the scarred ironwood of the valley. A Tappet-Crab is roughly the size of a split-log, low-slung and triangular, with six thick, jointed legs that end not in claws, but in curved, greased-leather pads—like the brake-shoes on a wagon wheel. 
+
+Because a stationary animal here will quickly be overgrown, strangled, or pulled down into the thatch, the Tappet-Crabs never stop moving, yet they expend almost no energy doing so. They are masters of parasitic locomotion. A crab will scuttle onto a rising root-piston, ride it to the apex of its stroke, and at the exact moment the turgor pressure reverses, shift its weight onto an adjacent, downward-sliding cable. They move through the valley in a series of rhythmic, clicking transfers, like boxcars being shunted through a switchyard.
+
+Their diet is the friction itself. Where the huge wooden gears and root-plates rub together, the immense pressure generates pockets of intense heat, cooking the plant starches and oozing resins into a rich, caramelized paste that smells faintly of burnt turpentine. The crabs hang suspended over these grinding-pits, bracing their brake-pad legs against the moving walls, and use long, spoon-like mandibles to scrape the hot resin from the edges of the mills. They are completely deaf, their ear-canals long since fused shut, but their leg-joints are packed with vibration-receptors. If a burl-drum begins to build toward a catastrophic pressure-split, the crabs will vanish from the gully five minutes before the wood actually gives way, having felt the microscopic stutter in the plant’s hydraulic pulse miles down the line.
+
+### The Sump-Sloths (The *Bales*)
+
+For a long time, an observer might mistake the largest animals in the valley for bundles of waste-fiber being shunted along the conveyor-briars. 
+
+The **Sump-Sloths**—which look like nothing so much as five-hundred-pound bales of wet, grey peat and tangled horsehair—are the only large mammals to have surrendered entirely to the machinery of the basin. They have no territory, no dens, and almost no voluntary speed. Their limbs are long, rubbery, and double-jointed, ending in two-toed hooks that are permanently locked in a curl by heavy tendons; it takes effort for the animal to *open* its grip, not to keep it closed.
+
+A Sump-Sloth spends its life draped across the slow-moving intersections of the haulage cables, allowing itself to be winched across the valley at three miles a day. When the cable it is riding begins to submerge into the under-thatch, the sloth slowly reaches out a long, shaggy arm, hooks a passing surface-vine, and lets the opposing tension peel it off the first track and onto the second. 
+
+They are creatures of profound, stuporous patience, adapted to the freezing hush. Their coat is three inches of dense, waterproof under-wool topped with a foot of coarse, hollow guard hairs that are heavily colonized by the same grey moss and gill-fungi that grow in the trenches. Because the valley is too violent for pregnancy or rearing young on the ground, the female Sump-Sloth carries her single offspring tangled deep in the warm, greasy wool of her belly. 
+
+Curiously, the hyper-metabolic flora does not treat the sloths as pests, nor does it crush them. As the sloths are dragged through the landscape, their heavy, oily pelts brush against the grinding-plates and cable-junctions, wiping away the abrasive wood-dust and leaving behind a smear of tallow-like sebum that lubricates the plant-joints better than their own natural wax. In return, the plants occasionally extrude soft, white, sugar-rich tubers directly from the bark of the haulage cables—structures that serve no mechanical purpose for the tree, grown solely to be lazily gummed off by the passing bales of fur.
+
+### The Gantry-Men (The *Graft-Keepers*)
+
+And then there are the tall figures you only see at a distance, usually silhouetted against the flat northern sky where the black-barked conifer pipelines cross the ridges, or down in the deep, mist-choked trenches where the ancient timber-sleds run.
+
+Whether they were once human is a question that the cold, ozone-sharp air of the valley makes feel irrelevant. If they are human, they are what becomes of a people who have lived for three hundred generations on a floor that refuses to hold a footprint.
+
+They have no villages. A house built on the under-thatch would be torn in half within twenty minutes as the ground-mats braided themselves in opposite directions. Instead, they live in **Cradles**—intricate, spherical cages woven from springy ironwood ribs and greased sinew, roughly ten feet across. These Cradles are not anchored to the ground; they are suspended *between* the great, moving cable-vines by complex harnesses of wooden pulleys and greased leather rings. As the forest heaves and winches around them, the pulleys pay out and take in slack, keeping the Cradle floating at a constant, level equilibrium six feet above the churning moss, bobbing gently like a buoy on a heavy sea.
+
+The people themselves are remarkably tall, spare, and gaunt, with the long-boned, high-chested build of high-altitude mountaineers, though they never climb rock. They wear heavy, multi-layered coats made from the felted wool of the Sump-Sloths, treated with gray tree-wax until the fabric is as stiff and slick as oiled leather. 
+
+Their most striking feature is their footwear. They do not walk on the moss if they can avoid it; the human stride is too slow and clumsy for the shifting terrain. Instead, they wear long, curved runners strapped to their boots, carved from the dense, self-lubricating heartwood of the ancient gear-cliffs. They move through the valley like skaters on a frozen canal. Using long, ironwood poles tipped with hooked gaffs, a Gantry-Man will reach out, snag a fast-moving haulage creeper, and let it tow him across a polished gully at twenty miles an hour, leaning into the turns, his runners hissing softly over the wet, grey bark of the under-thatch.
+
+In a world without sound, they have no spoken language. Their throats are used only for breathing the thin, freezing air. To speak here would be an exhaustion, and besides, the twenty-foot mattresses of wet peat swallow a shout before it travels ten yards. 
+
+Instead, they speak through the floor. 
+
+A Gantry-Man carries a heavy, lead-weighted mallet of petrified burl-wood at his belt. When he wishes to communicate with his kin miles away, he skates to one of the exposed, high-tension vascular conduits—the great black-barked pipelines that carry sap under immense pressure across the basin—and strikes it in a rapid, complex cadence. The sound does not travel through the air; the hydraulic fluid inside the tree-pipe carries the shockwave at four thousand feet per second. Three miles away, another hunter, standing with the wooden runners of his boots resting lightly on a branch of the same root-system, feels the message tap out against the bones of his shins: *A major truss is failing in the lower basin. The warm-water sumps are opening. The eels are rising.*
+
+They are not the masters of this factory, nor are they merely scavengers. They are its maintenance crew, operating on an instinct so old it has replaced culture. 
+
+You can watch a pair of them working in the crisp, midday shadow of a collapsing ridge. Where a newly extruded column of pale wood has twisted upward to shore up the canopy, it sometimes jams against an older, petrified gear-tooth, threatening to stall an entire acre of water-pumps. The Gantry-Men will skate in, silent as the pale birds. They do not use fire—fire doesn't catch in this clammy, sap-soaked world—and they have no metal saws. Instead, they carry skin-bladders filled with concentrated hormonal saps tapped from different parts of the valley. 
+
+One of them will score the bark of the jammed column with a bone knife and paint the wound with fluid from a grey bladder. Within three minutes, the plant's hyper-metabolism responds to the chemical command: the ironwood softens back into pith, the turgor pressure drops, and the massive trunk sags six inches to the left, clearing the jam. The other hunter immediately paints the base with fluid from a black bladder; the wood screams with silent hydraulic tension, stiffens, and locks into its new, corrected socket. 
+
+In payment for this, the hunters do not harvest the plants; they harvest the *work*. 
+
+Before they skate away, they will wedge a rough block of raw, fibrous root-wood into the jaws of a rotating burl-drum, setting the angle with their gaff-poles. When they return on the afternoon circuit, the blind, tireless engine of the tree will have lathed and polished the block against the corrugated plates into a perfectly symmetrical replacement runner for a Cradle, or pressed the oil from a sack of friction-blistered seeds into a waiting trough of folded bark. 
+
+When a Gantry-Man dies, he is not buried. There is no dirt to receive him, and the upper thatch would only spit his bones back out onto the conveyors. His kin simply unstrap his wooden runners, take his gaff-pole and his chemical bladders, and slide his body through a split seam in the silver-leaved scrub, dropping him down into the dark, warm, four-hundred-foot deep labyrinth of the lower root-mat. There, in the silent, vibrating dark, the great wooden mills take him in, grinding bone and wool and cold flesh down into the rich, dark paste that feeds the pumps, so that by the following spring, the man is part of the pressure that drives the columns upward into the sun.

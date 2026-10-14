@@ -1,0 +1,27 @@
+There is no dirt here, and if there is stone, it lies miles beneath your feet. 
+
+What exists instead is the Truss: a continental expanse of living, hyper-rigid timber that has grown out of a planetary abyss into the high, freezing reaches of the upper atmosphere. The world is a single, unimaginably vast architectural lattice of dark wood, engineered by its own blind biology to reach as high as possible while using as little mass as the laws of physics will allow. 
+
+Because of this, the landscape is nearly ninety-nine percent empty air. 
+
+You stand on a root-span the width of a country road, though it is not round like a familiar branch. It is sharply angled, three-sided, its flanks fluted like a chipped obsidian blade to shed the weight of ice. The bark is the color of cast iron and feels like cold, waxy slate. Look over the edge, and there is nothing below for threequarters of a mile—just the faint, vertigo-inducing geometry of other spans intersecting in the dark, forming vast hollow tetrahedrons and cavernous voids big enough to swallow mountain ranges. 
+
+It is perpetually dark, the sky overhead a heavy, starless indigo thick with high-altitude ice-fog. Yet the world is not quiet, and it is not still. It is terrifyingly loud and violently awake.
+
+The sound begins with the wind. Because the air is thin and freezing, and the Truss is built of sharp, unweathered edges—new growth splits out of older wood with the crisp, jagged geometry of fractured flint—the wind does not rustle. It shrieks. It moans through mile-wide triangular apertures like air blown across the lip of a titanic jug. And beneath the wind is the sound of the forest itself: the *boom-crack* of tension-wood adjusting its load. The entire continent is a dynamic suspension bridge constantly shifting its weight. New shoots, thick as watchtowers and tipped with black, horny caps, drive upward through the dark at visible speeds, powered by high-pressure hydraulic sap rich in natural antifreeze. As they lock into higher branches and fuse, the structural load changes. A span three miles away will suddenly drop ten feet with a sound like a cannon shot, sending a low-frequency shudder through the soles of your boots.
+
+Water does not fall as rain here, nor does it pool into rivers; there is nowhere for a river to run. Instead, the moisture moves in massive, rushing banks of freezing fog that boil up from the unseen depths. As the fog slams into the frigid ironwood spans, it condenses instantly. The struts are slick with black rime and weeping, vertical sheets of dampness. In the crooks where four or five great beams fuse together, the wood swells into huge, hollow blisters—pitcher-galls the size of cisterns—that catch the runoff, holding dark, tannin-bitter pockets of liquid water insulated from the freeze by the metabolic heat of the plant's vascular junctions.
+
+It is around these steaming, groaning junctions that the fauna gather. 
+
+Because the void is so vast, everything that lives here either glides on the thermals of the deep updrafts or moves like a spider along the rigging. You hear them before you see them in the gloom. Flocks of heavy, leathery-winged gliders—creatures the size of wolves with hooked claws on their chests—slam into the timber spans with wet, heavy *thuds*, skittering up the sharp ridges with a sound like clattering antlers. They feed on the sap-boils, hacking at the ironwood with serrated beaks. In turn, they are hunted by six-limbed, long-necked things covered in thick, pale quills that sprint silently along the undersides of the beams, using the blinding fog banks for cover. When a kill happens, the echoing screams and the hollow drumming of thrashing bodies against the resonant wood carry for miles through the empty dark.
+
+And scattered across this immense, groaning scaffolding are the camps of the Riggers.
+
+Their presence is slight, swallowed by the sheer scale of the hollow space, yet unmistakable. You will be walking along a knife-edge ridge in the freezing dark and suddenly catch the smell of burning resin. Ahead, tucked into the leeward pocket of a structural node, is a shelter. 
+
+They do not build with walls—walls catch the wind and tear the camp into the abyss. Instead, they weave cocoons of split-vine and cured glider-hide directly into the sharp flutes of the living wood. Their technology is entirely one of tension, wedge, and chisel. With heavy adzes made from the dense, horn-like caps of the upward-driving shoots, they hack stairways into the thirty-degree slopes of the struts. They tap the vascular bundles of the wood with bone spigots, drawing off the warm, syrupy antifreeze-sap to burn in shallow stone lamps—stones hauled up from unthinkable depths generations ago and guarded like gold.
+
+Around their camps, they string harps of braided gut across the wind-slots. These are not for music; they are barometers and seismic alarms. When the pitch of the harps rises to a shriek, a gale is rising from the deep. When the strings go slack, the beam they are living on is losing tension, preparing to shed its bark or drop to a lower equilibrium. 
+
+To look out from one of these camps is to look into an ink-black ocean of air. Far away—perhaps five miles across the void, perhaps ten—a single, pinprick grease-lamp flickers on another span, suspended in the nothingness. Between here and there, the fog coils and drops, the great black beams groan and shift their ancient weight, and a thousand unseen wings beat against the freezing wind.

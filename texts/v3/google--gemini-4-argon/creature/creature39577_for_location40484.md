@@ -1,0 +1,37 @@
+They are hard to see at first, because they are already in the seven places the mica-leaves say they should be. 
+
+When you look through the pressurized, glowing foliage at a polyhedron of raw feldspar, and the refraction splits the stone into a radial burst of seven identical stones, the human eye dismisses the duplicates as optical tricks. It is only when six of the stones remain still and the seventh shifts its weight—unfolding a long, dry limb of matte-black shale and striated copper—that you realize the anomaly is inhabited.
+
+They do not have a name for themselves, because they do not have a language that uses nouns. If they were to be named by an outside observer, they might be called the *Cadastrals*, or the *Grafts*, though neither captures the quiet, domestic way they occupy the fractured metric of the basin.
+
+At a glance, a single Cadastral looks like a smear of dry mineral color suspended in the air—a loose, roughly vertical assemblage of slate-gray plates, fibrous ceramic tendons, and ribbons of dull, amber-colored muscle that require no moisture to contract. They are tall, perhaps eight feet if they were ever gathered into a single, contiguous three-dimensional coordinate, though they rarely are. They have learned that in a forest where a three-foot gap requires twenty paces to cross, having a single, unified body is an exhausting liability. 
+
+Instead, a Cadastral lives *across* the faults. 
+
+Its lower limbs—three double-jointed stilts ending in flat, padded feet of soft graphite—might stand upon the razor-sharp gravel of a clearing. Its torso, a hollow cage of woven boron and dry leather, will be suspended six feet away and four feet up, resting on the other side of an invisible shear-fault. Its head, which is little more than a flat, asymmetrical fan of sensitive quartz plates and gold-leaf fringes, might be tucked deep inside a four-dimensional fold twenty yards into the coppery ferns, listening to the static hum of the roots. 
+
+When it moves, it does not walk so much as it reconciles its segments. The feet take a step on the crisp slate—*crunch, crunch*—and thirty feet away, through a thick wall of glowing leaves, a long, four-jointed arm reaches out of empty air to steady the torso against a ceramic trunk. 
+
+Unlike the small, six-legged flint-creatures that must drop their resolution and snap through solid matter like sparks of static, the Cadastrals do not fight the broken geometry. They are native to the rewrite. They use the optical multiplications of the mica-leaves as physical scaffolding. If a Cadastral wishes to cross a dense thicket, it simply steps into the refracted prism of light cast by a broad-leaved shrub, lets itself be duplicated seven times in a radial pattern, and then chooses to collapse its mass into the seventh image—effectively stepping twenty feet laterally without ever passing through the intervening space. The other six versions simply fade like afterimages on a retina, leaving behind the faint smell of hot quartz.
+
+Because the basin has dispensed with thermodynamics, the Cadastrals have no mouths, no viscera, and no need to hunt or forage. Yet they are constantly, meticulously busy. They are the arborists of the non-causal machine, or perhaps its parasites, or perhaps the lingering, post-physical descendants of the engineers who built it, now reduced to a purely aesthetic instinct.
+
+Their days—or the single, endless ten-o'clock morning that constitutes their eternity—are spent adjusting the tensions of the space. 
+
+A Cadastral will stand for hours before a spot where a boron vine vanishes into a topological fold. With its long, hyper-articulated fingers of dry bone-ceramic, it will pluck at the air around the seam. It is not touching the vine; it is touching the metric itself, feeling the "grain" of the local physics the way a carpenter feels for a knot in planed oak. If the space between two trees has stretched too thin—if a three-foot gap has bloated until it takes fifty paces to cross instead of twenty—the Cadastral will reach into the distortion with both hands, hook its claws into the refractive light cast by the overhead canopy, and *pull*. 
+
+There is no sound when they do this, only a sudden, dizzying shift in the visual field. The background snaps inward. A boulder that looked miles away through the gap is suddenly right where it belongs. The Cadastral absorbs the excess distance into its own segmented body, storing the compressed space between its slate-gray ribs like a lungful of warm air, which it will later exhale into a clearing that has become too cramped.
+
+They are social, though their gatherings are baffling to a linear mind. Three or four Cadastrals will often occupy the same five-foot patch of exposed feldspar, yet never touch one another because they are standing at different depths of the local metric. To an observer, they look like a single, impossibly complex sculpture of overlapping limbs and shimmering quartz fans, flickering in and out of each other’s silhouettes as the light refracts through them. 
+
+They communicate by altering the angles of their quartz-plate heads, catching the unchanging white sunlight and bouncing it through the incandescent gas of the shrub-leaves. By shifting a plate half a millimeter, a Cadastral can cause a distant boulder to duplicate four times instead of seven, or turn a patch of coppery fronds inside-out for a fraction of a second. It is a silent, blindingly fast language of visual parallax and spatial puns. A conversation between two of them makes the surrounding hundred yards of jungle shimmer and twitch like a broken hologram, the geometry of the trees stuttering as the creatures trade observations through the foliage.
+
+When the rare, six-legged flint-creatures click and phase-shift past them, the Cadastrals pause. Sometimes, a Cadastral will reach out a disembodied hand from a shear-fault and gently catch a flint-creature mid-shift, holding it while it is still a coarse grid of dull, low-resolution light. The Cadastral will turn the pixelated animal over in its dry fingers, inspecting the grid as if checking a weave for dropped stitches, before releasing it to snap back into solid flint and bound away over the sharp stones.
+
+If *you* walk through the basin, they will watch you from the duplicates. 
+
+They are fascinated by things that insist on remaining contiguous. To them, a creature that keeps its head attached directly to its neck, and its neck directly to its shoulders, regardless of what the surrounding space is doing, is a bizarre and clumsy phenomenon—like a man trying to walk through a dense forest while carrying a thirty-foot iron pole crosswise. 
+
+When you reach your hand across a horizontal shear-fault and watch your fingertips appear three feet to the left of your wrist, you might feel a dry, warm touch against your displaced palm. There will be nothing standing in front of you in the clearing. The gravel will be empty, baking quietly under the sixty-degree sun. 
+
+Only if you look twenty yards to your right, through the thick, glowing mica-leaves of a low shrub, will you see the Cadastral standing in the refracted distortion—its tall, segmented frame split across three different angles, its quartz head tilted curiously, holding your severed fingertips gently in its dry, ceramic hands, wondering why the rest of you is taking so long to step through the light.

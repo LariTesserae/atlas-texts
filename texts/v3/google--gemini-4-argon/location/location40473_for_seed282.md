@@ -1,0 +1,31 @@
+The breath freezes four inches from the mouth, hanging in the amber gloom before the intake vents pull it sideways into the bronze mesh. 
+
+This is Junction 14-Sub-Zero, though the stencil on the bulkhead has already been half-swallowed by a shelf of newly extruded grey slag. The chamber is no larger than a cistern, wedged forty feet below the sub-basement of the municipal traction engines, forgotten in the triangular void where three massive load-bearing retaining walls fail to meet cleanly. Nothing here is dirt. Nothing is native stone. If you chipped through the floor with a cold chisel, you would hit six feet of poured high-alumina concrete, then a lead liner, then the iron casing of the deep-drainage viaducts.
+
+Yet the room is growing its own geology.
+
+Overhead, a dense knot of cast-iron pipes, copper feedlines, and braided lead conduits passes through the ceiling on its way to the upper works. They are packed so tightly that a hand cannot pass between them. Every seven minutes, when the great flywheels three levels up engage the night-shift dynamos, a heavy, rhythmic shudder passes through the ironwork. A valve weeps. It does not drip clear water, but a frigid, supersaturated brine heavy with lime, dissolved boiler-scale, and copper sulfate from the pickling vats above. 
+
+Because the room sits at a steady twenty-six degrees Fahrenheit—chilled by the return-lines of the ammonia refrigeration plant that form the chamber’s western wall—this mineral slush does not simply pool and drain. It freezes and calcifies simultaneously. 
+
+Everything is brand new, raw, and caught in the act of solidifying. The floor is a miniature terraced basin of rimstone pools, their edges razor-sharp and still wet with the syrupy blue-grey runoff that builds them up a millimeter every week. Where the ammonia pipes sweat, massive, pristine curtains of dirty ice hang down to meet blunt stalagmites of greasy calcium. There is no dust here, no flaking rust or crumbling mortar; the cold and the ceaseless, slow-motion dribble of industrial effluvia coat every bolt and rivet in a fresh, glassy glaze before oxidation can even begin. A wrench dropped on the grating three months ago is already half-entombed in a smooth, pearl-grey nodule of false flint, looking as though it were cast there at the beginning of the world.
+
+The light comes from two sources, neither of them intended for eyes. Near the ceiling, an unshielded ballast tube for the district’s telegraph repeaters glows a dull, bruised violet, humming at fifty cycles per second. Lower down, half-buried in a bank of frozen tallow and frost, a single porcelain-caged inspection lamp burns with a thick carbon filament, casting a dim, orange-red tangle of shadows through the forest of standpipes.
+
+Between the violet above and the orange below, the "flora" takes hold.
+
+They are not quite mosses, and not quite crystals. Along the lukewarm outer jackets of the steam-return pipes—insulated with horsehair and canvas wrapped in wire—sparse, wire-thin filaments of pale yellow sulfur-mold reach out toward the freezing draft. Where the warmth of the pipe meets the bitter cold of the chamber air, a perpetual micro-fog curls and eddies, a collar of mist three inches thick. In this narrow ring of temperate dampness, stiff, translucent fronds of silicate-feeding turf sprout from the wet canvas. They look like spun glass or frost-feathers, utterly motionless until a drop of brine hits them; then, the whole colony contracts with a faint, dry *tick*, shaking off the freezing water before it can encase them.
+
+Lower down, in the slush-basins where the copper-tainted water pools before freezing solid, black, gelatinous lichens—fed by the grease that bleeds from the pneumatic accumulator’s leather gaskets—creep in slow, concentric rings across the bare steel floor plates. There are no rats here. No beetles, no spiders, no silverfish. The air is too sharp with the tang of ammonia and ozone, the surfaces too cold and caustic for anything with blood or chitin.
+
+Yet the room is busy. It has its own weather, its own compressed, clockwork seasons.
+
+For forty minutes of every hour, the chamber is still. The only sounds are the sixty-cycle hum of the violet tube, the distant, muffled thud of the surface streetcars transmitted through forty feet of solid masonry, and the tiny, crystalline *plink* of new mineral crusts contracting in the cold. Frost builds on the iron ribs. The brine pools skin over with thin, hexagonal plates of ice.
+
+Then, a brass governor on the eastern wall clicks. A counterweight drops inside a greased tube with a heavy, oiled sigh. 
+
+This is the blow-down cycle. A relief pipe near the floor coughs twice and vents five gallons of forty-degree greywater across the terraced slag. Immediately, the pocket-landscape erupts into silent, frantic process. A low, dense bank of steam rolls across the miniature basins, rising three feet before the cold ammonia wall shears it off and turns it into a localized snow-squall. Fine, greasy flakes of frost drift sideways through the orange light of the filament lamp, settling on the black oil-lichens. The sudden warmth wakes the sulfur-molds on the upper pipes; they swell, releasing a faint, peppery cloud of spores that swirl in the convection currents like golden smoke. The rimstone pools overflow, their mineral-heavy water hissing softly as it hits the sub-zero iron of the western bulkhead, instantly flashing into fresh, bulbous shelves of yellow ice.
+
+Twelve minutes later, the drain-trap at the lowest corner of the floor sucks the excess water down with a hollow, metallic gulp. The steam vanishes, pulled into the bronze mesh of the intake vents. The miniature blizzard stops. The newly deposited layer of lime and ice hardens, sealing the spores and the grease beneath another paper-thin stratum of artificial rock. 
+
+The chamber is a millimeter smaller than it was an hour ago. The pipes are a millimeter thicker. In the orange-and-violet dark, the raw, sharp-edged terraces gleam wetly, waiting for the governor to click again, building a mountain range in the dark out of boiler-scale and winter.

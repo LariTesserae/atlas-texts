@@ -1,0 +1,25 @@
+From the outside, the mesa is an uninteresting lump of primordial granite, worn down by eons of wind until it resembles a dropped loaf of bread baking under a clear, high-altitude sky. The plateau is vast, flat, and largely empty. 
+
+You have to nearly step into the sinkhole to know it is there. 
+
+It is a collapsed blister in the ancient stone, no more than forty yards across and twenty yards deep. Its rim is worn as smooth as an old bone, overhanging slightly to create a sheltered bowl embedded within the larger, barren highlands. Because of the lip, the wind that scours the upper plateau doesn't reach the floor of the basin. Instead, it passes over the top, creating a low, resonant flute-note that serves as the bassline for the deafening noise inside.
+
+Within this pocket, the air is startlingly warm—ten or fifteen degrees hotter than the high plains above. The heat doesn't come from the sun, though normal, bright daylight pours freely through the circular opening above. It radiates from the scattered remnants of an ancient installation embedded in the rock. 
+
+Spaced widely around the curved walls and floor of the basin are seven or eight sleek, geometric pylons of a material that looks like matte-black ceramic, though it yields slightly to the touch like hard rubber. They do not have seams, wires, or screens. They have survived the geological eras that melted the surrounding mountain down to a stump because they do not strictly participate in normal friction. Every few minutes, the air around a pylon shimmers with a localized gravity distortion, and the ambient moisture of the high sky is ripped out of the atmosphere. Water condenses instantly on the black surfaces, running down in warm, thick rivulets to soak the red dust of the floor. There are no ponds or streams here, just a perpetual, warm dampness in the soil and a localized humidity that smells of wet stone and ozone.
+
+Because the basin is so small and the pylons are set so far apart, the layout feels sparse, almost like a minimalist courtyard. Between the black monoliths are wide expanses of smooth, ancient bedrock covered in a thin skin of dark soil. 
+
+Yet where the warm water trickles, the vegetation is fiercely lush. It doesn't carpet the whole floor; rather, it explodes in dense, isolated clusters around the bases of the pylons and along the damp fault lines in the rock. There are thick, barrel-like ferns with fronds the texture of velvet, and sprawling, low-lying shrubs with leaves as wide as dinner plates, waxy and engorged with moisture. Vines thick as pythons anchor themselves to the sheer, eroded walls, drinking the condensation that drifts up from the thermal vents. 
+
+And on these plants, and in the air between them, is the source of the roar.
+
+The sinkhole is a biological engine running at a fever pitch, completely overwhelmed by its own fauna. Millions of translucent, thumb-sized cicadas with iridescent, copper-veined wings coat the undersides of the broad leaves. When a pylon pulses to draw moisture from the air, the sudden drop in barometric pressure triggers a synchronized acoustic response from the insects. It is not a chirp, but a heavy, metallic grinding sound that bounces off the smooth granite walls until the whole stone bowl vibrates like a struck bell. 
+
+Through this wall of sound dart the predators. Tiny, six-legged reptiles, bright crimson and no longer than a human finger, skitter across the sparse rock between the plant clusters at blinding speeds. They don't run so much as blur, leaping into the air to snatch the copper-winged insects mid-flight. Higher up, hovering near the lip of the sinkhole, are scores of creatures that look like a cross between hummingbirds and mantises—feathered, frantic things with rapier-like forelimbs, clattering their beaks in sharp, percussive bursts that cut through the drone of the bugs.
+
+The whole pocket ecosystem operates at double speed, fueled by the waste heat and forced condensation of the incomprehensible machines. 
+
+Occasionally, a bird-mantis will fly too close to one of the active pylons. When the machine cycles, the creature isn't harmed, but its trajectory is warped. It loops strangely through a pocket of bent space, its feathers briefly refracting the afternoon sunlight into colors that don't belong to the normal spectrum, before it rights itself and dives back into the greenery to hunt. 
+
+Everything here is in constant, violent motion—leaves shaking with the weight of wrestling beetles, lizards flashing across the bare stone gaps, water shimmering into existence out of dry air, and the relentless, deafening symphony of a million tiny throats echoing up into the quiet sky. Yet if you climb twenty feet up the worn granite chute and pull yourself back onto the flat, ancient plateau, the sound cuts off almost instantly, swallowed by the thin air, leaving only the wind and the empty rock.

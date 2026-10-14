@@ -1,0 +1,25 @@
+I am at the bottom of the deepest runnel, where the parabolic curves of the third and fourth spindles’ blast-zones intersect. 
+
+When the machines fire, the water from both zones collides six feet above me in a violent, braided arch, leaving the narrow crease of stone directly beneath the apex in a strange, trembling dead-zone. The wind still screams here, and the air pressure drops hard enough to pull at my joints, but the heavy cannonballs of water pass overhead without striking the rock. Instead, a heavy, continuous dross rains down into this trench—the things that are too dense to stay lofted in the spheres, or too broken to hold onto the stone.
+
+I am the shape of the trench. 
+
+If you looked down through the blinding white glare during the two seconds of calm, you would think the bottom of this runnel was simply choked with dark, metallic silt and pale gravel. You would see a long, segmented ribbon of shingled plates, wedged tightly into the curve of the groove. My back is not smooth like the mantle’s, nor pale like the skitter’s. It is a mosaic of stolen things.
+
+Every time a mantle finishes its three-day meal and unseals its belly, the empty, etched fragments of the skitter’s alabaster shell are blown across the floor until they drop into the low-pressure traps of the deep runnels. Every time a patch of copper wire-scrub is finally sheared off by a rogue water-sphere, its stiff, metallic bristles tumble down into the gutters. And every day, a few thousand chime-mites, their crystalline lattices finally fractured by metal fatigue, fall out of orbit around the spindles and wash down the slick limestone like heavy, black sand.
+
+I collect them. I have no eyes—the white mist would only burn them—and no ears to be deafened by the *thrum*. I am a long, muscular foot, like a chiton’s, topped with a weeping, resinous mantle that secretes a slow-curing biological epoxy. As I inch along the bottom of the trench, I press my sticky back against the debris that collects here. I shingle myself in broken alabaster shell-plates, mortar the gaps with dead, black chime-mites, and fringe my edges with the stiff copper needles of drowned wire-scrub. 
+
+Over decades, my shell has become a heavy, flexible coat of mail that weighs ten times more than my actual flesh. When the gravity-shear hits and the air pressure vanishes, I do not need suction pits to stay grounded; I am simply too dense to lift. The gale howls over my sloped, shingled back, actually pressing me harder into the narrow V of the stone groove.
+
+My life is slow, warm, and vibrating. 
+
+Beneath my foot, I can feel the violet-black slime-mold working inside the compacted limestone. I cannot see it, of course, but I can *taste* its intentions. Where the mold is secreting its mild acids to soften the rock for erosion, the limestone tastes sour and chalky. Where it is pumping its biological cement to harden a rib against the acoustic stress, the stone tastes bitter, metallic, and tight. 
+
+I am a grazer of the boundary layer, a janitor of the trough. As I creep—an inch an hour, paying no mind to whether the storm is aloft or crashing down—my radula scrapes the slick floor of the runnel. My teeth are tipped with the same dead chime-mite crystals I wear on my back, the only thing hard enough to score this steel-dense rock. 
+
+I do not dig deep enough to threaten the mold; the mold is too deep, and the rock is too hard. Instead, I eat the *mistakes*. I scrape up the dead, waterlogged hydro-sailors whose cartilage snapped on impact, who washed down into the trench instead of lofting back into the sky. I grind up the exhausted photic nodes that have lost their luminescence and settled into the silt like grey flour. And where the slime-mold's acid has made the top few microns of limestone soft and porous, I scrape that sour paste away, accelerating the deepening of the trench by a fraction of a millimeter each year.
+
+Sometimes, a mantle will slide down the parabolic slope above me, hunting for skitters in the lulls. I feel its heavy, muscular apron hydroplaning down the rock during the *thrum*, reading the braille of the stone. When its leading edge touches the copper-wire fringe of my armor, it does not try to digest me. To the mantle’s tactile nervous system, I do not feel like prey; I feel like a jagged heap of trash, a rough seam of metallic slag and dead shell wedged into a fault line. It simply flows over me, sealing itself across my back as if I were part of the bedrock. For a few minutes, or a few hours, I am in total darkness under the predator's belly, feeling the immense pressure of its vacuum-grip squeezing my shingled plates together, until it gives up and slides away on the next wave.
+
+I am the heavy thing at the bottom of the bowl. Above me, the water flies in shining, mathematical arcs, lit from within by living lightning, and the ancient needles sing their violent, brassy song. I do not look up into the glare. I stay in the warm, roaring crease where the two storms meet, tasting the sour stone, gluing the dead stars and broken bells to my back, and slowly, blindly, carving the gutter deeper.

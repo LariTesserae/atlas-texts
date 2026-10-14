@@ -1,0 +1,25 @@
+I am the groove between the second and third basin.
+
+Not the whole stair of carved tallow-stone, and not the water itself, which only passes through, arriving warm from the fig-choked roof and leaving slightly warmer over the bottom lip to vanish into the black mulch. I am the two-inch channel where the upper lip spills over—the place where the ancestor’s flint chisel first bit into the soft amber travertine twenty generations ago, and where the thumb of the living comes to rest when the green light thickens.
+
+To be here is to be caught between two slow erasure-engines that work at the exact same speed in opposite directions.
+
+Left to itself for a season, the cave wants to heal me. The water that slides down my throat is heavy with dissolved karst from the overhang fifty feet above. Every drop that hesitates on my lip leaves behind a microscopic grain of calcite, a milky rime that builds and builds until my trough begins to shallow, my edges round inward, and the trickle widens into a sheet that spills aimlessly down the side of the column instead of feeding the lower bowl where the small black crabs wait. Left to the water, I would bulge back into a featureless candle-drip of stone in ten years.
+
+Left to the thumb, I am kept open.
+
+I know all four of them not by their oil-dark eyes or the bryophytes rooted in their collarbones, but by the width of the pad, the temperature of the skin, and the particular grit they bring to the work. 
+
+The old male comes down from the fig-buttress mostly in the dead hours when the thermal drafts are longest apart. His thumb is wide, the chevron-ridges on the pad flattened with age and scarred from an old crab-pinch that never quite closed right. When he settles his hip against the base of the western wall—waiting for the ten-second rain of the downdraft to mask the submerged *cluck* of his pelvis—he lays his hand across the basin’s rim and drops that heavy thumb into my throat. He does not press hard. He lets the weight of his forearm do it. *Slide, pause. Slide, pause.* He uses the sandy paste of crushed carapace he’s spat into his palm, grinding it against my floor in a two-inch arc. Through the thin, wet horn of his nail, I can feel the twelve-beat-a-minute thud of his heart, slow as the stalactite drip, and the occasional long, low-frequency tremor that passes through him when one of the others thrums a warning into the humus thirty paces away.
+
+The young female—the one who climbs to the wasp-kilns—has a narrower thumb, warmer by half a degree, and her saliva is sharper. When she works me, she has often just come down from the ledges, and her skin carries the dry, papery dust of the blind wasps’ comb and a trace of larval fat. That fat smears into my calcite pores, waterproofing me for days so the carbonic drip skates through faster, gathering in a neat, silent bead at my tip before slipping into the third bowl.
+
+I am the only history they have left that isn't made of bone.
+
+The skulls wedged into the retaining walls are shrinking; every year they grow thinner under the slow, patient licking of the four, their brow-ridges softening into translucent eggshell until, eventually, a parietal bone gives way with a wet *crunch* during a thermal-shiver and is swallowed down for its phosphorus. The river-cane cylinders on the ledges are rotting into the mud beneath the weight of the wasp nests. Even the dry-stacked cairns are losing their shape as the strangler-fig roots pry the grey blocks apart to get at the nitrogen in the floor.
+
+Everything else the first people made is being digested by the nave. Only I am maintained. 
+
+The four do not know why I must be three-quarters of an inch deep, or why the faint, nearly erased spiral to my left was once the tail of a carved millipede meant to bless the drinking water of people who still had names and vocal cords. They only know that when I am choked with fresh travertine, the water sheets away into the ferns, the lower bowls dry to a sticky mucilage, the cream-clawed crabs retreat into the deep crevices where six-fingered hands cannot reach them, and the belly goes empty.
+
+So I am the compact between the dead who had tools and the living who have become animals. I am the shape of a human thumb, preserved in stone that is constantly trying to forget it was ever touched. When the last of the four finally fails to climb back up into the Spanish moss at nightfall—when the blind snakes and the carmine ribbons have finished their week’s work in the cairn, and there is no one left to open the stones and lick the femur clean—the water will keep coming. Drop by warm drop, the limestone will lay its pale tallow veil across my floor. It will take about forty-five hundred thermals, maybe six monsoons of the unseen sky above the philodendrons, for my lip to seal over completely, and for the drip to lose its way.

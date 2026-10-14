@@ -1,0 +1,37 @@
+The builders were wrong about one thing: it is possible to sleep in the roar, provided you do not have bones that fight it. 
+
+At the base of the western wall, where the boulder-tumble creates a low overhang beneath a three-foot mattress of oxblood liverwort and sphagnum, there is a hollow that looks like a badger’s sett, though no badger could endure the acoustic pressure at the bottom of the bottle. If you watch this dark mouth for an hour—an easy thing to do here, where an hour feels like the space between two breaths—you will see the moss at the threshold tremble with a rhythm slightly counter to the waterfall's drone.
+
+What emerges is low, heavy, and looks at first like an extrusion of the wet limestone itself. 
+
+They are a colony—three of them now, though there have been as many as seven when the upper river runs fat with spring snowmelt and drives more beetles and blind crane-flies down the throat of the pit. In the pewter light, they resemble something halfway between an olm and a gigantic, wintering toad, each the size of a butcher’s chopping block and weighing nearly as much. Their skin is naked, thick as soaked leather, and entirely devoid of pigment, showing the dull, bluish-gray of lard mixed with wood ash, mottled here and there with the slow-growing green algae that colonizes everything in the sink. 
+
+They have no ears—no tympanum at all, which would have been ruptured at birth by the standing waves of the chamber. Instead, their broad, flat skulls are honeycombed with gelatinous canals, like the lateral lines of a deep-sea fish, and from their chins and heavy forearms hang fleshy, pale barbels that drag through the wet moss. They do not hear the roar; they *inhabit* it. To them, the relentless bass note is simply the pressure of the world, the medium in which they are suspended. They see the shape of the room by the way the sound bends around it.
+
+The largest of them—an ancient female whose broad back is scarred with the pale, puckered indentations of old rockfalls—hauls herself out of the burrow with a slow, hydraulic grace. Her limbs are short, splayed out to the sides like a salamander’s, ending in four thick, unwebbed digits tipped with horn the color of hornbeam wood. She moves at the exact pace of the blue-black slugs, her cold blood asking very little of the sparse oxygen in the mist. Her eyes are tiny, sunken beads of milky quartz buried in folds of heavy, hairless brow; they cannot form an image, only register the bruised, silver smudge of the aperture sixty feet above, telling her whether the surface world is in day or night.
+
+Yet she is not an animal—or if she is, the distinction is lost here. 
+
+As she clears the threshold, one of her heavy, splayed hands reaches back into the dark and draws out a tool. It is one of the hollowed-out marrow bones that fell from the rotted horsehair lashings two winters ago. The builders brought their adzes and granite basins here to measure the voice of the earth, thinking themselves the sole technicians of the pit. They did not realize they were merely leaving raw materials for the tenants.
+
+The creature carries the bone in the crook of her elbow, pressed against the damp, cool leather of her side, and begins her climb. 
+
+She does not avoid the human geometry; she uses it, and she tends it. The bog-oak poles and willow withes have become the highways of her kind. Reaching the base of the nearest tripod frame, she grips the slick, algae-furred wood with surprising, vise-like strength. For ten minutes she does not move at all, letting her heartbeat—which occurs perhaps four times a minute—settle into the exact harmonic trough of the vibrating timber. When she climbs, she does not shake the frame. She flows up it like thick tallow going the wrong way up a candle.
+
+Halfway up the scaffolding, where a crossbeam spans the empty lung of the chamber, the standing waves of the waterfall’s bass note cross one another, creating dead spots and violent nodes—an invisible architecture of pure pressure. Humans could only guess at this structure when they hung their slate chimes. The pale crawler knows it intimately. To her gelatinous skull-organs, the center of the room is a blazing, three-dimensional lattice of tight and loose air.
+
+She reaches a spot where three flat pieces of chipped slate still hang from their swollen rawhide thongs. A fourth thong is empty, snapped by the weight of the wet rot. 
+
+Sitting back on her thick, stubbed tail, the creature wedges her hind feet into the crotch of the tripod. Her throat—a loose, heavy dewlap of gray skin—does not pulse like the dipper's. It remains slack. With infinite slowness, she raises the marrow bone and hooks a thumb-claw through the frayed loop of the broken rawhide. She does not tie a knot; her thick, cold fingers are too stiff for human weaving. Instead, she reaches to her own chin, scrapes a glob of thick, clear mucilage from the glands at the base of her barbels, and smears it over the join, pressing the wet hide into the porous core of the bone. In the frigid damp, this secretion will cure over three days into something like horn glue, impervious to the mist.
+
+When she lets go, the bone drops half an inch, catches on the tacky hide, and begins to shiver.
+
+It does not strike the slates beside it. She has hung it half a thumb’s breadth away, precisely in the boundary layer of an acoustic node. As the bone trembles in the roar, it casts an acoustic shadow—a tiny, pencil-thin beam of altered frequency that angles downward through the mist toward the boulder floor. 
+
+Below, near the granite water-catch basins, one of the smaller crawlers is waiting. He is younger, the size of a winter squash, his skin still translucent enough to show the slow, dark shadow of his liver and the pale cage of his ribs. He lies flattened in the hart’s-tongue ferns, his chin-barbels spread wide across the stone. When the old female hangs the bone above, the altered beam of vibration touches the granite three inches from his nose. 
+
+To the young male, it is as if a shutter has been thrown open and a beam of warm light has struck the rock. In that tiny, shifted zone of pressure, the blind harvestman and the grazing slugs suddenly stand out in crisp, tactile relief against the background hum of the earth. His grey tongue—not long and whip-like like a frog's, but broad, muscular, and shovel-shaped—slips over his jaw, rolls a thumb-sized slug into his mouth, and retracts. The whole motion takes twenty seconds.
+
+Up on the beam, the old female rests her broad chin on the bog-oak. Ten feet away, wedged into its limestone pocket, the dipper shrieks again, its throat fluttering wildly, its dark eyes bright and frantic with warm-blooded urgency. 
+
+The pale builder on the scaffolding does not turn her milky eyes toward the bird. She feels the tiny, high-pitched pinprick of its song against the side of her face—a brief, silvery itch in the vast, heavy blanket of the bass roar. She will not eat the bird; it moves too fast, burns too hot, and tastes of dry sky and grease. When the dipper dies in a few years, falling from its nest into the two-foot carpet of spleenwort below, the moss will eat its feathers, the slugs will eat the moss, and the slow, grey hands of the pit will gather the bone-white skull and hang it from the willow withes, tuning the room a fraction of a degree finer.

@@ -1,0 +1,47 @@
+To visit the Selenite Forge, you must abandon any romantic notions of scuba diving. You are not preparing for a swim; you are preparing to insert a fragile, mostly-liquid biological organism into a freezing, hyper-acoustic, stone-growing hydraulic blender. 
+
+If you materialize inside this chamber wearing standard dive gear, you will be dead in less than ninety seconds. The current will tear the regulator from your mouth, smash your mask against the freshly fractured basalt, shred your neoprene suit on a billion microscopic quartz needles, and—while you are concussed by the acoustic shockwaves—begin encasing your bruised body in a tomb of translucent chalcedony.
+
+To survive here as an ordinary human, you must dress not for an ocean, but for an industrial sandblaster operating inside a bass speaker. Here is how you must prepare.
+
+### 1. The Exosuit: Surviving the Shredder and the Forge
+Standard soft diving suits (neoprene or tri-laminate drysuits) are useless here. The basalt is unweathered and razor-sharp, and the snapping aragonite needles act like shrapnel in the vortex. Furthermore, any fabric with a weave will instantly act as a nucleation site for the supersaturated water; within ten minutes, a regular suit will stiffen into a crust of brittle stone, locking your joints until the current snaps your limbs.
+
+*   **Articulated Hard-Shell Armor:** You need a close-fitting, atmospheric diving suit (ADS) or a heavily reinforced hybrid drysuit plated with overlapping scales of high-density ceramic or ultra-high-molecular-weight polyethylene (UHMWPE). You need armor that can take a thirty-mile-per-hour slam into a knife-edge of volcanic glass without puncturing.
+*   **Hydrophobic, Non-Nucleating Coating:** This is the most critical chemical preparation. Every square millimeter of your suit, visor, and gear must be treated with an industrial-grade, omniphobic fluoropolymer coating—something so slick that at a molecular level, the precipitating silica and calcium cannot find a purchase. Without this, you are just another wicker frame waiting to be turned into a statue. 
+*   **Internal Thermal Regulation:** Snowmelt under high pressure can remain liquid slightly below 0°C (32°F), and water strips heat from the body twenty-five times faster than air. The suit must have an active, battery-heated thermal undergarment system. 
+*   **Flush-Mounted Hardware:** You cannot have dangling gauges, loose hoses, or traditional scuba tanks. The current will catch them, turn them into levers, and use them to wrench your spine. Your breathing apparatus must be a compact, closed-circuit rebreather housed entirely within a hydrodynamic dorsal shell, with the breathing loop routed *inside* the neck of the helmet. Nothing can protrude.
+
+### 2. Acoustic Defense: The Loudest Room in the World
+The prompt notes that the sound here is a physical assault, and in water, acoustics are a matter of life and death. Because your body is mostly water, underwater sound waves don't just hit your eardrums; they pass right through your flesh and vibrate your skull, your lungs, and your heart. 
+
+*   **The Helmet:** A simple rubber hood will allow the high-frequency shriek of collapsing cavitation bubbles to liquefy your inner ear, causing instant, debilitating vertigo and nausea. You need a rigid, heavy-duty dive helmet decoupled from the suit's neck ring by a thick synthetic rubber gasket. The helmet itself must be lined with syntactic foam and acoustic-damping aerogels to break up the bone-conducting bass frequencies of the main current.
+*   **Air-Pockets Protection:** The low-frequency thrum and the "rifle shot" cracks of breaking stone shelves can cause pulmonary barotrauma—literally bruising or rupturing your lungs as the air inside them compresses and rebounds against the incompressible water. You will need to wear a snug, Kevlar-lined compression vest *under* your suit to hold your ribcage tight and minimize the resonance of your chest cavity.
+
+### 3. Optical Preparation: The Blinding Box
+The chamber is lit like an operating theater through a forty-foot wall of clear crystal, with violet and ice-blue shafts of light refracting wildly through the vortex. 
+
+*   **Polarized, Photochromic Visor:** Looking toward the selenite wall at noon will induce snow-blindness in minutes. Your helmet's viewport (made of thick, scratch-resistant sapphire glass, not polycarbonate, which would instantly frost over with silicate scratches) must be heavily polarized to cut the manic glare of the refracting wire-moss and crystal shelves. It should be tinted like a glacier-climbing goggle.
+
+### 4. Locomotion: Ditch the Fins
+Do not bring swim fins. In a forty-foot vertical gyre of pressurized snowmelt, fins are just giant paddles that the water will use to spin you like a ragdoll and rip your ankles out of their sockets. You will not be swimming here. You will be climbing, just like the blind cartilaginous leeches.
+
+*   **Negative Buoyancy:** You must weight yourself to be significantly negatively buoyant—heavy enough that the upwelling current doesn't immediately rocket you into the ceiling like that tethered lead mallet, though not so heavy that you can't haul yourself up a wall. 
+*   **Pitons and Tethers:** Take a cue from the chamber’s mysterious artisans. You need two short, ultra-high-tensile tether lines (made of slick, coated Spectra or Dyneema so they don't vibrate as violently as the gut strings) attached to a heavy-duty harness at your waist. At the ends of these tethers, instead of standard carabiners, you want spring-loaded, wide-jawed camming devices and a pneumatic bolt-driver strapped to your forearm.
+*   **The Leech Technique:** To move, you will hug the rock face where the boundary layer of water slows down by a fraction of an inch. You will jam a cam into a fresh basalt fracture, lock yourself down, reach out to place the next anchor, and winch yourself forward foot by agonizing foot. **Never touch the existing sinew lines or copper pitons.** You are a guest in a cosmic workshop; ruining an artisan's tension-line could ruin weeks of mineral-forging, or worse, snap a taut braided-gut line that will whip through the water like a monofilament wire.
+*   **A Sonic Scalpel or Heavy Titanium Prybar:** If you get pinned in an eddy by a sudden shift in the current, the water will begin cementing your joints to the wall within minutes. You need a heavy, wedge-shaped titanium prybar strapped to your chest (where both hands can reach it) to literally chisel yourself free if the rock tries to claim you.
+
+### 5. Entry, Exit, and the "Artisan" Protocol
+How you arrive matters more than almost anything else. 
+
+*   **Insertion Coordinates:** If your multiverse travel method allows for spatial precision, **do not materialize in the center of the chamber.** Dropping into the core of the vortex means you start your visit tumbling blindly at terminal hydraulic velocity. Calibrate your entry to the extreme upper corners, or hug the black basalt back wall, ideally in the acoustic and hydraulic "shadow" of a large rock shelf. 
+*   **Mind the Moss and the Leeches:** The silica-glass wire-moss is essentially a bundle of whipping fiberglass needles; do not grab it for support, as it will slice through gloves and embed microscopic glass splinters in your seals. If one of the rivet-sucker leeches slaps onto your visor or suit, leave it alone unless it is blocking your vision. They eat bacteria, not travelers, and trying to pry one off will only distract you from holding onto the wall.
+*   **The Unknown Smith:** Look at the tools left behind. Mammoth bone, native copper, split willow, lead, and knotted cord. Whoever uses this place has a technology level that looks Paleolithic or Chalcolithic on the surface, yet they possess the physiological or technological means to enter a sealed, zero-air, bone-crushing hydraulic chamber and tie delicate knots in the middle of a vortex. They might be amphibious post-humans, heavily adapted mountain-trolls with skin like vulcanized rubber, or creatures that breathe the dissolved oxygen directly out of the cold water. 
+    *   *Protocol:* Check the state of the artifacts before you linger. If a wicker frame is entirely bare of crystal, the artisan was here *minutes* ago. If the chalcedony vessel is nearly complete and threatening to clog its eddy, they are due back any second to harvest it before the current snaps it off. Make your observations, marvel at the violet light screaming through the crystal wall, and get out before the blacksmith returns to the forge. 
+
+### Summary Checklist for Departure:
+1.  **Suit:** Articulated hard-shell, heated, coated in super-hydrophobic fluoropolymer.
+2.  **Helmet:** Acoustically damped, sapphire-glass polarized visor, internal rebreather.
+3.  **Body:** Compression vest over the ribs; zero dangling gear; no fins.
+4.  **Tools:** Dual short tethers, camming anchors, pneumatic bolt gun, titanium chisel.
+5.  **Exit Trigger:** Have a dead-man's switch or a bite-trigger inside your helmet to activate your extraction/teleportation device. If the current pins your arms against the basalt, you won't be able to reach a wrist-mounted dial before the white stone grows over your hands.

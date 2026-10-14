@@ -1,0 +1,56 @@
+To visit the Plateau is to step into an environment that is simultaneously hyper-industrial and entirely post-human—a continent-sized machine that has become a wet, breathing reef of iron, grease, and scavengers. As an ordinary human traveler, you are not going there to interact with a society, nor are you going into a traditional wilderness. You are stepping onto the back of a very slow, very hot, heavily populated mechanical beast. 
+
+Because there is no local trade, no shelter built for human comfort, and not a single green thing growing for hundreds of miles, your preparation must be absolute. If you forget something, the city cannot provide it for you.
+
+Here is how you must prepare to survive and navigate the Plateau.
+
+---
+
+### 1. Footwear and Traction (Your Highest Priority)
+If you break an ankle or slip into a scalding sluice three miles from your entry point, your journey is over. The ground here is a nightmare for human bipedalism: rounded, pillowy basalt polished by centuries of rain, hollowed-out stone stairs, and everywhere a coating of transparent bacterial biofilm, rendered tallow-mist, and wet bird guano. 
+
+*   **Leave standard rubber boots behind:** Standard rubber or hiking Vibram soles will hydroplane instantly on the greasy biofilm. You need **industrial riggers’ boots** fitted with **tungsten-carbide micro-spikes** or replaceable **felt-and-steel-stud soles** (similar to what fly-fishermen use on slick river rocks, but reinforced for industrial heat and chemical resistance).
+*   **Shin and Ankle Armor:** The streets are thick with knee-high, rust-stained crabs. They are sluggish scavengers, not aggressive predators, but their mandibles are designed to crack sulfur-crusts and bone. Wear **kevlar-reinforced gaiters or light polycarbonate shin guards** over your boot tops so you can wade through a clattering carpet of them without risking a crushed Achilles tendon or a pinched calf.
+*   **Trekking Poles:** Bring two heavy-duty, non-collapsible steel or carbon-fiber staffs tipped with wide carbide claws. Do not use standard rubber tips. You will need three or four points of contact on every staircase and sloped roof. Ensure they have breakaway wrist straps—if a pole catches in the submerged rail of a passing slag-cart, you do not want your arm pulled in after it.
+
+### 2. Outer Shell and Environmental Protection
+The weather on the Plateau is a closed loop of warm, greasy drizzle, coal smoke, and biological runoff. You are walking beneath millions of massive, heavy-bodied birds whose guano slides continuously down steeply pitched roofs into the streets. 
+
+*   **The Slicker:** Do not wear breathable high-tech membranes like Gore-Tex; the airborne tallow and microscopic grease will clog the pores within two hours, turning your expensive jacket into a soggy, stifling rag. Instead, wear **vulcanized neoprene or heavy polyurethane-coated foul-weather gear**—the kind worn by deep-sea crab fishermen or industrial chemical wash-down crews. It needs to be slick enough that grease and guano slide off it when you rinse yourself at a warm water spout.
+*   **The Hood and Brim:** Wear a **hard hat or reinforced bump-cap** underneath a wide, stiff-brimmed sou'wester hood. The helmet protects you from two things: the constant, heavy plops of high-altitude guano (which can genuinely concuss you or blind you if you look up at the wrong moment), and the occasional piece of water-rotted masonry slumping off a cornice.
+*   **Heat Management:** Because the rain is *warm* and the city radiates immense geothermal and industrial heat, wearing heavy waterproofs will quickly lead to heat exhaustion. Wear ultra-lightweight, moisture-wicking merino or synthetic base layers underneath your heavy shell, and equip your suit with downward-angled underarm vents.
+
+### 3. Respiratory, Eye, and Ear Gear
+The sensory environment of the Plateau will wear down an unprotected human within forty-eight hours.
+
+*   **Respiration:** The air is a high-altitude soup of coal smoke, sulfur, ozone, ammonia (from the guano), and aerosolized tallow. More dangerously, millions of packed, damp birds mean the air is dense with feather dander and fungal spores (similar to histoplasmosis or psittacosis). You need a **half-face silicone respirator** fitted with **combination P100/Multi-Gas cartridges** (specifically rated for organic vapors, sulfur dioxide, and ammonia). Bring triple the filters you think you’ll need; the high humidity and grease will saturate them quickly.
+*   **Eye Protection:** You are sitting inside the belly of a high-altitude cloud. The light is an intense, shadowless, omni-directional white glare bouncing off wet slate and silvered puddles. You will get "snow blindness" without protection. Wear **amber- or rose-tinted polarized goggles** (to cut the glare and artificially boost contrast so you can see where one rounded black stone ends and the next begins) with a hydrophobic, anti-fog coating. Keep a bottle of industrial degreaser wipes in your pocket solely for wiping tallow-film off your lenses.
+*   **Hearing Protection:** The city’s sound is a continuous, pervasive roar—the *thrum-thud* of subterranean pumps every ten seconds, the hiss of steam, and the rasping of billions of throats. It isn't sharp enough to perforate an eardrum, but the unrelenting low-frequency vibration causes profound psychological fatigue, nausea, and insomnia. Bring **active noise-canceling earmuffs** tuned for low-frequency industrial drone, along with soft silicone earplugs for sleeping.
+
+### 4. Navigation in a Featureless Sprawl
+The Plateau has no mountains to orient by, the sun is a diffuse white smear that barely indicates east or west, and the architecture is an endless, undulating repetition of black stone and rusted iron. Furthermore, the sheer mass of iron tie-rods, steel gantries, and electrical ozone makes a standard magnetic compass completely useless.
+
+*   **Inertial and Breadcrumb Tech:** Since there are no GPS satellites in orbit here, you must rely on **dead-reckoning inertial navigation units** (pedometer/gyroscope trackers) or **deployable RF beacons**. Drop a high-output radio beacon at your dimensional entry point, and drop repeater pucks on the tops of high viaducts as you explore. 
+*   **Physical Marking:** Do not use chalk to mark your path; the warm drizzle and sliding sludge will wash it away in minutes. Do not leave ribbons; the birds will tear them down for nesting material or cover them in filth. Bring cans of **high-visibility, oil-based marine spray paint** (designed to adhere to wet, oily steel) or **heavy magnetic strobe beacons** that you can slap onto the giant star-shaped iron anchor plates of the retaining walls.
+
+### 5. Camp, Rest, and Hygiene
+Where does a human sleep when every horizontal surface is either a river of blind salamanders, a carpet of crabs, or a shoulder-to-shoulder roost of pelican-gulls?
+
+*   **The Vertical Hammock:** You cannot pitch a tent on the street (you will be flooded by warm slurry or crawled over by thousands of shells), and you cannot pitch one on a roof (too steep, too many birds). Your best option is an **industrial portaledge or a heavy-duty bridge-worker’s hammock** equipped with magnetic and mechanical beam-clamps. You will need to find the leeward side of a warm brick refinery or the underside of an inactive iron trestle—somewhere too vertical for the crabs, too sheltered for the heavy birds to land, and above the street-level sluices. 
+*   **The Fully Sealed Bivy:** Your hammock must have a completely enclosed, heavy-duty bug/critter mesh and a waterproof rainfly. The vibrations of the subterranean pumps will travel up the ironwork into your suspension ropes; use **heavy rubber shock-absorbers (snubbers)** inline with your carabiners to dampen the ten-second *thrum-thud* so your body can actually rest.
+*   **Sanitation:** Every cut or scrape is an immediate infection vector in a city covered in organic sludge and biofilm. Pack a **decontamination kit**: a pump-sprayer filled with mild bleach solution or chlorhexidine to wash down your boots and outer shell before you unzip your sleeping quarters. Bring antifungal powders for your feet, antibiotic ointments, and plenty of nitrile gloves so you never have to touch the wet stone or iron with your bare skin.
+
+### 6. Water and Sustenance
+Though the city is drowning in water and teeming with meat, **you must treat the Plateau as a sterile desert.**
+
+*   **Do Not Drink the Rain:** Even the rain condensing from the sky is recycled steam from the cooling towers, thick with heavy metals, coal particulates, and tallow vapor. Standard backpacking water filters will clog instantly and will not remove the dissolved industrial chemicals or heavy metals. Unless you are carrying a heavy, energy-intensive **distillation setup paired with activated carbon blocks**, you must **pack in 100% of your drinking water**. Because the environment is warm and humid and you will be sweating inside a neoprene shell, calculate at least 4 to 5 liters per day.
+*   **Do Not Eat the Fauna:** The crabs, salamanders, and birds exist entirely on a food web anchored by industrial tallow-effluent and chemical sludge. Their tissues are bio-accumulated reservoirs of heavy metals, hydrocarbons, and whatever strange industrial byproducts the subterranean factories are synthesizing. Eat only the sealed, high-calorie rations you bring with you. Pack foods that do not require cooking, or use flameless ration heaters—lighting a camp stove in an environment with coal-gas vents and unknown chemical vapors is an unnecessary risk.
+
+### 7. Behavioral Rules for the Traveler
+Finally, you must adjust your internal clock and your physical habits to match the city.
+
+*   **Move at the City's Pace:** Everything here moves at the speed of an hour hand. If you rush, you will slip. Walk with a slow, flat-footed, deliberate shuffle. Test every stone before committing your weight. 
+*   **Respect the Automation:** The automated slag-carts on their submerged rails and the massive overhead gantry cranes do not have optical sensors looking out for humans. They will not stop for you. Fortunately, they move with glacial slowness. Never step onto a rail track without looking both ways, and never camp on a trestle that shows bright, un-rusted wear marks on its iron tracks—that means a crane is going to inch across it within the next twelve hours.
+*   **Do Not Antagonize the Roosts:** The birds do not care about you; to them, you are just another slow-moving vertical protrusion, like a chimney or a crane strut. If you move slowly and steadily, they will simply shift their weight to let you pass along a parapet. If you make sudden movements, wave your poles, or shine bright flashlights into their eyes at night, you risk triggering a localized panic. Having ten thousand heavy-bodied, grease-coated birds taking flight in a narrow brick canyon all at once will knock you off your feet and bury you in a blizzard of slick feathers and blinding filth. 
+
+Go slowly, seal yourself tightly against the grease and the damp, keep your eyes on the silvered ground at your feet, and allow yourself to marvel at a world where industry has become geology, and life has found a way to thrive on the exhaust.

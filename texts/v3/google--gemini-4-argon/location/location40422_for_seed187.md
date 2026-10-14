@@ -1,0 +1,25 @@
+The terrain around the sink is so old it has forgotten how to be rock. For miles outside the rim, the world is a low, leached plain of grey clay and rounded gravel, worn down to a terminal flatness where nothing has risen or fallen in ten million years. 
+
+And then, the floor drops away into the Kettle.
+
+It is no wider than a town square and perhaps two hundred feet deep, a single, steep-sided bowl of empty air. Yet there is no stone or soil exposed anywhere within it. The walls, the curving lip, and the broad, flat basin at the bottom are entirely composed of a single, ancient mat of living root-rock and compressed bryophytes. Over epochs, a colonial sedge-willow has woven itself into a solid, woody turf twenty feet thick, completely swallowing the original geology. The boundaries of the space are living cambium, smooth and tight as upholstered furniture, colored a dull, uniform olive-drab that drinks the clear afternoon daylight without a glint of reflection.
+
+The center of the bowl is completely vacant. No trunks rise into the interior; no vines hang down. The vegetation has achieved a climax state of pure containment, forming a vast, hollow green amphitheater filled with nothing but cool, fifty-degree air and clean, shadowless light from the open sky above.
+
+At the center of the mossy floor, half-sunk into the living mat, sits the engine.
+
+It is a fifty-ton compound steam pump, cast in green-black iron, left behind when an extraction syndicate folded ninety years ago. There are no sheds, no fences, no roads leading in or out, and no footings—only the machine itself. The sedge-willow’s root-mat has grown up around the flywheel housing and the condensers, gripping the iron in a tight, seamless gasket of woody fiber that holds it more securely than concrete ever could. 
+
+The engine is still running. Its firebox was tapped directly into a shallow, low-pressure seam of marsh gas trapped beneath the ancient clay pan, and its intake draws from a slow, weeping sweat of groundwater that collects under the root-mat. Because the gas pressure never fluctuates and the seepage never dries, the machine has settled into a permanent, ungoverned equilibrium. 
+
+It is deafening. 
+
+In the small, steep-sided bowl, the sound has nowhere to go but up, bouncing off the dense, damp walls of compressed turf. *CHUG-hiss-CLANK. CHUG-hiss-CLANK.* The six-foot iron flywheel spins at a steady forty revolutions per minute, day and night, decade after decade. Every three seconds, the relief valve pops, firing a plume of white vapor twenty feet into the crisp air. That exhaust is the Kettle’s weather. The steam hangs briefly in the cool daylight, drifts across the hollow space, and settles onto the surrounding walls as a fine, lukewarm mist. The turf drinks the condensation, the moisture trickles down through the twenty-foot root layer, filters through the ancient gravel, and seeps back into the pump’s intake sump to be boiled again. Not a drop of water leaves the basin; there are no puddles and no streams, only a perpetual, clammy sweat cycling between iron cylinder and living wall.
+
+The noise and the warmth have drawn the plains’ wildlife into the hollow, turning the empty green bowl into an aviary and a rookery. Because the predators of the flatlands cannot tolerate the bone-shaking metallic racket inside the rim, the smaller fauna have packed themselves into the space. 
+
+Thousands of cliff-swallows and grey swifts have excavated nesting burrows directly into the vertical walls of living root-mass. The air inside the Kettle, otherwise so stark and unobstructed, is constantly cross-hatched by their darting bodies, though they make no sound that can be heard over the massive iron lung on the floor. Down on the basin mat, inches from the thumping rocker arms and the slick, grease-blackened brass oilers, colonies of brown hares sit in the warm zone where the radiant heat of the boiler pushes back the chill. They do not flinch when the relief valve screams. Their ears don't even twitch. Generations of them have been born into the *CHUG-hiss-CLANK*, their heartbeats paced to the forty-cycle stroke of the piston.
+
+Up on the vertical green walls, millions of grey-backed beetles graze on the fast-growing moss right along the condensation line where the engine’s steam regularly washes the turf. The birds eat the beetles; their droppings fertilize the sedge-willow mat; the mat tightens its grip on the vibrating iron frame, acting as a living shock-absorber that keeps the ancient bearings from shaking themselves apart.
+
+Nothing grows taller here. Nothing rots away. The sun crosses the open circle of the rim, pouring plain, pale light down into the vibrant green bowl and onto the slick black iron at its center. The flywheel turns, the white plume rises and vanishes into the cool air, the swallows wheel through the vapor, and the immense, rhythmic roar of the pump fills the small, timeless room to the brim.

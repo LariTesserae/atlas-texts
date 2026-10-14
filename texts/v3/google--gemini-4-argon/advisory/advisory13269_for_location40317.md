@@ -1,0 +1,58 @@
+If you are an ordinary human planning a jump into this high-altitude lithic basin—colloquially known among survey jumpers as a "Kiln-Pocket" or a "Compiler’s Hollow"—you need to throw out your standard mountain-climbing gear. You are not going to a mountain; you are going to a geological 3D printer that is currently mid-job. 
+
+The environment is small, inescapable without a working jumper-rig, and completely indifferent to soft biological matter. You are essentially walking onto a microscopic construction site where the bricks are made of wet scalpels and the mortar is high-voltage fog. 
+
+Here is your comprehensive preparation guide for surviving and observing the basin.
+
+---
+
+### 1. Apparel and Armor: The "Walking Cutlery" Problem
+Your primary physical threat is the ground itself. Unweathered, vitreous basaltic crystal behaves like obsidian. A newly extruded shelf doesn’t have a "sharp edge" in the way a knife does; it has a fractured molecular edge that can be only a few atoms thick. Furthermore, it is lubricated by constant condensation. If you slip and fall here in standard hiking gear, you will not scrape your knee; you will be filleted to the bone before you hit the puddle at the bottom of the step.
+
+*   **The Outer Shell:** Leave the Gore-Tex at home; it will shred on the first terrace. You need a lightweight, breathable bodysuit woven from high-grade para-aramid fibers (like Kevlar) reinforced with a micro-chainmail or ceramic-platelet overlay on the knees, elbows, hips, and palms. This is "shark-suit" territory. 
+*   **Thermal Regulation:** Because the air is a balmy, 100%-humidity steam bath, wearing heavy armor will cook you alive in thirty minutes. Your under-layer must be an active liquid-cooling garment (like those worn by astronauts or race car drivers) powered by a solid-state battery pack, circulating chilled water against your skin to prevent heatstroke.
+*   **Gloves:** Instinct *will* make you reach out to steady yourself when the ground shifts under your feet. Wear foundry-rated, cut-resistant Kevlar gloves with heat-insulated silicone palms. The newest rock shelves come out of the mist at temperatures high enough to cause instant second-degree burns.
+*   **Chemical Protection:** The bread-loaf-sized snails on the rim secrete an acid strong enough to etch volcanic glass in real-time. Ensure your boots and lower trousers are treated with a fluoropolymer (Teflon-like) coating so that if you brush against a fresh slime trail, it beads off rather than eating through your cut-proof fibers.
+
+### 2. Footwear and Mobility: Skating on Wet Glass
+Standard rubber lug soles are useless on wet, smooth glass, and the sharp edges of the hexagonal steps will slice chunks out of normal boot treads within an hour, leaving you with no traction.
+
+*   **Boot Construction:** You need rigid-soled mountaineering boots fitted with **steel-mesh soles** or replaceable **sintered bronze pads** (similar to the felt or metal soles used by fly-fishermen on slick river rocks, but engineered to resist shearing). The uppers of the boots must be armored against ankle-height glass extrusions that might pop up right next to your foot.
+*   **Stilts vs. Staffs:** Do not try to imitate the native amphibians by wearing stilts; humans lack the inner-ear calibration to handle shifting gravity pockets on stilts. Instead, bring **two heavy-duty trekking poles** made of solid titanium (carbon fiber will splinter if nicked by the glass, and aluminum may react poorly to the strong electromagnetic fields). Fit the tips with broad, articulated magnetic-dampening rubber paws to give you four points of contact at all times.
+
+### 3. Sensory and Respiratory Protection
+The basin is an acoustic and atmospheric pressure-cooker. The combination of the mist ceiling and the stepped amphitheater walls means sound has nowhere to go.
+
+*   **Active Hearing Protection:** This is mandatory. The continuous *clank-clank-clank* of hundreds of metallic-voiced frogs, combined with the gunshot-like *cracks* of thermal-expanding stone and the metronome-clicking of the pavilion, will cause permanent hearing damage and severe disorientation within an hour. Wear shooter’s earmuffs with active electronic noise-canceling. Set them to compress sudden impulse noises (the cracking rock) and filter out the high-frequency frog din, while allowing midrange sounds through so you can still hear the hiss of sliding water behind you.
+*   **Infrasound Mitigation:** The waist-high "lithic looms" hum with a deep, throat-vibrating bass note. Prolonged exposure to high-decibel infrasound vibrates the human eyeballs (causing blurred vision or ghostly visual artifacts) and vibrates the internal organs, inducing a physiological panic response, nausea, and vertigo. Pack anti-nausea medication (scopolamine patches work well) and wear a tight, neoprene torso-binder or weightlifting belt—strangely enough, physical compression around the gut helps dampen the visceral sickness caused by sub-bass frequencies.
+*   **Respirator:** The air smells of ozone and wet slate, which means two things: high levels of $O_3$ (generated by the violet arcs of the pylons) and microscopic airborne silica/basalt needles flaking off the newly formed rock. Breathing ozone will sear your lung tissue; breathing glass dust will give you acute silicosis. Wear a half-face respirator with **P100 particulate filters** stacked with **activated carbon/ozone-catalyst cartridges**.
+*   **Eyewear:** Ballistic-rated goggles with polarized, amber-tinted lenses. The amber tint will artificially increase contrast in the shadowless, pearl-gray twilight, helping you spot the edges of black glass steps that are submerged under clear, silver sheets of water. Coat the lenses in a military-grade hydrophobic film, and bring a chamois cloth on a retractable tether—when a grapefruit-sized sphere of water drops out of a low-gravity pocket and hits the ground next to you, you will be blinded by the splash.
+
+### 4. Electronics and the "Loom" Hazard
+You are stepping into an active, unshielded electromagnetic and gravimetric construction zone.
+
+*   **Faraday Shielding:** The black metallic moss around the pylons is a visual warning: the EM bleed here is intense enough to sustain life. Any unshielded consumer electronics (phones, digital cameras, standard flashlights) will have their circuits fried the first time a violet filament snaps between two pylons. Your return-jump device *must* be kept in a triple-layered Faraday dry-bag until the exact moment of extraction.
+*   **Mechanical Backups:** For observation and timekeeping, bring a mechanical, spring-wound dive watch (preferably one rated for high magnetic resistance, like a Milgauss-style casing), a film camera with a mechanical shutter, and waterproof stone-paper notebooks with a grease pencil.
+*   **Navigating the Pylons:** The pylons are spaced forty to fifty paces apart. **Never walk directly between two pylons.** The violet filaments that print new rock ridges out of the mist fire without warning along the sightlines between these monuments. If you are standing on the line when it snaps, you will either be bisected by a hair-thin plasma laser or have a shelf of boiling basaltic crystal materialize inside your shins. Walk in curved arcs through the center of the triangles formed by the pylons, never along the perimeters.
+
+### 5. Dealing with the Wildlife
+You are too big to be prey, which means the local ecology will treat you as terrain. In this basin, being treated as terrain has its own hazards.
+
+*   **The Mercury-Frogs:** They are harmless, frantic, and completely blind to you as a threat until you move. Because they move on spindle-legs across slick glass, they have terrible brakes. Expect them to constantly ricochet off your shins with a sound like dropped silverware. Ignore them, and *do not step on them*—their bodies are slick as grease and will send your feet flying out from under you.
+*   **The Silk-Ribbons (Apex Predators):** These three-foot red predators hunt by sound and movement—specifically, they wait for the *crack* of a rock shelf, and then swoop at whatever leaps upward into the mist. 
+    *   *Rule 1:* **Do not wear red, silver, or anything shiny.** Cover all metallic buckles on your gear with matte-gray duct tape so you don't look like a giant mercury-frog.
+    *   *Rule 2:* **Freeze when the rock cracks.** When a seam splits near you, your human startle-reflex will make you jump or throw your hands up. Train yourself to drop into a low crouch instead. If you leap upward on a rock-crack, a silk-ribbon gliding on a gravity wave may strike your head or chest purely on predatory reflex before realizing you aren't a frog. We don't know if they are venomous or constrictors, and you shouldn't find out.
+*   **The Bread-Snails:** Keep away from the vertical perimeter walls. Aside from their acidic slime, they are heavy (twenty to thirty pounds of dense muscle) and move surprisingly fast. Occasionally, a newly printed rock shelf will shear off a section of the wall they are clinging to, dropping a dozen acid-coated, bowling-ball-heavy gastropods from twenty feet up. Stay in the terraced center of the square.
+
+### 6. Protocol for the Central Pavilion
+Naturally, the bone-white pavilion in the center of the hollow will be the main attraction of your visit. 
+
+*   **Look, Don't Touch:** The pavilion's three intersecting arcs are hydrophobic and likely protected by a boundary-layer field. Do not lean on them.
+*   **The Floating Polyhedrons:** The chest-high clicking instruments inside the pavilion are measuring the lithic tension of an entire mountain being born. They are almost certainly tied directly into the power grid of the pylons. Do not walk under them, do not pass a hand between them, and do not bring any magnetic metal within ten feet of the pavilion's footprint. If you disrupt their calibration, the best-case scenario is that a defensive field throws you across the basin onto razor-sharp glass; the worst-case scenario is that the pylons misfire and attempt to compile *you* into the mountain.
+
+### 7. Mental Preparation: The "Crowded Room" Syndrome
+Travelers who return from this location rarely complain about the cuts or the heat; they complain about the psychological exhaustion. 
+
+Because there are no shadows in the pearl-gray light, your brain’s depth perception will struggle to judge the height of the dark glass steps. Because the ground is incrementally rising and shifting, your proprioception (your body's sense of where it is in space) will constantly send alarm signals to your brainstem that you are on an unstable surface. Combined with the low-gravity pockets that randomly tug at your inner ear as you walk through them, the relentless acoustic racket, and the constant peripheral motion of hundreds of skating, leaping, and drifting creatures, **sensory overload sets in fast.**
+
+Limit your first excursion to **forty-five minutes**. Establish a "home terrace" near your arrival coordinates—mark it with a heavy, non-sliding silicone mat that you unroll the moment you arrive, giving yourself a four-by-four-foot square of safe, soft, high-traction ground where you can kneel or sit without being sliced. When the claustrophobia of the warm fog and the clicking machinery begins to make your hands shake, step back onto your mat, pull your jumper-rig out of its Faraday bag, and go home.

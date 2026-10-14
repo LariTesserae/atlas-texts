@@ -1,0 +1,57 @@
+To visit the Sunken Pump-Court is not to embark on a traditional wilderness expedition, nor is it a standard urban exploration. You are stepping into a sealed, hyper-localized biome—an accidental conservatory powered by century-old thermodynamics. The environment is benign in intention, devoid of predators or malice, yet it is relentlessly physical. It will press in on you with heat, moisture, vibration, and industrial toxicity. 
+
+If you are an ordinary human traveler preparing to step through a portal or breach a rusted doorway into this space, your preparation must focus on three things: **barrier protection, thermal regulation, and sensory grounding.**
+
+Here is how you must prepare before making the crossing.
+
+### 1. From the Knees Down: The Critical Zone
+The most immediate threat to your comfort and safety is the floor. You will be walking on a treacherous, deceptive surface—a false bottom of springy peat and roots woven over a flooded industrial basement. 
+
+*   **The Footwear:** Leave normal hiking boots behind; the warm, oily water will breach the ankles on your first step, and the leather will be ruined by hydrocarbons and rot. You need **mid-calf or knee-high vulcanized rubber boots (muck boots)** or heavy-duty waders. However, these cannot be basic agricultural boots. They must have **steel or composite toes** and, crucially, **puncture-resistant steel midsoles**. Beneath that soft mattress of fern mulch lie fifty years of shed iron scales, jagged clinkers, broken gauge glass, and rusted bolts. 
+*   **The Tread:** The soles must be oil-resistant (nitrile rubber is best) with deep, wide lugs. Wet, greasy pig-iron and algae-slicked brick offer zero friction to standard rubber.
+*   **Socks:** Wear two pairs of thick merino wool socks. Your feet are going to sweat profusely inside the rubber boots, and the ambient water is bath-warm. Wool will maintain its cushioning even when damp and prevent the rapid maceration (trench foot) and blistering that occurs in high-heat, high-moisture environments.
+
+### 2. Clothing: The Steam-Box Dilemma
+You are entering a space with near-100% humidity, zero wind due to the four-story brick walls, and constant steam injection. Your body’s natural cooling mechanism—sweating—will not work here, because the air is already too saturated to absorb moisture from your skin. Yet, because of the rusted metal, machine oil, and fibrous, scraping vegetation, you cannot simply walk around in shorts and a t-shirt.
+
+*   **Do Not Wear Waterproofs:** A Gore-Tex jacket or rain poncho will trap your body heat and cause heat exhaustion within forty minutes. Accept that you are going to be wet from the moment you arrive.
+*   **Base and Outer Layers:** Wear lightweight, loose-fitting, long-sleeved ripstop nylon or poly-cotton workwear (like tropical-weight fatigues or light mechanic's coveralls). It needs to be tough enough to protect your skin from the rough, coconut-husk bark of the tree ferns, the sharp scales of flaking rust, and the irritate sap of broken philodendron stems, yet thin enough to allow whatever heat transfer is possible.
+*   **Headgear:** You need a **ventilated hard hat or a bump cap** with a wide brim. The courtyard is a vertical hazard zone. Above you are four stories of brick whose mortar has been pried apart by strangler figs, along with heavy overhead pipe-racks encased in massive, waterlogged epiphytes. A falling brick or a snapping hundred-pound staghorn fern is a very real possibility. Furthermore, a constant rain of warm condensate and oil-tinged water will be dripping from the three-tiered canopy; a brim will keep this broth out of your eyes.
+*   **Gloves:** Bring two pairs of gloves. The first should be **nitrile-dipped mechanics' gloves** with high dexterity and grip. Every handhold here is either a slick, wet vine or a greasy iron housing. The second pair, kept in a pouch, should be **heavy leather gauntlet gloves**, in case you need to push through dense, abrasive aerial roots or accidentally brush against an uninsulated, scalding-hot steam pipe hidden under the moss.
+
+### 3. Sensory and Respiratory Gear
+The atmosphere in the courtyard is a physical presence. It is loud, vibrating, and thick with aerosolized particulates.
+
+*   **Hearing Protection:** The *chug-thump* of the colossal centrifugal pumps and the *shhhhh-clack* of the pressure valves are trapped by the brick walls, turning the courtyard into an echo chamber of low-frequency bass and high-frequency hiss. Do not use standard foam earplugs; your sweat will push them out, and touching them with oily fingers will introduce bacteria into your ear canals. Use **over-ear industrial earmuffs** (ideally mounted to your helmet) or molded silicone plugs on a cord. They will take the edge off the steam-hiss while allowing you to still feel the magnificent, rhythmic thrum in your chest.
+*   **Respiratory Caution:** The air smells of boiled river water, limestone, and hot axle grease. While breathable, a half-century of wet heat in an enclosed brick space means a staggering concentration of mold spores, fern spores, and potentially aerosolized bacteria (like *Legionella*, which thrives in warm, stagnant industrial water systems), alongside trace heavy metals in the steam. Carry a **half-face respirator with P100 (HEPA) pancake filters** slung around your neck. You may not need it the whole time, as the atmosphere is captivating to smell at first, but if you begin to cough from the heavy, humid air, or if you disturb a thick bank of rotting mulch, you will want to strap it on.
+*   **Eye Protection:** Wear clear glasses or goggles treated with a heavy-duty anti-fog coating. Between the overhead dripping and the risk of whipping a wet vine into your face, your eyes need shielding. 
+
+### 4. Tools and Navigation
+You cannot trust your eyes in this environment. The green, submarine light is flat and shadowless, stripping away depth perception, and the vegetation has disguised the true nature of the architecture.
+
+*   **The Probing Staff:** This is your most important piece of equipment. Bring a **five-foot wading staff made of fiberglass or composite material** (do *not* use aluminum or steel, as there are overgrown electrical cable trays of unknown status here). Use this staff like a blind person’s cane. Probe every single step before you commit your weight to it. What looks like solid, mossy ground may be a mat of creeping ficus stretched over a four-foot-deep sump pit, an open intake drain, or the spinning teeth of a submerged gear.
+*   **Lighting:** Even though it is daytime, the three-tiered canopy leaves the floor in a dim, underwater twilight. Bring a **high-lumen, waterproof (IP68) flashlight** with a warm-white or amber tint. Cool white LED light will simply bounce off the steam and wet leaves, blinding you with glare. A warm beam will cut through the vapor and help you distinguish between the green of a moss-covered rock and the faded, chalky machinery-green of a moving pump housing.
+*   **Electrical Awareness:** The description notes "electrical cable trays" swallowed by wet curtains of Spanish moss. Given that the pumps are steam-driven, the electricity may be long dead—or it may still be live, feeding auxiliary systems and shorting out into the wet walls. Carry a **non-contact voltage detector** (a " widowmaker" pen) clipped to your chest. Before grabbing any metal fire escape or climbing over a pipe-rack, wave the wand near it to ensure the wet vines haven't turned the ironwork into a live circuit.
+
+### 5. Medical and Hygiene Prep
+The ecology here is a closed loop of iron and botany. It doesn't want to eat you, but it can easily infect you.
+
+*   **Pre-Trip Medical:** Ensure your **tetanus shot** is completely up to date before stepping through. 
+*   **Wound Care:** In a warm, wet environment rich with decaying organic matter, a minor scratch from a rusted iron pillar or a rough fern trunk can turn into a raging bacterial or fungal infection in hours. Keep a waterproof pouch containing Betadine (povidone-iodine) wipes, liquid bandage, and waterproof hydrocolloid dressings. Do not leave any broken skin exposed to the courtyard's air or water.
+*   **Hydration:** Bring twice as much water as you think you need, mixed with heavy electrolyte salts. You will be sweating continuously in the sauna-like heat above the steam condensers. Use a hydration bladder with a covered bite-valve; you do not want to be unscrewing a water bottle with greasy, dirty hands to take a drink.
+
+### 6. Psychological & Behavioral Preparation
+Finally, prepare your mind for the *tempo* of the place. 
+
+When you first arrive, the sensory overload may trigger a mild claustrophobia or panic. The walls box you in; the sky is a distant, pale rectangle four stories up; the air is thick as soup; and the massive, unseen power of the engines vibrates right through the soles of your boots and into your teeth. Because there are no birds or quick-moving animals, your brain may interpret the environment as "dead" or "wrong," even as it bursts with green life.
+
+**Move at the speed of the courtyard.** Nothing happens quickly here, and neither should you. 
+
+*   **Keep your clothing tucked in.** No loose straps, no dangling drawstrings, no open jackets. The eight-foot flywheel turns slowly and greasily out of a bank of horsetails, and because it is covered in moss and moves without a whine, it is easy to forget that it possesses immense, unstoppable torque. It will not stop if it snags your backpack strap. Give all moving parts a wide, respectful berth.
+*   **Trust the roots, distrust the iron.** Paradoxically, the botany is now the structural engineer of this place. The rusted bolts and rotting mortar are failing; it is the woody aerial roots of the strangler figs that are holding the turbines down and anchoring the fire escapes. If you need to steady yourself, grab a thick, established root rather than a flaking cast-iron railing.
+*   **Embrace the stillness.** Once you have checked your footing, verified there are no live wires, and adjusted to the wet heat, allow yourself to simply stand and observe. Lean on your staff. Watch the pale, blind millipede curl over the copper pipe. Watch a broad monstera leaf tip its collected pool of water onto a hot cylinder with a soft *hiss*. Let your heartbeat sync with the *chug-thump, chug-thump* of the century-old pumps. You are witnessing a rare truce between the industrial and the natural—a loud, hot, greasy cathedral of absolute equilibrium. 
+
+### 7. Departure Protocol
+Before you step back into your home reality, or back into the clean corridors of your transit hub, you must have a **decontamination plan**. Have a heavy-duty contractor trash bag and a towel waiting right at your exit point. Your boots and trousers will be coated in century-old machine oil, iron-rich muck, and aggressive tropical spores. Strip off the boots, the outer coveralls, and the gloves, and seal them in the bag before stepping out. Wash yourself down with degreasing soap (like Dawn) as soon as possible. 
+
+The courtyard has spent fifty years perfecting its ecosystem; you don't want to track its resilience into your living room.

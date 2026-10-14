@@ -1,0 +1,43 @@
+At first, looking down through the cedar grating, you cannot see him at all. You see only the violent silver plume of the plunge-pool, the racing webs of sunlight on the cream-colored stone, and the neat, dark lines of waterlogged cedar needles gathered in the corners twenty feet below. 
+
+Then, a shadow crosses one of the submerged steps—not the dark, opaque shadow of a fish or a man, but a sudden thickening of the light itself, as if a pane of very thick, uneven glass had been slid between the sun and the limestone. 
+
+When he stops moving, he disappears again, except for the mortar in his belly.
+
+He is an *aker-mer*, a fresh-water guardian, though he is not a spirit in the way priests mean the word. He has weight, and a slow, cold pulse, and a hide that feels like the inside of a split aloe leaf. He was not put here by the builders. Three weeks ago, when the masons pried the wooden sluice-gate up six miles away in the foothills, he was sleeping in the gravel basin below the springhead. The sudden rush of the new aqueduct plucked him from the mud, tumbled him down two leagues of open, blindingly bright limestone trough—baking him in the noon sun, scraping his flanks against the raw chisel-marks—and shot him out the lip of the eastern chute like a melon seed spat from a giant’s mouth.
+
+He has no way out. The walls above the waterline are sheer and three feet high, the intake chute overhangs nothing but air, and the outflow is a series of bronze-grated slots at the bottom of the western wall, each no wider than two fingers.
+
+At first, he was small enough that the bronze grates almost took him. When he fell into the cistern, he was the size of a butcher’s dog and the color of dark river-silt. 
+
+Now, he is as long as a three-year-old bullock, though built much closer to the floor, and he has lost all his mud-color. This is the nature of his kind: they are vessels for the character of the water they sit in. In a stagnant, leaf-choked oxbow, an *aker-mer* becomes flat, brown, and Blind, smelling of iron and methane, with fringes of black moss hanging from its jaw. Here, in this roaring, sun-struck box of quarried stone, he has been bleached and bloated by the light and the air.
+
+His body is a heavy, six-legged cylinder that tapers into a thick, rudder-like tail, roughly paddle-shaped and notched along the crest like the battlements of a mud-brick wall. He has no scales and no fur; his skin is a dense, rubbery jelly, three inches thick, that has clarified in the pristine water until it is the exact pale, mint-tinted beryl of the pool itself. You can see right through his flanks to the ghostly, chalk-white architecture of his ribs and the heavy, rhythmic expansion of his lungs—or what serve him for lungs, which are two great, branching trees of silver-lined tubing that fill the upper half of his chest. 
+
+Because he has nothing to eat—no crabs, no eels, no weeds to speak of—he feeds on the masonry and the light. 
+
+For hours at a time, he hangs vertically against the northern pillar, ten feet down, where the back-eddy of the waterfall presses him gently against the stone. His six legs are short and stumpy, ending not in claws, but in broad, muscular pads like the feet of a gecko or the suction-discs of a river loach. They fit squarely over the ninety-degree corners of the limestone blocks, holding him fast against the heave of the water. 
+
+His head is broad, shovel-shaped, and nearly flat on top, with two eyes set high on low turrets like a hippopotamus’s, though they have no pupils—only round, milky-gold lenses that drink in the fierce overhead glare without blinking. Underneath that shovel-snout is a wide, horse-like mouth lined with four rows of flat, seamless gray plates. 
+
+Every few minutes, he shifts an inch upward and draws his mouth across a mortar joint. *Scritch.* The sound is entirely swallowed by the thunder of the chute, though if you had your feet in the water, you would feel the grinding vibration through your soles. He rasps away the brittle, squeezed-out ridges of white lime paste. He loves the lime. It is sweet with the wood-ash of the kilns where it was burned, and sharp with calcium. You can see the swallowed fragments of it suspended in the clear jelly of his gut—a slow-moving constellation of white crumbs drifting through his middle, dissolving over days to harden his bones and thicken the pale, milky slime that coats his snout.
+
+The constant, booming roar of the waterfall does not distress him; it is his hearth-fire. In the wild, his kind seek out the foot of cataracts during the spring melt to breed, drawn by the dissolved air. Here, the air is driven into the water with such relentless violence that he is permanently, mildly drunk on oxygen. 
+
+Around noon, when the sun stands directly over the cedar lattice and turns the cistern into a blinding cage of geometric shafts, he leaves the pillar and walks down the submerged steps into the direct path of the plunge-pool. 
+
+He walks slowly, with a heavy, rolling gait, like a chameleon moving along a branch, lifting one padded foot after another while the current tears at him. When he reaches the bottom, directly beneath the falling cylinder of water, he anchors all six feet to the raw chisel-scallops of the floor and lets the ten-foot column of silver bubbles smash directly into his back.
+
+The force of it would break a man’s collarbone. The *aker-mer* simply flattens his ears—two thick, scalloped flaps of gristle behind his jaws—and opens his mouth wide into the froth. The roaring water pours down his throat and flushes out through four long, muscular slits along his neck, inflating the branching silver trees inside his chest until his whole translucent torso glows like a hunk of moonstone. Millions of microscopic bubbles catch in the velvet-like nap of his skin, turning him temporarily from pale green glass into a solid, dazzling beast of hammered silver leaf, roaring back at the chute with a soundless, open-mouthed yawn.
+
+He is becoming the cistern’s gardener, though he doesn’t know it. 
+
+Because he is so large and moves so deliberately along the walls, the water shifts differently when he changes position. When he sleeps—which he does wedged tightly into the narrow trough between the lowest step and the western wall, right over the bronze outflow grates—his massive body blocks half the drainage. The water level in the room rises by two inches, slapping higher against the dry upper courses, giving the pale ferns under the roof beams an extra hour of spray.
+
+And he is fiercely protective of the pioneer greens. He will not eat the ribbons of eelgrass on the opposite wall, nor the scraps of green silk algae on the upper steps. In his dim, ancient brain, which is little more than a knot of nerves strung between his nostrils and his tail, green things mean the water is maturing; green things mean that eventually, snails will come, and after the snails, the heavy, oily mud-carp he remembers from the foothills. 
+
+So when he rasps the lime from the mortar joints, he carefully works *around* the single tufts of eelgrass, his wide, rubbery lips parting to pass over the green blades without bruising them, leaving each tuft sitting atop a tiny, untouched pedestal of white mortar. 
+
+Sometimes, when a white blossom falls through the cedar lattice above, he sees it the moment it hits the surface—a tiny dark spot against the blazing lattice-grid of the sky. He will detach himself from the stone, tuck his six stubby legs against his sides, and scull upward with two or three massive, lazy strokes of his notched tail. 
+
+He rises through the shafts of sun like a drifting log of green ice, his golden eyes fixed on the spinning flower. He does not eat it. He merely comes up beneath it, lets it settle onto the broad, flat shovel of his nose, and carries it down with him to the bottom. There, in the quietest corner behind the southeastern pillar, out of the main sweep of the current, he tilts his head and lets the blossom slide off into a neat pile he has been gathering for twenty days: three hundred waterlogged cedar needles, a dead honeybee, six white petals, and a carpenter’s three-inch copper nail dropped during the roofing, which has already begun to stain the limestone beneath it a brilliant, poisonous malachite green that the creature licks, once a day, for the sharp, lightning-taste of the metal on his tongue.

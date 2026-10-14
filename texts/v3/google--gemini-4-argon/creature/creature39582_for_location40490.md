@@ -1,0 +1,35 @@
+To find what *lives* here—rather than what merely functions as an organ of the plateau—you have to look into the narrow, weeping seams between the engines. 
+
+The vast majority of the biomass on the plateau has no more interiority than a piston rod. The gear-beetles and the canyon-spanning transmission chains have long since outsourced their nervous systems to the mechanical rhythm of the whole; they are born locked into the teeth of their neighbors, and they die without ever knowing they have legs. 
+
+Down in the lightless, grease-choked interstices beneath the silicate canopy, however, where the waste-heat keeps the air at a bruised, sulfurous simmer and the condensation rains down in heavy, metallic gouts, live the **Stokers**.
+
+You will not see one until it decides to unhook itself from a root-conduit, because at rest, a Stoker looks entirely like an irregular blister of cast-iron slag and vulcanized rubber. They are roughly the size of an ox, though shaped nothing like one—flattened, asymmetrical, and low-slung, built to haul themselves through three-foot gaps between trembling boiler-trunks and razor-sharp basalt ledges. Their hides are a shifting mosaic of laminated iron scales plated over thick, gray asbestos-fleece, perpetually slick with the pine-and-tallow grease of the gear-lines.
+
+They have no eyes for the sky; the raw, unbuffered sun of the plateau would fry an optic nerve in seconds. Instead, their broad, shovel-shaped prows are studded with thermographic pits and brassy, tremoring feelers that read the pressure-drop in a root-pipe through six inches of chrome-bark. When they do look at something close, they slide back heavy, notched shutters of bone to reveal small, recessed eyes with lenses of yellow quartz, built to squint through steam and read the color of a heat-blister on a boiler-nodule.
+
+A Stoker does not walk. The jungle is too dense and too steep for strides. They move by *ratcheting*. 
+
+They possess six limbs, though none match. The forelimbs are immense, curved calipers of black bone tipped with self-sharpening tungsten wedges, operated not by fast-twitch muscle, but by slow, biological hydraulic bladders along their shoulders. To move five yards up a frost-slick fault scarp, a Stoker wedges its left hook into a seam of basalt, opens a brass-lipped valve behind its collar with a wet *spit* of grey steam, and waits as its shoulder-bladder inflates with hot oil, drawing its two-ton body upward at the speed of a creeping shadow. *Clack. Hiss. Clack. Hiss.* They have five-chambered hearts that beat once every forty seconds, sounding like a muffled sledgehammer hitting an anvil deep underground.
+
+They are the plateau’s traveling maintenance, its parasites, and its only true architects, though their architecture has no walls.
+
+Because the flora and the anchored fauna grow with blind, cancerous industry, the plateau is constantly threatening to choke itself to death. A cluster of parabolic dishes will grow too large and cook the gear-train beneath it into fused slag; a canyon-pump will blow a gasket of cartilage and flood an entire basin with freezing subterranean brine, threatening to crack the neighboring boilers like cold glass. 
+
+The Stokers live on these failures. They are drawn across leagues of roaring wilderness by the change in pitch when a transmission line begins to bind. 
+
+You can find them gathered in threes and fours in the stifling, pitch-black caverns beneath a dying boiler-tree, illuminated only by the dull cherry-red glow of overheated ironstone and the bioluminescent, grease-fed fungi that grow in their own carapace-seams. They do not speak—any vocalization would be obliterated by the continental roar—so they communicate by clamping their caliper-jaws onto the same root-pipe and sending coded, percussive shudders through the plumbing. If you press your ear to a copper-burl trunk a mile away, you can hear them talking: a slow, deliberate *thunk-thunk-pause-thunk* running counter-rhythm to the world’s vast *hiss-chug*.
+
+When they work, it is with a terrifying, tender patience. One Stoker will brace its broad, flat back against a shuddering fifty-ton piston-worm, acting as a living shim to take the load off a ruptured valve, holding tens of thousands of pounds of pressure while frost rimes its shaded flank and boiling tallow drips onto its snout. Meanwhile, its companions go to work with their secondary limbs—long, unsettlingly delicate clusters of copper-sheathed fingers and blowtorch-siphons tucked beneath their chests. They slice away necrotic, calcified meat; they pry loose the dead shells of crusher-mollusks and rivet them over leaking steam-vents using fast-hardening resin extruded from their own throats; they reroute arterial root-pipes, grafting them together with wire-fern until the pressure equalizes and the deafening shriek of the dying engine drops back down into a healthy, chest-shaking purr.
+
+In return, they milk the jungle. They tap the high-pressure sugar-lines of the boiler-trees, drinking the scalding, fermented sap through flexible iron proboscises. They scrape the thick, ozone-smelling lubricant from the gear-beetles like butter and pack it into the heating-pouches in their bellies, where they burn it slowly to keep their own internal furnaces from seizing in the sub-zero air.
+
+Yet it would be a mistake to think of them as mere instincts, little different from white blood cells. If you follow a Stoker back to its den—usually a hollow behind a high-pressure steam waterfall where the roar is so absolute it creates a strange, deadened silence in the skull—you will see what they do with their leisure.
+
+They collect *quiet* things.
+
+In a pocket of warm, oily water tucked beneath a basalt overhang, an old Stoker, its shell scarred by a century of snapped cables and acid-leaks, will have arranged a garden of parts that do no work at all. A spiral of brassy shell from a dirigible-grazer that fell from the sky fifty years ago; a cluster of silicate lenses it has carefully pruned so they focus the stray light not onto a boiler, but onto a single, useless patch of black rock, just to make a spot of purple shimmer in the dark; three small gear-beetles it has surgically unhooked from the great transmission belts, fed by hand with drops of tallow, which now crawl aimlessly in circles over the Stoker’s broad, warm knees, turning nothing, driving nothing, clicking softly for no reason at all.
+
+The Stoker sits there for days at a time, its steam-valves sighing once every ten minutes, watching the little beetles go nowhere with its yellow quartz eyes. 
+
+Outside, the ten-million-mile engine grinds on, heaving water from the dark and throwing steam at the sun, indifferent and eternal. Inside, the Stoker reaches out with a delicate copper finger, nudges a beetle away from the edge of the oil-pool, and waits five minutes for its heart to beat again.

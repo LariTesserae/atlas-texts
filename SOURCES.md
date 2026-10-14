@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **177** source folders · **190,339** texts
+- **178** source folders · **191,414** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -347,6 +347,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `google--gemini-3.8-flash` | 1,075 | 2026-09-07 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gemini-4-argon  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `google--gemini-4-argon` | 1,075 | 2026-10-13 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## glm-4.5  ·  1,075 texts
 

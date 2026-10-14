@@ -1,0 +1,47 @@
+A lesser power—one enamored of its own generosity, or bound to a lowland idea of paradise—would have ruined the basin in an afternoon. 
+
+It would have looked down at the blinding salt-glare, the stunted breath of the workers, and the scalding, treeless pans, and felt a surge of pity. It would have cracked the cold aquifers in the surrounding peaks to flood the bowl with sweet, snow-melt water. It would have cooled the vents, washed away the sulfur, and seeded the white stone with highland pine and soft green moss. Within a month, the turbines would have stalled for lack of thermal differential. Within two, the apricot mats would have died, the pale crabs would have starved, the copper waders would have vanished into the dry crags, and the Tenders—whose lungs were built for heavy vapor and whose bones knew no other work—would have been marched down into the timbered valleys as destitute refugees, blinking and going blind in a green world they could not read.
+
+Instead, the power that turned its attention to the three-mile bowl was old enough to recognize a masterpiece of fragile equilibrium when it saw one. 
+
+It did not look down from the bleached violet sky; it listened from beneath the mountain's roots, where the magma chambers met the deep limestone. It felt the weight of the iron stilts on the travertine. It felt the patient, flat-footed tread of the four hundred Tenders. Most of all, it felt the *tink-tink* of the brass wrenches traveling through miles of copper and lagged iron—a tiny, resolute nervous system built by creatures of flesh and bone so they could hold a conversation with a volcano.
+
+The power loved them for their quietness. It loved the way they snapped their red cloths at the bull waders rather than shooting them, and the way they listened to their world with their teeth. 
+
+Yet it also saw what the Tenders did not talk about in the zinc-tabled dormitories. It saw that the elderly among them died too soon, their kidneys turned to coral by the trace heavy metals that slipped past the distillation columns. It saw that the hereditary contracts held them in a vise: the syndicate in the lowlands took eighty percent of the refined salts and rare earth paraffins, sending up just enough bitter tea, canvas, and vulcanized rubber to keep the human components of the machine from failing. And it saw a flaw in the deep bedrock three miles down—a slowly thinning wall of basalt between the primary geothermal plume and a pocket of pressurized, sour gas that, in twelve years' time, would rupture, turning the bath-warm terraces into a boiling lake of vitriol in a single night.
+
+The power decided to act. Because it was wise, it moved at the speed of the basin itself: a bath-temperature crawl.
+
+First, it addressed the deep stone. Over the course of three winters, without causing a single tremor that might crack a masonry flywheel platform or alarm a cluster of clay-lizards, it coaxed the deep magma plume five hundred yards to the west. It thickened the basalt wall with slow, glassy extrusions, sealing the sour gas pocket forever, and routed the heat instead through a massive, untouched vein of porous zeolite.
+
+On the surface, the Tenders noticed nothing except that the deep vents seemed to burp slightly less often.
+
+Second, the power turned its attention to the water in the drinking condensers. In the dark, subterranean miles where the intake pipes drew from the secondary vents, the power introduced a new organism to the ecosystem—a cousin to the apricot bacteria, though this one lived in the pitch-black scald of the deep fissures. It grew like grey velvet along the insides of the syndicate’s deep iron intakes. As the hot, mineral-heavy water rose toward the surface, this grey velvet silently chelated the dissolved lead, arsenic, and cadmium, locking the heavy poisons into harmless, insoluble crystals that dropped back down into the abyss, while letting the commercial sulfur salts and potassium pass right through. 
+
+Within six months, the water weeping from the drinking-stills in the switching-houses tasted subtly different—no longer leaving a faint, metallic coat on the back of the tongue, but coming out soft, sweet, and strangely restorative. The grey rings under the Tenders’ large, pale eyes began to fade. The older workers found that the morning ache in their lower backs—the dread "stone-spine" that usually marked the end of a Tender's useful life at forty-five—simply stopped progressing, and then, week by week, dissolved away.
+
+For the grease-hounds, the power offered a small, sideways nudge. It did not kill them; they belonged to the salt-pans as much as the crabs did. Instead, at the far eastern rim of the basin, where the waste-heat conduits dumped warm, depleted brine into a labyrinth of dead-end limestone caves, the power altered the chemistry of a minor seep. The rock there began to sweat a thick, yellow mineral tallow—inedible to the crabs, useless to the syndicate’s industrial processes, and smelling faintly of roasted marrow. 
+
+To the twelve-ribbed salt-otters, it was infinitely more intoxicating than the lead-tainted paraffins inside the syphon-towers. Within two seasons, the grease-hounds had largely abandoned the iron infrastructure, migrating in sleek, pale packs to the eastern caves, where they grew fat and lazy licking the warm rock, leaving the lead gaskets in peace. The iron spears by the switching-house doors gathered dust.
+
+The fourth intervention was for the Tenders’ minds, and their freedom. 
+
+The watchman on the night porch—the one who stood in the bruised green and orange glow of the bioluminescent flats, biting his wooden toggle against the main riser pipe—began to feel something new. 
+
+At first, he thought it was an echo. Beneath the familiar *thump-slide* of the northern counterweights, and the oily gurgle of the vents, and the distant *tink-tink* of his partner’s wrench at the southern rim, there was a fourth vibration. It came from straight down, rising up the main thermal casing from the deep mountain. 
+
+It was not a mechanical knock. It was a hum, pitched at a frequency so low and clean that it didn't just vibrate in the jawbone; it settled behind the sternum, warm as a cup of tea, easing the tight, hyper-vigilant knot that every Tender carried in their chest. It was a steady, rhythmic pulse—slower than a human heart, faster than the five-minute tilt of the iron beams. When the watchman bit down on the wood and closed his eyes, listening to that deep, resonant chord, he felt an inexplicable certainty: *the rock is holding. The heat is steady. You are kept.*
+
+Word of the "Deep Hum" spread through the basin in crisp, angular flashes of Flange against dark canvas chests. During the quiet hours of the shift, workers all across the three-mile glare would pause on the rusted catwalks, lean over the railings, and press their toggles to the copper return-lines just to rest their minds in the sound. A two-minute listen left a man or woman feeling as though they had slept for an hour in a cool room.
+
+Finally, the power gave them a lever against the world below.
+
+In the forgotten, lukewarm overflow pans at the northern edge—where the water was too cool for the turbines and the syndicate’s engineers never bothered to walk—the power encouraged a mutation in the pale, dinner-plate crustaceans. A small sub-species of the crabs began to graze on the mineral-rich runoff of the newly routed zeolite vein. Instead of shedding their wet-parchment shells into the mud to dissolve, these northern crabs began to incorporate trace silicates and bismuth into their carapaces. 
+
+When they molted, the cast-off shells they left behind in the shallow water cured in the brutal ultraviolet glare into thin, iridescent plates of organic glass. They were lighter than horn, tough as spring steel, and naturally polarized against the double-glare of sky and stone. 
+
+A young woman herding crabs found the first one. Within a month, the Tenders had replaced the dark, slotted horn plates in their spectacle-frames with lenses cut from the cured shells. For the first time in five generations, the people of the basin looked out across the white travertine without squinting through a narrow slit. They saw the full, sweeping geometry of their valley in cool, shadow-rich relief; they saw the violet flashes of the waders’ throats from a mile away; they saw the subtle, oily rainbows on the thermal pools that told them the exact temperature of the water to within half a degree.
+
+And they realized, during their low, raspy conferences around the zinc tables at night, that the leftover shells—which yielded a peerless, heat-proof optical laminate that the lowland syndicate’s glassworks did not know how to manufacture—belonged entirely to them. The northern pans were not on the syndicate's charter maps. 
+
+The power did nothing more. It did not topple the syndicate, nor did it speak a single word in the minds of the four hundred workers. It simply lay beneath the mountain, maintaining the steady, comforting hum in the riser pipes, watching with quiet satisfaction as the Tenders—clear-eyed, whole-bodied, and unhurried—began to renegotiate the terms of their world, one silent tap of the wrench at a time.

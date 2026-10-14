@@ -1,0 +1,41 @@
+You could stare directly at one from three feet away and see only the wet stone behind it. 
+
+At first, they are only an anomaly in the glare: a vertical yard of water running down a flute that seems slightly thicker than the water beside it, a heavy, syrupy lens that refracts the milky quartz at a slightly sharper angle.
+
+They are the *Vitrines*—though there is no one in the high country who speaks their name aloud, only the lowlandgoat-herders who occasionally find a dead one washed out of a mountain resurgent spring ten miles down-valley, dried into a brittle, grey-white ribbon that shatters like isinglass if you tap it with a boot.
+
+In life, within the Fluted Reach, a Vitrine is an ambush predator and a farmer of acoustics, built on a plan that has discarded the third dimension almost entirely. It is a creature of pure width and length, compressed to the thickness of a wet wool blanket so it can slip effortlessly through the hand-wide fractures between the mineral needles. Fully extended, an old one is four feet long and a foot wide, without a distinct head or tail—a supple, muscular sheet of translucent cartilage and cold, dense gel.
+
+Its body is an adaptation to two merciless absolutes: the light and the vibration. 
+
+Because there is no shadow to hide in, the Vitrine has surrendered pigment. Its tissues are clear, matched in their refractive index to the calcium-heavy snowmelt that sheets over the karst. Its internal organs—a flat, branching gut, a series of contractile hearts spaced like knots along a cord, and two long, pale gonads—are arranged in thin, vertical striations that mimic the *rillenkarren*, the natural water-grooves of the rock. When a Vitrine presses itself against a spire, the water simply sheets over its back without breaking rhythm. The blinding, silvery light passes straight through the animal, strikes the limestone beneath, and bounces back out again. 
+
+To survive the noise, it has no air-filled cavities at all. A lung or an ear-drum in the Fluted Reach would be vibrated to pulp in an hour. Instead, the Vitrine breathes directly through its dorsal skin, extracting oxygen from the hyper-aerated, freezing water roaring over its back. Its nervous system is not gathered into a brain, which would be too thick to pass the narrows, but is spread out into a geometric lattice of calcified nerve-nodes—a biological interferometer stretching from edge to edge of its flat body.
+
+The Vitrine does not hear the roar of the valley; the roar of the valley is the medium in which it sees.
+
+Because the wind and the water and the stone have been locked in the same acoustic chord for ten thousand years, every spire and perforated needle has a permanent, unchanging vibrational signature. Spire A hums in a ragged F-sharp; the thin fin beside it vibrates at a steady, bone-shaking forty hertz; the dinner-plate basin three feet down rings like a struck anvil. To the Vitrine, this static wall of sound is a staggeringly detailed three-dimensional map. Moving through the labyrinth by flexing its muscular underside in rapid, microscopic ripples—riding the thin film of water like a skate on ice—it reads the standing waves in the limestone. 
+
+It hunts by waiting for a flaw in the chord.
+
+When one of the lard-white amphibians inches across a spire to graze on bacterial slime, its soft, heavy belly dampens the vibration of the stone by a fraction of a percent. To the Vitrine wrapped around the opposite side of the pillar, that dampening is a sudden, crisp shadow cast across the constant song of the rock. When a mercury-sheened spider steps from one razor-fin to another, its eight needle-tips pluck the high-frequency shriek of the stone flutes like a thumb laid briefly on a violin string. 
+
+The Vitrine flows around the stone. It moves laterally, sideways or diagonally, never peeling a single millimeter of its body away from the rock face lest the relentless draft catch an edge and tear it loose. It slides over the sharp lips of the flutes without cutting itself, secreting a slick, silicon-rich mucus that instantly hardens and dissolves in the water. When it reaches the amphibian, it does not strike. It simply flows *over* it, pinning the blind creature to the rock. A dozen tiny, circular mouths along the Vitrine’s ventral side—ringed with teeth made of the same calcite as the valley floor—extrude and rasp the prey away until nothing is left but a faint, cloudy smear that the water rinses clean in a second.
+
+Yet predation is only half of their existence. The Vitrines are too numerous for the sparse population of amphibians and wind-blown insects to sustain them alone. In the deepest, narrowest clefts of the Reach, where the spires stand barely two fingers’ breadth apart and the acoustic pressure is at its most violent, the Vitrines alter the music to farm the invisible.
+
+In these tight slots, three or four of them will overlap their bodies, spanning the gap between two pillars like webs of thick, living ice. By tensing and relaxing the calcified fibers in their mantles, they form temporary baffles, funnels, and stops over the wind-worn eyelets in the rock. 
+
+A human wedged nearby would never hear the difference—the roar is too vast, too total—but within that specific cleft, the Vitrines change the pitch. They choke off a screaming flute here; they widen a water-lip there. They tune the local stone until the water pooling in the shallow alabaster basins below them begins to vibrate in tight, furious cymatic patterns—concentric rings and standing geometric stars of cold water that never spill over the lip, held in place by acoustic levitation and harmonic resonance.
+
+In these artificially calmed, vibrating nodes of water, the lowland dust and the dissolved minerals do not wash away into the subterranean conduits. They are trapped in the standing waves, spun in microscopic eddies hour after hour under the cooking, ultraviolet glare of the high sun. The chemotrophic bacteria bloom thick and greasy in these vibrating bowls, growing ten times faster than they do on the open faces of the spires, churning the dissolved limestone and trapped organic motes into a rich, chalky soup.
+
+The Vitrines hang above their gardens like sheets of wet glass, undulating slightly to keep the chord true, dipping their lower margins into the frothing alabaster cups to drink the thick broth they have sung into existence.
+
+When night falls—when the sun drops behind the western ridge and the valley goes from a blinding furnace of white light to an absolute, freezing blackness without a single star reflected in the vertical maze—nothing changes for them. The light was never theirs. In the pitch dark, the water still runs at thirty-three degrees, the mountain draft still blows at the exact same pressure, and the millions of stone throats keep shrieking their single, immortal note. 
+
+Only during the midwinter solstice, when the water thins just slightly at the western rim, do the Vitrines gather for anything other than farming. Thousands of them migrate toward the center of the four-mile basin, where a massive, hollow needle of milky quartz stands twenty feet above the rest, pierced through by a dozen wind-holes the size of fists. 
+
+They climb it, overlapping one another four and five deep, encasing the giant needle in a living sheath of clear flesh. As they mate, exchanging packets of genetic material through pores in their flanks, their combined weight and the rhythmic, synchronized contraction of their bodies closes every wind-hole on the great spire at once, holds it shut for ten seconds, and then releases it.
+
+Across the four-mile valley, for one afternoon a year, the static wall of noise develops a heartbeat—a slow, gargantuan, sub-audible *thump* that drops the pitch of the entire Reach by a third, shaking loose the dead spiders from the fins and shattering the ice-rims down in the dark conduits below, before the pale sheets slide back down into the glare and the valley’s chord locks back into place for another year.

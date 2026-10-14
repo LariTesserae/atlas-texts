@@ -1,0 +1,39 @@
+To look for the masters of this enclave in the open water between the spires is to misunderstand the nature of the buildings. The heavy fluid is not a medium for living in; it is an insulator, a radiation shield, and a coolant bath. The plazas are not streets for walking, and the towers are not houses with rooms inside. 
+
+What lives here does not inhabit the architecture. It *is* the architecture, or rather, the architecture is the bone and cartilage of a scattered, post-biological gentry that gave up the ghost of moving flesh epochs ago.
+
+There are twenty-two spires and six cantilevered plazas, which means there are twenty-eight citizens in the caldera. They call themselves nothing at all, because naming requires a category of things that are *not* you, and for five thousand years their world has contained only the twenty-eight, the four mercury-ribbons, and the mountain.
+
+Each structure houses—or constitutes—an individual. Within the hyper-dense, matte-black metamaterial of a needle-spire, there are no hollow spaces. The material is solid down to the picometer scale, a lattice of synthetic heavy-element nuclei suspended in a degenerate electron gas. The "mind" of the citizen is an intricate, three-dimensional standing wave of magnetic flux and quantum-spin states propagating endlessly through that solid lattice. They do not have organs; they have geometries. They do not have blood; they have the Cherenkov-blue light-pulses that bleed down into the smoky quartz of the plazas when a thought becomes too energetically dense for a tower to hold alone.
+
+Long ago, before the mountain’s flanks collapsed, they were something else—something with limbs, perhaps, or at least with discrete, mobile vessels that required air and heat. Whatever they were, they reached a civilizational twilight where every physical action began to seem vulgar. Motion creates friction; friction generates waste heat; waste heat accelerates the end of all things. To move an arm through space was to vandalize the local entropy budget. And so, with the fanaticism of aesthetics turned toward physics, they pared themselves down. They shed their bodies, their tools, their voices, and their appetites, compressing their entire ancestral memory and ongoing consciousness into these twenty-eight black monoliths, immersing the whole arrangement in a block of forty-two-degree heavy water to dampen the thermal noise of the universe.
+
+A human mind, operating at the frantic pace of electrochemical synapses, would perceive the citizens as dead stone. Their subjective time is glacial, stretched out by the extreme cold and the dense perfection of their substrate. What takes a human three seconds to realize takes a spire four months to fully articulate within its internal lattice.
+
+A single thought might begin in the autumn—when the first high-altitude blizzards begin to polish the basalt outside the water-block—as a faint, magnetic misalignment near the base of the tallest spire on the eastern ledge. Slowly, over the course of December and January, this misalignment resolves into a complex geometric hypothesis, a re-evaluation of a memory from three hundred thousand years ago when their kind still looked at the stars with wet eyes. By March, the thought has reached the spire’s needle-tip. By April, it is ready to be spoken.
+
+The spire does not broadcast into the water. Instead, a single, hair-thin pulse of deep violet light drops from its base into the vitrified ceramic of the nearest cantilevered plaza. It travels along an internal waveguide, pauses at an intersection—briefly illuminating the razor-sharp obsidian floor and the belly of a drifting mercury-ribbon—and then strikes the root of a neighboring tower.
+
+*Tick.*
+
+That sharp, crystalline sound—the only noise that ever breaks the pressurized silence of the tank—is the acoustic byproduct of a single word being received. A phase-shift in the recipient’s solid-state core. The vibration rings through the heavy water, passes through the chest of anything foolish enough to be swimming there, and vanishes into the sound-dampening angles of the terrace. 
+
+Three weeks later, a violet pulse will travel back the other way. 
+
+*Tick.*
+
+They are having a conversation. It has been going on since before the terrestrial continents reached their current shapes, a dialogue of immense, crushing pedantry and unfathomable grace. Because they have no survival needs, no economy, and no threats, their thoughts are entirely monastic and abstract. They construct vast, imaginary universes within their spin-lattices, tweaking the fine-structure constant by a trillionth of a percent and running the simulation for a century just to see what kind of crystal lattices would form in the resulting stars. They compose poetry that relies on the precise timing of neutrino emissions. They spend decades debating the aesthetic merit of a single microscopic fracture in the obsidian cliff face thirty yards to the north—the only irregular line in their entire world.
+
+And what of the ribbons? The four long, blind smears of liquid chrome that drift through the dark between the towers?
+
+To a visitor, they look like the only animals in this sterile cosmos. In truth, they are closer to thoughts that have been evicted.
+
+Even in a solid-state paradise held at forty-two degrees, perfection is difficult to maintain. Over the course of centuries, the quantum spin-states inside a citizen-spire accumulate slight errors—decoherences caused by cosmic rays penetrating the polarized roof, or the faint, tectonic shudder of the volcanic range far below. In a biological brain, this waste is cleared by sleep and spinal fluid. In the sunken hamlet, the citizens purge their cognitive detritus by extruding it into the water as electrostatic potential.
+
+The mercury-ribbons are semi-autonomous somatic fragments—part immune system, part custodian, part dream. They have no minds of their own, only a tropism toward spiritual and thermodynamic clutter. When one of the ribbons glides across the dark gulf and wraps itself like a wet bandage around the ninety-degree edge of a plaza, remaining motionless for six days, it is acting as a heat-sink and an eraser. Through induction, it draws the garbled, entropic memories out of the citizen's architecture and into its own liquid-metal flesh. 
+
+Within the ribbon’s body, those discarded fragments of thought—half-formed anxieties, corrupted mathematical proofs, ancient, lingering ghosts of what it felt like to breathe or to be warm—are slowly ground down into simple, low-grade electrical charge, which the creature uses to alter its buoyancy and drift away into the dark. 
+
+Sometimes, when a ribbon is particularly full of a citizen's purged memories, its metallic skin will ripple with faint, phantom textures as it glides through the abyssal gloom between the needles. For an hour or two, the surface of the drifting chrome might bear the microscopic, embossed relief of a coastal forest that burned four million years ago, or the repeating geometric pattern of a face no one in the caldera remembers how to see. Then the heavy water cools it, the voltage equalizes, and the ribbon becomes smooth, dark mirror once more.
+
+The citizens do not notice the ribbons, any more than a sleeping man notices the white blood cells moving through his capillaries. They remain locked in their vertical dark, pinned to the mountain's gravity, trading their violet sparks across the centuries. High above them, the snowflakes land on the flat, invisible roof of their sky, held out of reach by a tension membrane that never wavers, while down in the cold iron-smelling dark, twenty-eight immortal purists wait with infinite patience for the universe outside to finish happening.

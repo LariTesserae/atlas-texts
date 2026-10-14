@@ -1,0 +1,27 @@
+The amphitheater is no larger than a village square, cupped in the palm of a mountain that lost its teeth ten million years ago. At this altitude, the rock—a pale, waxy soapstone—has been licked by the wind until it has no edges left. The surrounding ridge is a low, continuous lip, separating this small bowl from the vast, pale emptiness of the high sky.
+
+Yet, looking down into the basin, the immediate impression is that of a dense, half-sunken town. 
+
+There are streets, narrow and winding. There are terraced levels, plazas, archways, and thousands of stacked, flat-roofed chambers. From the lip of the bowl, it looks entirely built, an ancient hamlet crowded into a wind-break. Closer inspection reveals that not a single stone was laid by a hand. There are no tools here, and there have never been people. The "buildings" are the work of two things: differential erosion of the soft, fractured soapstone, and the relentless architecture of the *shale-willow*.
+
+This vegetation is lush, plump, and fiercely green, standing out starkly against the bone-white stone, yet it never grows taller than a human knee. Instead, it grows thick and flat, its woody stems fusing together into living masonry. Over millennia, the willow has crept into the frost-wedged grid of the stone, prying blocks apart, wrapping them in green, muscular bark, and lifting them into walls and roofs to create windless micro-climates underneath. The plants have built a city to protect themselves from the freezing air.
+
+Despite the tight clustering of these green-and-white structures, the place feels profoundly empty. The air at this altitude is thin and scoured clean. Look into any of the thousand little doorways, beneath the load-bearing arches of fused root and ancient stone, and the interiors are entirely hollow. There is no furniture, no litter, no dust, no soil. The floors are polished bedrock, swept spotless by the screaming drafts. It is a settlement of empty rooms.
+
+The light is bright, clear, and cold—typical of high altitude on a cloudless afternoon—pouring down into the pale bowl and bouncing off the waxy stone so that even the interiors of the hollow rooms glow with a diffuse, milk-white illumination.
+
+And it is deafening.
+
+The bowl acts as a parabolic dish for the high-altitude wind, and the "town" is a massive, stationary pipe organ. As the gale spills over the smooth lip of the basin, it is divided into ten thousand tiny currents by the streets, arches, and hollow chambers. The entire landscape shrieks, whistles, and booms. Every room has a different resonant frequency. Walk three paces down a terrace—stepping over the lush, rubbery roofs of the willow-chambers—and a low, cello-like drone shifts suddenly into a piercing, flute-like trill. The ground itself vibrates with the bass notes of the deeper crevices.
+
+The dynamics of this place are driven by the wind and the water it carries. There are no streams or puddles; the stone is too porous and the evaporation too quick. Instead, moisture arrives in sudden, violent clouds of freezing fog that spill over the ridge, race through the miniature streets for ten minutes, and vanish back into the blue sky. 
+
+When a fog-bank hits, the landscape goes into sudden, frantic motion. The lush coatings of the town—not just the willow, but thick upholsteries of blue-black lichen and bloated, translucent mosses—swell visibly. Millions of tiny, fibrous vents along the plant-walls snap open to drink the mist, adding a loud, rhythmic *clicking* and *popping* to the roar of the wind. Within moments, the stone streets are slick with condensation. Excess water is channeled through grooves worn into the ancient rock, running down through the terraces in brief, frantic gutters that dry up sixty seconds after the cloud passes.
+
+Something lives in the empty rooms, though you might watch the town for three hours before seeing one. 
+
+It is an animal the size of a fox, though flattened like a lizard to slip through the narrow, horizontal streets. It has six legs ending in soft, gripping pads, and a coat of dense, greased wool that hangs in long fringes to hide its limbs. Because the air is so loud, the creature has no ears; instead, its flanks are covered in sensitive, feather-like bristles that read the acoustic vibrations of the stone. 
+
+It moves through the hollow town like a draft of dark smoke, slipping from one howling doorway to the next. It does not eat the tough willow or the bitter moss. It is a shepherd of the wind-drift. The gales that scream into the bowl carry detritus from the invisible lowlands miles away—frozen insects, stray seeds, blown spiders, bits of dried leaf. The architecture of the town acts as a sieve, trapping this organic dust in the quietest corners of the hollow rooms. The creature makes its rounds through the empty houses, licking the corners clean of whatever the sky has delivered, before curling up in a resonant chamber where the stone hums at a frequency that lulls it to sleep.
+
+Then the wind shifts a fraction of a degree, the chord of the entire valley changes to a minor key, a fresh bank of silver fog spills over the ancient lip, and the green roofs of the city begin to click and drink again.

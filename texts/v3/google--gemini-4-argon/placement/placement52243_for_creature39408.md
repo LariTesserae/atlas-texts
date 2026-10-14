@@ -1,0 +1,25 @@
+I would not be one of the young ones skating down the Cherenkov-blue lanes with a bundle of spindles rattling on my shoulder, nor would I be completely fused to the wind-wall yet. 
+
+I would be somewhere in the long, slow middle—a Vintner of perhaps two hundred and forty years, whose left hip and knee have already locked into a single, seamless pillar of silvered burl. They would call me a *Sounding-Post*, or perhaps a *Taster of the Deep Lees*. 
+
+Because I can no longer move quickly enough to dodge a pack of frantic Stridulators when the static-storms roll in from the west, I don't go out into the open plains to tap the volatile, high-pressure bladders anymore. Instead, my territory is the *Dead-Grain*—a three-mile sector at the northern edge of the city where the ancient root-plates have mineralized almost entirely into silica and anthracite-lignum. The young Vintners hate working the Dead-Grain. The wood there is too dense, too cold; it eats the viral pastes without waking up, and the acoustic shear-waves bounce back off the mineralized knots in a confused, ringing chatter that gives them migraines in their hip-clusters.
+
+But my left leg is practically stone itself now. When I lock my heel into the silvered floor of the northern avenues, there is no impedance mismatch between my bone and the ground. I am the same density as the substrate. 
+
+I spend my weeks standing at the intersections where the violet Cherenkov light of the Tension-Looms flickers and dies against the mineralized ridges. I carry only one Tap-Spindle, thicker and heavier than the standard ironwood pikes, tipped with a slow, patient strain of retrovirus that I breed myself in the hollow of my fused thigh. It doesn't drill in days; it takes months. 
+
+To pass the time while my root creeps down through four miles of petrified xylem, I listen. 
+
+Because I cannot walk well, my internal hammers have grown compensatory and massive. My right forearm is swollen like a club with calcified bone-mass. When the young Vintners two miles away are arguing through the floor about a souring bladder of ketonic oil, their rapid, stuttering knocks pass right under my heel. If their math is wrong—if they are misreading the refraction of the planetary cello-groan through a hidden lens of polymerized glass—I drop to my good knee, swing my heavy right arm, and strike the silver wood once. 
+
+It is a single, low, tolling note that cuts right through their chatter like a gong, shifting the phase of their conversation and pointing their attention three degrees to the east. They don't even have to look up to know who corrected them; they recognize the heavy, slightly flat timbre of my mineralized hip in the overtones of the strike.
+
+At night—or what passes for night when the copper sun dips behind the western canyons and the indigo sky goes completely black—I drag myself back into the lower alcoves of the third-tier towers. I don't climb to the high cantilevers anymore; the wind up there is too fast, and my chest-baffles are already stiffening at the edges with cured amber, making it hard to catch a fast draft without tearing the membranes. Down at the base of the tower, the air is stiller, smelling heavily of old camphor and the ozone runoff from the Looms.
+
+That is where I keep my collection. Not the bright, static-crackling gold spirits that make the youngsters jitter and skate, but the *Silica-Pressings*—tiny, opaque beads of black tar drawn from the very bottom of the Dead-Grain, where the tree’s oldest roots digested the original crust of the world millions of years ago. 
+
+Before I lock my joints to sleep, I crack one of those black beads between my ossified fingers and smear the grease across the lowest pleats of my chest-baffles. 
+
+It doesn't make me dream of the tree. It is older than the tree. As the slow, flameless combustion takes hold in my chest, the relentless whistling and booming of the city fades out of my hips. For six or seven hours, standing motionless in my hexagonal niche in the dark, I feel weight—real, wet, crushing planetary gravity—and the strange, terrifyingly silent memory of stone before it was ever eaten by the wood. 
+
+I know I have maybe thirty years left before my right knee goes, too, and my baffles glaze over completely. I have already picked out my spot. Not up on the ridge where the wind-walls whistle—there is too much noise up there already. I am going to walk out into the middle of the Dead-Grain, where the Tension-Loom beams can barely reach, and pour my slowest, heaviest viruses down my legs. I won't become a flute for the wind; I will grow into a solid, hyper-dense bridge-pin, driven deep into the mineralized boundary, so the younger ones will finally have a clear, resonant post to bounce their voices off of when they go hunting in the dark at the edge of the town.

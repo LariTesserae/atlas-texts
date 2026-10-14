@@ -1,0 +1,37 @@
+Beneath the twelve-foot treads, the iron-rich clay does not simply muddy; it compacts into a dense, vitrified hardpan, baked by the weight and the radiant belly-heat of the machine into parallel ribbons of dark ceramic. Because these tracks cannot absorb moisture, they become shallow canals. For miles behind a harvester, twin mirrors of warm, rusty water stretch into the dark, steaming gently into the thin air.
+
+This is where the smaller economies of the plateau take place, long after the big herds have clicked their way into the distance. 
+
+First come the things that have no legs at all. Out of the vesicular pores of the surrounding basalt—rock that acts like a vast, rigid sponge hiding an entire subterranean water table—slip the *ribbon-lungs*. They look like three-foot lengths of wet, maroon parchment. Because the plateau’s air is so starved of oxygen, these creatures have abandoned internal gills entirely; their entire dorsal surface is a heavily vascularized respiratory membrane. They undulatingly haul themselves over the lip of the tread-ruts and settle into the warm puddles, laying themselves flat to maximize their surface area against the damp air, soaking up the dissolved iron and trace sulfates left by the slag. 
+
+If a harvester’s light were to swing back over a track two hours old, the ruts would look like veins of raw meat. 
+
+It is on the margins of these ruts that the *silt-weavers* build. They are spider-like only in their patience, possessing eight hydraulic limbs arranged around a low, domed carapace of rusted iron plates—literal iron, biologically precipitated from their diet and layered into their chitin until they clink softly against the stone when they walk. They do not spin silk, which would rot or sag under the perpetual weight of the heavy fog. Instead, they extrude a rapid-curing mineral cement from their spinnerets, mixing their own alkaline saliva with the fine, warm induction-ash vented by the machines. 
+
+Across the width of a flooded tread-mark, a weaver constructs a low, perforated weir—a miniature dam of gray, porous stone. When the water pools behind it, trapping the sluggish ribbon-lungs and the blind, translucent tadpoles of the basin-toads, the weaver straddles its wall. It lowers a fringe of feathery, chemosensory palps into the overflow, waiting completely motionless in the dark for something soft to brush against the stone. Over decades, these abandoned weirs calcify and harden, turning the ancient paths of the harvesters into endless, terraced stairways of miniature pools that crisscross the continent in millions of intersecting lines.
+
+Further out, where the sodium-vapor light never reaches and the ground hasn't been turned by a blade in fifty years, the silence is different. It is heavier, weighted down by the *drape-molds*. 
+
+They are often mistaken for dead thermal palms until they move. A drape-mold is a colonial organism—part fungus, part muscular hydrostat—that grows in the wind-scoured lee of the low mesas. In the thin atmosphere, spores do not travel well on the breeze, so the molds have learned to walk. Not quickly; a colony the size of a haywain might cover forty yards in a year, inching across the slick basalt by rhythmically inflating and deflating thousands of tiny, water-filled bladders on its underside. 
+
+They are cold-seekers, relative to the rest of the plateau. They flee the ninety-degree wakes of the harvesters, migrating slowly toward the oldest, quietest patches of the tableland where the crust’s heat is faintest. There, they spread themselves over the wire-bushes like heavy, gray velvet tarpaulins, smothering the coppery stems and digesting the woody fibers with slow, acidic secretions. A wire-bush patch under attack by a drape-mold makes the only non-animal sound in the deep dark: the occasional, high-pitched *ping* of a spring-steel branch finally corroding through and snapping under the wet weight of the mantle.
+
+Yet the strangest life does not live on the rock at all, nor even on the outside of the machines, like the tube-worms and the gliders. It lives inside the industrial tolerances.
+
+The harvesters were built to last forever, which means they were built with clearances—gaps of two or three inches between the secondary hull plates, cavernous crawlspaces beneath the induction-furnace shielding, and vast, dark plenums where the intake air is filtered before hitting the turbines. Over the uncounted centuries, an entire endolithic ecosystem has detached itself from the plateau and moved indoors.
+
+The *gasket-eels* never touch the ground. They are thin, flattened creatures with suction-cupped bellies and skin coated in a slick, silicone-like mucus that prevents them from drying out in the roaring, hot drafts of the internal ventilation shafts. They live on the rich, greasy black biofilm that accumulates around the pneumatic bleed-valves, where microscopic lithotrophs feast on aerosolized lubricants and warm condensation. 
+
+And hunting them through the dark ribs of the machine are the *tinker-crabs*. 
+
+A tinker-crab is the size of a dinner plate, flat enough to slide through a ventilation louver, with two disproportionately long, multi-jointed forelimbs that end not in pincers, but in delicate, bone-hard spatulas. They are entirely blind, navigating the interior of the moving cathedral by the landscape of its vibrations. To a tinker-crab, the harvester is a topography of hums: the deep, tectonic bass of the primary rock-crushers at the bow; the high, singing whine of the magnetic separators amidships; the rhythmic *thump-hiss* of the steam-condensers astern. 
+
+They are the accidental maintenance crew of the plateau. The crabs feed on the scale and mineral crust that builds up inside the cooling pipes and along the articulating joints of the twelve-foot treads. Using their spatulate claws, they pry away the calcified deposits and the dead, baked remains of tube-worms that have crept too close to the exhaust ports, chewing the brittle crust to extract the calcium and iron before spitting out the purified dust. They lay their eggs in the warm grease-traps of the drive-sprockets. 
+
+Because of them, the vents never fully clog. Because of them, the valves continue to seat properly. 
+
+Sometimes, once in a decade, two harvesters will pass within a half-mile of each other in the fog. Their yellow light-cones will cross in the mist, creating a brief, ghostly noon over a patch of wet clay and wire-scrub. 
+
+When this happens, a silent, frantic exchange takes place. The gliders launch themselves from the hot manifolds of one machine, spiraling through the illuminated fog to land on the other. Beneath them, dropping from the grease-slicked undercarriages, hundreds of young tinker-crabs fall into the warm mud. Most will be eaten within minutes by the thermal-pit predators trailing the herds. A few will scuttle sideways across the basalt, guided by the sternum-deep thrum in the rock, racing to catch the rear treads of the second machine before it crawls away at three miles an hour into the dark. 
+
+Then the light-cones uncross. The artificial noon dissolves back into the slate-colored haze. The great machines draw apart, their grease-traps freshly seeded with new crab-spawn, their cooling towers breathing out the clouds that will become tomorrow's dew, leaving the wire-bushes to drink in the dark.

@@ -1,0 +1,23 @@
+The air is thin, bone-dry, and carries the heavy, ambient warmth of a kiln that was shut off an hour ago. There is no sky here in the usual sense—only a vast, dark vault overhead, the color of bruised slate, starless and deep. The light that exists comes from the rock itself, or rather, from the spaces between the rocks. 
+
+We are at an extreme altitude, a jagged crown of the world that has never known rain, ice, or the smoothing palm of a river. Because there is no water to wear it down, the geology is entirely raw, fresh from the planetary press. Everything is edges. Great tabular sheets of dark gabbro and obsidian thrust upward at seventy-degree angles, their faces flat and glassy, their intersections razor-sharp. Stepping anywhere requires placing the boot along the blade of a ridge or wedging it into a freshly split V-shaped crevice. Nothing is rounded; there are no pebbles, no sand, no silt. Only shards, talus blocks the size of houses, and the immense, fracturing monoliths from which they fell.
+
+The landscape is in the middle of a slow, violent birth. It is turbulent, though not with wind. The instability is tectonic, relentless, and strangely quiet. 
+
+Every few minutes, a tremor passes through the soles of the feet—not a rolling earthquake, but a sharp, localized *snap*, like a thick glass rod breaking under a blanket. Across the dark expanse of the valley—a deep, yawning basin five miles wide, choked with upthrusting spires—the horizon is constantly revising itself. A thirty-foot needle of basalt will suddenly tilt, its base pulverized by rising pressure, and slide down a chute of fresh scree. Because the air is so thin, the sound of the collapse does not roar; it arrives seconds later as a dry, hollow clatter, like a handful of porcelain tiles dropped onto a hardwood floor, quickly swallowed by the vast, warm emptiness.
+
+As the rock splits, it bleeds a brief, dull light. The freshly exposed seams glow with a faint, subterranean cherry-red or a pale, triboluminescent blue where quartz veins are sheared apart by immense friction. These lines of light trace across the dark valley like slow lightning, illuminating a cliff face for ten seconds before cooling to black, leaving the eye to readjust to the gloom.
+
+In the lee of the newest fissures, where dry, sulfurous gasses vent silently from the mantle, the only native life takes hold. It is a brittle, lithotrophic crust that looks like frost made of spun copper and grey ash. It grows fast, feeding on the heat and the raw chemical breath of the fractures, spreading across the warm stone in branching, fern-like fractals. Within hours of a fissure cooling, this mineral-lichen dies, calcifying into a fragile, silvery lace that shatters at a touch and blows away on the thermal updrafts.
+
+Despite the hostility and the constant shifting of the ground, the valley is not unmarked. Scattered at wide intervals across the jagged ridges are small, deliberate structures. 
+
+There are no roads connecting them, no metal, no wires, no glass. There are only low, dry-stone windbreaks, circular cairns, and narrow, wedge-shaped shelters built directly from the flat, cleaved slabs of native rock. Whoever built them understood the restless mechanics of the peaks. The walls are laid without mortar, using a precise, interlocking herringbone pattern designed to flex and settle when the ridge beneath them shivers. 
+
+Many of these structures are half-ruined anyway—sheared in two by a newly opened fault line, or tilted at absurd angles on the back of a rising plinth of stone. In some places, the left half of a circular shelter sits ten feet higher than the right, split since its construction by an emerging basalt dike. 
+
+Alongside these shelters, and sometimes bridging the narrower chasms, are long, taut lines of braided pale fiber—perhaps twisted from the dead, fibrous mats of a deeper-valley fungus. Held up by notched stone pillars, these ropes stretch across the dark air from spire to spire. Fixed along the ropes are flat, pierced slivers of resonant slate. 
+
+They are not wind chimes; the thermal breezes are too weak to move them. Instead, they are tension gauges. As the mountain spires slowly drift apart or grind together, the ropes tighten or go slack. When a spire shifts, the rope pulls taut, and the slate slivers scrape against the stone pillars, letting out a sharp, dry *shhhk* that echoes across the dark gulf—a warning system left behind in a landscape that refuses to stop making itself. 
+
+Between the snaps of splitting bedrock and the occasional scrape of the stone gauges, the silence returns, heavy and warm, broken only by the faint, continuous ticking of cooling rock and the whisper of ash-lichen flaking into the abyss.
