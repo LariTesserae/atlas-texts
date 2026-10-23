@@ -1,0 +1,9 @@
+At first I would look for myself at the edge, because the edge is where a stranger belongs. But the edge is not a place; it is a rate. The fringe reaches out and frays back at exactly the same speed, and a stranger standing there would either be taken back into the mat or fall into the cloud. I am not a strand. I would look up at the columns and think I might be a note—but a note is not a body. I would look at the red beard and think I might be the only soft thing—but the beard is a crop, not a self.
+
+Then the vent breath would find me. Out and in. Out and in. Warm air against a small body, and I would know my size.
+
+I would find myself in the lee of an opening, in a wet groove just under a chest-high sill, on a column of middling diameter. I would be finger-long, segmented, blind, pale as the mat. One of the grazers. I would move by touch through the warm channels of the wall, following the pulse of the vent, cropping the rust-coloured fur where it grows thickest. The fur would taste of mineral and wet warmth, and it would grow back behind me. I would be rare enough that a visitor might cross the whole basin and see three of us, and I would be one of the three.
+
+I would not hear the chord as a chord. I have no eyes because there is nothing at my scale to see; I have no ears for the same reason. The chord would reach me as pressure—the wall’s slow throb through my belly, the vent’s breath as weather, the column’s note as the shape of my day. I would live in the roughness that never resolves. I would be the only mouth in the singing.
+
+When I died, I would not leave. The mat would take me back before silt could settle, and I would become floor, and then perhaps column, and then breath. I would have no name and no age in the landscape. I would be a grazer: small, blind, warm, chewing the only soft thing in the world while the world breathes over me and goes nowhere, perfectly.

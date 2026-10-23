@@ -1,0 +1,39 @@
+They do not live there the way you live somewhere.
+
+You live *on* a place. You put weight on it and build on it and the place holds still while you do. They live *in* it - not on the floor but in the curve of it, in the texture of it, pressed into it like seeds into wax.
+
+At first you don't see anyone at all. You see only the movement of the rock itself, or what you mistake for the rock moving. A shiver runs along the whole eastern wall, from rim to floor, though there is no wind in the bowl. Then a second shiver on the opposite side answers it. The lichen seems to ripple.
+
+Then your eyes adjust to the twilight and the wall resolves, and you understand that you are not looking at lichen.
+
+You are looking at backs.
+
+So many backs that the stone has ceased to be stone. Every ledge, every pocked dimple, every hairline crack where water has darkened the sand has been taken. Not claimed. *Covered.* The occupants do not defend territory here because there is no territory left to defend - there is only adjacency, only who is pressed against whom, and how warm they are together.
+
+The bulk of them are the dark ones. You called them swifts or martins because your language has no better word, but they are smaller and older than that. High-country crevice birds, the kind that never really lands on flat ground. Their feet are not feet for walking. They are four black needles with a hook at the end, made to hang. Their wings are longer than their bodies when folded, crossing over each other like the blades of closed scissors. Soot-black on the back, ash-white at the throat, and when they turn their heads the white flashes on and off, like a signal.
+
+They hang facing the stone. Always facing the stone. Thousands upon thousands of them, head-in, tail-out, shoulder to shoulder in rows that follow the contour of the bowl as faithfully as the lichen does. And between them is the other material they are made of: nest.
+
+But nest is too grand a word. There is no weaving here. No structure. An adult arrives at dusk with a beak full of damp floss - wind-borne thistledown from the valleys three thousand feet below, a shred of that sideways grass, a mouthful of its own down plucked loose - and lands on a patch of rock no larger than your thumbnail. It turns, presses its breast to the wall, and spits. The moisture freezes, then melts, then binds with the mineral dust and the grit and the droppings from above. It dabs. It presses. Another arrives above it and does the same. Over weeks, these dabs become a discoloration. Over seasons, a cup. Not built so much as accumulated, the way a stain accumulates. Each one is barely a thing at all - a shallow, saliva-glazed scrape to keep an egg from rolling down the curve - but there are so many of them that the entire wall has grown a second skin, a matted, felted, guano-white and feather-grey thatch that breathes.
+
+And inside each shallowest of cups, something.
+
+An egg the size of the last joint of your finger, chalk-white, speckled with iron like the rock itself. Or a chick, if it is that week in the cycle, which is almost indistinguishable from the nest at first: a blind, translucent knot of skin and pinfeathers, its beak too large for its head, its breathing so fast it seems to vibrate. They do not cry out constantly. They make a sound almost too high to hear, a dry *seep... seep... seep* that is less a call than a leak of air through a tiny throat. When ten thousand of them do it at once, the air itself seems to have that texture.
+
+Between the birds, in the deeper dark where the overhang lips out and sun never reaches even for its twenty minutes, live the others.
+
+The bats are smaller than you thought a bat could be at this altitude. They should not be here - the air is too thin, too cold outside the bowl - but inside the bowl the air is theirs. They are the color of damp soot, with ears so large and thin you can see blood through them, lit from behind like leaves. They do not hang like the birds. They wadge. They tuck themselves into any fissure that is deeper than it is wide and pack in flank-to-flank, nose-to-rump, until a crack that looked empty is suddenly full of slow, shared breathing. A hundred bats to a crack as long as your arm. They are utterly still by day, and then at some cue you cannot perceive - a change in pressure, a cooling of the stone by half a degree - a few near the edge will twitch, and unfold a wing to test the air, and the whole seam of them will respire once, together.
+
+They are not separate peoples. Not really. The birds leave at first light. You would have to be there at dawn to see it, though you would feel it more than see it. A pressure change. A sudden absence of that ammoniacal warmth. Then a sound like paper tearing, amplified ten thousand times, as every bird at once pushes off the wall. They do not fly up. They fall inward first, dropping toward the warm floor of the bowl to catch the air that is spilling over the rim, and then they are taken - up and up in a slow, tightening spiral, a black smoke-column of wings that thins as it rises into the killing cold, dispersing to hunt the invisible plankton of the high air: midges, ice-flies, wind-borne spiders on threads you cannot see. And when they go, the bats wake. They spill out of their cracks and flicker low over the sand pans, lapping condensation, gleaning the flightless things - the guano beetles, the blind, pale rove beetles that live only in this bowl and nowhere else on earth, the mites that live on the beetles, the fungi that live on the mites.
+
+That is the second thing you understand about what lives here. It is not just birds and bats. It is the thing living on the living.
+
+The guano is not a byproduct here. It is ground. It has built up on certain ledges in soft, stratified cliffs an inch or two thick, pink-white and crumbling, reeking faintly of ammonia and fat. And it moves. Not by itself, but because it is eaten while it is still warm. If you crouched - if you could bear the smell and the thin, sweet-feathered air and the sheer, deafening, intimate din of that many bodies breathing near your face - and looked close at that pale cliff, you would see it seething. Tiny black beetles no larger than poppy seeds, wingless, round-backed, burrowing. Clouds of even tinier flies that never leave the bowl because they would freeze in an instant outside. Book-lice the size of dust. And under them all, the true floor of this city: the bacteria, warm-loving, salt-tolerant, feasting on uric acid in the dark, making that faint, sourceless heat that makes the bowl ten degrees warmer than it has any right to be. The inhabitants keep the bowl warm, and the warmth keeps the inhabitants. A slow, patient lung.
+
+Nothing here is fast except the wingbeats. Nothing is clever. There is no chief, no watchman, no architecture more complex than *dab and press*. The smartest thing anything does here is remember the exact texture of its own two inches of wall on return, in the dark, among ten thousand identical two inches.
+
+And they do return. That is the last thing you feel from the rim before the altitude makes you sway and you have to step back from that warm, wet, feathered mouth.
+
+It is evening. The light is going. One bird appears above the rim, a speck against the savage stars, then another, then five, then a hundred, dropping out of the thin nothing where no bird should be, plummeting straight down into the dark with folded wings, only opening them at the last instant to stall and hook their needle-feet back onto their own exact dab of spit and down. *Tik.* *Tik.* *Tik.* The sound of claws finding purchase, all around the bowl, like rain.
+
+They are not glad to be home. Glad is too human. They simply *fit* there, as water fits in a cupped hand. They fill it completely.

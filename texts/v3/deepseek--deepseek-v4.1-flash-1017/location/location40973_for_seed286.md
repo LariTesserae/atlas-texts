@@ -1,0 +1,7 @@
+Here is a description of the landscape that emerges from these parameters.
+
+---
+
+There is no land here, not in any sense you would recognize. The world is a single, vast, submerged plateau, a continental shelf that never breaks the surface of the chill, endless ocean above. The water is the air, a cold, dense medium that carries light and sound for leagues. This is a place of high elevation, but the elevation is underwater; the plateau rises for miles from an unseen abyssal plain, its peak a submerged mountain range whose slopes and valleys are the entire geography we will ever know.
+
+The terrain is not rock, or not only rock. The rock is merely the armature. Everything is plant. It is a total, all-consuming biological mass. The landscape is a jungle of the deep, a kelp forest scaled to a planet. Enormous structures, thick as sequoias and tall as skyscrapers, rise from the plateau, their forms a blend of coral, tree, and something more alien. They are not true plants, but a kingdom of life that fills every niche. Their trunks are a lattice of dense, woody fiber, and their canopy is a ceiling of broad, translucent fronds that filter the weak, blue-green light from above. Between these giants, the space is not empty but filled with a drifting, shifting mass of smaller vegetation—ribbon weeds, bulbous sacs of gas, and clinging mosses that coat every surface. The substrate itself is a springy, deep mat of root and decay, a living soil that has been settling and weaving itself together for eons. T

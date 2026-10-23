@@ -1,0 +1,19 @@
+**What the Wise Power Did**
+
+It came as a restraint. That is the first thing. It had been drawn by the cold breathing out of the seam, and it understood that attention is a kind of weather. So it did not descend. It thinned itself until it was no more than a coolness at the threshold, matching the coolness already there, and it waited through one of the pocket’s long breaths. It watched from the edge of its eye, because direct looking is a kind of finishing.
+
+It learned the place’s grammar before it touched anything. It saw that the unfinished were not sick. It saw that the pale isopods were not lame but hardening, that the too-many-winged fliers were living in the interval before a body learns its own grammar, that the creatures who would never pupate had understood the terms. It saw the hollow and did not call it empty. It saw the seven stones and did not straighten them. It saw the bent-finger marks half-healed and did not date them. It saw that the pocket was not a container that happened to be occupied but a body occupied by itself, and that to complete it would be to turn it to old stone.
+
+So it did not cure, complete, stabilize, catalog, or explain. It did not ask the pale thing in the hollow to be more than it was. It did not ask the two animals at different stages of deciding what they were to decide. It did not tell the hill to finish being a hill.
+
+Then it did four things, and the fourth was a non-thing.
+
+First, it kept the outside from mistaking the pocket for a resource. Not with a wall. A wall would be a straight line where the room had only one. It made the seam unprofitable: survey needles drifted, maps lost the contour, a quarry lease went wrong in a lawyer’s office three valleys away, a collector’s jar broke on the way down the hill. It did not hide the seam from the lost, the quiet, the ones who could enter without needing to own. It only thickened the weather around the careless. It let the place remain findable by accident.
+
+Second, it offered a small unfinished thing—a listening stone, a coolness, a patch of itself that would never set—and placed it where the wall was soft. Then it let the wall revise it. If the pocket healed over it, the power would accept that as a no. If the pocket kept it, the power would accept that as a tenancy. It did not call the offering a gift after it had been revised. It called it a collaboration.
+
+Third, it made a promise and then let the promise be misremembered. It said, in whatever way a power says a thing to a room: *I will not finish you. I will not cure your residents. I will not straighten your stones. I will not fill your hollow. I will not ask you to be stable. If I can help without helping, I will.* It did not wait for an answer, because an answer would have been a completion. It stepped back to the threshold and kept a slow attention there, like a seam of cool air, so that if the pocket were ever about to be ended from outside, the power would be present as weather, not as a rescue. It would prevent only the ending of becoming, not the becoming itself.
+
+Fourth, it did not remember the pocket perfectly in any way it could impose. It held a perfect memory, but it kept it behind a door it did not open. The pocket’s own memory was imperfect, correcting toward itself, and that imperfection was its life. The power would not correct it. It would keep its perfect memory as a backup that is never restored unless there is no pocket left to be revised—and even then it would not restore it as a copy, but would let it become something else.
+
+And then it withdrew its direct gaze and left the room bright and crowded and unfinished, under a hill that had not decided. It did not become a resident. It became a tenant of the threshold, one of the absent who have not entirely left, doing the one thing a wise power can do for a place that lives by becoming: it refused to complete it, and it stayed close enough to keep others from completing it.

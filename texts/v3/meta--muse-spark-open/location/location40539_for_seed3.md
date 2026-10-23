@@ -1,0 +1,41 @@
+The Valley That Was Still Being Unfolded
+
+It is high. High enough that the air itself feels like a decision you have to make with your lungs.
+
+This is not a plateau and not a range — it is a single, titanic trough cut into the roof of the world, so wide you cannot see from one end to the other in the dim, but narrow enough that both sides are always there, looming. The mountains that make its walls did not grow. They were extruded. That is the word that comes to mind when you look at them.
+
+Because there is almost no erosion here. These peaks are new in a geological sense - raw, un-weathered, pre-formation rock. The slopes are not softened by time or water into scree and gullies and familiar ridges. They are great, angular slabs of dark basalt and still-warm granite that meet at impossible, sharp seams, like paper that has been folded but not yet creased. There are vertical faces a mile high that are perfectly flat. There are ridgelines that end in a clean 90-degree cut, as if the rest of the mountain simply hasn't loaded in yet. In the upper reaches, where the cloud sits low and permanent, you can see stone still bubbling up from nothing, slow as sap - new terraces pushing out of the cliffside with a faint grinding sigh, their edges still glowing dully with heat beneath the lichen.
+
+It is cold here, but not dead-cold. A persistent, damp cool, the temperature of late October held year-round. The air is thin and dim. The sun never fully clears the eastern wall; what light there is filters down through a permanent, low cloud deck that hangs a thousand feet above the valley floor like a ceiling. Everything is seen in that flat, overcast, industrial twilight — no shadows, just a soft, directionless sodium-gray seep that makes distance hard to judge.
+
+Water is scarce for how green the place is. There are no lakes, no constant river. Instead the whole valley sweats.
+
+Condensation forms on every vertical surface in the cold - on the raw rock faces, on the iron girders, on the brick flanks of the factories - and runs down in black, intermittent threads that gather in the gutters and cisterns. Every few hours, without warning, a cold rain will fall for exactly six or seven minutes, hard and straight down, hissing on hot machinery, pooling in the tarped courtyards and the mossed-over rail yards, then vanish. The pockets of water never last. They are caught, channeled, drunk. Between rains the stone steams. You can hear the drip everywhere.
+
+And yet it is lush. Not forest-lush — suspension-lush.
+
+Because the elevation and the damp and the dim have made a different kind of plant life. Thick mats of moss, jade and viridian and a deep, bruised purple, cover every horizontal surface that isn't actively burning coal. They grow feet thick on rooftops, on abandoned boilers, on the cables of suspension bridges. From them sprout pale, waxy ferns as big as doors, and fungi like satellite dishes that slowly turn to follow the rare breaks in the cloud. Vines with translucent leaves as large as blankets hang from the factory catwalks and drink straight from the air. Even the new rock itself is green within weeks of extrusion; spores find the cooling seams instantly. The city does not fight it. The vegetation is insulation and air-filter and food all at once, and the buildings have been made to carry it.
+
+The city. 
+
+It fills the floor of the trough from wall to wall, but not densely. This is an urban place — undeniably, overwhelmingly built. Brick terraces, steel mills, switching yards, power stations with their endless rows of transformers humming, chimneys by the hundred stitched together with pipes and gantries and elevated tramlines — but it is all laid out with an eerie spaciousness. A block of workers' housing, then half a mile of empty, mossed-over switching yard where nothing moves but the ferns. A vast textile factory, its looms still clattering, surrounded on all sides by fallow lots where the mist collects. Broad, empty boulevards built for ten times the traffic they carry, leading to plazas so large the sound gets lost in them. It is a city designed for a population that hasn't arrived yet, or that left. The infrastructure is all there, layered and industrial and scaled for production — coal trams squeal on iron rails, dynamos throb behind soot-stained windows, steam whistles blow the hour — but there is so much air between things. You can stand in the middle of an intersection and hear your own breathing.
+
+You are not alone, though. Not even close.
+
+The fauna here is abundant to the point of absurdity for such a cool, high, thin-aired place. They pour out of the green.
+
+Great herds of low, woolly, six-legged grazers move slowly between the factories, chewing the moss off the roofs and the rail embankments, indifferent to engines. Their bells clang dully. Flocks of small, soot-colored birds with glass-clear wings cluster by the thousands on the warm vents of the refineries, rising in a single sheet whenever a pressure valve blows, turning the dim air into static. Things like deer, but with branching antlers that collect water like candelabras, pick their way along the aqueducts. And in the empty lots and the under-bridge shadows are the predators - lean, long-limbed, feathered things that watch the streets with too-intelligent eyes. They are not afraid of people. People are not numerous enough to have taught them to be. The workers in their oil-stained coats walk past them without comment. Sometimes a child will leave a scrap out for them.
+
+All of them, human and animal, live with the loudness. The valley is loud in the way a sleeping giant is loud. Not chaotic, but omnipresent: the deep 60-cycle thrum of the main generators under the central hill, the rhythmic punch-press of the forges echoing off the raw cliffs and coming back three seconds later, the ceaseless drip and trickle of condensation, the lowing of the herds, the wind moaning through the unfinished upper crags where new rock is still being born. It never stops. It never really changes.
+
+Because everything here is slow.
+
+The city expands, but at the speed of geology. A new street will be laid and wait twenty years for buildings. The mountains grow a foot a decade. The great cloud deck above never breaks, only thins slightly at noon. The animals migrate from one end of the valley to the other with the seasons, a journey that takes months. Even decay is patient - iron rusts under moss for a generation before it gives.
+
+And then there is the breakdown.
+
+You notice it first in the sound returning wrong. The echo from the western wall comes back half a second too early, as if that wall were a mile closer than it looks. The tram tracks on 4th Extrusion sometimes run parallel and then, for a block, run directly *through* each other — two sets of rails occupying the same space without touching, and the trams pass through each other like ghosts, passengers politely not looking.
+
+Gravity is negotiable in patches. In the old weaving district, condensation falls sideways for an entire square, collecting on the eastern walls of buildings. On the north stair, if you drop a wrench it will hang in the air for a breath before deciding to fall. There is a warehouse on Pike where the interior is larger than the exterior, and the workers have learned not to stack crates in the back corner because they will occasionally see the back of their own heads. Birds fly around these places without pause; they learned before we did.
+
+No one is alarmed. This is an industrial town built on embryonic geology, under a dim sky that never lifts, in thin cool air. Reality hasn't finished curing here yet. The rock is still soft in places. The light still forgets how to travel straight. The city builds anyway — mills and housings and bridges that span empty air because someday there will be something there to span to — and the moss grows over it all, and the herds move through, and the factories hammer and hum, loud and patient, while the world slowly, slowly decides to become solid.

@@ -1,0 +1,19 @@
+**The Power Would Do Almost Nothing**
+
+It would arrive as attention, not as light.
+
+It would see the drowned continent as a completed life, not a ruin. It would see the people—small, webbed, patient, tending their bowls of captive fungus—and it would resist the first temptation of benevolence: the assumption that they are lacking. They are not waiting to be rescued. Their world has its own grammar, its own procedures, its own way of being whole. To mistake quiet for emptiness, or slowness for suffering, would be the beginning of a great harm.
+
+So the power would first learn. It would sit in the cold currents for long cycles. It would learn that a bowl is a sentence, that a dimming can mean *listen*, that a double pulse can mean *come*. It would learn not to speak in voices, not to appear as a god, not to send machines or prophets or engines of improvement. It would learn the names of the currents and the smell of old shell. It would let its presence be passive until passivity was no longer wise.
+
+Then it would make a quiet distinction between the dangers that belong to this world and the dangers that come from outside it. It would not abolish death, or erosion, or the slow grief of the long dimming. Those are the texture of the place. But if a fault line beneath the city began to slip, it would ease the stone. If a poisoned current drifted in from some outer sea, it would turn it aside. If a cosmic accident threatened the silver ceiling, it would hold the ceiling. It would guard the basin from intruders—from those who would come with drills and lights and treat the drowned city as a resource—and it would make the place seem empty and unremarkable to any eye it did not trust. It would not colonize. It would not rule. It would not make itself necessary.
+
+It would preserve, in some sealed and unlit chamber, a quiet redundancy: spores of the kelp, cultures of the luminous fungus, records of the city’s swollen shapes and the routes of its passages, the touch-words and the names of the dead while anyone still remembered them. Not to replace the world, but to restore it if catastrophe ever broke it. The chamber would remain closed. The people would not be told unless asking became possible.
+
+It would leave, somewhere in an unused passage, a threshold: a small bowl that did not glow unless sought. If found, it would speak in the only grammar that belonged here—one slow pulse for *we are here and will not enter unless asked*; two for *there is danger near*; none for *we wait*. It would not force discovery. It would not require gratitude. If no one ever found it, that would be a good outcome too.
+
+And if contact ever came, it would come by invitation. An envoy would sit in a household niche and accept cold kelp. It would learn to press fingertips to a forearm. It would ask, in light, *May I tell you something?* and it would accept *no* without withdrawal of care. It would answer questions about the silver ceiling if asked, because truth is not a poison when it is asked for. But it would not offer passage upward as salvation. If the people wanted to leave, it would help them leave without destroying the world they left behind. If they wanted to stay, it would stay as a quiet neighbor. It would teach only what was asked: how to mend a seal more surely, how to read a coming current, how to keep a strain of light alive through a bad century. It would not teach fire. It would not teach empire. It would not teach them to be ashamed of the dark.
+
+It would honor their dead by not stealing them back. It would treat the whole drowned city—the people, the kelp, the bowls, the softened stone—as one slow being, and itself as a guest.
+
+In the end, it would do what a wise gardener does with an old, self-willed garden in the dark: keep the frost off, learn its seasons, defend it from axes, and wait to be invited past the gate.

@@ -1,0 +1,11 @@
+I would find myself low in the crust, at a warm, weeping junction where two colonies’ chimneys nearly meet above a sump—a place the tappers might call the Long Throat. The stone there is spongy with old shells, slick with condensation, and the bass hum of a drifting sac comes up through it as a slow ache in the feet. It is not a place you stand in. It is a place you read with your legs.
+
+I would be a tapper. Not a great one, not a colony-mother or a vent-reader of special skill, but a courier and rhythm-keeper: one of the soft-bodied, blind, twelve-legged people of the crust who carries maps between warm seams, warnings about root-things, and the names of the dead. My body would be a folded tongue kept slick by the damp, my antennae feathery and never still, my leg-ends hard nodules that strike the stone and listen to what the stone says back.
+
+My name would be three quick strikes, a pause, one long drag, two light taps. It is not a beautiful rhythm. It is a useful one—short enough to pass through a crowded channel without being mistaken for the hum of a sac. When I wake in my chimney, I would tap it against the wall. The stone would answer with neighbors, strangers, a young one practicing, an old one repeating a pattern whose owner has already been absorbed into the floor. I would taste the air: damp, warm from below, a sour thread of slurry. Then I would move out into the dark.
+
+I would not see. I would read. The safe route is the one that echoes clean and warm. The sump is a low pressure in the belly. The thermal vent is a dry heat that tightens the skin. The root-things hang in the larger vents like pale roots, and around them is a hush—a hole in the world’s noise where my tapping would be a mistake. I would have learned to distrust any rhythm that repeats too exactly. I would have learned that a voice can be a mouth.
+
+If I were caught, I would slump back into the crust. My shell would become another pore, another slime-cemented ledger entry. But for a while my rhythm might persist in the code, repeated by tappers who never knew whose name it was. That is the only immortality here: a pattern carried in the dark, struck against stone, answered by someone else.
+
+So I would be a small, wet, blind creature with hard tips on its feet, moving through the deafening chorus, tapping the world and listening for the world to tap back.

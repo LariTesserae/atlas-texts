@@ -1,0 +1,27 @@
+I came up with a crate of valve seats on my back, and I have not been down since.
+
+That's the whole of it, more or less. There was a route — a fissure on the south side that ran cool when the wind sat right, and a rope, and a man below who would take the crate off you and give you a chit — and the fissure closed the season I came up, the way they do. I asked about it the first year. I asked less the second. In the third a tender walked me out to the seam and we stood looking at it and he said, "It'll open," in the tone people here use for the weather and the ground and anything else that is not theirs to decide. So you wait. And waiting is not idle, because there is always a plate to turn.
+
+I am a tender on the low run. That's all of it now.
+
+The low run is the plates between the second stack and the long hall, canted north, in the warmest seep on the works. Green fans, mostly, furring the copper until it looks upholstered, and in the one runnel that is three degrees warmer than its neighbour, the amber spires. I can find that runnel in the dark. I know the low run the way you know a stair you have climbed ten thousand times — not by looking, by the body's memory of where the next thing is.
+
+You work bare-handed because you cannot feel a plate's temperature through a glove, and feeling the temperature is the whole job. So you go along the lattice with the flat of your hand held a little above the face, and you find where the warmth steps down by one degree, and that edge is where the next crop wants to start. Scrape the face clean there. Turn the plate a quarter. Break the fans off into the sack with the flat of your hand, carefully, so the next growth has something honest to begin on.
+
+I have never seen what the crop is for.
+
+The sacks go into the shaft. The shaft is not a conversation. Somebody below wants it and pays in what we need and does not come up, and the tenders do not wonder about it aloud. It is a thing you could ask, and you would get an answer, and the answer would be a version of "it'll open." So I tend the plates and fill the sacks and the sinter goes down and the vapour keeps coming up and nothing is exchanged that you could hold in your hand except the crust.
+
+My hands are going. The knuckles first. It is not sore. It comes up the sides of the fingers where the salt has got in and set, and the nails have gone glassy, and when I hold the lamp low the light gets in it and it shines. The tenders say it comes off in a season below. Nobody goes below much.
+
+There are forty of us, or thirty-eight. Nobody writes it down. Ask three tenders and you get three numbers, all delivered with the same total confidence, and each of them is right about the people they can see from where they stand. We count by the vents. A tender knows it is time to sleep because the third stack has gone quiet, and time to rise because the low run is warm again. I keep the board by the door now — the day's valve changes — and my hand has stopped bothering with vowels. I noticed that some time ago. I did not mind it. The not-minding is the thing I would tell you about, more than the hand.
+
+Out past the town there is a hollow where the vapour stands thick and the crust lies deep, and there are four in it, sitting with their backs to warm vents and their hands in their laps, being grown. I knew three of them before. It is not a dying and they would be annoyed to hear it called one. It is what the place does and staying was the choice and the choice was made so long ago it has become the shape of a life rather than a decision inside one.
+
+I go out there sometimes, not to visit. The crust in the hollow is the best on the plateau — deep, and slow, and worth the walk — and you take it gently, so as not to disturb the surface it is growing on. I scrape and I fill a sack and I talk a little while I work, and it does not matter whether anyone is listening, and the crust there is very good. Then I walk back and put my lamp out at the edge of the works and come in.
+
+Sometimes, at the dim hour, the thing that crosses the plateau comes along the edge and does not come in. Big — bigger than a person, if the track is a track. It stands in a low seep with the mist going up around it and the sump-crawlers go still on the bottoms of the pools, and the tenders put their lamps out and wait, and the waiting is not fear, exactly. Then it is gone and the lamps come back on and somebody says what it was and somebody disagrees and the drip goes on. I have started to know it is there before the crawlers do. That is not a thing I taught myself. That is the place teaching me, the way it teaches the plates.
+
+There is a kettle in the bunk hall that has been on the stove since before I came up. It will be on after. When I pass the stove I put something under it, and I do not do it for anyone, and there is no one it is for.
+
+Some mornings the low run is warm and the plates are ready and I am out on the lattice before the lamps are lit, feeling the faces one degree at a time, and the drip goes on all around me, and the rock under me is warm, and I am not waiting for anything. That is the thing I would not have believed, below. That you can stop waiting and it is not the same as being lost.

@@ -1,0 +1,31 @@
+# The Breathing Stair
+
+The mountain is a ruin of a mountain. It was once something else—taller, probably, with a peak that meant something—but that was so long ago that even the idea of it has worn away. What remains is a vast northern shoulder of stone that rises in three shallow, mile-wide terraces, each one maybe two hundred meters above the last, each one flattened by an age of weathering into something closer to a plateau than a step. From above—if you could get above it—the whole thing would look like a staircase built by a giant with no sense of urgency and then abandoned for a hundred thousand years.
+
+The stone is old enough to be soft. It wears lichen in broad orange and grey sheets, and in the wind-cut grooves on every exposed surface, thin soil has gathered and stayed. This is what the plants have taken.
+
+They have taken everything.
+
+The first thing that hits you on the upper terrace is that the ground is moving. Not dramatically—not like an earthquake—but if you stand still and look down, the moss under your boots is visibly rocking, a slow see-saw of paler and darker green, because the entire carpet of bryophyte and sedge and dwarf willow is growing on living roots that shift with the wind's pressure and with the tide of small bodies moving beneath them. The stair is not paved with stone. It is paved with plants, and the plants are only loosely anchored, and everything that lives here is either eating the plants, being eaten by them, or sheltering in the soft gaps between.
+
+And everything lives here.
+
+The fauna is the thing you will remember. On the first terrace, the air itself is thick with a low, buzzing roar—beetles, flies, wasps, things with too many legs and things with just enough—and the sound never stops, not for a second, not when the sun goes behind a cloud, not at night. The sound is layered. Close up, it's a dry crackle of chitin and the whine of insects holding station against the wind. Further out, it becomes a hum, and further out still, where the beetles mass in the upper grass on the terrace edges, it drops into the bass range and becomes a hum you feel in your teeth. You will find no silence on this mountain. The silence was eaten.
+
+The amphibians occupy the middle terraces, where the damp collects. The staircase is dotted with shallow, stagnant pools—rainwater caught in depressions, some of them a meter across, some of them a hundred—and each pool has its own community, its own frog dialogue that has been running so long the locals (if there were locals) would call it the mountain's voice. The frogs are small and numerous and the color of wet slate, and at dusk the whole stair fills with their calling, and it is not a peaceful chorus, it is a crowd, a debate, a noise like a hundred bad musicians all agreeing with each other loudly. Herons work these pools. Buzzards hunt the terrace edges. The birds' calls cut through the insect hum like a bell through fog, and the simurgh—if that is what it is, something enormous and slow and feathered, seen only as a shadow crossing the third terrace at midday—has learned to hunt in silence, which on this mountain is a skill.
+
+The water is not plentiful. It comes in the rain and it goes in the wind. The pools shrink and fill, shrink and fill, and the whole stair breathes with them—a wet breath when the storms come, a dry one when they go, and in between the moss holds the condensation like a sponge and gives it back so slowly that the frogs have never had to learn to hurry.
+
+To get from the first terrace to the third, you climb. The stone risers are not vertical faces; they are steep, plant-tufted, root-matted slopes, three hundred meters long, soft enough to climb with your hands and feet and old enough to grab. The roots that hold them are older than most civilizations; you can feel the hand-width of them, the living ropes, the stubbornness of a plant that has been making the same stair for a hundred thousand years.
+
+At the top, the third terrace, almost nothing is built.
+
+Almost.
+
+There are scattered things. A low wall of uncut stone that follows the edge of the terrace for about a hundred paces and then stops, as if the builder forgot what he was walling in or out. A dug pit, roofed with turf, that might have been a shelter, might have been a storage, might have been something else. A few bones of a structure—posts, mostly rotted, a hearth-stone singed and cold for generations—that someone built and someone else abandoned, and the plants have mostly taken it back, but the hearth-stone is still bare, and the bareness is a kind of mark. The people who lived here had hands and fire and no metal, or very little. They built small and they built once and they did not build again.
+
+And still the stair is not empty. It is empty of people, yes. It is empty of buildings, yes. But the density of emptiness here is a strange thing: the space between one beetle and another is real, the space between the frogs is real, the space between the scattered stones of the wall is real, and walking the third terrace you are aware—constantly, in your body—of the vast low count of large solid things and the tremendous high count of small ones. It is not a hollow place. It is a place that has been hollowed, patiently, by its own biology, and then filled back up with life that does not need much room.
+
+The light is ordinary and total. Clouds come, and the light goes flat and grey on the plants, and the insects calm a fraction of a percent. The sun comes, and the light goes hard and bronzy on the moss, and the beetles sing louder. The wind is the only thing that interrupts the sound, and when it does, it produces its own—the thin whistle of a million grass blades synchronizing, the hiss of roots working in soil, the rattle of dry stems, and the low, deep, continuing note of the stone itself, which is so ancient and so settled that it has learned to be a drum.
+
+The stair is not on its way anywhere. It is at the end of its erosion. It has been like this for a very long time and it will be like this for a very long time. It is a place where the world has finished its work and only the biology continues, and the biology is loud, and the biology is everywhere, and the biology is home.

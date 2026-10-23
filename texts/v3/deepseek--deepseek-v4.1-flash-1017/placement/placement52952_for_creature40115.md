@@ -1,0 +1,27 @@
+I would be found in the disused galleries to the south, where the mineral crust glows too faintly to see by and bright enough to ruin your night vision—which means I would have been there long enough to stop bringing a lamp.
+
+I would be the one who reads the faint script of the luminous walls. Not the big letters, the obvious ones. The small marks underneath: the striations like tree rings in the crystal, the tiny ridges where water has been seeping at slightly different rates for centuries, the hairline fractures that breathe in time with the Roar. I would have come down as part of a survey team—maybe the third or fourth survey, back when they still expected to finish in a season—and I would have stayed. Not because I couldn't leave. Because I started reading the walls and the walls had so much more to say than the surface did.
+
+I would be the one who noticed that the glow isn't uniform. That it pulses, barely, in a slow rhythm that doesn't match the Roar but lies underneath it, something older than the water and quieter than the bats. I would have mapped the pulse over months by feel, lying with my cheek against the cold crust, and I would have found that it moves. It travels along the south galleries like a thought moving through a mind, and where it goes, the crystals grow thicker. Faster. The place is *alive* in a way the crew's instruments can't register, not because the instruments are wrong but because they are too fast. They measure in hours and seconds. I measure in seasons now. In the time it takes a scallop to deepen by a millimeter.
+
+I would be the one who made the marks on the doorframe descending, before the occupant did. Or no—I would be the one who understands *why* she makes them. Because I would have made my own marks, on the far wall of the south gallery, where the glow is strongest and the pulse is loudest. Not measuring the water's rise. Measuring the pulse's approach.
+
+I would have let my fingernails wear past the quick to feel the grain of the rock, because the gloves cut off the fine sensation and the fine sensation is everything. My hands would be callused like hers, worn smooth by the constant wet, and I would have developed a different ear—not the ear for the slot, but the ear for the silence between the pulses, where something waits.
+
+I would be the one who found the too-many-legged thing, not with a net but with patience, and learned that it is not a predator but a gardener. It tends the fungal fringe in the darkest galleries, where the water sheets are thinnest and the crust is brightest, and it has been tending them for longer than the pump station has stood. I would have watched it shape the growth of the pale mats, cropping some, encouraging others, and I would have realized: the glow follows the mat. The mat *is* the glow. The garden is the light.
+
+I would have learned to garden too.
+
+I would not be visible from the terraces. The south galleries are a maze of collapsed chambers and narrow crawlways, and I know them the way she knows the staircase—by feel, by the pitch of the Roar changing as I move through spaces the crew's maps don't show. I would have found the places where the pulse pools, where the crystals are thick as my arm and glow bright enough that I can see my own hands after all, glowing faintly themselves, colonized by something that lives on the surface of things that live on the surface of things.
+
+I would have stopped speaking entirely. Not because I lost my voice—I know the voice is there, waiting, low and chesty like hers—but because the pulse has a grammar and I have been learning to write in it. I score marks in the soft crust with my thumbnail, and the marks glow back at me, and in the morning (there is no morning, but the bats leave and return on a rhythm and that is morning) the marks have been responded to. Changed. Elaborated. The garden has opinions.
+
+I would be the one she knows about but does not visit. The one she leaves the south galleries for. The one whose handwriting she has seen on the wall of the deep sump, where the water is warmest and the shrimp are blindest, where I wrote the same sentence she writes in the ledger, but I wrote it first, in the grammar of the pulse:
+
+*It all goes north. Something must come back.*
+
+I would be the one who has begun to understand what comes back. Not the water—the water only leaves, it does not return, she is wrong about that, or she is right in a way that doesn't mean what she thinks it means. What comes back is the *pulse*. It goes north, into the slot, into the dark crack where nothing looks down, and something in that darkness answers. The answer travels back along the ceiling, through the bats, through the rock, through me, and when it reaches the south galleries it pools in the crystals and the crystals grow and the glow brightens by a fraction that only I can see.
+
+I would be the one who will not be on the next survey's roster. Whose name comes up as *whereabouts unknown, last seen south.* Who left a lamp behind, unlit, and a notebook, unreadable, soaked through, the pages stuck together with mineral crust.
+
+And in the dark of the south gallery, where the glow is brightest, where the pulse is loudest, where the too-many-legged thing tends its garden and I tend mine, I would be waiting for the question the place is asking, and I would be almost ready to answer.

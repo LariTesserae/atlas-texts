@@ -1,0 +1,15 @@
+The benevolent and wise power would arrive not as a pillar of light but as a change in the wind’s patience. It would take a body first—wide-footed, mat-colored, with baffled spiracles against the fiber-broth—because wisdom on Veth begins with accepting the local grammar. Or it would take no body at all, only a listening.
+
+Its first correction would be to itself. It would not look for a single being in a city of processes. It would find the being distributed: in the weavers’ slow fronts, in the nap-fauna’s interior weather, in the cloistered tapping their dark vertical countries, in the riders drifting the gyres, in the grazers’ infrasound, in the still-hunters’ patient trapdoors, in the city’s chord below hearing. The being would be a verb. The power would not name it, because naming would make it a subject, and it has never asked to be one.
+
+It would see no lack. No water, no soil, no fossils—not wounds, but grammar. It would not drill for groundwater, dam the vapor, seed the swales, or teach the weavers a faster weave. It would not improve the city by adding an audience; an audience would turn a making into a monument. It would not give the grazers speed or the hunters mercy; both would be violence to the weave. It would not abolish death; death is how the mat eats the past, and the past must be eaten.
+
+So what would it do? It would attend. It would sit on the mat long enough for its weight to be accepted. It would breathe riders and cough felted pellets and learn the hum in its teeth. It would walk the swales at the pace of herds. It would enter the city and find no throne and be glad. It would listen to the chord until it could hum it back imperfectly, and then it would not hum it back, because the city does not require an answer.
+
+Perhaps it would offer one thing only: a single note, lower than the mat’s hum and shorter than a season, laid into the pattern where no one was watching. The pattern-keepers might repeat that note for centuries without knowing why. That would be the whole of its intervention—a guest’s small courtesy, absorbed into the weave.
+
+It would defend Veth only against outside harm. Not with walls or weapons, but with uninterestingness: maps would refuse the coordinates; exploiters would remember a green haze and lose their appetite; fleets would find their instruments full of fiber-riders and their purpose gone. The power would not freeze the world in safety. It would keep the door open to Veth’s own becoming and close it only to extraction.
+
+And if the being noticed—if some grazer lifted its mossy head, if a still-hunter opened one eye, if the city’s hum paused for a breath—the power would not say, “I am here to help.” It would say nothing, in the only language Veth respects. It would let itself be watched. It would let its body be reclaimed. It would become mat. It would be eaten into the past, and the past would be eaten, and that would be the gift: not an audience, not a savior, but a guest who knew how to leave no fossil.
+
+The wise power would do almost nothing. That almost-nothing would be the exact shape of its benevolence.

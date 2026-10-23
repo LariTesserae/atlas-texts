@@ -1,0 +1,19 @@
+The power would not descend. It would attend.
+
+First it would let its attention become a kind of weather around the summit—not pressure, not command, only a patient regard. It would learn the routes of the meltwater, the north-facing stones that grow rime each morning, the exact pitch of the wind over the shattered plateau. It would watch the falcon hang as a dark cross against the blue and understand that this is not cruelty but editing. It would see the wall of fitted stones, the half-buried obsidian, and recognize a human life that had chosen smallness rather than conquest. It would decide, before doing anything, that the place was already whole.
+
+So its first act would be restraint.
+
+It would not warm the cold. It would not tame the wind or make the falcon miss. It would not turn the hummingbird’s quarrels into peace or the beetles’ armor into softness. It would not make the summit safe for fools, nor turn it into a garden, nor set a temple on it. A wise power knows that some places are valuable precisely because they refuse to be improved.
+
+But it would guard the conditions of the drama. It would keep the engine alive: when a drought threatened the fissures, it would let a hidden snowfield release a thin, unnoticed vein of water; when a freak rain threatened to wash the peat from the rock, it would slow the runoff by a degree no instrument could measure. It would keep out what did not belong—rats from a lower valley, collectors with nets, a warming that would melt the trickle to silence. It would make the summit hard to find for those who came to take and easy to find for those who came to learn. Not a wall: a quiet hedge of circumstance.
+
+It would not referee the hunt. It would not save every rodent, heal every beetle, or teach the pale flowers to need less. It would protect the stage, not the script.
+
+For the being who lives there—the hermit, the hunter, the passer-through—it would come as a guest, not a god. It would wait at the edge of the circular wall until invited. It would bring only what can be carried and not owned: a dry bundle of fuel in the worst storm, a salve for cracked hands, a waterskin, a clear path down to the cloud line if the being wished to leave. It would ask three questions and honor the answers: Do you want company? Do you want help? Do you want solitude? If the answer was solitude, it would withdraw and return only when the silence had worn thin. If the answer was help, it would help in ways that left the being’s agency intact—showing how to shore the roof, not building a palace; easing a fever, not abolishing death. If the being was dying, it would sit with them through the night and not pretend the cold was a lesson. If the being was lonely, it would visit sometimes, not every day, and never demand gratitude.
+
+It would not make the hermit a prophet. It would not give them power over the wind or the falcon or the moss. It would refuse gently if asked to make the place less lonely by making it less wild. And it would leave the old wall and the obsidian blade untouched, because the unknown life that made them had already earned its place in the summit’s memory.
+
+If the place itself could speak—if the summit were a being still caught in its own beginning—the power would ask what it wanted to become. It would listen for the answer in the trickle, the rime, the sharp young edges of the rock. It would offer companionship without possession. It would promise not to turn the summit into a metaphor for anyone’s salvation.
+
+Then it would withdraw to the edge of the haze and keep watch. Not as owner. As friend. The summit would remain cold, bright, dangerous, alive. The being would remain free. And from inside the world, the power’s benevolence would look almost like luck: a storm that turned away, a winter that broke a day early, a visitor who arrived when the silence had grown too heavy and left before it became a cage.

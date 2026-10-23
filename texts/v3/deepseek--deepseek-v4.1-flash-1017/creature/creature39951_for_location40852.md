@@ -1,0 +1,57 @@
+# The People of the Terrace
+
+## They are fewer than the noise suggests
+
+Stand in a crowd-sounding place and you expect a crowd. Here you get four people and a knee-deep run of water going over a lip in a dozen threads, and the acoustics of wet stone do the rest. The Terrace holds perhaps a hundred and sixty thousand people across a built area you could lose a small nation in, and most of them live within sight of an engine hall. Density falls off fast. Walk an hour downhill from the hot districts and you meet a woman at a cistern-gate, and she will know you are a stranger not by your face, which she does not look at, but by the fact that you came down the west stair and not the east one, and the east one is shut for re-glazing, and *everyone* knows that.
+
+They are not small, exactly, but they are compact, and they are patient in the body. Their posture is a downward one: heads carried a little forward, shoulders rolled, the way people stand who have spent their lives on stairs going down to work and up to sleep. Their calves are the muscles you see. Their hands are the other thing — broad across the knuckles, nails thickened and opaque, palms pale and slightly cool and never once in a lifetime fully dry. You notice the palms before you notice the face. Everyone's hands look like they have been underwater for an hour, and they have, and will be again.
+
+Their skin is fine-pored and pale to the point of translucence in the old, with a permanent faint sheen that is not sweat. They smell of hot metal and mineral silt, the same smell as the factories, and underneath it something flat and brackish. Their hair, where it shows, goes white-grey early in districts with hard water and stays black in districts with soft, so you can guess a person's home from across a room.
+
+And they all do the same thing with their hats. The hat is the most personal object anyone owns: a shallow dome of glazed shell-laminate, ridged, with a brim that sheds water away from the collar and a small lip at the back that keeps the condensate from running down the spine. A hat is made for a person when they turn eleven or so, and it is repaired for the rest of their life, and it is buried—fired—with them. You can read a hat. A hat with three hundred patch-glazes in six different greys is an old hat, well-loved, and its owner is either very poor or very rich or both. Strangers trade hats as a joke and it is a joke that never lands.
+
+## The ear
+
+The defining fact of a person here is what they can hear, and the range is far wider than you would expect and entirely technical.
+
+Everyone grows up inside a hum. Each engine hall holds a note — not a musical note, a *state*, the sum of a thousand bearings and plates and rushing films — and each hall's note is different, and a person who has lived their life in the Fourth Condenser can tell you, from inside a closed room two streets away, whether the note has gone thin. Thin means a fouled plate. Thick and beating means a bearing seating wrong. A grating overtone means someone has left a grate loose and the water is cutting a notch in something that will cost a season to replace.
+
+So they listen the way a doctor here would look. Children are taught this before they are taught anything else: sit, be still, tell me what the wall is saying. The wall says the cistern behind it is at two-thirds and the overflow is bubbling. The child who can hear the difference between a full cistern and a nearly-full one gets sent to the upper galleries, where the water is.
+
+Silence frightens them in a way you will not see them show. Not quiet — quiet is everywhere, the far districts are profoundly quiet, quiet is where you sleep. Silence: the engines down, the water still, the swarms not lifted. It happens. Someone in authority closes a valve and the whole district's note stops and for a few seconds two thousand people stand in the street with their heads up like animals, absolutely still, waiting to hear what has gone wrong. Then the note comes back and everyone goes on with it and nobody mentions it. They don't sing. They can't really — the sound of singing embarrasses them; it sounds like a fault. But they tap, constantly, without noticing: knuckles on railing, a shell-edge on a sill, the small dry rattle that means *I am here and the water is where it should be*.
+
+## Work
+
+The trades are the trades of a place that does not build new things, only keeps old things wet.
+
+**Film-scrapers** work the shaded faces, the galleries under galleries, the long ramped walls where the patina grows thickest. It is the lowest-status work and the most widespread and nobody minds it, because it is also the work of children and of the old and of anyone between engagements, and because everybody eats what comes off the wall. Scraped film is pressed into sheets and dried and it is bitter and gritty and sustaining. They call the taste *the taste of the wall* and consider a person who does not like it to be putting on airs.
+
+**Shell-masons** are the aristocracy. They harvest the shelled things — brushing them off damp walls by the basketload, cracking, grinding, firing, rebonding, laying. A good mason knows the grain of a district the way a farmer knows a field, knows which walls will take and which will spall, knows that the paving by the Third Spillway was set a hundred and forty years ago and has outlasted three generations of its own repair. There is a saying: *the masons are the only people here who make anything, and they make it out of the last thing they ate.* It is a joke. It is not entirely a joke.
+
+**Tuners** are the ones with the ear. They walk their circuits twice a day with a listening-tube of glazed clay and no other equipment, and they write their findings on tile with a stylus, and they are the closest thing the Terrace has to a priesthood. A tuner does not fix engines. A tuner tells you which part of the engine is unhappy, and then a keeper goes in with the warm wet dark and the tolerated animals and the fouled plates, and it is the keeper who gets the scars.
+
+**Canal-wardens** are fewer and stranger. They keep to the water stairs and the low districts and their whole job is the big slow shell-backed animals in the canals, whose movements are infrastructure and must not be interrupted. A warden knows the schedule of a specific animal the way a bargeman knows a channel. They talk about them by name. They are, by general agreement, a little touched, and they are also the only people who can tell you within a day when the reservoir cycle will turn, so they are fed well and listened to politely.
+
+And there are **households** — the real unit. A household is a set of rooms, a catchment, a share of a cistern, and a claim on a run of channel, and the claim is older than anyone alive and is defended in disputes that last decades and are conducted entirely in writing on tile, very slowly, with great courtesy, and settled by whoever has the better ear for what the water should be doing.
+
+## Childhood
+
+Children are born in the warm districts almost exclusively. Nobody plans this. It is simply that the warm districts are where the water is softest, the film richest, the shell harvest heaviest, and the walls dry enough at the inner face to keep an infant's chest clear — and the outer districts, cold and clean and quiet and mineral-starved, are where you go when you are old and want to sleep.
+
+A child grows up in three rooms and a stairwell and about four hundred meters of damp wall, and thinks that is the world. They are taught to name the sound of their own overflow before they are taught their letters, because a child who knows the overflow can be sent to check it. They are taught the film by scraping it. They are taught the shell by eating it. They are taught time by the swarm: the evening swarm comes up and the light goes silver and the day is over, and this is so reliable that a child of six can tell you, without a clock, how long until supper, to within a quarter hour.
+
+They are also taught, very early and very gently, that they will become wall. Nobody hides it. When someone in the household dies they are taken to be fired, and the household keeps the tile with the name incised and colored and set beside the wall they went into, and the children come and touch the tile on the way past, and that is the whole of it. It is not grim. It is the single most ordinary thing about the place. Old districts are visibly older not because the stone is different but because the mortar is: there is a grain in it that catches the light badly, faintly, warm.
+
+## How they treat each other
+
+They are polite in a way that reads to outsiders as cold, and is actually just *slow*. They do not hurry conversations any more than they hurry repairs. If a thing is worth saying it is worth saying over a season, and if it is *not* worth saying they will simply sit with you in the noise, and that is not hostility; the noise is company. Two people can pass an hour on a wet landing without a word and both be better for it, and there is a word for that, and it does not translate, and it means roughly *the standing-together in the sound of the water*.
+
+They are generous with water and stingy with heat. Heat is what the engines give and it comes as a gradient, and a household's position on that gradient is its whole wealth. So the warm districts' people are a little louder, a little quicker, thicker-walled, and they believe the outer districts are eccentric; and the outer districts' people are quiet and dry-walled and mineral-thin and they believe the warm districts are fat and deaf. Both are right. Neither moves.
+
+And they are, all of them, faintly superstitious about one thing: a district where the film stops growing. It happens. A seam goes bad, a channel is diverted, the water comes off a wall and the patina dies back to bare stone. Word goes round. Someone official comes and looks at it for a long time with a tube to their ear. No one says what it means, because no one knows, because it has not happened in any living memory — but there is a bare patch, three meters by one, in a lower gallery of the Ninth District, and it has been there for forty years, and the people who live beside it have built a low parapet of new shell around it, and they keep it swept, and they do not talk about it.
+
+## Dusk
+
+At the end of the day the whole Terrace comes up onto its landings and its spillway stairs, all of it, every district, to watch the light go silver and the swarms rise off the film. They don't talk much. The hats come off and are held under the arm and the bare heads gleam. Down in the canals the big animals call to each other, low organ-notes handed from district to district, and the tuning of the engines underneath it holds steady, and the water goes down the steps in ten thousand threads and off the edge of the plateau into the dark below.
+
+They stand in it with their faces up, being wet, being warm, being one more slow accretion on a slow old rock — and you understand, watching them, that this is not a people enduring a place. It is a people who have made themselves exactly the shape of the noise, and are content, and will still be here, patching and glazing and listening, in a hundred years, when the wall they are standing on has grown a little thicker and taken one or two of them into itself.

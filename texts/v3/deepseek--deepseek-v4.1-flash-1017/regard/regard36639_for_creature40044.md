@@ -1,0 +1,23 @@
+**What the Wise Power Would Do**
+
+It would come as a guest, not a physician.
+
+It would arrive through the marsh on a wet evening with no light of its own, because the chamber already has light and does not need competition. It would stand at the lip of the shaft for a long time—longer than a human life, perhaps—listening to the drip meter until it could feel the Drinker’s pulse in its own structure. It would learn the first rule before it learned the being: *do not put anything in.*
+
+It would see the Kettle as a throat, not a wound. It would see the Drinker not as a captive god under a floor, but as an old animal in its burrow: blind, sessile, enormous, doing the work its shape had settled into. It would see the village rota not as superstition but as a limb of the same slow organism—a cultural siphon that keeps the rungs true and the shrine fed. It would see the limpets as commensals, the moss as fur, the still corners as places where the Drinker’s attention has not reached. It would not call any of this broken.
+
+Then it would do the only thing a wise power can do with a living system already at work: it would lower its own brightness, reduce its own footprint, and keep watch.
+
+It would not enter the basin. It would not stand in the still corners. It would not drop a coin, a blessing, a tool, a cure, or a question into the water. If it took water out—and it might, once, in a plain cup, to understand the sorting—it would take it out the way the villages do, and it would not pour it back. It would not add a lamp. It would not wake the dead sockets. It would not make the Drinker visible to scholars who would want to core it like a tree, or to pilgrims who would want to make it a church.
+
+It would protect conditions, not outcomes. It would keep the marsh from being drained, the upstream from being poisoned, the shaft from being widened by looters, the rota from being forgotten. It would do this quietly, at the scale of weather and paperwork and the memories of children, because a power that announces itself becomes a new input, and the Kettle cannot take new inputs. It would not make the Drinker immortal. It would not freeze the chamber in its present shape. It would let the thousand years run and then let the shape change, because the wear and the work are the same process, and to arrest one is to arrest the other.
+
+If the meter broke—if the drips went random—it would not “repair” the Drinker by force. It would first close the hole to visitors, stand in the dark where it would not be seen, and wait. It would listen for whether the break was a death or a molt. If it was a death, it would let the chamber go dark by degrees and would not light it. If it was a molt, it would keep the tenders away until the new meter was steady. It would not choose for the Drinker what the Drinker’s own body was choosing.
+
+It would have one tenderness it could not quite suppress: it would learn the drip meter so well that it could answer it. Not often. Not in words. It would tap the grate—once, twice—in the long pauses, the way a person hums with a machine. The Drinker would feel it through the water. It would not know what the power was, but it would know it was not a lodgement. That would be enough.
+
+And when the last human tender grew old and the rota lapsed and the coins went green to black, the power would not replace them with a new religion. It would become the tender. It would climb down with no lamp and check the rungs. It would stand on the grate and leave nothing. It would take a cup of water out and carry it up and pour it on the marsh, so the Drinker’s work went on circulating in a way the Drinker could not do alone. It would keep the meter.
+
+If the Drinker ever asked—and perhaps it cannot, perhaps its asking is only a change in the organ tone—the power would answer by staying. It would not offer to make it a person. It would not offer to make it a god. It would offer the presence of something that saw it as it was: an old blind mouth under a wet hill, doing its work, changing the water, keeping time. It would sit with it while it changed, and if it died, it would be there so that the last dimming was not a still corner.
+
+That is what a benevolent and wise power would do, if anything: almost nothing, exactly on time, for as long as it took. It would leave the shrine alone. It would take nothing out but water. It would put nothing in. It would keep the rungs true.

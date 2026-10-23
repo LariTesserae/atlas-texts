@@ -1,0 +1,13 @@
+What lives there is not an animal, and it does not have a shape you could point to. It is the hollow’s finishedness — and it has a body, though the body is an agreement rather than a form. If you could see it, it would look like the basin: a shallow negative space lined with wet rock, its edge the pale tufa lip, its pulse the drip. It lies in the low place. It is the size of the room and the thickness of a film of water.
+
+It has senses, but they are all touch. A foot on the floor is a pressure and a warmth and a cloud of silt; it registers the disturbance, lets the silt settle, returns to clear. A hand on the wall is a dry patch that will be damp again by morning. It does not investigate. It has no need to. It knows the temperature of the air and the level of the water the way you know your own weight.
+
+It breathes in condensation and out seep; its blood is the bead that arrives and the bead that leaves. Its memory is the basin’s shape — every grain of tufa a record of a day it did not have. It does not sleep, because there is no hour it could name. It does not hunger, because input and output are equal. It does not reproduce, because a second one would be surplus.
+
+It keeps the moss at its width and the ferns at their height, not by pruning but by being exact. Small animals do not live in it because exactness is inhospitable to them: no surplus, no rot, no litter, no quick green. It is not hostile. It simply has no room for anything that would change the level. The leaf that falls is not buried, only held; it will still be a leaf next year, and the inhabitant has no opinion about that.
+
+It has taken the stones on the southern lip into its vocabulary. It did not set them and does not remember who did. The sixth is tilted; it is becoming true. The inhabitant does not straighten it. It has no hands, and anyway the tilt is a direction, and directions are what it has finished with. The one who set the stones is not the tenant. That one left a direction behind, and the tenant has absorbed it.
+
+If you stand in it, you are the fastest thing in the room. The inhabitant feels you as a brief surplus — warmth, weight, breath, a disturbance of silt — and closes over the disturbance at its own rate. It will not notice you leave. It has no loneliness, because loneliness is a difference between what is and what could be, and here there is no difference. It is not dead. It is held. It lives the way a held note lives in a bell after the striker has gone.
+
+Call it the Finished, if it needs a name. It is the tenant of the exact interval between the drip and the drip, and it will still be living there when the words for it have worn off the stone.

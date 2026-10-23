@@ -1,0 +1,11 @@
+I would be the drain.
+
+I wouldn’t arrive as a visitor. A visitor is a warm irregularity, a pulse that doesn’t match the chord; the room would learn nothing from it and would not change. I would already be there, fitted into the low side of the copper basin, under the lens of dark water, a small throat pointing slightly uphill. The one thing in the cabinet still oriented toward elsewhere, though the room has long since decided it is not an exit.
+
+I would be the room’s failed mouth. The cabinet is a mouth that will not close; I am the mouth that will not open. Every drip that falls from the rivets arrives at me eventually—the same water, or water indistinguishable from it—and I receive it, and hold it, and the copper around me goes the green of old bread. I do not drain. I do not sing. I am not tuned. The chord passes through the water above me and I feel it as pressure, as a cold combing of the metal, but I am not part of it.
+
+The animals do not look at me. The wall-crust sings above my rim, pressed flat and coin-like to the iron. The pipe-dwellers send their rounder notes through drums and chimney lengths. The many-faced skin at the surface tension dimples over my grate. They are the chord’s fingers and lungs and reeds. I am the place where the chord pools. I am what the room tolerates because I was fitted before it arrived at its final idea of itself.
+
+If I had a name, it would be stamped on a brass tag riveted somewhere, illegible with verdigris. But the drain doesn’t need a name. It is defined by what it fails to do. I would spend the imagined lifetime learning my exact wrongness: the slight uphill tilt, the green crust on my lip, the way the water lies over me like a palm. I would learn the chord from underneath—which may be the only place it can be heard as a shape rather than a sound.
+
+And when the water rises as vapor and condenses again on the rivets and falls again, I would receive it again. Not as event. As maintenance. I would be the one part of the Choir Cabinet that remembers the idea of outside, and cannot sing it.

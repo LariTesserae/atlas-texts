@@ -1,0 +1,37 @@
+This is not an ocean on a planet. It is an ocean over a mountain.
+
+A long time ago, the water came and did not leave. It rose and kept rising until the high country was deep country, and now the peaks are the floor.
+
+You are submerged over a high plateau drowned under a black, cold weight of water. If you could drain it all in an instant, you would be standing on alpine highlands - a broad, wind-scoured table of basalt and granite at perhaps ten or twelve thousand feet, cut by hanging valleys and old glacial troughs, by cirques and knife-ridges softened by a very long age. The erosion here is not raw or catastrophic. It is *settled*. The cliffs have found their angle of repose. The scree slopes have sorted themselves by size. Riverbeds that have not seen air in millennia still show the smooth, patient curves of water that once ran downhill, now holding still water that never moves that way. The stone is pitted, bearded with mineral, weathered to roundness under pressure.
+
+But the water never drained. It is miles deep over even the highest saddle. The pressure should be crushing, incomprehensible, but here it feels like a kind of high-altitude atmosphere that has grown too thick and turned to liquid. A cold, dark, total submersion. There is no surface far above you, or if there is you will never see it. The light went out a long time down. What light remains is not from the sun.
+
+It is very cold. Not the clean nip of winter, but the deep, old cold of water that has not been warmed since it arrived. Your skin, if you had skin exposed, would ache instantly. The rock itself bleeds cold. And yet - it is lush.
+
+This should be impossible. There are no animals here. Not a fish, not a krill, not a worm, not a single gill or eye. The water is animal-empty in a way that feels deliberate, like a rule. You move through a forest that has never been startled. No dart of minnows. No shell clings to stone.
+
+Only plants. Or what act like plants.
+
+They have taken the charge of everything. From the thin black soil that still clings to the high terraces in defiance of drowning, forests of kelp-analogues rise. Not the green kelp of sunlit seas. These are abyssal alpine forests. Trunks as thick as old pines, black-green and iron-red, rubbery and ridged, rooted impossibly into cracked basalt. Their holdfasts split stone. They climb fifty, eighty, a hundred feet up toward a surface that isn’t there, and then their fronds unfurl and keep going, streaming horizontally on the slow currents like prayer flags. Some have bladders the size of houses, translucent amber sacs that hold warm gas and glow faintly from within, creaking as they strain against their tethers. Others are low and creeping - dense, felted mats of moss that is not moss, of liverwort that is not liverwort, velvet black and bioluminescent at the edges, covering the valley floors in a continuous carpet that pulses.
+
+Because they glow. In the darkness - and it *is* darkness, a deep indigo-black where distance is eaten after twenty feet - the high submerged world is lit by its own vegetation. Each species has its own cold fire. The tall stalk-trees have strings of white-gold lights along their spines like lanterns on a ship's rigging. The valley kelps blush slow pink and then fade. The ground-mats glitter with constellations of blue-green pinpricks when you pass over, a touch-response that ripples outward for acres. Without animals to see it, the light show is for no one. It happens anyway, ceaselessly.
+
+It is loud.
+
+You expect the deep to be silent. It is not. Water here is active, dynamic, restless. The cold has made it dense and stratified, and the drowned topography makes it move. Currents pour over the plateau's edge like invisible waterfalls, slow and massive, bending the entire forest in one direction. Then they eddy and reverse. Thermoclines snap and groan. The giant bladders pop and sigh. The stalks rub together high above with a deep, woody complaint, like old trees in a storm, but warped and slowed by liquid. Ice - because at this depth and cold, parts of the water itself think about becoming something else - forms in sheets far overhead and then shatters, raining down as a slow, tinkling snow of crystals that never melt, only settle and are eaten by the moss-light.
+
+And between the sounds of plant and water is another sound: stone breathing. The high ground is not dead. Warmth leaks from deep fissures where the mountain's heart still remembers fire. There, the water shivers. Black smokers that never knew air plume silently, and around them the vegetation goes mad - pale, translucent reeds that grow a foot an hour, unfurling with audible *ticks* and *sighs*, white forests that glow too brightly and then shed their leaves all at once, a blizzard of luminous skin drifting sideways forever.
+
+Scattered through all this are the built things.
+
+Sparse, low-density. You could travel a valley for an hour and see nothing but stone and light. Then, on a wind-scoured ridge that is now a current-scoured ridge, a cairn. A hut. A wall.
+
+They are primitive - hand-stacked slates, dry stone, lintels of basalt still holding though no hand has tended them. Small, single-room shelters half-swallowed by holdfasts, doorways facing a downhill that no longer means anything. Rope bridges, improbable, still strung between two kelp-trunks, their fiber some woven kelp-cord that did not rot. On the terraces, the faint grid of old fields, where the soil was once tended and is now a farm for glowing moss. Petroglyphs cut deep into cliff faces, spirals and hands and eyes, softened by water but legible, catching the drifting light.
+
+Who built when this was air? Who stayed after it became sea? There are no bones. There are no tools but stone flakes and fire-cracked rock under silt, as if the inhabitants packed nothing and left - or became something else. Some of the huts have grown. Kelp has forced its way through the stone and used the walls as trellis, has incorporated the architecture. Some cairns are not stone at all anymore but living knots of root and holdfast that have remembered the shape of a marker.
+
+There is a weirdness to the rules. The plants behave like animals because they have to. Kelp stalks will lean toward you, though you make no wake. The valley mats will brighten ahead of your path as if anticipating. Predator and prey still happen here, but both are vegetable: the white rapid-reeds strangle the black slow trees; the amber bladder-trees drop stinging filaments that dissolve fronds and drink them; the moss on the valley floor will, over weeks, crawl up a trunk and smother its lights. Growth, hunt, decay, bloom - all of it plant, plant, plant, in cold, loud darkness. The lack of animal life is not an absence you get used to. It feels watched-for, enforced.
+
+If you stand - suspended, floating, weighted - in the middle of one of those open valleys, with the forest canopy straining far overhead and the stone walls rising under their beards of light, you understand the scale. It is not infinite. You can see from one side of the valley to the other, can imagine the town that could have lived here, or the kingdom of terraces. It is a regional, human-sized vastness made alien by depth. A high, cold, drowned country, in balance with its own impossible state, lush and loud and dark, growing and growing without ever being eaten except by itself.
+
+And the water presses on, and the plants glow on, and the current turns, and the old stone walls hold.

@@ -1,0 +1,57 @@
+They don't live *on* the Stair.
+
+Nothing lives on it. Everything lives *in* it, the way lichen lives in stone. After enough generations, they have stopped being occupants and become part of the structure. Tissue.
+
+### People
+
+You can spot a Stair-person by squint before you hear them, before you see anything else.
+
+The light does that. At 2.8, the brightness has weight. It bleaches. Even with hats — and everyone wears hats, wide shallow bowls woven from split vine-cane and palm fiber, bleached silver then stained sweat-brown around the band — their faces are a map of squint. Crow's feet at ten years old. Lower lids thickened and darkened, like they have permanently narrowed their eyes against glare. High cheekbones polished red-brown by sun and wind. The ones who work the sunward faces are two shades darker than the ones who work the shadow faces, and they joke about it the way lowlanders joke about hair color.
+
+Their lungs work for it, too. You hear it in how they speak: short sentences, unhurried, with a breath between. Children born on Tier 30 never know they have the chest for it until they go down to the foot on pilgrimage or trade and find they can run twice as long as a lowland kid without hurting. And when lowlanders come up — which they do, hauling salt and glass from below — they move slow, hand on rail, laughing too loud from the thin air. Stair-people are not tall. Compact, ropy. Calves like braided cable from a lifetime of stairs, of ramps, of never walking on flat ground for more than twenty meters. The old have knees that click on cold mornings and they can tell you which tier's joints need grouting by which knee aches.
+
+There is never crowd, never solitude. Density 2.2 means you are always in earshot. Houses are not houses the way lowland thinks of houses. The retaining wall of one tier *is* the back wall of the house below and the floor of a field above. So a family on Tier 42 might live like this: front door opens onto the terrace street, two rooms deep cut into the mass of the Stair, warm to the touch because directly underneath is Fabrication Hall 42-B where they press sheet steel all day — thump... thump... thump... one per second, you feel it in your molars when you try to sleep. The kitchen floor is warm enough that in winter you proof dough there. Out back, beyond the sleeping alcove, is not a yard but a cistern — every dwelling is responsible for its catch. A concrete box the size of a truck bed, fed by every gutter and condensation wire on the roof, covered in plank to keep the carp safe. And above the house, on its roof, which is also Tier 43's drainage swale, is their strip of soil. Three meters wide, fifty meters long, curving with the ring. Taro there, or terrace corn, or tomatoes where the furnace heat rises.
+
+No one owns far from where they sleep. You farm the roof you live under. You maintain the wall you live in. And everyone maintains water.
+
+That is the first job, before farmer or smith or teacher. Water is not wet here. There is no river to go to. There are only mornings.
+
+Before dawn, when the greenhouse-warm day has bled out into the cold high night, everything sweats. Steel girders drip. Leaves drip. The cables that hold the freight lifts fur with beads. Children are sent out with tin dippers and squeegees to coax it. Old women tend condensation nets — coarse woven screens of copper wire that hang like laundry between pillars — and wring them into buckets. Men open sluice gates one by one, tier to tier, and you can hear the day begin as a chain of clatters descending from above: *clack* on 51, *clack* on 50, *clack* on 49, a sheet of yesterday's stored water moving down one level at a time to where it is needed. To waste water is the only real profanity. To let a cistern silt is to be shamed at council.
+
+Because of that, their religion — if you can call it that — is maintenance. Small shrines on every fifth tier, not to gods but to the Tanks. A water tower in riveted iron plate, green with copper weep and orange with rust drools, will have ribbons tied to its ladder, and a cup left for offerings: a bolt, a clean rag, a boiled carp scale. The Keepers are not priests but engineers who never retired. They know the sound of a healthy pump versus a cavitating pump the way you would know your child's cough. They walk the Stair endlessly, tapping walls with hammers, listening for hollow where roots have gotten too ambitious.
+
+And the children — there are always children in soundshot — are feral in the specific way of city fauna. They run along pipes as wide as a road. They are taught early to read the chord of the Stair: wind through girders high A, stamping presses mid-C, insects white-noise hiss, birds bouncing off parallel walls so one chiffchaff sounds like six, and underneath it all the almost-inaudible creak of the whole mass expanding as the white noon hits pale block. If the chord changes — if a freight chain snaps, if a cistern gate sticks — every head comes up, even at play.
+
+### The Fur
+
+You cannot separate people from what grows and crawls over them. The Stair is furred for a reason: at warmth 2.1, with damp but never wet, with light turned up to 2.6 and every horizontal surface imported-soil-deep, something *will* grow. If you don't choose it, it chooses you.
+
+On the sunward lips, it is chosen: terrace rice in emerald stair-steps within the Stair-steps, corn in industrial rows so straight they were laid by transit. The soil there is not soil. It is composted city, a meter deep, black and sweet-smelling, made of a thousand years of peelings and night soil and leaf litter and rust flake, held back from sliding by low basalt-concrete bunds that have been repaired until their grout-veins are thicker than the original blocks. The stalks grow thick as a wrist because the roots are warm from below.
+
+On the shadow sides, it is unchosen and therefore more honest. Black velvet mold that covers a whole retaining face if left alone for a month, soft to the touch and smelling of mushrooms. Maidenhair ferns exploding from weep holes. The engineer's ivy — *Hedera fabrica* they called it when it was designed for shade tolerance — with leaves as big as doors, glossy, veined like hands. It has gone wild. It no longer needs its trellis. It makes figs the size of plums that only lizards eat. Bougainvillea poured over a frozen gantry crane on Tier 19 so long ago no one remembers what the crane lifted; now it is just a red-purple waterfall you can see from three tiers down.
+
+And then the strange integrations, where weirdness 0.8 leaks in not as magic but as patience:
+
+On Tier 58 the retaining wall failed. Shear crack, roots in the joint. Anywhere else they'd have torn it down and repoured. Here they watched. The fig roots came through, flexed, and kept holding. Now there are five meters where there is no concrete. Only interlaced roots thicker than your thigh, holding back the earth of Tier 59 like fingers, dripping condensation into a fern garden that has no floor. The Keepers check it yearly and leave it alone, because live root holds better than dead pour.
+
+Higher still, where the rings narrow and the wind thins, the walls have never been cleaned. Iron plate rusted clean through, flaked into scales, and wind-blown dust lodged in the scale, and seeds lodged in the dust, so there are vertical gardens with no horizontal at all — mosses and stonecrop and tiny white daisies growing straight out of a wall, watered only by fog that the orange lichen at the crown glows faintly to drink.
+
+That lichen is the summit creature. At the very top, where houses stop and only tanks and radio masts remain, everything is furred in it. Faintly orange, faintly luminous just before dawn, it has no roots. It drinks fog. The technicians who climb to service the masts scrape it off antennas and cultivate it on their own hats for luck.
+
+### The Others
+
+The animals are city animals. Not visitors. Residents.
+
+**The air:** Finches first. Thousands. Little brown jobs that have no fear of people because people are cliffs to them. They nest by the hundred in the hollow arms of decommissioned semaphore signals, in the C-profiles of I-beams under Tier 43's overhang. At dusk they move as one nervous sheet between laundry lines and power lines and vine lines, and the Stair briefly has weather made of birds. Above them, the swifts — soot-black, screaming — who build perfect mud tubes along the underside of every beam, never touching ground. And above them, riding the thermal that the warm stone throws up all day, the hawks. Not true hawks. Copper-feathered, broad, with a tail fanned like sheet metal and a cry that sounds exactly like a girder cooling too fast. They eat finch, they eat lizard, they sometimes take a feral cat kitten and the whole tier knows by the cats' wailing that night.
+
+**The walls:** Expansion joints an inch wide run for kilometers, and in them live the translucent-bellied joint lizards, flat as a thumb, pale pink through the belly so you see their heart. They eat mosquitoes. Moths that eat paint — their wings are the exact flecked grey of basalt-concrete, their caterpillars leave pale trails on enameled steel. You only see the moths when they move. Isopods and millipedes the length of you thumb churn leaf litter in drainage cuts, making soil out of leaves faster than the compost crews can.
+
+**The water:** In every cistern, in every sag-roofed cooling basin on Tier 73 where the old rolling mill sits drowned under bougainvillea, live the carp. Fat, orange, white, speckled. Introduced a hundred years ago to eat larvae. Now untouchable. Children feed them crumbs and name the big ones. An old man will sit for an hour watching his cistern's carp circle, because if they gulp at the surface, rain is coming. The carp are sacred not because anyone decreed it, but because without them the mosquitoes would make the Stair unlivable. Sacred as maintenance is sacred.
+
+And the cats. Lean, high-altitude feral cats, brindled grey and sun-faded orange, with pads tough as tire rubber. They do not belong to anyone and belong to everyone. They walk the high conduits and freight chains with contempt for gravity. They keep the rats down. Rats came with the first construction crews and never left, living in the warm hollows around furnaces, chewing insulation. Without cats, the rats would eat the grain. Without rats, the hawks would have left. Every terrace has at least one cat it pretends not to feed.
+
+At night, when the freight lifts keep clanking upward and downward at walking speed — bales of taro root moving up, ingots moving down, never stopping — you can stand on Tier 42 and feel all of it as one system. Below you, a child coughs, a pump kicks, finches settle. At your feet, carp break the cistern surface. On the wall beside you, lizards blink. Above, hawks have roosted. The stamping press goes thump... thump... thump... without variation, and the fig roots on 58 tighten infinitesimally around their earth.
+
+No one here remembers a mountain. They remember a promise that if you maintain the catch and tend the fur and keep the joints clear, the Stair will keep drinking its own dawn sweat and feeding you back.
+
+They are right. So far.

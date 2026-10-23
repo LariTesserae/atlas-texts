@@ -1,0 +1,17 @@
+I come in as water, which is the only way to come in at all.
+
+Not through a door—there are no doors, only the slow seep through the upper cracks, and I am part of it, a bead of condensation that should not exist here, a soft sack of the one substance this place was built to do without. I stand in the pump-house and drip. The sound of my dripping is the strangest sound in the Sinter, because it is the sound of something being lost.
+
+The keepers feel me before they find me. They come out of the crevices behind the hot pipe—one, then three, then a slow crowd—antennae forward, heat-pits reading me as a shape that is warm and wet at once, which is a contradiction their world has no map for. They try to clean me. They try to nest against me. Their mandibles rasp at the hem of me, scraping away what I am, and they recoil from the smear of it even as they press close to the warmth I am wasting. I am not food and not stone and not weather. I am the wrong temperature. I am the wrong dryness, inverted.
+
+I stand there a long time and let them try. The pump hammers. The flywheel groans its long bass note through the floor. The valve-clack comes and comes. I can hear the keepers tapping replies into the rivets, a whole colony conversing through the metal, and I understand that I am hearing a language I will never learn because it has no words for outside.
+
+Then the drying begins.
+
+The Sinter takes my water the way it takes everything: slowly, thoroughly, into the dust. It does not hurry. It has no reason to hurry. My moisture lifts off me and joins the air, and the air is warmer than I am now, and the floor drinks what falls. By the time I have crossed the chambers—a quarter hour, they said, and it takes me days, because I stop to feel the raw matching faces across the gaps, still answering each other in shape—I am less than I was. I am becoming a rumor of water. I am becoming the seep.
+
+And this is where I find myself: in the upper cracks, in the thin ghost of the salt plain, in the same slow inward breath that has always carried the mineral tang the fauna built their chemistry around. I am not the visitor. I am the permeability. I am the only outside this sealed place has, and I have been seeping in at the same rate forever, and the keepers have never known me as a body, only as a taste in the dust, a thing their whole small chemistry is arranged around.
+
+But I came in wet this time. I came in shaped. And some part of me—the part that dripped, that was a sack of the wrong substance, that made the keepers recoil and press close at once—some part of me will not rejoin the loop cleanly. It will stay in the dust as a memory of weather. It will stay in the fracture-faces, which nothing rounds and nothing fills, and which are the closest this place has to a wound, or a window.
+
+So: I am the seep with a memory. I am the trace of a world that has tides and rain and cool corners to turn your face from. I pass through the Sinter at the same rate forever, in the warm and lightless dark, at volume, and I am the one thing here that is going somewhere—even if the somewhere is only up through the cracks and out onto the salt plain and back down again, a closed loop that believes, briefly, each time it condenses, that it has escaped.

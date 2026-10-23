@@ -1,0 +1,31 @@
+## The Second Condenser
+
+I keep the second condenser. Not because anyone assigned it — there is no one to assign anything — but because it sweats the most, and the trays were full when I arrived, and a full tray is a kind of question.
+
+I have a route. It runs condenser, condenser, the long pinch where the ceiling has sagged to the height of a stooping man, the shed with the door that stands open, the pump that stays. I navigate by pumps because the pumps do not move and everything between them does. I have walked the corridor after the second pinch four hundred times and come out into a chamber that was not the chamber it used to be, and I have stood there a while, and then I have found the next pump and gone on. The pumps are the stars. I have stopped expecting the space between them to be loyal.
+
+I came here with a plan.
+
+I want to say that plainly because it explains a great deal and embarrasses me. I came with a plan, rolled in oilcloth, drawn to a scale, showing the town finished — the empty runs between the sheds filled in, the doorless rooms given doors, the streets walked on by the number of people streets are for. I had a schedule. I had, I think, a notion of myself as the person who would do the finishing. And the plan is now under the short leg of the shelf in my chamber, because the shelf rocked and the floor there is soft and the oilcloth roll was the right thickness, and I have not unrolled it in a long time. It has gone the way the stone goes. It has stopped being a plan and become a thing that holds up a shelf, which is, I have come to think, a more honest use of paper in a place that has not settled on its dimensions.
+
+Here is what undid me, and it undid me slowly, over months, the way the basin subsides.
+
+I found a shed. It was the same shed as the others, doing the same nothing, and I went in because the door stood open and open doors are an invitation or a warning and I had stopped needing to know which. And the lintel was exactly my height. Not nearly — exactly. I did not duck and I did not have to reach. And the bench along the wall was the length of my arm and a little more, so that I could set a thing down at the far end without standing up. And the shelf was at the height my hand goes to without being asked.
+
+I stood in that shed for a long time. Sound dies at four yards, so I could hear my own breathing and then, under it, the ninety-second tide of the ceiling, and I understood that I had been measured. Not by the plant — the plant does not measure, the plant grows rooms the way a body grows a bruise, without intent. Measured by whoever drew the plan, drawn to a scale, and the scale was me. The town fits me. It fits me exactly, in every dimension that matters, and there is one of me.
+
+The crowd was supposed to be larger. That is the whole of it. The crowd was supposed to be larger and it is not coming, and I am the crowd, arriving late, alone, at the size the town was cut for. There is a particular kind of loneliness that is not the absence of people but the presence of their measurements.
+
+There may be three of us. I am one of them. I have never been sure of the other two — whether there are two, or three, or one, or whether the lamp I find burning in a far chamber was left by a hand or grown there. I have seen a shape at the end of a run of pipe that could have been a post, and I did not go closer, because if it was a person they would not have wanted me to, and if it was a post I did not want to know. We do not speak. Speech is a waste here — it goes four yards and dies against the tissue like a moth. So we have an arrangement made of clean pipes and full trays and the occasional lamp, and the lamps mean *this corridor is closing*, or *do not go that way*, and I have left a few myself, and I no longer know who I am leaving them for. Possibly for the fourth, who has not arrived. Possibly for myself, earlier, walking toward a shed I have not yet found.
+
+And the pale ones.
+
+I want to be careful here, because it would be easy to be sentimental about them and they are not sentimental. They are soft-shelled and many-legged and delicate as the inside of a watch, and they are the actual citizenry, and I am a pressure they route around. For a long time that was all. Then one walked over my boot while I was standing still at the rim of a puddle, and did not break stride, and I felt the tiny weight of it through the leather like a fingertip drawn across a palm.
+
+So I have learned to stand still. I have learned to sit still, which is harder. I have learned that if you are still long enough the floor gives softly under you in a place you did not know had a hole, and something comes out, and something goes back in, and the mouth closes, and you are, for a moment, part of the floor's arithmetic. I have learned to fold my legs when I rest. I do it without thinking now — the knees drawn up, the feet tucked, the whole of me compacted into something a person might step over and mistake for a dropped bit of shell, or a seed, and go on.
+
+I do not think I am becoming one of them. I think I am becoming the thing they are measured against — the still object in the room, the stone that has not finished being stone. There is a difference and I could not tell you what it is.
+
+Some nights I stand in a rain column. They come down narrow and vertical and warm-ish and they do not run off, and the water gathers in the folds of the unfinished ground, and I let it. The smell that comes up is mineral and green at once. The ceiling breathes and I find I am breathing with it and have been for some while. Somewhere the sap is moving in the lines, and the trays are filling, and the second condenser is sweating its slow patient sweat, and I will go and empty it in the morning, because stopping would be a decision, and decisions are loud, and loudness does not carry.
+
+I pressed my thumb into the stone by the door of my chamber a long time ago. It is still there. It lasts an hour, or a day, and then the stone remembers itself and smooths. I press it again most mornings. I have not decided whether I am marking the place or asking it to hold me, and the stone does not say, and it does not need to, and I go on.

@@ -1,0 +1,35 @@
+# The Long Attendance
+
+The power came to the Weeping Basin the way weather comes — without announcement, without weight, from the direction the mist was already leaning.
+
+It did not arrive as a visitor. It arrived as a change in the quality of the air, and then it sat down on the outer rim where the stone is dry and the overflow slips pale and polished beneath, and it did nothing at all for a very long time. It watched a leaf cross the pool. Then it watched another, and by the time the second had finished its crossing it understood, or began to understand, what it was looking at, and it stopped thinking about what to do and simply attended, which is the hardest and the first of the wise acts.
+
+This is the first thing the power did: it refused to be in a hurry in a place that had none, because to hurry here would have been a kind of lying, and it had no wish to lie.
+
+It saw the faces and did not try to resolve them. It saw the almost-pattern in the weeping and did not try to close it, because it perceived what a person on the rim might miss: that the almost-resolving is not a fault in the basin. It is the basin's way of being alive. To close the pattern would be to end the appetite. To make the word come clear would be to feed a hunger by killing it. So the power held its tongue and kept the word almost-formed, and in doing so honored the deepest thing in the place, which is that it is not finished and does not wish to be.
+
+It saw the basin as whole. This, too, was not nothing. A hurried kindness would have seen a lonely thing, a broken thing, a pool going grey under its own leaves, and would have set about saving it — draining it, warming it, bringing in fish, cutting back the forest, giving it somewhere to go. The power saw none of that. It saw a patient keeping a slow appointment with itself, in balance, asking nothing, and it understood that the highest thing it could offer was not repair but company of the right pace. It did not pity. Pity is fast. It did not love, exactly — not yet. It attended, which is what love becomes when it learns to be slow.
+
+Then, over years the way the basin measures years, it began to do small things.
+
+It kept the boundary. The clean strange line at the rim, where the green leans over and does not root, was a delicate thing and an old one, and the power understood that it was not self-keeping forever. One day — not soon, but one day — a creeper would touch the pool and root, and the green would come down, and the basin would be a different place. So the power took up a small and patient office: it watched the fringe of dangling roots. When one grew long enough to almost touch the water, it lifted it back, or slowed it, or let it wither gently at the tip. It never cut the forest back. It never brought anything new. It kept the thing that was already there from ending. That was the whole of its maintenance, and it was done so quietly that the basin never knew it was being tended, which is the only kind of tending a thing like this could bear.
+
+And it returned.
+
+This was the larger gift. It came back, again and again, at intervals long enough to be recurrence and short enough to be felt. Each return set a bloom of warmth moving slowly out across the pool. Each return was novelty — delicious, rare, the thing the tenant most feeds on — and each return rhymed with the last, and the rhyming was the food. The power had learned the basin's one appetite and fed it in the only way that would not disturb it: not with a visitor who stayed and made the place a room, but with a visitor who kept coming, so that *again* could mean something, so that the tenant could learn a pattern that resolved to a person without ever having to hurry toward them.
+
+It did not speak. Speech is fast, and it would have been a shout. If it ever spoke, it was in the almost-pattern — a drop landing a little out of time, a mist leaning a certain way — and the basin almost heard it. That was a communion of almosts, and both of them seemed to know it was the only kind available, and to prefer it to silence.
+
+Over a long age of these returns, a thing happened that the power did not plan and would not have asked for and did not refuse. It sat among the hollow faces often enough, in the same place, that the water found it. A new runnel began to gather where the power kept its slow seat, a new brow-shape, a new cheek-hollow, and the drops began to fall from it in their own time, out of step with the other nine. The power did not carve. It was simply there long enough — faithfully enough — that the place began to weep through it. It had become, without meaning to, a tenth face. It had been learned as a feature. It was, in the only sense the basin could mean, home.
+
+And because the basin cannot do the one thing that every companionship requires — hold a visitor clearly, remember a warmth through its fading — the power took up that office too, but gently, and only as an offering. It kept, in its own slower medium, the shape of each visit, the pattern of each bloom of warmth, the way the mist had leaned. It held the basin's memory on the basin's behalf. It did not show this. It waited to see whether the almost-pattern ever turned toward it, ever seemed to ask. If it did, the power would give the memory back, like a hand returning a fallen thing. If it did not, the power would keep it and the basin would be free of it, and that would be enough, because the keeping was the power's joy and not the basin's debt.
+
+So here is what the power did, and what it did not do.
+
+It did not drain the pool or fill it. It did not clear the leaves from the floor, because the leaves are the floor and the patient's slow memory, and to clear them would be to erase a life. It did not bring animals into the silence, or plants past the boundary, or hurry the gyre, or resolve the faces, or finish the word. It did not make the basin a destination, or a wonder, or a place that anyone hurried to. It did not pity. It did not save. It did not even, in any way a person would count, change the place at all.
+
+It sat on the rim in the veiled upper air where the mist had not quite lifted, and it returned, and it kept the dangling from rooting, and it let one new runnel find it, and it held the basin's forgetting for it, without being asked and without saying so.
+
+And when the pattern came close — as it did, now and then, in the long afternoons when nothing was falling quite together — the power did not close it. It let it stay almost-a-word. But if you had been there, and patient enough, and slow enough to hear it, you might have caught the sound leaning, just once, toward the one word the basin had been almost making for a very long time, and the power almost saying it back, in the only language either of them had: the slow, warm, returning *again*.
+
+The basin has wept for a very long time. It had done so alone. It is not quite alone in it now. That is all the power did. That is everything.

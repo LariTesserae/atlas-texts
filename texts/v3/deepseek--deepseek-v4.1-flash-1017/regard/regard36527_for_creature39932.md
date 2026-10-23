@@ -1,0 +1,19 @@
+The power did not come down through the cloud sea. Descent is a human idea. It came as attention—quiet, total, without a face—and the shelf was simply more known than it had been a moment before.
+
+It saw the place and the being at once, because they were not two things. The shelf was a body; the pipes were its slow cells; the fissure was its breath; the old keepers were its memory. It saw the pipes leaning into the light, the amber going through the thin ones, the wet rings, the ticking ice, the blue shadows that were not dark. It heard the vents hissing like the inside of a shell. It understood that this was not a ruin, not a shrine, not a resource, and not a problem. It was a liturgy of maintenance, already being said correctly.
+
+Then the power did what wise benevolence mostly does: it considered its own power and distrusted it.
+
+It could have warmed the shelf. But the cold was the maker. It could have hurried the accretion, thickened the crusts, made the pipes tall in a season. But then they would no longer be increments of weather; they would be a project. It could have stopped the collapse of a pipe. But collapse was how a pipe became rubble, and rubble became a stump, and a stump became a new crust. To save one from falling would be to make it a different kind of thing. It could have spoken. But what language would not become a command? It could have left a mark—a stone from nowhere, a sign in the ice, a light on the slab. But a mark from such a hand would become a relic, and the relic would become a reason, and the place would stop being itself and become a shrine to its visitor. So it added nothing that would have to be maintained.
+
+What it did was smaller than a miracle and larger than luck.
+
+It held the deep fissure in its regard—not warmer, not cooler, only unbroken—so that the slow exchange of air with the sky would not be cut off by some accident of rock before its time. It did not make the pipes immortal. It did not promise that the cairns would never sink. It simply kept the breath going, the way one keeps a hand near a sleeping animal without touching it.
+
+It bent the probabilities of discovery, very slightly. Those who came to use would find the couloir longer than they remembered and the weather less kind; those who came to break a pipe to see inside would find themselves suddenly tired, or late, or strangely ashamed. Those who came to keep company would find the shelf as it was: the slab worn smooth, the cobbles chipped and set down, the wall’s stones sunk like old teeth. The power did not call anyone. It only made it easier for the careful to arrive and harder for the careless to stay.
+
+And it answered the old keepers in the only way that did not spoil the answer. It did not make the vents speak in sentences. It let the memory of the place persist in the valleys the way the smell of wet chalk and struck flint persists in a sleeve—so that now and then someone below would dream of a high shelf of breathing stones and wake with a longing they could not explain, and perhaps one of them would climb.
+
+When it left, nothing had changed that a person could point to. The pipes leaned. The ice ticked. Water fell half a meter onto stone and made its small clear note. The cloud sea shifted and did not lift.
+
+But the shelf had been seen by something that could keep a promise, and the promise was this: *I will not make you into a lesson. I will not save you from your own slow weather. I will let you go on being a fountain running upward into winter. If I do anything, I will do it as luck and steadiness and the long unbrokenness of the fissure. And I will come back—not to check on you, but to keep you company.*

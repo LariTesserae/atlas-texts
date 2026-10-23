@@ -1,0 +1,37 @@
+It is not a mountain. It is a bite taken out of one.
+
+High on the eastern face, where the real summit is still another white bulk above you lost in cloud, there is a notch — no wider than a village chapel would be, no deeper than a courtyard — cut clean into the black rock as if the mountain was struck while it was still soft. The walls rise sheer on three sides, twenty, thirty meters of raw, unweathered stone. This is young rock. It has not learned to be smooth. Every surface is still the fracture: sharp arrises, step-faulted ledges, glassy faces where it sheared, teeth and flutes and knife-edges that will still draw blood if you press a palm to them. Nothing has rounded it yet. The wind hasn't had time.
+
+That is what makes the bowl possible. It has only just opened, and the air inside it is different.
+
+Outside, the ridge is dry, scoured, killing-cold and thin, but in here you are out of the jet. The cold pools and stays. It is a cool cold, not the high death-cold above — a late-October cold, a cellar cold, breath-visible but not yet biting into bone. You can stay here without burning. And because the walls trap what the wind outside throws away, the place is damp.
+
+Not wet. There is no lake, no stream that goes anywhere. The water here is intermittent, borrowed, held for a little while. In the morning — though morning is a dimming rather than a lightening — condensation beads on every sharp face and runs in dark trickles to gather in shallow pans where the rock folded. Small potholes no bigger than a cupped hand, or a basin big enough to lie down in but only a finger deep. Yesterday's rain still sits in them, dark and still. Lichen holds the rest. Sparse, stubborn vegetation clings wherever a crack has kept a little grit: not forests, not meadows, but crusts. Black-green lichen like spilled paint, cushions of moss so tight and low they look like felt nailed to the stone, a few starved alpine saxifrages with waxy leaves turned in on themselves, holding dew in their throats. Most of the bowl is just wet stone.
+
+It is dark. This high up there should be more light, the sun brutal and close, but the bowl sits in the mountain's own shadow and under a low lid of cloud that never quite clears the ridge. Light gets in as a uniform dusk, a deep blue evening without a source. The rock walls are dark amethyst-grey in it, the pools are mirrors that reflect nothing, and after a few minutes your eyes stop trying to find the sun and adjust to a different spectrum: the faint phosphor of lichen rims, the wet sheen on wings overhead, the pale undersides of things that move.
+
+Because the bowl is full.
+
+At first you think the walls are textured. Then the texture moves. Then you understand it is not texture at all but a dense, layered mass of bodies, near-touching, overlapping, breathing together.
+
+Fauna — but not fauna as in animals scattered across a landscape. Fauna as climate. The entire interior surface is occupied. Thousands of them. Tens of thousands in a space the size of a hamlet green.
+
+They are not large. Each one alone would be small enough to hold in your two hands: hollow-boned, six-limbed climbers with broad, translucent patagia stretched between forelimb and hindlimb like a flying squirrel's, but veined and damp as a bat's. Their bodies are the color of wet slate, their bellies pale as condensation. Their heads are blunt, eyeless-or-all-eye — huge, lidless, light-drinking eyes that bulge like droplets. They cling to the sheer walls with hooked feet and finger-claws, shoulder-to-shoulder, layer over layer, the upper ones hanging from the lower ones' backs, a living shingle on the rock. In the lower basin they crowd around the pools, lapping, soaking their wing-membranes.
+
+And it is loud. In darkness you expect hush, but the bowl roars softly and constantly with them. Not calls, not songs — respiration and friction. The susurrus of ten thousand damp wings shifting against stone and each other, a dry-leaf rustle the size of a building. The clicking of claws resettling. The faint, high, continuous piping they make to navigate in the dark — not one voice but a chorus so dense it becomes a tone, a struck crystal bowl that never decays, bouncing off three sharp walls and thickening the air. When one moves, a ripple moves with it, click-chorus-shiver, and dies slowly.
+
+This is not a colony that built this. There are no nests, no hives, no guano-stained architecture, though the rock is stained. No walls, no dams, no woven shelters. That is the rule of this place: nothing is built to last. Whatever shelter exists is the rock itself, given.
+
+And yet there is work. There is tool.
+
+Watch a larger one — an older one, its back crusted with lichen-growth — pick its way down to a rain-pan. It does not drink at once. It turns, selects. Among the scree at the pan's edge are pebbles, sharp young chips fallen from the walls above. The creature takes one in its mouth-hands, tests it, discards it, takes another. Then with astonishing, patient care it begins to tap. Not hammering. Tapping the surface of the pool where a thin skin of ice has formed in the cool. Tap. Tap. Tap in a slow circle. The ice ticks, stars, and opens. The creature drops the stone. It drinks. Around it, others wait and then do the same — or borrow the same hole, pushing their muzzles into the dark water. Some use splinters of frost-shattered rock to scrape lichen from the walls, holding the scraper in both forelimbs and drawing it toward their chests like a plane.
+
+Primitive is not stupid. It is hand-tool, stone-flake, found-object, single-use. No forging, no storing, no making. A stone is used and dropped. A splinter is scraped dull and left in a crack. The floor of the bowl under the shallow water is littered with them: thousands of tiny, minimally flaked hammer-stones, each used once by something with no concept of ownership, only of need. The only technology here is gesture, repeated.
+
+The strange part is not the tools. The strange part is how the place hangs together.
+
+At extreme elevation, life should be thin, scattered, starved for heat. Here it is saturated, compressed, as if some rule about population and volume was folded. They breathe slowly — you can see the whole wall pulse with it, a slow dynamic, a breath every long, long moment that stirs the condensation mist and then settles. Change here is glacial, patient. The moss grows a millimeter a season. The pools evaporate and refill and evaporate without going anywhere. The ice is broken and refreezes. The young rock has not yet eroded, and will not for a thousand years, and the creatures will not leave, because where else would such a convergence of shelter and damp occur in this high, dry, dark?
+
+If you stand still too long in the cool, the piping chorus shifts to include you, briefly, as an obstacle. A few eyes turn. The dense mass adjusts a handspan to give you space that is not really space, just a different density of bodies. The condensing air beads on your shoulders, runs down your neck like the rock. The smell is stone-water and warm skin and lichen-metal.
+
+You understand, after a little while, that you are not in a habitat on a mountain. You are in a pocket where the mountain decided, briefly, to keep something alive, and it kept too much of it at once, in the dark, in exquisite, loud, slow crowding, with nothing made and everything held.

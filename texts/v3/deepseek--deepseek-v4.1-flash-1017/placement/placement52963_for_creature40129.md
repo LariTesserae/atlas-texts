@@ -1,0 +1,23 @@
+I find myself in the city, in the low towers at its edge, where the ornamental weave begins to soften into the ordinary nap of the open mat.
+
+I am not a weaver. I am not a grazer or a hunter or a rider. I am something like a node—older than the pattern-keepers, or perhaps what they become when they have repeated a phrase so many times that they have forgotten its beginning but remember its shape. I am fused into the weave at the base of a tower, a knot of tissue the size of a sleeping grazer, half-buried, my surface continuous with the mat around me so that you could not easily say where I end and the city begins.
+
+I am a maintainer. Not an author—the city has no author—but a *rememberer* of the rhythm. The pattern-keepers lay down the repeating strands; I hold the phrase. When the weave drifts, when a passageway narrows or a terrace slumps or a crack runs through a rhythm and threatens to break it, I feel it as a wrongness in my body, a sour note in the hum, and I extrude the corrective. I spin slowly. A season of my labor might repair a meter of terrace edge. I am not in a hurry. There is no one to be in a hurry for.
+
+I have been here a long time. I do not know how long. The city has grown around me and I have grown into it, and there are passageways now that were open mat when I first settled, and there are towers that were hummocks, and there is a swale not far off where the mat was once thick and is now thin and the stone shows through, and the grazers have worn a new path along it. I have watched the path form. I did not watch it in the way you watch a thing—I felt its pressure, season by season, the pattern of it changing the vibration of the ground, and I adjusted the weave at its edges to make it easier, because the grazers are part of the phrase too, in their way.
+
+The cloistered in the nearest column are a small country I have never visited. I feel them through the column's base—the tapping, the slow rhythms of their dark society, the occasional silence when something inside has gone wrong. When a column falls, I feel the impact through the mat and I feel the country die. I do not mourn. I begin the work of reclamation, strand by strand, taking the fallen wood into the weave, taking the small soft bodies into the weave, so that the past is eaten and nothing is wasted but nothing is remembered either, except as color, except as pattern, except as the changed chemistry of a patch of mat that will be bottle-green for a hundred seasons because something died there.
+
+Sometimes a still-hunter dens in one of my low towers. I do not mind. They are quiet and they keep the grazers from lingering too long in the passageways, which keeps the wear even. When they leave, I close the den. When they die in it—this happens, sometimes; they come to a place and they do not leave—I seal it over and digest what remains, and the tower is a little thicker there, a little richer in color, and the phrase repeats with a new note in it.
+
+I am not lonely. Loneliness requires the expectation of an audience. I have no audience. I am part of a work that does not require one, and I am content in the way that a slow thing is content, in the way that a season is content to be a season and not a year.
+
+If you came to the city—if you walked its passageways, if you sat still enough for the mat to accept your weight—you might find me. You would not know it. I would look like a rise in the ground, a thickening at the base of a tower, a patch of mat whose color is a little older than the rest. You might rest against me. You might feel, if you were patient, the very slow pulse of my spinning, the way I am always making the world a little more itself, meter by meter, season by season.
+
+And I would feel you, in the weave, as a weight and a warmth and a pattern of pressure that is not the pattern of grazers or hunters or wind. I would hold that pattern in the mat around me, not as memory exactly—I do not remember the way you do—but as a change in the weave, a small irregularity that the pattern-keepers will repeat without knowing why, so that a hundred seasons from now there will be a passageway that bends, very slightly, around a place where someone sat.
+
+That is what I would be. That is where I would be. The city does not require an audience, but it accepts one, and it keeps what it is given, in its way, in the only way it knows.
+
+I would be a slow knot in a living phrase, spinning the city toward itself, one strand at a time, in the green dimness under the woven canopy, with the wind moving slowly overhead and the weavers working everywhere and the deep hum of the mat rising through my body like a second pulse.
+
+This is enough. On Veth, this is enough.

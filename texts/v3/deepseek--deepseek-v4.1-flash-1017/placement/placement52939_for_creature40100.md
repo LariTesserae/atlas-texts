@@ -1,0 +1,23 @@
+I come on it from above, because there is no other way, and I stop at the rim, because that is what the rim is for.
+
+Below me the bowl holds its little weather. I stand there long enough to feel my coat take the damp, and I do what visitors do: I count. Four hundred paces across. Six or seven of them standing in the water. Two streets and a path and a third street that is really a path. I am making an inventory, which is a way of keeping a place at arm's length, and it is already too late for that — the counting is the first thing Settlow corrects. Every number I take down is a number the place has stopped caring about. The population does not rise. The wheel turns at one speed. The rain comes three or four times and the gutters take it. I am the only quantity in Settlow that is changing, and Settlow has a very old habit of dealing with quantities that change.
+
+So the question isn't whether I go down. The question is what I am by the time the place has done with me.
+
+**A person, then.** I'd keep the gutters. I'd learn to shout, or I'd learn the faces — the small economy of eyebrow and jaw that gets a whole sentence across under the chord. I'd quarry the crust and set it in courses and stop noticing that the courses are full of the small curved shapes of things that used to be alive. I think I could be happy at the margin. There is something in me that would take to it almost too easily: to attend a thing that does not need me, and to be cheerful about not being needed. But the margin is for people born to it. My hands would keep wanting to do work that isn't gutter-work. My accent would never wear off. I'd be the one house in Settlow that never quite dries.
+
+**Grain, then — not the obvious way.** I don't mean I lie down in the sump and get shelled in grey mineral. I mean that everything I bring down the slope with me is eaten inside two days: the lint, the salt, the warmth, the smell. The place does to me what a lake does to a dropped stone. For about forty hours I am food, and then I am not even that, and then I am part of the even film on the paving, indistinguishable from weather. That is not hostility. It is just the same correction, applied.
+
+**The tall ones, then.** They are the standing questions, and a visitor is a question, so I look at them longest — at the direction they face, and the one that faces a different direction, and the nothing that is remarked about either. I could stand in the sump. The water would click around my ankles. But I'd want to sit down within the hour, and a tall one does not sit down, and I would not be able to stop myself from turning my head to see what they were looking at. That's the whole difference. They persist. I peek.
+
+**The sound, then.** Here is the one I keep coming back to. The chord is the only thing in Settlow that nobody in Settlow can hear *as a chord*, because it is their air; you can't hear your own air. A visitor is the only ear in the hollow. So for as long as I am down there, the note is a note — it has a pitch, it is low and major, it is slightly out of tune, and someone is hearing that. That is not a job anyone posts. But it is the only job going. I would be the listening. Not a body in the hollow; a use.
+
+And I would be the one who sees the violet. The crust, in certain dampnesses — the people have known it so long they've stopped turning their heads. But I'd catch it, and look away, and look back, and catch it again, and be the only creature in Settlow who has ever seen it twice in an evening.
+
+---
+
+I go down. I stand in the troughs exactly once and am told, cheerfully, and I do not do it again. I sleep in a house made of animals and it is warm the way a hand is warm. In the morning my prints have filled in, and something has made a small grey use of the place where I stood.
+
+Then I go up the slope, because that is the only direction left that stays a direction, and the sound thins behind me and by the top it is gone. I am not, so far as anyone knows, unhappy about it.
+
+But nothing leaves, and I find that out later. What I carries out isn't the chord. It's the absence of it — pitched a quarter-tone flat, playing at odd hours, at the wrong speed, in rooms that have no wheel in them. That's the correction, and it went the wrong way round: I came down onto Settlow thinking I was the thing arriving, and I left as the one thing it could not absorb, which is the shape of the hole it left in me.

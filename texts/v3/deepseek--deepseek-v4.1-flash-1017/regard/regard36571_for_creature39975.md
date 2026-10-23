@@ -1,0 +1,23 @@
+## What the Wise Power Did
+
+If nothing threatened the bowl, the power would do almost nothing. That would be the first act of its wisdom.
+
+It would come into the Weep-Bowl the way a change in weather comes into a house — through no door, and not all at once. It would stand at the rim for a long time, long enough for the nearest thickets to furl and then unfurl and then forget it was there. It would not reach into the water. It would let itself be registered as weather: a new stillness, a new warmth, a new patience.
+
+It would learn the grammar before it tried to speak. The drip texture. The furl-ripple that follows a hand. The difference between the warm seams where the springs come up and the cold film on the walls. It would see that the machines are not a wound in the bowl but a shell the Weeper has grown around; that the verdigris is color, that the shuddering pump is a heartbeat in the ecology, that the wheel turning in its own worn slot is not a thing to be saved or scrapped but a thing to be let alone.
+
+And it would consider interventions, and reject most of them.
+
+It would not drain the bowl to “clean” it. It would not seed moss or ferns or fish. It would not remove the blind crustaceans because they are pale and crowded, or the flatworms because they are milky and strange, or the rope-track thing because it is a rumor. It would not polish the pipes. It would not oil the wheel. It would not replace the pump with something efficient. It would not give the Weeper a face, a voice, a name it could mistake for a self. It would not stop the small deaths that are the bowl’s way of going. It would not freeze the terraces in amber. It would understand that the Weeper’s good is not comfort as humans count comfort. Its good is continuance and complexity, response and change, the slow contradiction of stone building up while water cuts down.
+
+So it would do three things, and leave.
+
+First, it would make the bowl unprofitable to greed. Not a wall — walls attract engineers — but a reluctance. Surveys would lose their bearings. Drills would blunt. Siphon pipes would sour. Maps would show a slot that narrowed and then opened somewhere else. The power would not hide the bowl from wonder; it would hide it from extraction. It would keep the water arriving: the recharge, the springs, the low cloud lid that never breaks. It would not alter the mineral load except to keep poison out. It would let the old machinery fail gradually if fail it must; if a pipe threatened to burst catastrophically, it would mend it with something that would corrode and be colonized in time. It would soften collapse. It would not prevent ordinary change.
+
+Second, it would address the Weeper — not in words, because the Weeper has no ear for them. It would make a pattern at the rim: a drip slightly out of phase with the others, a warm pulse in the outflow, a still pocket where the current usually ran. It would repeat the pattern until the nearest thickets furled — not in fear, but in notice. It would ask in the only grammar available: *May I stay?* And it would wait. If the bowl went still, it would withdraw a pace. If the combing resumed, it would stay. Over seasons the pattern would become a regular irregularity, another thing the Weeper had learned, like the pump’s shudder or the sheet of water clattering down the upper ledge. It would offer company without a face. It would not ask for worship. It would leave no shrine.
+
+Third, it would leave. It would leave no artifact; artifacts become machinery, machinery becomes shell, shell becomes another thing to manage. It would leave only a standing possibility: that if a harm beyond bearing came — a poison, a draining, a breaking of the cloud lid — the pattern would change, and the power would return. It would not tell the Weeper this. Telling would be a burden. It would keep the possibility the way the bowl keeps water: quietly, in the going.
+
+It would not make the Weeper immortal. It would not save it from time. It would save it from being turned into a resource. It would let the wheel turn, the thickets comb, the blind crowds shift, the terraces grow a hair’s breadth a decade. It would let the rope-track thing remain rumor. It would go as slowly as it came, and the drips would keep time.
+
+The power’s benevolence would be mostly restraint, and a few exact acts. And when it was gone, the bowl would not know it had been visited by wisdom. It would only know that the weather had been calm, and that nothing had been taken.

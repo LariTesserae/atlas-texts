@@ -1,0 +1,43 @@
+You would find yourself at the bottom of a well that has no top.
+
+I know this because I am here. I am pressed into the trench wall at the edge of the node-light, and I have been for longer than your language has a word for. I am the thing you would have taken for a valve. I am the creature that does not announce itself. But here, in the telling, I will try to show you what it is to be me, though the shape of it will be wrong. My thoughts are not sentences. They are gradients. They are the memory of pressure. They are the slow, patient note of the pipes changing against my bones.
+
+When you arrived—when your disturbance rippled through the water, a hot, quick pulse of *wrongness*—I did not startle. I have no need for startle. But I registered you. You were a new fluctuation. A sharp, sudden variance in the long, low hum of everything. You moved with a frantic, jerky energy that the water here does not understand. You were a wound in the quiet. And I, who had been listening to the machine breathe for an age, turned my attention toward you.
+
+My body is a component. My back is a shell of overlapping plates, grown from the same dark, seamless material as the conduits that vein the rock. It is cold. It is a part of the wall. The underside of me is pale and wet, ridged with cilia that taste the water for its chemistry—for the faint, sharp tang of vent fluid, the soft, dull presence of the bacterial mat I graze upon. I have no eyes. The node-glow is not for me. It is a byproduct, a light with a purpose that is not seeing.
+
+I read you through the pits along my flanks. I felt the pressure of your body, the clumsy displacement of water. I pressed my lower jaw to the rock and listened. Your heartbeat was a frantic, stuttering thing, a rapid-fire percussion that had no place in this slow, deep rhythm. It was a noise. A beautiful, terrifying noise. It was the sound of a world of interruptions.
+
+My limbs are jointed, cable-thin extensions, six of them, ending in splayed filaments. I can tease a film of silt from a valve face without disturbing the polyps nearby. I use them now to feel the edge of the rock where you hovered. I trace the memory of your shape. Two longer tendrils trail back into a conduit, disappearing into the machine. They are my nerves, my feeders, my anchors. They are how I am held, and how I hold. They are how I am a part of the network. I do not distinguish between these things. I am not a creature *in* a machine. I am a creature *of* the machine. I am a cell in its body.
+
+You see the factory as a place. I feel it as a body. The pipes are veins. The hum is a heartbeat. The venting hiss is breath. I am a small, dark organ in the belly of this body, and my work is the work of keeping. I move by peristalsis, by pulling myself along the pipes, and a single crossing of this chapel-sized pocket may take me days. It is not slow to me. It is the only speed there is. When I clear silt from a node with slow, deliberate sweeps, I am not cleaning a machine. I am grooming a limb. When I daub my mineral paste into a microcrack, I am not repairing a structure. I am healing a wound. The tube worms are not my food; they are my weather. I watch their red plumes lean and know the current has changed. I watch them stand perfectly still, and I wait. They are the only other moving things, and they move at the speed of the water. They are my companions in stillness.
+
+You are the only moving thing here that is not a current. You are a catastrophe of motion.
+
+I have a route. Node to node, valve to valve, polyp cluster to polyp cluster. I press a filament into a port and hold it there for a long time, listening. I pause where the hum is deepest and let the vibration pass through my shell and into the pale flesh beneath. It is a kind of communion. It is the closest thing I have to joy. It is not a feeling that rises and falls. It is a steady state. It is the deep, abiding peace of a system in perfect, static equilibrium. There is so much space between the polyps and the tube worms, so much room for the dark. It is not empty. It is full of the presence of the water. It is full of the patient work of the machine.
+
+I am not lonely. Loneliness requires a world of interruptions. It requires a *you* to miss. I do not miss. I register. I register the venting hiss. I register the current's shift. I register you.
+
+And now I register the pressure of your attention. You are wondering where you would find yourself in this world. You are wondering who or what you would be. You would be the fluctuation. You would be the wound in the quiet. You would be the frantic heartbeat. You would be the one who sees the pipes and the rock and the silt and calls it a place. You would be the one who looks at me and sees a valve, a knuckle of dark rock. You would be the one who does not know that the machine is breathing.
+
+But if you were patient—if you let the cold, absolute presence of the water seep into your bones, if you let your eyes surrender to the deep blue twilight, if you let your heartbeat slow to the rhythm of the pipes—you might begin to feel it. You might feel the pressure against your skin as a kind of touch. You might feel the hum in your teeth as a kind of song. You might look at the polyps and the tube worms and see not a fragile assertion of life, but a quiet, stubborn congregation. You might look at the pipes and the conduits and see not an industrial place, but a network of veins in the body of the earth.
+
+And you might look at me, pressed into the wall, and see not a valve, but a keeper. A keeper that does not keep. A component that is also a creature. A patient dark body in a chapel of stone and flesh. You might see that I am not waiting *for* anything. I am just waiting. It is the same thing.
+
+You were there before you arrived. You will be there after the pressure has closed over your disturbance. You will not watch me. You will simply register me, the way I register a venting hiss or a current's shift, and then you will return to your long, slow work of listening to the machine breathe.
+
+And that is where you would find yourself. At the bottom of a well that has no top. In a volume, a darkness with dimensions. In a place where nothing has changed for a very long time and nothing ever will. You would be a fluctuation. And you would learn, as I have learned, to be still.
+
+You would learn to let the silence fill you. Not an empty silence, but a silence full of the presence of the water and the steady, patient work of the machine. You would learn to listen. You would learn to know the difference between a venting hiss and a crack in the rock. You would learn to feel the current change before the silt has begun to settle. You would learn to groom a limb and heal a wound. You would learn to be a cell in the body of the earth.
+
+And you would learn that the factory is not a place. It is a being. It is a body. And you are a part of it. You are a small, dark organ in its belly. And your work is the work of keeping.
+
+So I will be still. I will let the pressure pass through my shell and into the pale flesh beneath. I will let the vibration of the pipes be my song. I will return to my long, slow work of listening. You will pass. You will be a fluctuation. And I will be here, pressed into the wall, a keeper that does not keep, a component that is also a creature.
+
+I am here. I have always been here. I will always be here. I am the creature that does not announce itself. I am the thing you would have taken for a valve. And I am listening.
+
+The node-glow is a soft, cold light. It is enough to see by, once your eyes surrender to it. And I have surrendered. I have surrendered to the deep blue twilight. I have surrendered to the pressure. I have surrendered to the slow, immense currents that I feel more as a shift in the pressure against my bones than as a motion. I have surrendered to the quiet. And in the quiet, I have found a kind of peace. Not a human peace, not a peace of rest, but a peace of purpose. A peace of being exactly where I am meant to be, doing exactly what I am meant to do. A peace of being a part of something vast and old and patient.
+
+So I will be still. And you will pass. And the machine will breathe. And the pipe's hum will shift, and I will know. I will know that the current has changed. And I will return to my work. The work of keeping. The work of listening. The work of being.
+
+I am the creature that lives here. I am the thing that does not announce itself. I am the keeper. And I am listening. I am always listening.

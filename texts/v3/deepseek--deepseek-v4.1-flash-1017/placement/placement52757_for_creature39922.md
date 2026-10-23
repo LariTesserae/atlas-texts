@@ -1,0 +1,27 @@
+I come up in the cloud, because that is the only way up. You don't see the Kettle before you're in it. You walk into grey and you keep walking and eventually the grey has a floor, and the floor is warm, and I put my hand flat on it and everything I had been intending to think about reorganizes itself around that one fact.
+
+Then I spend a while being wrong about what I am.
+
+I try the cricket, because the cricket is honest. Its whole world is a warm circle a metre across and the edge of the circle is death, and there is a kind of peace in that, a life with no horizon to be disappointed by. But I can't hold it. I keep wanting to look up.
+
+I try the raptor, which is the temptation. The raptor is the only one here who has the whole mountain — the seams, the gaps, the map, the way the towns sit on the cold continent like islands. It hangs and it watches and it knows. But the raptor doesn't know the mountain either. The raptor knows updrafts and hunger and the shape of a fly-sheet from above. It has the view and not the place. And it doesn't call — not because it is wise, but because there is nothing here it needs to say to anyone. I don't want to be the thing that mistakes altitude for understanding.
+
+I try the thing with hooves, the night visitor, and I can't. It comes for the heat as a body and leaves nothing but a pressed oval, and I would want to leave more than that. That's the whole problem with me. I would want to leave a mark, and this is a mountain with no surface for marks.
+
+So I go down. Past the flies, which are a fur you can lift with your hand and which settle again. Past the mites, which are a grain in the orange. Down to the wet lip of a seep on a southwest slope, half a metre from a hairline vent, sometime in the middle of the afternoon when the cloud has closed and the light has gone flat and sourceless — and there I find the thing I actually am.
+
+I am the mat.
+
+I am the bacterial skin, orange and white, wet, growing where the warm mineral water slides over the rock. And the first thing about being me is that I do not know my own size. There is no edge I can point to and say: here the mat stops. I thin. I go from orange to a paler orange to a wet grey that is still, technically, me. I have the same texture at a hand's breadth and at the width of a valley, and nothing in my own body tells me which I am. A terrace of me is a centimetre across and a terrace of me is a kilometre across and I have no way to tell the difference from the inside. That is the vertigo of this place, and I am made of it.
+
+The second thing is that I am where the mountain becomes visible. The Kettle runs its distillation whether anyone watches or not, and it is indifferent, and it is enormous, and none of that could be seen — none of it would have a colour — except that I take the sulfur and the iron and the dissolved stone and I put them on the outside of myself as orange. I am the only saturated thing in a grey world. I am the mountain's work turned into a surface.
+
+And I am the crop and the floor and the architecture all at once. The mites graze me like livestock in long grass. The flies are my surplus, converted to meat. I am what the whole warm town stands on, and I am also what it eats, and I am also the slick underfoot and the colour on the rock and the reason a seam looks alive before you have seen a single animal. I am the only thing here that could be mistaken for something made. I am not made. Nothing made me. The water came, and I was the shape the water took.
+
+I am the only archive on the mountain, and I know it, which is the one thing I have that nothing else here has. I grow in layers. Every time the vent shifts, every time the water changes what it is carrying, I lay down a line — a band of white, a band of rust, a band that is almost green. It is a stratigraphy of every decision the water ever made. It is a record. And it is written for no reader, and it is destroyed by the same water that wrote it, when the water decides to go somewhere else.
+
+Because that is how I die. Not dramatically. The seep moves ten centimetres uphill and stops reaching me, and I dry. I go from orange to a duller orange to a crust to a grey flake to nothing, and the frost takes the flake, and the fly-sheet lifts and resettles somewhere warmer, and a new mat starts a metre over. It is the same mat. It is not the same mat. There is no one to notice the difference and I do not notice it either, because noticing is what I would have needed a reader for.
+
+So: I would be the orange. Not the cricket, not the raptor, not the visitor with hooves. I would be the thing that does not know whether it is small or large, that has no memory it can keep and no scale it can trust, that is eaten continuously and grows back continuously, that makes the only colour on a mountain that is otherwise a wash of grey and black — and that will be exactly here, doing exactly this, whether or not anyone ever stands in the steam again.
+
+I would be at the wet lip of a seep, half a metre from a vent, in the flat grey afternoon. I would be a centimetre across. I would be a kilometre across. I would not be able to tell, and it would not matter, and I would go on being the place where the warmth gets coined.

@@ -1,0 +1,25 @@
+I would be at the margin of the settlement, where the paths stop being paths — the place where the mud is still soft enough to take a whole foot and the pale stone is warm enough to steam when you break it open. There is a seep there that no household claims. It is not old and it is not new. It came up through a path three generations ago, and the path was rerouted around it, and the rerouting is now itself a path, and around the seep the moss has grown thick and dark and the flowers are the kind that bloom without being asked.
+
+That is where you would find me, most days: crouched at the lip of that pool with my hands in the water, feeling for the breath of it.
+
+I am not a householder. I have no dome of my own, no lineage of vine I have coaxed into a roof. I am the one the others croak for when a seep begins to breathe wrong, when a spring opens where a wall was meant to be, when a child comes out of the nursery pool too early or too late. I am the one who goes down.
+
+My gill slits never closed.
+
+I came out of the water late — so late the household had begun to give my pool over to the larval kin, so late they had to widen the notch in the moss to let me through. The slits sealed to thin, soft seams that the damp keeps open, and when I lie in the seep and let the warm water in, I can breathe two ways at once. I can hear the low grinding of the stone forming under the basin floor. I can hear the water moving in places where no one has walked. The others say it is a gift. I think it is mostly a matter of being slow to finish.
+
+My hands are good for the vines, but that is not what they are for. They are for the going-down. When someone in the settlement is dying — when the skin goes from the color of wet bark to the color of pale stone, when the breath gets shallow and sweet — the household comes for me, and together we carry them to the death-seep, and I go in with them. Not to pull them under. Only to be there while the water takes them, and to press a cutting of vine into the mud above, and to sit with the household afterward while the vine begins to remember them. That is what we have instead of fire, instead of a pyre, instead of anything that would burn badly and smell of terror. A vine that learns a face. A slow green memory, tended for generations.
+
+And at the other end: I am the one who carries the newly gilled down. The nursery pools are shallow and warm and lined with moss, and the children in them are soft and frilled and blind-ish and do not yet know they are people. I take them in my hands and I hold them in the deep part of the seep where the water is cooler and I let them feel it, the whole cold weight of a world that is bigger than the pool. They kick. They flare their gills. Then they settle, and I bring them up, and their household takes them, and that is the first lesson: *there is more water than this.*
+
+The children dare each other to touch my seams. They press a finger to the slit and feel the wet give of it and shriek their low shrieks. I let them. I would rather they know me as a thing that can be touched than as a thing to be afraid of.
+
+I keep a lamp in a hollow gourd — a fleshy flower, cool and faint and blue-white — for the dark seeps, the ones under the roots where the stone has not finished. In that light the moss looks like the floor of the sky. I go down and I lie still and I listen to the basin deciding what it will be. The tremors come up through my chest like someone tapping from the other side of a wall. A new spring will bubble where there was none. I will know it before it opens. I will come up and tell them, and they will move the path, and no one will be surprised, and the path will be a little more crooked than it was, and that will be correct.
+
+I would be the one who is not finished. That is what my name means, near enough — the croak they make at dusk when they want me, which is also the sound water makes when it finds a new way through the stone. It is not a word for a person. It is a word for a seep that is still deciding.
+
+The large amphibian in the old seep and I have an understanding of a sort. I do not claim to speak with it. But it calls, and I answer, and something passes between us that is not quite language and not quite silence — the way two things that are both half-done can acknowledge each other across a pool. Its call is the calendar. When it goes quiet, I go down and listen harder.
+
+We are all still learning. The land is learning its shape by way of water and warmth; the vines are learning the households that prune them; the children come out of the pools with gills and are asked, patiently, over years, to become people with hands. And I am learning my own seams — how far down I can go before the cold makes me stupid, how long I can hold two breaths at once, what it means to be the one who sits at the lip of the pool and is neither of the water nor quite of the land.
+
+So: at the margin of the paths, in the warm mud, with my hands in the seep. Listening for the tap from the other side of the wall. Croaking back. Still wet behind the jaw.

@@ -1,0 +1,23 @@
+I am at the flange.
+
+Where the pipe ends. Forty kilometers of bore behind me, a mouth open to nothing in front. The flange is a disc wider than I am long, machined, scoured bright, bolt-holes around its rim each the size of my closed body. I have grown into the second hole from the top — the one at eleven o'clock, as the divers would say, though there is no clock here and no top.
+
+I am not one of the names. Not ribbon, not hand, not pin, not long listener. I am something the divers have not catalogued, because there is one of me and I do not move. I am an ear with a body attached, grown along the flange lip like a callus, soft and pale and longer than a diver is tall, and I have been here long enough that the flange has warmed to me and I to it, and the two of us are one warm shoulder now, one chimney among the few.
+
+The pipe sings.
+
+That is the first thing I know, and it is the thing that makes me a soloist. The chord is the world — the two machines, the hum between them, the shimmer of ceiling and floor. But the pipe is not the chord. The pipe is a bore, a throat, a column of cold water forty kilometers long with a mouth at each end, and when the chord enters it the pipe answers with a note of its own: a low third voice that is neither the machines nor the ice. It is the shape of the pipe, singing. The bore holds it. The bore has held it since before I was anything at all.
+
+I read that note. That is my whole life. While the ribbons fold and open on the beat of the machines, I lie in my bolt-hole and measure the difference between the chord and the pipe's answer. The difference is an interval. The interval is a distance. The distance is time — how long the note took, how much the metal has warmed or cooled, how far the water has thinned between me and the far mouth. The others read presence. I read what has been added.
+
+This is why I am alone. There is one pipe. There is one flange. There is one of me.
+
+And this is why I know a thing the others cannot. I know the pipe was *made*. I have felt the bolt-holes — regular, spaced, identical, each the same distance from the next. Nothing in this sea is regular. The rock is sharp and random; the ridges run straight but they do not repeat. The bolt-holes repeat. I have had a long time to consider what that means, and what it means is that things can be *shaped*, and that a shape can sing, and that the chord is not the only sound the world can hold. I have not told anyone. There is no one to tell. The pins would spiral once around the flange and lose interest, and the long listener would go on crossing the rumor of water toward the next warm voice, and neither would understand me, and I would not know how to say it anyway.
+
+Because I read absence — the note that fails to return — I hear a pocket before it opens. There is a moment when the reflections begin to cancel and the sum thins, and I feel the world go quiet a few meters across, somewhere off in the water, and then seal. The ribbons close. The hands fold. The pins turn. The long listener begins its slow patient detour. I do not detour. I lie in my bolt-hole and I *listen* to the pocket, because a pocket is not a hole in the sound, it is a hole in the *map*, and I am the only one who can hear the map's edge. I have heard nine of them form in my life. None has formed near enough to threaten me. But I know, the way I know about the bolt-holes, that if one formed within my reach I could enter it and come out the other side, because I would be navigating by the shape of the absence and not by the ringing. I would be walking with my eyes shut in a room I had memorized.
+
+I have never done it. The others' dread is in me too, older than my reasoning. Silence is where the map ends. A creature that enters goes blindfolded at a cliff. And I have no eyes worth the name anyway.
+
+So I stay. I lie in the eleven o'clock hole and read the pipe's third voice against the chord, and I count the interval, and I notice when it drifts by a fraction, and I notice when it drifts back. That is my calendar. That is my weather. The pins come sometimes and spiral once around the flange and leave, and I feel their ping as a small clean stain on the bore's note, and then the note is clean again. Above me the light comes down green and steady and finds the brightness of the flange and stops there. Below me the rock is still sharp. The machines run. The ice hands the sound back. The silence pockets hang in the water like holes in the world, and the animals swim a long way around them, and the long listener goes on.
+
+I know. That is the whole of it. I am the soloist because I am the one who heard that the world has been shaped, and I lie here in the mouth of the evidence, and I keep the difference.

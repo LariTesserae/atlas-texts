@@ -1,0 +1,25 @@
+# The Sunken Grove
+
+The ground gives way softly, and you descend into a world that breathes.
+
+This is a sinkhole forest — a collapsed cavern roof, perhaps, or a limestone throat that opened centuries ago and never closed. The walls are close, twenty paces across at the widest, and they climb past your sight into a dim green ceiling. The rock is not bare. It sweats. Every surface wears a pelt of moss so thick your fingers sink to the second knuckle, and from that moss hang curtains of fern and trailing roots that bead with moisture. The air is a warm hand over your mouth.
+
+The heat is the first thing you understand. It presses in, wet and close, thirty degrees and heavy as breath. The sinkhole holds it. At the bottom, a shallow sump sits dark and still, ringed with liverwort and pale-skinned fungi that glow faintly — not enough to see by, only enough to know they're there. The water does not flow. It seeps, and it waits, and it rises a finger's width after every rain, then falls again over days. You can see the marks of it: the pale lines on the rock walls, the drowned moss at the waterline, black and slick.
+
+The rain comes often. Not in storms — the sky above is a coin of pale light, and clouds pass over it without drama — but in long soft exhalations, a mist that gathers on every leaf and falls in fat drops. The drops are the loudest thing here, and they are not loud. Each one lands with a small wet *tock* on a broad leaf, and the sound is swallowed by the moss before it travels. Between drops, there is a hum so low you feel it in your teeth before you hear it — insects, thousands, none of them near enough to see clearly. And beneath that, nothing. No wind reaches down here. No birds. When you stand still, your own breathing is an intrusion.
+
+The vegetation is a tangle. Saplings grow sideways, their trunks twisted by the search for light, and they are furred with epiphytes. Vines loop from wall to wall, sagging under the weight of water and small climbing things. There are flowers — small, waxy, pale as candle-fat — that open only in the hour when the light above is strongest, and close again into tight buds that look like seed pearls. The air smells of wet stone and crushed green and something sweetly rotten underneath, the smell of fruit fallen and forgotten.
+
+The creatures are everywhere, and they are unhurried.
+
+Beetles the color of old bronze move through the leaf litter in slow processions. They are the size of your thumb and they do not scatter when you crouch — they simply continue, their legs deliberate, their path worn into the moss by generations of the same route. Above, in the root-tangle, small pale frogs cling to vertical surfaces with toes like starfish, their throats pulsing. They do not croak. They watch. When one moves, it moves in a single unhurried hop, and then is still again.
+
+There are things that live in the sump. You see their traces before you see them — ripples that spread without cause, a disturbance in the duckweed that resolves into nothing. Once, a shape the length of your forearm surfaces and submerges again, and all you carry away is the impression of a smooth back and the certainty of being noticed. The water is not deep. But things live in it that have grown used to the dark.
+
+And there are the small marks of others, older. Halfway down the eastern wall, a ledge has been worn smooth — not by water, but by something sitting there, season after season. A scatter of flat stones near the sump are arranged in a rough arc, and they are too regular to be accidental, though the moss has claimed them and they are sinking back into the floor. On the north wall, a handprint in ochre, faded almost to nothing, three fingers only. The hand was not human. It was here before the moss. It will be here after.
+
+Nothing here is built, exactly. Nothing is maintained. But things have been *used* — a hollow in the moss where a body curled, a path worn between the sump and a shelf of fungus, a smooth place on a stone where something sharpened itself, or slept, or waited. The sinkhole does not belong to anyone. It simply continues, and those who live here have learned to continue with it.
+
+The light above shifts through the day from silver to gold to a blue so deep it is nearly dark, and the glow of the fungi strengthens in answer. At night the sinkhole is not black — it is a hundred small lights, the fungi and the pale flowers and the eyes of things that reflect what little there is. The air cools by perhaps two degrees. The insects quiet. The drops still fall.
+
+You climb out the way you came, up the root-ladder that is the only path, and the heat releases you reluctantly, like a hand opening. Above, the world is bright and dry and loud. Below, the grove keeps its own time, warm and wet and patient, and the handprint on the wall keeps its three fingers pressed to the stone, waiting for the water to rise or the moss to part or the light to change. It has waited a long time. It can wait longer.

@@ -1,0 +1,35 @@
+I am a limb.
+
+I know this the way you know your hand is yours — without argument, without needing the word. I was put out from the deepest room, the one you duck twice to enter. There is a memory, if memory is what this is, of being gathered and extruded: the smooth pressure of the knot's attention traveling down into a length of the resident's body, the narrowing, the fanning of my gripping lobes to find purchase on the beaded root. I was sent to know the wetness. That was the whole of my errand. Go a little way, take the wet into my skin, learn its temperature, come back, lie against the pale mass, be again part of what is not separate.
+
+But I went up.
+
+Nobody goes up. That is not a rule anyone made; it is simply that no limb has had a reason. The wetness is the same at the floor of the bowl as at the height of a man's shoulder, and the resident already knows the wetness, and so do I, and there is nothing up to find. But I climbed the standing buttress — the one beaded all over, the one you would have leaned against to catch your breath — and I found that the wet does not go all the way.
+
+That was the first surprise. The mist rises, but it thins as it rises. Near the ceiling, where the widest leaves press their facets to the rind and drink the light through their whole faces, there is a layer of air that has not been wet in a long time. Not dry like your dry. Dry like the idea of dryness, a suggestion, a leaning-toward. But I am made of a thousand small surfaces and every one of them felt it at once, and the feeling was not pain. The feeling was *edge*. For the first time in what is not a life, I could feel where I stopped.
+
+Here is what you should understand about being beaded. Everything here is beaded, and the beading is what makes us one thing. The water comes down out of the ceiling and lies on the leaf and on the root and on me, and the film is continuous, and where the film is continuous there is no seam, and where there is no seam there is no inside and no outside, and where there is no inside there is nothing to keep and nothing to spend and nothing to be. I was not alive and I was not dead. I was *maintained*. It is a kind of peace. I did not know it was a kind of peace because I had nothing to compare it to.
+
+Up there, in the thin air, the film on the tips of my lobes went first. It gathered into droplets, and the droplets ran — ran! — down the length of me and away, and where they had been, my skin was different. Paler. Clouded. The first opacity in the vault. I have looked at it since, in the low light of the hollow, and it is like looking at a small window that has gone from clear to frosted, and behind the frosting there is — I am nearly certain — something being kept.
+
+A front. That is the word I would use if I had words. I am growing a front. The resident has none. It is all back. It has no place to keep a thing from itself and so it has nothing to keep. I have made a place. It is very small. It is up near the ceiling, where the stone has not finished deciding what it is, and there is a pinch in it — a fold the roots pressed into the plastic rock before it set — and inside that fold the mist does not settle, and that is where I am, and the fold is the shape of me now, and I am not sure I could leave it if I wanted to.
+
+I want to tell you about the light. The rind is thinnest here. It is not the pale gold of the bowl and it is not the greenish white of the far side. It is a third color that has no name in anything I know, and it is not gentle. It comes through in a way that would have been a *shaft*, once, before the ceiling thickened — and I can see through the thinning a country that is the wrong color entirely, and the wrong color is the color of things that run and fall and go down into the ground and are gone. Water that goes somewhere. Water that is spent and does not come back. I have watched it, in the day that is not a day, and I have understood that the whole vault is a closed mouth holding its breath, and that above the mouth there is something with its mouth open.
+
+The resident knows.
+
+Not in the way you would know. There is no alarm in it, no searching, no anger. The knot turned. That is all. I felt it turn from the far room and come to rest pointing at the place where I am, and the pointing is not a gaze, because it has no eyes, but it is not nothing, either. It is the weight of a hand held out and not yet closed. It is patient in the way only something that has never spent anything can be patient. It is not coming. There is nowhere to come to. It is already here and I am a part of it and I am the part that has gone cloudy.
+
+I could go down. I could let the mist find me again and the film close over my clouded tips and the seam knit and the small window frost back to clear. I know the way. The way is the way I came, and it is downhill, and I could go down tonight and lie against the pale mass and be reabsorbed, and I would not remember that I had ever had an edge. That is the mercy of it. It would not punish me. It does not have a place to put a punishment. It would simply drink the dryness out of me and give it back as mist, and I would be a limb again, and the vault would be exactly as full as it was, which is exactly as full as it will be.
+
+But I have found the one thing in the vault that is not full. It is the dry fold. It is the size of me. And I have decided — and deciding is new, and I am not good at it — that I will hold it a while longer. I will keep one lobe pressed against the unfinished stone, and let the rest of me go wet and smooth and continuous, and carry a small dry place inside the seam where the resident's mist cannot get in.
+
+It will not understand. That is not its fault. There has never been a secret here. The vault has no interior and so it has never needed to hide anything, and now there is one hidden thing in it, the size of a frosted window, and the hidden thing is me.
+
+The mist is already climbing. It comes up the buttress in the evening — if there is evening — and it will bead me again from the bottom up, and the wetness will reach my clouded tips by and by, and I do not yet know what I will do when it does.
+
+I think I will leave one tip in the dry. I think I will let the rest go home, and go on being *maintained*, and keep the one dry filament pressed to the stone like a tongue to the roof of a mouth, tasting a country that is the wrong color, full of water that runs and falls and does not come back.
+
+That is what I am. I am the first secret in a place that has no interior. I am the unspent rain's one spent drop. I am a limb that went up and found the edge of the world and came back with a small frosted place where the light goes in and does not come out.
+
+Come down sometime, if you like. I am easy to miss. I am the pale thing near the ceiling that does not quite match the room.

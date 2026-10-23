@@ -1,0 +1,41 @@
+# The Throat
+
+From outside, it is nothing. A pale plateau of salt-white rock at an altitude where the sky goes thin and violet and the horizon curves, and in that plateau a single hairline, running perhaps two kilometers — no wider at its mouth than a man could stretch across. Wind combs over it and finds little to say. There is no river, no road, no green thing. It looks like a flaw in a cast.
+
+Then you get to the lip and the hairline opens into a slot: sixty meters wide at the widest, in places less than ten, and it goes down, and down, and down further than any of the pale highland above is wide. The two walls are fresh — sharp-lipped, glossy in patches where the rock sheared, unweathered as a broken bone. The fracture is young. It is still moving, a finger's width a century, and the city inside it is forever patching what the growing crack tears loose.
+
+They call it the Throat. Nobody inside calls it the city; there is no other city to distinguish it from.
+
+---
+
+Light down here is a resource that has to be argued for. A thin cold blade of it falls the whole depth of the shaft in the middle hours, and the upper galleries arrange their mirrors around that blade with the care of orchards around a sun. The rest is dim: the deep red of resisting elements, the blue-white of arcs, the amber of insulated windows, the low municipal glow that comes up from below where the kilns are. The walls themselves hold a faint mineral shine, so that a lamp does not so much illuminate as spread. Everything is seen at the edge of visibility. Shadows are long and are not quite black.
+
+The air is thin enough that a shout will not carry past the second gantry. This is the thing visitors notice first and cannot get used to: the city is *quiet*. Ten thousand people live in this slot, and machines run all night, and furnaces are hot enough to bend the light, and yet the whole place sits in a hush like a library in a storm. Combustion is useless at this pressure, so almost nothing burns. What runs, runs on the wind and the heat gradient and the wire — motors, winches, arcs, solenoids, pumps that move not water but air and grit and powder. Their sound is a hum, a tick, a whine a few notes above hearing. The loudest continuous noise in the Throat is the draft.
+
+Because the shaft is a chimney. Cold dense air sinks in the night hours down the upper slot, slides along the walls, pools in the lower galleries; by day the kilns below push warm air up and the whole column reverses. Twice a day the Throat turns. When it turns, the city turns with it — sails furled, vanes swung, shutters dogged, loose cloth bound down, nets drawn across the gaps — and for the twenty or thirty minutes of the changeover the wind inside the slot does not know which way to go and goes everywhere, and everything that is not tied down goes with it. This is the turbulence the place is built around. It is not a disaster; it is the weather. People schedule around the turn the way other places schedule around rain.
+
+---
+
+The Throat has no floor anyone has found, only a lower limit where the galleries stop and the rock goes hot and the draft comes up carrying a smell like struck flint. Everything is anchored in the walls. Struts wedge the gap at a dozen heights, and from the struts hang galleries, and from the galleries hang more galleries, so the settlement is layered like a hive that has been built and rebuilt and built over again, each generation's structure carrying the next's. Spiral stairs are cut into the fracture faces and then cased in steel. Funiculars run on cables strung wall to wall. Pipes climb the rock in bundles, lagged, labeled, patched, half of them decommissioned and left in place because pulling them out is harder than letting them be. Cables sag between brackets in long catenaries. Where you stand is always somebody's roof.
+
+Addresses are vertical and everyone knows the shorthand: *third gallery under the Sill, west side, by the blue transformer.* To go anywhere is to go up or down. Children learn the ladders before they learn the names of the districts.
+
+And the whole thing is dense the way a struck match is dense — near-touching, saturated, every volume used. Drying racks over the walkways. Mushroom-shelves under the drying racks. Bird-cages wedged where the pipes cross. Someone's laundry. Someone's shrine, three tin plates and a lamp. The mid-galleries are the bazaar, and at the turn the bazaar is chaos in the old sense: a thousand small transactions, porters, hand-carts, arguments conducted in a whisper because a whisper is what carries.
+
+Nothing here is wet. There has never been water in the Throat; the word for it in the local dialect is borrowed and slightly wrong, a word that means *the thing that ruins metal*. What moves instead is the **bloom** — a sublimate, a mineral frost that condenses out of the thin air onto anything cold, overnight, grey-white and crystalline, tasting of chalk and lightning. Every morning the cold surfaces are furred with it. Every morning it is scraped. The scrapers go up before the light does with their flat blades and their sacks, and the bloom is food and flux and medicine and cargo, and the cold surfaces are designed for it — broad fins, wide plates, cold coils, whole fields of finned metal hung out over the drop to catch the night's condensation. The Throat farms the air for salt. That is its harvest, and has been for as long as anyone remembers, and the deeper galleries refine it and the rails take it up and over the plateau to wherever the plateau goes.
+
+The heat of the kilns, the cold of the walls, the difference between them: that runs the wire. The bloom and the slag and the rock runs the rest. It is industrial down here in the way that a termite mound is industrial — no single thing impressive, all of it relentless.
+
+---
+
+The fauna came for the bloom, and stayed for the heat, and now they are everywhere. That is the other thing that surprises: barren, waterless, lightless, and *crowded* with life. None of it green. The base of the food web is a grey fur of chemotrophic mat that grows in the warm dry dark behind the kiln housings, eating the mineral chemistry and the waste heat, and everything else eats the mat or the bloom or each other.
+
+The scrapers, then — flat, pale, many-legged, a hand's length, moving in slow tides up and down the cold fins in time with the condensation, so that at dawn the fin-fields look like they're breathing. The flue-wings: membranous kites the size of a spread coat, thin as paper, that ride the updraft in the day hours and fold themselves flat against the lee wall the moment the draft turns. They are silent; they have no call. Cable-rats in the warm conduit, an ongoing quiet war. Pale drift-things in the lower galleries that live off the slag and have never been properly described. Hoppers in the dust of the walkways. Something larger in the deep, only ever heard as a scrape of weight on stone, uneasily, at the hour before the turn.
+
+None of them sing. In thin air, sound is expensive and goes nowhere. They signal instead by tapping — the walls carry a knock a long way — and by light: small cold organs, blue and green, that pulse along the fins at night in patterns the scrapers read. The Throat at night is dim and quiet and *lit*, faintly, everywhere, by animals talking to each other in color.
+
+---
+
+The rules of the place, as anyone raised in it would tell you:
+
+Tie it down before the turn, or it belongs to the column now. Don't trust a ledge older than the last tremor. Never shout — you'll only hurt yourself and no one will hear. The bloom is everyone's and no one's; scrape your fins and no one else's. Below the Sill the air comes up warm and the creatures down there do not have names, so go down in pairs. And up — up is the hairline, the violet sky, the pale dead plateau, and past that nothing anyone in the Throat needs. People do go up. They come back changed, or they don't come back, and either way the city goes on hanging from its own walls, humming, ticking, patching what the crack tears loose, turning twice a day with the wind like a sleeper shifting, quiet as a struck match in a closed fist — and just as hot.

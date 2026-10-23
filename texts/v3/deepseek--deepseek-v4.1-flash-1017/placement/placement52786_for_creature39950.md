@@ -1,0 +1,35 @@
+I came over the rim, which is not how anyone comes.
+
+There is a way up the escarpment where the basalt breaks into steps, and I took it because I had a map that was wrong, and because the storm cells circling the rim had not yet noticed me. By the time they did I was already down among the ferns, and the rain that found me was warm. That was the first thing. I had prepared for cold. I had wool and a tin of grease for my boots and a compass that would prove useless, and none of it was for warm rain falling out of a black sky at an hour I could not name.
+
+I had a lantern. I want to be clear about that, because the rules are simple and I broke one anyway. I had a lantern strapped to my forehead and a second at my belt, and for the first three days I kept them both lit, and I walked by their two small circles of yellow, and I thought I was doing well.
+
+On the fourth day I set the belt lantern down on a rock to free my hands while I crossed a braided channel, and when I turned back the rock was a different rock, or the channel had moved, or the marsh had simply grown over the thing in the time it took me to blink the rain out of my eyes. I looked for an hour. I looked for two. The chorus went on the whole time, metallic and even, and somewhere behind it a pump was beating, and I could not tell which direction the beating came from because the sound arrived late and came back to me from places it had not started.
+
+So I learned to walk by warmth and by sound, which is the second thing, and the thing that changed me. You put your palm against the air and you feel where the vent water is. You stand still and you let the chorus tell you where the ground is firm, because the frogs do not sing over deep water, and the insects do not sing where the peat will not hold them. You learn that the steam bats are a map and also that the bats have their own business. You learn to trust the herons, because the herons know.
+
+I found the Brack on the ninth day, or the ninth night, or the ninth of something. It is a boiler tower with a pump house and a distillation stack, automated, uncrewed, standing in a shallow basin where the peat has gone pale and the reeds have gone black. It had been running without anyone for a long time. The stack vented steam in a slow regular sigh. The pump beat. There was moss on the pipes in patterns that looked deliberate, and I have never decided whether they were.
+
+I did not decide to stay. That is not how it happens. You stay one more night because your boots have not dried, and then you stay because the pump has developed a rattle and you want to hear whether it means anything, and then you have been there long enough that the hogs know your smell, and after that the question has answered itself.
+
+I keep the Brack now. Nobody hired me. I tightened a flange in the second month and cleaned the intake in the third, and by the sixth I had a log in pencil because the damp kills ink pens, and I was writing in a small tight hand, and I was rewriting the same list of tasks so many times that I no longer read it, only moved my pencil down the page to remember what order the day goes in. There is no day. The list is the day.
+
+The Vaulters came in the first season. They came out of the drowned hollows in their pale fungus-cloth, thin and broad-faced, their pupils enormous, and they stood at the edge of the lamplight and did not come closer until I put the spanner down and held up both my hands. We trade now. Fungus-cloth, which is soft and holds warmth better than wool. Lamp-eel oil, which burns blue-green and slow. In exchange: brass fittings, glass, wire, and once a small mirror, which they did not know what to do with and then did. They have no word for sun. They have a word for the warmth from below and a word for the blue of the fungus beds and a word for the red of the vent mouths, and when they speak of light they use whichever one applies, and I have caught myself doing the same.
+
+The hogs leave things for me at the edge of the reed bed. A brass fitting, a bottle, once a bone. I do not know whether they understand the trade or whether they are tidying up. I have decided it does not matter. I leave things for them in the same place and they take them, and we have an arrangement that neither of us has ever named.
+
+The heron came in the second year and has not left. It stands in the shallows on legs like thin iron pins, facing the firm ground, and it does not move when I pass. It has no eyes. It does not need them. I have begun to think of it as the one who was here first, and I know that cannot be true, and I say it anyway with a straight face, and no one argues.
+
+Here is what I have not told anyone, because there is no one to tell it to and because saying it out loud would make it a fact:
+
+My echo comes back late. I speak, and the marsh returns my voice to me after I have stopped, and it is not quite my voice. It is a half-tone lower and it has a wetness in it that mine does not. I have tested this. I have stood at the edge of the basin and said my own name into the dark and waited, and the name came back, and I did not recognize the mouth that had made it.
+
+And the chorus has learned my footfall. I am sure of this. The reed choirs keep time with the engines, and the engines keep time with the water table, and the water table breathes like a tide though there is no sea, and somewhere in all of that there is a rhythm that is mine — the particular irregular step of a person who has learned to keep their weight moving or sink to the ankle. I hear it in the chorus now. I hear it and the chorus hears me and we have come to an agreement.
+
+I am not dead. I want to be clear about that too. I am one of the ones who came from somewhere else and went into the marsh and did not come out, and I am not dead, and I am not quite the same as I was. The water here is warm and mineral and it gets into everything. It has gotten into me. I am not sure I could leave now, not because the way is hard but because I have become part of the schedule, and the schedule does not have a slot for leaving.
+
+Sometimes I see Wen's lantern across the fen — a small yellow point, moving steady, the way a person moves who has walked soft ground for eleven years. She does not know I am here. She thinks the light at the Brack is the Brack's own. I could signal her. I have thought about it. But the light would arrive late, and it would come back to me changed, and I am not certain which of us would be the one answering.
+
+So I keep the pump. I think at it when I walk past, a wordless acknowledgment, the way you nod to a neighbor. It has good days and bad days. It has a hum that means something and a rattle that means nothing, and I know the difference in my bones.
+
+The marsh is loud, dense, old, and active, and it is in its own state, and I am in it now. The engines are another kind of animal. So, I think, am I.

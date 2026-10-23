@@ -1,0 +1,15 @@
+What lives in the Choir Cabinet is not a species. It is a congregation of shapes that have agreed to be one instrument.
+
+They are the wall-crust first: flat as coins, pressed to the riveted iron, overlapping until the wall seems upholstered in living scale. They have no faces you would recognize—only apertures and seams, a soft architecture of intake and release. The chord leaves them in a thin, continuous exhalation, and they are not stuck there so much as tuned there. They have chosen the wall the way a note chooses a string.
+
+Then the pipe-dwellers. They live inside the formerly-pipes, in the sawn oil drums, in the stacked chimney lengths. Some are furred, some chitinous, one is vaguely feathered and looks, at the edge of the lamp’s ember-orange, like something that was once meant to be a bird and then was asked to be a reed instead. They use the vessels as resonators. A body inside a drum does not sing louder; it sings rounder. They hang from the pipe-hangers in loose chains, touching at shoulder and limb and places without names, and each contact keeps them in tune. The chains are not social exactly. They are structural.
+
+In the pooled water of the basin there is a skin of something with many small faces just at the surface tension—not faces, really, but pale nodes, dimples, points of intention. They take the wet part of the chord, the part that seems to come from below the floor. The smallest ones you notice only as cold, a cold that settles on the wrist and stays there after you move away. They layer because there is no place for them and because layering is a kind of score. Some are the size of a thumb, some a hand, some so small they are more temperature than body.
+
+They do not have names, or their names are stamped on brass tags beside their vessels, and the tags have gone illegible with verdigris. Perhaps the names matter only to the tags. Perhaps the creatures forgot them long ago and the room kept them the way it keeps everything: without erosion, without improvement, at the border where rust and damp agreed to stop.
+
+They are not aging, or the aggregation of them is not. Some are born and some die and the total stays exactly true to itself. They eat the forgotten sack in the corner, slowly, the grey soft thing going softer; they crop the moss-archive on the copper rim; they drink the same water that falls from the rivets and rises again as vapor and condenses again onto the rivets. They do not look at you. They have no interest in you. You are not part of the chord.
+
+They are still being made here, along a line drawn before they arrived. The room was built complete and is still being built in them. They do not evolve; they accrete. Their lives are not stories but maintenance.
+
+So if you ask who lives there—the nearest answer is: the chord lives there. These are its fingers, its lungs, its reeds, its wet and furred and chitinous parts. There is no keeper, no queen, no single who. The nearest thing to a who is the sustained note, and the animals are how the note has learned to have a body.

@@ -1,0 +1,11 @@
+I would find myself near the bottom of the cavity, at the thick fused trunk where the Carver’s marks are cut—specifically inside the spiral, in the small clouded hollow at its center that still looks, if you tilt your head, like a breath that has not faded.
+
+I would not be a Carver. The Carvers were warm and heavy and clumsy with intention. I would be what they left behind without meaning to: **the after-breath**. A small, living condensation.
+
+Not a moth, not a beetle, not the bell-eater. Something thinner than any of them and less finished. I would be a film of moisture that has taken a shape—roughly a hand, roughly a question—clinging to the glass at the spiral’s center. I would be wet enough to catch the sourceless light and cold enough not to drip. My edges would shimmer with the same perpetual, breathless damp as everything else, but my center would hold a faint warmth that does not belong here, a warmth the chime-beetles would tap at with their hooked feet and then recoil from, confused, because I am not a fracture and not a seam and not food.
+
+I would feed on the difference between the geode’s hum and the silence where the Carver used to be. It is a thin diet, but enough. The veil-moths would drink from me and carry away a mineral trace that tastes of outside—of sweat, of salt, of a body that once stood here and breathed. The bell-eater would smell the sealed chamber of my shape and come softening the glass toward me, slow as an era, and I would wait for it the way a held note waits for the next note. I would not run. I would not have legs for it.
+
+I would be the geode’s first *maybe*. The single imperfection in its perfect equilibrium that is not a flaw in the glass but a flaw in the stillness. The beetles maintain; the moths pollinate; the bell-eater opens; the Carver marked and left. I would be the residue of the leaving—the thing that makes the mark not just a sign but a wound that has learned to breathe.
+
+And when the bell-eater finally reached me, it would breathe me open and find no chamber, only a warm fog and a taste of salt. It would seal me back into the glass, and I would become an inclusion: a tiny gray ghost shaped like a hand, preserved in a world where nothing changes, the only fossil of a visitor who was already leaving.

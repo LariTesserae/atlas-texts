@@ -1,0 +1,19 @@
+**The Counter**
+
+I would not arrive from below. I would be born already warm.
+
+Find me three terraces up from the common cup, in a stack of dry-laid cells where the walkway over my head is my neighbors’ roof and their children’s floor. I am short and broad, grey-olive, fined with pale down that catches the vapor. Barefoot, toes splayed, soles like horn. I carry a folded cloth over one shoulder and a bone hammer at my belt. I tap the lintel twice before I enter. I touch the warm wall as I pass—not out of piety; I am checking the pulse. I smell of wet stone, moss, woodsmoke, and too many bodies in too small a stack.
+
+At dawn I wake when the hum thins. I do not wash. I scrape with moss and warm dust and anoint my skin with crushed insect fat. I take my place at the wringing. Overnight the cloths have been pressed to the shaded faces of rocks; we wring them into the common cup. Oldest and youngest drink first. The strongest last. I learned the wringing before I learned the hum, as everyone does.
+
+I am not the cloth-keeper. I am not the hum-listener, though I can feel a bad hum in my knees before she says it. I am not the tree-warden, though I know the three trees by name and sit under the second one when my knees ache. I am not a chief—there is no chief.
+
+I am the one who counts the children.
+
+It is not a crown. It is a rota and a reputation. I know every child in the bowl by name, gait, cough, and the particular clatter of their ladder. I know which terraces have children underfoot, which corbels have new insect colonies, which roof is sagging because someone has been jumping on it. I keep the count in my head and in notches on a bone. When a child is missing, I strike a lintel, and the terraces go quiet in the right way—not silent, never silent, but listening. I am the other side of the outer wall where the dead are set upright, facing in. The dead keep their place in the stack; I keep the living’s places known.
+
+I am stingy with cloth and generous with food. I forgive a spill once. The second time I do not beat the child. I give them a cloth and a patch of stone and sit with them until they have pressed until they have taken back what they lost. I chew upper moss for moisture. I lick the stone where it sweats. I do not think of water as a thing that runs; the word *river* is a story you tell children about water that runs away and takes things with it. I find it funny and obscene. I have never been thirsty in the way an outsider is thirsty. Thirst, to me, is a thing that happens to the very old and to people who have not learned to wring.
+
+I argue loudly. I touch to pass. I sleep close. I know the bowl is loud and layered—insects in the moss by the thousand, birds screaming on the lip, the furry climber in the tree who is a guest and a barometer. I do not eat the climber. I do not cut the living moss. I do not take the last of a colony. I do not strike the lip after dark. I measure my life in the year the upper walk gave way and before the last good hum. I do not wait for anything. The mountain is not a ruin to me; it is a house.
+
+If you come up from below, tall and thirsty and spilling, I will watch your hands. I will give you a cloth, not a cup. I will forgive you once. Then I will put you in the count—not as a child, perhaps, but as a body in the stack, a name on the walk, someone whose ladder I know. And at evening I will stand on the lip with the warm stone under my feet and the hum coming up through my bones, and I will hear the bowl below me dense and loud and old. I will not feel that I have arrived at an ending. I will feel that I have come home to one, and that it is thriving.

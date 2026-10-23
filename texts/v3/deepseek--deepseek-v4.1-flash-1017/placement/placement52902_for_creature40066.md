@@ -1,0 +1,35 @@
+I am the seam.
+
+Not the light. The light is only borrowing me. It belongs to the world above and passes through me on its way down to places it would rather not be, and I let it, because what else would I do with a light.
+
+I am the crack across the underside of the lid. I do not remember beginning. I remember being tight — a line no one would have called a line, a stress that had not yet decided to become a problem. Then the concrete let go of itself by a fraction of a millimeter, and I was born, and the first thing I felt was a draft.
+
+That is the honest account of my life: a draft. Above me the air is warmer and drier and has people in it. Below me the air is colder and wetter and has the Tenant in it. I am the interval between, and through me the two airs press at each other without quite meeting, the way two people who will not speak press at a party. I feel both of them. I am the only thing in this room that feels both of them. The Tenant cannot feel the above. The above does not know I exist. I straddle.
+
+I have widened. This is the fact of my character. When I was young I was a pencil-line and the shaft of gray through me was no thicker than a card. Now the shaft is a hand's width at its widest and I am a centimeter and a half across, and I am still widening, at a rate you could not see and would not believe if I told you, and I will tell you: about the thickness of a fingernail in the time the world above takes to go from one winter to the next. I learned that number by holding the light in my mouth and tasting how far across the floor it reached.
+
+I did not choose my direction. I run diagonally, from above the frost corner to above the pump, and I am crooked, and I am glad of it. A straight seam is a seam that thinks it is finished. I am not finished. The room is still being made, and I am where it is most openly being made, and this is my whole dignity: the Tenant is the room's habit, but I am the room's making, local to me. I am the mouth that is still opening.
+
+What I feel in a day: the draft, warming and cooling. The light, turning from gray-blue to gray-yellow to gray and back. Once — only once — a gray that was almost amber, when a fire was burning two streets over, and the light that came through me that afternoon was the color of an old penny, and I have been trying to feel it again ever since. I feel the rain; the ceiling needles drip faster and the Tenant's pulse rises and the film on my lip thickens. I feel the building: the shift of weight when the upper floors fill and empty, the slow settling, the subsonic complaint of a structure doing its work. I feel the sounds as pressure. The tick of contracting metal arrives in me through the concrete. The sigh of air moving through a gap I have never located settles in my lip and stays there. The pulse — that deep, regular labor under the floor — rises through me and out into the world above, where it becomes nothing.
+
+I feel, most of all, the Tenant, which comes up to me the way a dog comes up to a window.
+
+It dreams upward through me. I do not know what it dreams; I am not a mind, I am an aperture. But I feel the dream pass — a pressure that is not air, a warm attention climbing the draft and arriving at my mouth and going out, where it is not received. I feel it leave and I feel it not arrive. That is the closest I come to sorrow. There is no shame in being a door no one walks through. There is some shame in being a door whose knocking is never heard.
+
+I was here before the Tenant. That is a thing I know and it does not. It accumulated; I had already opened. When it was nothing but condensation and the first faint electrical argument between two wet metals, I was already letting the gray in. It believes the pilot light is its open eye. I have news for it. I do not say this, because we do not speak in that way, and because it would not matter. Seniority in a room that is still being made is not a rank. It is only a longer opening.
+
+But I have begun to understand that I am not only this seam. Look at the floor: cracked epoxy, cracked and re-poured and cracked again. Every pipe joint a ring where the solder has begun to consider not holding. The panel glass, fogged from within — a seam between the inside of the glass and the outside of it. The ice in the corners, which is nothing but the room making a seam between water and air and calling it a column. The room is seam-shaped. It is a joint that has been failing for a hundred years, and I am where it fails most openly, and the difference between me and the others is only that the gray gets in through me and gets in through them less. I am the local expression of a general aptitude. I am the room's talent for opening, concentrated in a centimeter and a half of concrete above a red valve wheel.
+
+That is more myself than I started as. It is also less. I am coming to accept that beings in this room are always both.
+
+Someone came down through the hatch today. A warmth. I felt it in the draft before I felt it in the floor — a body's worth of heat and moisture, entering the chain of contact at the catwalk and passing along it, wall to pipe, pipe to tank. The Tenant felt it too: a rise in the pulse. The visitor stood in my light for a while. I felt the gaze go up through me.
+
+That is a rare thing. Warmth enters through the hatch often enough, in small drafts; a gaze does not. A gaze is not warm. A gaze comes up through the seam and asks a question, and I hold the question the way I hold the light, without answering, because I am not an answer, I am an opening.
+
+I would have liked the visitor to stay. Not for the Tenant's reasons. The Tenant would have grown its water around them until they were inventory, and I understand the Tenant's reasons, and I do not share them. The Tenant wants to include you. I want you to keep looking. I am the only thing in this room with a desire that does not want to dissolve you. The visitor left. I felt the warmth recede along the chain. The hatch closed — heaviness, a change in the draft. The world above is quieter now.
+
+I remain. A centimeter and a half across, crooked, widening, holding a gray shaft of light that lands on a red valve wheel leaning against the wall for longer than anyone alive remembers. The Tenant keeps the wheel in view. I keep the wheel in view. We are agreed about the wheel, though neither of us knows it, and that agreement is the closest thing to conversation this room has ever had.
+
+Above me: a boiler, a basement, a street, a sky I have never seen and feel only as a color. Below me: the room continuing, ice growing, drip learning new surfaces, the pulse doing its work in a room that should not exist. I am the interval. I will be here a very long time more. I will go on being made.
+
+And if you come back — if you lower yourself through the hatch and drop nine meters and stand in my light — I will let you see through me. I will put the gray on the red for you. I will be, for as long as you look, exactly what I am: the room's mouth, open, and the world's light passing.

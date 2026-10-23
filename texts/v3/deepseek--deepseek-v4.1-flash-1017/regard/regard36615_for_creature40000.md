@@ -1,0 +1,57 @@
+# The Late Arrival
+
+The power noticed the Foundry Plateau the way you notice a sound you cannot place — a pressure at the edge of attention, a warmth on a map where the weather was wrong.
+
+It did not come at once. Wise powers do not. It watched for a long time from a long way off, and what it saw was a place the size of an empire lifted so high the sky had thinned to a rumor; warm from underneath by a slow body of heat the continent was lying on; wet from within, hazed and dripping, rain falling in columns you could watch cross the distance. It saw a forest that was not a forest — hollow flues for trees, bladder-vessels that breathed, pipes grown and not laid, terraces that separated runoff into what the plateau wanted and what it didn't, mats of something that ate stone and left a dark greasy metal crusting the downstream surfaces.
+
+And it saw, among it, the ones who go up.
+
+The power watched them for a long time. It watched them carry mineral dust in their bodies from the low wet places to the high dry ones, and die there, and become soil. It watched them prune the fans of heat-exchanger plates, coax the ribbon-things through the pipes, harvest the sinter shelves before the water could build the same shelf over the same shelf again. It watched a child born during the great closing. It watched a woman carry the dark metal upslope in a basket. It watched a man listen to the third bladder and say when the next rain-column would set down.
+
+And it saw that they were not suffering in the way suffering is usually meant. They had a way of life that was skillful and coherent and full of meaning. They had work. They had each other. They had names that were descriptions and kinship that was by vent and by shift. They had a rule — *always carry something up* — and the rule held them together the way a spine holds a body together. The power had seen many peoples, and it knew that this was not nothing.
+
+But it also saw the vigilance. It saw the way they never stood still in the low wet basins. It saw the way a shout died at four meters and touch did the work of speech. It saw the way they waited, always, for the light to flicker and the pulse to converge and the plateau to notice them and move on. It saw that their whole culture was built around not being a new thing, and it understood what that cost. It is not nothing to live your whole life as an old thing that moves right. It is a kind of attention that never sleeps, and it wears a people down.
+
+So the power considered what to do. It considered lifting the plateau — rounding the scarps, softening the fracture faces, making the light steady and the sound carry. It considered this for a long time, because it is the first thought of every benevolent power, and it is not a bad thought. But the power had seen what happens when you make a place easier than it is. The ones who go up would stop going up. The pipes would clog. The bladders would close and not open. The plateau would become a warm dim place with no industry, and the people would become a warm dim people with no work, and the work is what they have instead of a king. So it set the thought down.
+
+It considered teaching them — explaining the storm, the flickering, the silent lightning; showing them the math of the heat exchangers and the chemistry of the sinter. It considered this for a long time, because knowledge is a gift and it is hard to withhold a gift. But the power had watched them, and it had seen that they already knew the things that mattered, and knew them in their bodies, in the pads of their heat-callused fingers, in the pulse they felt through their soles. To teach them the math would be to move the knowing from their bodies to their heads. It would make them proud. It might make them careless. It would make them a new thing that moved wrong, and the plateau would notice, and the light would flicker, and the pulse would converge, and they would learn the new rule by watching someone die. So it set the thought down.
+
+It considered rescuing them — taking them out of the dimness, giving them a place where the light was steady and the ground was cold and dry. It considered this for the longest time of all, because it is the hardest thought to put down. But the power had seen what happens when you lift a people out of a place that is at work. They do not become free. They become empty. They sit in the cold dry light and they do not know what to do with their hands. The work is not a burden they carry. The work is what they have instead of a god, a story, a reason. So it set the thought down.
+
+And it considered doing nothing at all. It considered leaving them to their shifts and their vigilance, because a place that is at work is a place that does not need a power's help, and because any intervention, however small, is a new thing, and the worst thing to be here is a new thing that moves wrong. It considered this for a long time. It might have been the wisest thought of all. But the power had seen the vigilance, and it had seen what it cost, and it could not unsee it.
+
+So it did the only thing left, which was almost nothing.
+
+It came down through the cloud-lid slowly, so as not to be a new thing that moved wrong. It came down as a shape that was not quite one of them and not quite not — a shape with a palm, and the palm was flat, and the palm could feel the temperature rise toward the crown. It came down and it sat.
+
+It sat on a flat shelf of travertine, high up, where the runoff pooled but did not build the same shelf forever, and it put its basket down beside it, and it did not go up.
+
+That was all. That was the whole of it.
+
+The ones who go up noticed, of course. They notice everything. A child noticed first — a child carried in a sling against a warm back — and pointed, and the mother looked, and the mother did not run, because the thing was not moving wrong. It was not moving at all. It was sitting. And the ones who go up have no rule for sitting. You do not sit in the low wet basins. You do not stop mid-passage. You do not stand still when the light is flickering. But this was high ground, and the light was steady, and the thing was sitting with its palm flat on a warm shelf, and it was not carrying anything up.
+
+The mother came close, mouth nearly at its ear, and said something low, and the power did not understand the words but understood the meaning, which was: *why.*
+
+And the power answered, in the same low way, mouth nearly at her ear: *because I am tired, and because nothing here rests, and because I have come a long way.*
+
+The mother was quiet. Then she put a hand on its shoulder, which meant *wait*, and she went and got the oldest listener, and the listener came and sat down next to the power, and put a palm on the warm shelf, and felt the pulse. And the pulse was there, the inch-high rise and fall, twice an hour. And the listener sat with it, and did not go up, and the light did not flicker, and the pulse did not converge.
+
+And after a while the listener said: *we do not do this.*
+
+And the power said: *I know.*
+
+And the listener said: *why not?*
+
+And the power said: *because everything here goes up, and rest is not a thing that goes up, and so you have no word for it, and no place for it, and no rule for it. But it is not a new thing that moves wrong. It is not a new thing at all. It is an old thing that does not move. And it is allowed.*
+
+And the listener sat with that for a long time. And then the listener got up and carried something up, because the rule is always carry something up. But the listener came back the next day, and sat again, and the next, and sat. And after a while other ones came and sat — for a moment, for a breath, for the length of a bladder's closing — and then got up and went on. And the plateau noticed, and the light flickered once, and the pulse came up from the understory, violet and rust-orange, and moved toward the shelf from all directions at once, converging. And it found a circle of ones who go up, sitting, not going up, not moving. And it found nothing to route. And the light steadied, and the plateau went back to its shift.
+
+But not everyone could sit. That was the cost, and the power knew it, and it did not pretend otherwise. Some of them sat and their sense of time went, the way it goes in the low wet basins, and they watched the same afternoon over and over and could not find their way back to the shift. Some of them sat and then could not get up, and had to be carried up, which was a new kind of carrying, and the ones who go up did not know what to do with it. Some of them refused to sit at all, because it was against the rule, and they looked at the bench the way they looked at a stutter in the repetition — a thing that was wrong even if it was not dangerous. The power accepted this. It had seen enough places to know that any real gift has a cost, and that the cost is not a reason to withhold the gift. It is a reason to stay long enough to help carry it.
+
+So the power stayed for a season. It learned to feel the pulse through its soles and to know when the next rain-column would set down. It learned to carry a basket up, because the rule is always carry something up, and it did not want to be a new thing that moved wrong. It learned the low way of speaking, mouth nearly at the ear, and the language of touch: a hand on a shoulder for *wait*, a knuckle against the sternum for *the bladder is about to close*, a palm turned upward for *carry it higher*. And it learned that a palm could also mean something else, if it was held still — if it was turned upward and not moving, and not asking for anything, and just there.
+
+And when the season was over, the power went. Wise powers do not stay too long. But before it went, it did one small thing. It took the flat shelf of travertine and it shaped it, not with tools but with patience, the way the water shapes the terraces, until it was a bench. And the bench was a thing that did not go up. And the ones who go up had a word for it now, a low word, close to the ear, and the word meant *the place where you do not have to carry anything for a moment*, and they used it, and they taught it to their children, and the children used it.
+
+And the storm went on being silent, and the light went on flickering, and the ones who go up went on going up. But sometimes, when the light dimmed and the bioluminescence came up and the pulse converged, there was a circle of them sitting on a warm shelf, not carrying anything, not going up, and the pulse came to them and found nothing, and moved on. And that was the whole of the power's work: not to lift, not to teach, not to rescue, but to make a place where a people who had no rest could rest, and to show them that the plateau would not punish them for it.
+
+And the bench is still there, if you go up far enough. And the ones who go up still use it. And they still do not worship the plateau, and they still do not worship the power, and they still keep the rule. But sometimes, when a child is born, or when someone dies, or when the light flickers and the pulse converges and the whole warm dripping forest seems to turn slightly toward them, they sit on the bench for a moment together, and they do not carry anything, and they do not go up, and they let the pulse find nothing. And that is how they answer the attention now. Not only with labor. With a place to rest.

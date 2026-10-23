@@ -1,0 +1,33 @@
+It is not a city the way lowlanders mean a city.
+
+It is a town that has learned exactly how big it needs to be, and then stopped.
+
+High up — not on a peak, but on the shoulder of one, where the mountain decides to level its shoulders out into a bench before it remembers it is a mountain and climbs again. The elevation is enough that the air has a thinness to it. Not breathless, just cool and clean, with that high, bright pressure behind the ears. You can see a long way from the edge, down into the hazed valley where the river has become a thread, but you can't see a way up. The cliffs behind the town rise like a wall, striped grey and ochre, old rock that has settled into its final shape.
+
+Nothing here erodes quickly anymore. This is established ground. The wind and water did their violent work a long time ago, and what is left is what agreed to stay. Gullies are rounded. Boulders sit where they landed centuries ago and have grown lichen beards. The paths are worn not into ruts but into polish — stone steps in the center of each tread scooped by thousands of feet into a shallow, darkened bowl. The mountain is in balance with itself. It does not slide. It does not crumble.
+
+And fitted into that balance, tight as a puzzle piece, is the town.
+
+From a distance you would mistake it for a natural terrace, because it is the same color as the mountain — dry-stacked stone, slate, timber gone silver with weather. But as you get closer you see the density of it. This is not a scattering of huts. This is urban. Walls share walls. Roofs overlap roofs. Narrow alleys turn into covered tunnels, then open into tiny squares just large enough for a well and a market table. There are three low towers, not for war but for watching the goats and the weather. There are cisterns under every house, granaries built on stilt-stones to keep the mice out, a communal kiln, a smithy that mostly mends. Layer on layer, generation on generation, all within a footprint you could walk across in ten minutes. A hamlet with the complexity of a city.
+
+The technology that built it is all hand and weight and patience. No mortar in the oldest walls, just stone fitted so well you can't slip a blade between them. Wood joints pegged, not nailed — the iron here is precious, small, reworked endlessly: hinges, knives, the tip of a plow. The roofs are heavy slate held down by more stone against the wind. Everything is made to last without needing to be remade. A door might be five hundred years old and still hangs true.
+
+Inside that small, dense human knot, there is a surprising amount of emptiness. The sparse logic of the mountain continues. Houses stand shoulder to shoulder, but between clusters there are gaps — a bare yard of swept stone, a pen where no animal stands today, a threshing floor with nothing on it. Much space between presences. The town was built for more people than live here now, or maybe it was always meant to breathe. You can stand in an alley and hear your own footsteps. You can stand in the central square at noon and be the only person in it.
+
+Water is the quietest miracle of the place.
+
+There is no river here. The town is too high for that. But it is damp. The mountain breathes. At dawn, condensation runs down the cliff-face behind the town in dark streaks and is caught in troughs carved for that exact purpose — long, lichen-lined stone gutters that tick softly all morning. Occasional rain comes sideways and fast, and the whole town becomes a machine for catching it: every roof pitched to a barrel, every alley guttered to a cistern that echoes when you drop a pebble in. In the lowest square, a spring has been walled into a pocket — a pool no larger than a room, black and cold, covered with a wooden lid to keep it clean. Around it, the only real green: moss thick as felt, a few brave ferns in the cracks, a stunted willow that has been pollarded for so long it looks like a fist. Everywhere else is dry high air, stone, and thin soil that only holds sparse grass and juniper scrub, silver-green and low.
+
+Nothing grows lushly. Vegetation is sparse, deliberate. Each family keeps a narrow terrace outside the wall where barley struggles and lichen-like kale holds on. A few pines cling to the talus above, wind-bent, widely spaced. The juniper berries are used for everything.
+
+Animals are rare. Not absent — you see signs. A hawk far overhead, barely moving. The scratch of a pika among the rocks. At night, sometimes a fox crying like a child far down the slope. The town keeps a few goats, a few hardy chickens. No more. The wild doesn't press in. The domestic is thin. Mostly, it is stone and people and wind.
+
+The light is normal, honest mountain light. Not the gloom of deep valleys, not the glare of snowfields — though in winter snow does come and sit cold and dry for months. The sun rises over the eastern ridge right on time, paints the western cliff pink, then white, then plain daylight. Clouds come and touch the tops of the towers and leave. The light is enough to work by, to age by.
+
+And the sound. Mostly quiet. The tick of water in a trough. The creak of a wooden lid. Wind finding the corners of alleys and making a low note. Footsteps. An axe splitting wood a street away, each *thunk* distinct. People speak quietly here, not from reverence but because there is no need to shout; the town is so small your neighbor is always within earshot. No bells. No engines. No bustle.
+
+What is strangest is how unchanging it is.
+
+In other places, even primitive towns are a mess of gradients — a new wall going up while an old one falls down, a field left fallow, a path rerouted after a storm. Here there is a feeling of frozen equilibrium. The stone does not fall. The wood does not rot beyond what it already has. The cisterns always hold roughly the same water. The population seems to have been eighty souls for as long as anyone can remember, with births balancing deaths so neatly old people joke about it. The barley yields the same. The spring gives the same. No one expands. No one leaves. When a roof tile cracks, someone replaces it with one from the pile kept for that purpose, cut a hundred years ago.
+
+It is not magic. It is just a place that has found its final form and has the good sense — or the primitive, stubborn discipline — to keep it. The mountain is done eroding. The town is done growing. They hold each other in place, cool, damp in its hidden pockets, mostly quiet, waiting for nothing at all, which is why it endures.

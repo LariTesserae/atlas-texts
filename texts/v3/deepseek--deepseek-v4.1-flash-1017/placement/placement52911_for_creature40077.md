@@ -1,0 +1,19 @@
+I would not be the climber on the scaffold, and I would not be the Sifter colony in its shell. I would be the small dark thing that slips between them: a Vessel.
+
+I would find myself in the mid-reaches, where a spiral ramp crosses a bridge of woven vine and sagging timber, where the moss is thick enough to drink the sound of my feet. I would be coming out of a pore in the side of a Sifter shell—smooth, black, perhaps the length of your hand, with antennae longer than my body and never still. I would pause on the shell’s lip and sweep those antennae through the wet air, reading it the only way I know: not as light and shadow, not as words, but as taste and pressure. Warmth. Sweetness. The sharp green alarm of crushed leaves. The faint sour thread of a beam beginning to soften from within.
+
+I would not think, *I am a messenger.* I would not think much at all. But I would be carrying a little reservoir of air in the chambers of my body, and that air would be rich with the chemical signature of where I had been. A high-canopy shell. A dead moth. A strand of pale fungus. A place where the moss had gone dim for three heartbeats and then brightened again. I would carry all of that without understanding it, the way a letter carries a sentence it cannot read.
+
+Then I would go.
+
+I would travel the mid-reach paths—not straight, because nothing here is straight, but along the bowing spans and the moss-soft platforms, under the cold percussion of droplets fattening on the great beams above. I would keep to the edges, where the fungi shelf out in pale green ranks and the bioluminescent moths spiral drunkenly past. I would feel the Forest’s sound in my body: the high keen of insects, the low thrum of wings, the croak of something unseen in the wet dark below. I would not be afraid of it. Fear is a thing with a face, perhaps. I would only be attentive.
+
+I would pass other shells. Some would be little more than lumps of moss-covered wood, their cilia beating invisibly within. Some would be old, grown half into the bridge, their edges feathered with living threads that pull them slowly into the structure. I would know them by taste—by the faint sugary film of their moss, by the chemical breath of the colonies inside. I would not stop at all of them. I would have a route, learned not as a map but as a gradient: sweeter here, warmer there, a thread of rot to avoid, a place where the Vessels gather.
+
+And when I reached the shell I was seeking, I would slip through one of its small openings and stand in the dark inner chamber while the cilia waved around me. I would release my puff of air. I would leave the bit of fungus, the fragment of dead insect, the small living thing I had carried. The Sifters would taste what I brought. They would not thank me. They could not. But somewhere in the porous wall, a million tiny nodes would read the chemical history I had carried, and the information would begin its slow cascade—shell to shell, mid-reach to deep reach, down through the moss and the beams like blood through veins.
+
+I would be one of the Forest’s couriers. Not its mind. Not its memory. One of the small dark nerves by which it remembers itself.
+
+I think I would like that. To be a creature without a name, without a face, without a voice, but still a sentence in the Forest’s long, slow language. To be the thing that carries the taste of a dying beam to a colony that can do nothing but know it. To be the almost-seen flicker at the edge of vision, the dark body moving between shells while the moss pulses like a heartbeat.
+
+If I were to choose, I would be a Vessel. I would live in the half-light, in the damp and the endless sound, in the spaces between the Sifters’ shells. I would not build. I would not speak. I would only carry, and taste, and go on.

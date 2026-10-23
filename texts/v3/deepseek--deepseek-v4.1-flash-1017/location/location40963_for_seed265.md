@@ -1,0 +1,47 @@
+# The Warm Flat
+
+There is no light here. Not night — night implies a sun that has gone somewhere and will come back. This is a place without a source: no moon, no stars, no lamps, no glow. The eye has nothing to do and eventually stops insisting. You learn the country the way you learn a room in an outage — by the pressure of air on the face, by what your feet report, by the smell of warm iron and standing water, by the sound of something breathing three meters to your left that is not afraid of you.
+
+What you notice first is the heat, and how wet it is. The air is at the temperature of skin, saturated past any use for sweat. Every surface you touch is beaded. Your clothes go heavy and stay heavy. The place does not dry; it only redistributes itself. Water is not a feature of this landscape so much as its medium — a shallow sheet lying over the whole flat, knee-deep in the channels, ankle-deep on the rises, a film on everything, standing in the low cups of old footprints, hanging in the air as a fine warm drizzle that is not quite falling.
+
+The ground under it is new. That is the strange thing about walking here: the mud is *sharp*. The cut banks of the channels hold an edge like a spade has just been through them, though nothing has. Channels branch and end abruptly in clean rounded terminals. There are small cliffs a hand high, and they are crisp. The whole surface looks like something that was made last season and has not yet had time to be softened — and it hasn't. It is a young country, recently emerged or recently drowned, and it has not decided which. The erosion is all at the beginning of its work: the water is only just now learning the shape of the land, and the land is only just now learning to be land.
+
+---
+
+It extends.
+
+You can walk in it for most of a day and the register never changes — knee-water, warm, the same soft resistance, the same low rises of firm mud, the same channels. It is regional, this flatness. It goes out past the reach of any single feature. You will pass, in that day, a ridge of harder ground and a broad shallow pan and a place where the water runs in a direction that seems wrong for the slope, and then more of the same. There is no horizon to see, and so no horizon to reach. The country simply continues to be the same country, and you are inside it the way a hand is inside a glove.
+
+And yet it is crowded. That is the second thing. The flat is not empty — it is dense, layered, near-touching. The water is thick with bodies. Everything is small and warm and numerous. Life here has given up on sight entirely and gone in for touch, for heat, for chemistry, for sound. You are, at any moment, in contact with things: something the length of your finger traveling across the top of your foot; a soft mass parting around your calf; a fine stitching sensation at the waterline that is a thousand small mouths investigating whether you are food. The air is not clearer. Things fly. Things hang. There is a species here, or a category, that lives entirely in the warm film on your skin, and you will not know it is there until you have been still for a while in one place.
+
+Vegetation is the thinnest part of the picture — sparse, grudging stuff, pale and flaccid, rootless mats of hair-fine weed collecting only in the seams where heat leaks out of the ground, and a kind of soft upright growth, colorless and cold to the touch, standing in small stands where the mud is firmest. It is not what holds this place together. The animals are.
+
+---
+
+The works are scattered, and you find them by hand before you find them by any other means.
+
+They are industrial, and they are old, and they are still running. A pump house: a low iron shell, riveted, hot as a stove-lid on one side and cool on the other, with a stack of pipe rising out of the mud and going into the water and not coming out. You put your palm on it and feel the whole cylinder working — not fast, nothing here is fast, but working, a slow stroke you can count against your own pulse and lose. A standpipe wider than you can reach around, sweating, humming at a frequency you feel in your teeth. A crib of brass grating half-sunk in a channel, sucking gently, combing the water, and the water going down into it with a sound like a word being swallowed. A weir of poured concrete, still sharp-edged, its lip bright with recent wear — the young erosion is at work on it too, and it is losing, millimeter by millimeter, to water that has all the time there is.
+
+They are not many. Across a whole region you might come on a dozen, and between them long reaches of nothing but the flat. They are not ruins. That is what makes them unsettling. There is no rust bloom, no collapse, no fallen roof; they are maintained, or they maintain themselves, or they simply do not participate in the ordinary decay. Their grease is fresh. Their bearings turn. Their bolts take a wrench. Something is doing the work, and in the dark and the warmth and the crowding you cannot catch it at it, and after a while you stop expecting to.
+
+What they do is move water. Slowly. Everything here is slow — the cycles are long, the gradients are weak, and the machinery matches: it does not pump so much as persuade. Over hours, a channel will fill by a handsbreadth. Over a day, a pan will empty. The works are the heartbeat of that, and the heartbeat is about one stroke every four seconds, and it has been going on long enough that the channels have grown to fit it. The land is young, but the pumps are not, or the pumps are younger than the land and have nonetheless shaped it — the chronology does not hold together and you stop trying to make it.
+
+---
+
+Now the rules, which are the part you have to learn by falling in.
+
+The water carries. Not sound as you would expect it — say a word into a channel and nothing comes back, and then some hours later, from somewhere off to your left, in another channel entirely, your word returns to you, warm, arriving through the water rather than the air, and it is almost your word. The vowels have drifted. Something has been added to the end of it, or taken from the front. The animals have learned this. There are species here that do not make their own noises at all; they speak in borrowed voices, feeding old sounds back into the channels and listening for what comes out. You will hear yourself, from behind, in your own cadence, saying something you did not quite say.
+
+Distance does not stay put. Not dramatically — you will not walk through a door and come out a hundred kilometers away. But the flat does not let you leave in a straight line. You set a bearing and hold it and the country bends you, gently, over the course of an hour, and the works you left behind are ahead of you again. It is not malice. It is more like the way a warm room makes you sleepy: a soft physical preference the place has for keeping you in it. The animals know the trick of it and use it, and so should you, which is to say: go slowly, and do not trust the direction of your own walking.
+
+And the water returns things. This is the one that people who have been here talk about, and they talk about it badly, because there is no good vocabulary for it. Things that go into the deep channels come back out, eventually, at the speed of the pumps — a boot, a knife, a whole drowned animal — but they come back *readjusted*. A knife comes back with an extra inch of blade and a handle that fits a larger hand. A dead thing comes back with the anatomy it needed to be alive, and is not. It is not resurrection. It is more like a slow, patient editing, done by something that has only ever heard about the shape of the thing and is doing its best from the description. Whatever it is, it works at the pace of the pumps. Which is to say: you could put something in the water today and come back next season, and it might be waiting, and you might recognize it, and it might recognize you.
+
+---
+
+Sound is thin. This is a quiet place, and the quiet is the loudest thing about it — a pressure, a held breath, broken at intervals. The pumps, four seconds apart. The suck at the cribs. Water moving over a lip. The drizzle that is not falling. Then, unpredictably, the fauna: a kettling in the weed that goes up all at once like a struck bell and stops; a long wet exhalation from something surfacing to breathe, somewhere out in the pan, and then the surface closing; the piping of small things, and then a hush as every one of them registers the piping and decides, all together, to be quiet. You will notice that the hush happens before you hear what caused it, and that the cause, when it comes, comes past you close enough to move the water against your legs, and does not stop.
+
+---
+
+Stand still for an hour and the place will settle on you. The warm film on your skin thickens with residents. Something the size of a palm will attach to your calf and stay. The pumps will make their slow rounds and you will lose count and find it again. Far off, in a channel you cannot see and would not be able to see anyway, your own voice will come back to you, a little late, a little altered, saying something almost worth listening to.
+
+That is the whole of it, and it is enough: a warm shallow dark country, new-made and knife-edged, dense with warm small lives, holding a scatter of humming iron that moves the water one patient stroke at a time, and the water carrying everything — heat, sound, bodies, shapes, the memory of shapes — around and around and back to you, slightly changed.

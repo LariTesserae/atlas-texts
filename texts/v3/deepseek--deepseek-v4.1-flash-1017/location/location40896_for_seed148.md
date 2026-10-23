@@ -1,0 +1,33 @@
+# The Softground
+
+The ground here has not finished being ground. You can press your thumb into the stone and leave a print that will last an hour, or a day, before the stone remembers itself and smooths. It is pale, greasy-cool, the color of the inside of a shell, and it is still settling — you can feel it doing it, a slow subsidence underfoot, the basin sinking into whatever it is sinking into at a rate just slow enough that you notice only when you stop walking and stand still. Rain comes in sudden narrow columns, brief and warm-ish and vertical, and the water does not run off. It collects in the creases of the unfinished stone, in the long soft folds where the surface has not yet decided to be flat. Pockets. Puddles the size of dinner plates that stay for days, skinned with a film, and when you break the film the smell that comes up is mineral and green at once.
+
+Above and around all of this, the plant.
+
+It is one. This is the first strange thing, and it is worth saying plainly: the vegetation here is not many plants. It is a single continuous living mass that fills the basin from rim to rim, and it is hollow. Its outer surface is a dark matte skin — not leaves exactly, more like the underside of a leaf, that grey-green that has given up on sun — and its inner surface is the world. You are inside it. The ceiling is forty feet up in places, curving, ribbed, the color of wet slate, and it is alive and it is warm-ish against the cool air and it moves with a slow tidal breathing that takes about ninety seconds. The floor is the same tissue, soft, springy, ridged where it has grown over the bones of the stone. Between floor and ceiling: chambers. Rooms the size of groves. Corridors that are not corridors but long pinches where the ceiling has sagged almost to the floor, so you duck and shuffle through, and the tissue gives under your hand.
+
+The chambers are where the town is.
+
+## The town
+
+It is not much of a town, and it is enormous. Both are true. Somebody built here for a population that never arrived — the infrastructure is scaled for crowds, arranged in long straight runs, laid out with the patience of a plan. Sap-lines the diameter of a person run the length of the chambers, bolted into the walls with grown brackets. Pumps. Condensers, mostly — great coiled things of braided root and hammered plate, cold to the touch, sweating, drinking the damp out of the air and sending it down the lines in a slow peristalsis you can hear if you put your ear to the pipe, which is the loudest thing here. Somewhere in the deep chambers there are works that press and distill, that take the plant's sap and split it, and the process is cool and patient and smells of cut stems and hot metal at the same time, which should not be possible. No fire anywhere. Nothing burns. The industry here is all pressure and chemistry and time.
+
+And between the works, almost nothing. That is the thing you keep failing to get used to. The chambers are vast and the structures in them are few and widely spaced — a pump house here, a run of pipe, a shed with a door standing open, and then a hundred yards of empty living floor with nothing on it but the print of something's feet. The distances are wrong for the number of buildings. You walk ten minutes between one shed and the next, and the next shed is the same shed, or a shed that does the same nothing. There are rooms with no purpose and no door. There are streets laid out for a crowd and the crowd is not coming. The emptiness is not abandonment — nothing here is abandoned, everything is maintained, the pipes are clean — it is emptiness that was built in on purpose, or emptiness that simply grew the way the stone grows, without deciding.
+
+## Fauna
+
+But it is not dead-empty. The floor moves. Things live in the hollow: small, pale, many-legged, soft-shelled, delicate as the inside of a watch. They come out of the tissue and go back into it. They are abundant — there is one under every third step, there is a drift of them in the creases, there are larger ones that keep to the walls and move in slow waves when the ceiling breathes. They are nearly silent, or their sound is below the floor of hearing, a pressure rather than a noise, a continuous low presence like a hand on your chest. They eat the film off the puddles. They eat each other. They are, mostly, what the town is for — the works press and distill and the product goes somewhere, and something down the line eats it, and everyone involved is very calm about this.
+
+Nobody has told you where the people are. There may be three. You will see a lamp in a far chamber, and by the time you get there, the lamp is a growth on the wall that glows faintly and does not illuminate anything, and there is no one.
+
+## Rules
+
+Some of the world's rules, as they present themselves:
+
+Light is scarce and nearly spent. Nothing makes much of it. The pale things on the floor do not need it; the plant gave up on it long ago and lives on chemistry and damp and the slow grinding of the unfinished stone, which is still giving off something, still warm at the heart, still becoming. Lamps are a luxury and a liability. When you find a lamp, someone is telling you something, or warning you.
+
+Distance is unreliable. The chambers are grove-sized and there are more of them than the plant can hold. You can walk a corridor you have walked before and come out into a chamber that is not where it was. The pumps do not move. The pumps are always where they are. It is the space between the pumps that rearranges itself while nobody is looking, the way the stone smooths itself under your thumb, the way the whole place is still under construction and has not settled on its dimensions.
+
+Sound does not carry. The tissue eats it. A shout goes four yards and then is gone. This is why the quiet is so total, and why the quiet is also wrong — the place is loud, in its way, everything is moving, the sap is moving, the ceiling is breathing, the fauna are eating, the rain is arriving in columns and being drunk by the condensers, and you hear almost none of it, and that absence is a presence you can feel against your skin.
+
+Nothing here is finished. The geology is emergent; the settlement is emergent; the plant is still growing its rooms. You get the strong sense of a place in its first draft, laid out by something that intends to come back and finish it and has not come back yet, and might be the three people, or might be the plant, or might be the pale things in the floor, which are, after all, the ones actually being fed.

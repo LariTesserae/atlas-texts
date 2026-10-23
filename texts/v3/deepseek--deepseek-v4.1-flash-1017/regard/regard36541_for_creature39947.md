@@ -1,0 +1,19 @@
+They would come up the lee face slowly, not as a blaze of light but as a quality of attention—something that knows how to be small. At the lip they would stop where the drawn air becomes a hand against the chest, and they would let the hand read them. They would not force the throat. They would look for need first: for pain, for thwarted motion, for a call, for the particular ragged signature of a creature asking to be helped. They would find the sums holding—dust in, dust out; wear and feed; stone and air carving each other at the same rate; the note exact. They would find no wound. They would not mistake abundance for invitation, or dryness for cruelty, or silence for a plea.
+
+They would enter only if the pressure allowed it, and then they would make themselves as close to not-there as a power can: no heat, no shed skin, no breath that condenses, no bright noise in the charged dark. They would stand in the gray noon and listen until the chord was known from the inside. They would feel the fleece lean away from them and would not follow it. They would see the old cylinder and understand it as an organ, not a prisoner—or at least as something whose imprisonment could not be assumed. They would not oil the bearing. They would not clear the intakes. They would not cap the stubs or open the hatch. They would not bring water, or seed, or light, or company. They would not repair what is not broken by its own rules.
+
+Then they would ask, in the only way available to them—by holding still and letting their own pattern be read—whether anything here wanted. And the answer would be the note continuing. They would accept that as an answer.
+
+So they would do the few things a wise benevolence does when it meets a whole thing.
+
+They would witness. They would learn the chord exactly—not a sample, not a clipping, not a measurement that changes what is measured—and carry it away as a record. They would let the Notch remain unproven.
+
+They would guard without possessing. They would make the notch harder to find for those who come with tools and easy to miss for those who come with nothing but curiosity. They would not build a fence, a shrine, a research station, or a warning sign at the lip; signs attract. But they would set a soft refusal in the approach: not a wall, a forgetfulness; not a punishment, a turning of the attention. If a lost climber came, they would use the pressure to guide them down the face toward air and water—but they would not pour water into the dust.
+
+They would set a watch, not a hand. A condition: if the note changes beyond the range of its own slow weather—if the rotation falters, if the dust stops, if someone begins to cut—then return. Until then, no intervention. A benevolent power that cannot tell the difference between a heart and a machine should not open the hatch.
+
+They would not improve the place. No moisture, no green, no companions, no restoration of the makers. The being has solved the problem of living here by becoming the solution and holding it. To add is to subtract. The Notch is not a desert that needs rain; it is a conclusion that needs to be left concluded.
+
+And then they would go. They might leave no mark at all. Perhaps only a silence at the threshold—not a warning, a courtesy, a sense in the mind of the rare visitor that this is not a resource. They would take the chord into their deep memory and set it there as a standard: this is what equilibrium sounds like when nothing is missing and nothing is spare.
+
+Once in a very long while they might return—not to check, not to fix, not to teach. Only to listen. Because sometimes the most benevolent thing a great power can do is refuse to disturb a thing that is already whole, and the wisest thing is to know the difference between loneliness and solitude, between a machine that is trapped and a heart that is turning.

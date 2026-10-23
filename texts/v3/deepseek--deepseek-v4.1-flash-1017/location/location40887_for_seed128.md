@@ -1,0 +1,33 @@
+# The Kettle of Tallow-Ash
+
+Somewhere above the cloud-floor, where the air thins but never cools, stands the Kettle — and standing is not quite the word, because nothing about it is structural in the way a tower is structural. It is grown, or it was grown once and has since been maintained, revised, and re-grown so many times that the distinction between made and alive has worn smooth. Think of a marrow-bone the size of a chapel, hollowed and hung with gutters.
+
+## The Shape and the Wet
+
+The Kettle is a pocket: a single teardrop chamber, perhaps forty paces across at its widest, embedded high in a spine of rock that itself may be engineered. You reach it by stepping sideways off a maintenance ledge into a moss-dark mouth, and then you are inside, and it is warm — a held breath, body-temperature, the warmth of something sleeping.
+
+Water is everywhere, and it is the water of a kettle just off the boil. It condenses on the ceiling in fat amber beads that gather, tremble, and drop; it sheet-flows down the inner walls along shallow carved runnels; it pools in the floor's low scallops at ankle depth and drains away through slotted grates that hum. The air is not humid so much as *dense with wetness* — a steam-room without steam, warm enough to keep you loose, wet enough that your clothes go heavy and cling. The rock of the walls weeps. Every surface is wet with a film that never dries because nothing here ever dries.
+
+And the sound. This is the first thing that happens to you, before your eyes adjust: the Kettle is *deafening*. Water falls in pitched drops onto tuned surfaces — the whole chamber is an instrument. Gutters laugh and gurgle; overflow pipes three hands wide roar faintly down their throats; the grates in the floor throb with drainage like slow heartbeats amplified. Deeper still, beneath the water-sound, a low roar — the vast condenser machinery behind the walls, the pumps, the thing that makes the wetness — a continuous warm hum you feel in your teeth. Voices are useless here. People who live in the Kettle learn to talk with their hands, or they learn to wait for the gaps, or they don't talk.
+
+## The Made Everything
+
+Nothing here is natural substrate. There is no "original rock" to find. The walls, when you scrape the mineral film, are a pale grey composite — poured, or cultured, or accreted by processes the grey men of the lowlands would call magic and the engineers of the Kettle call *maintenance*. The grain of it is fine as bone china. It is veined with channels, and the channels are the point: the entire Kettle is a *plant* for doing something, and the something is water — taking it from the cloud-scoured air outside, condensing it, warming it, grading it, and sending it down the mountain in pipes that run off through the wall like veins leaving an organ. The runoff has a taste the lowland orchards pay well for. That is why the Kettle exists, and why it has been kept airtight and warm and wet for — how long? Long enough that the erosion is *settled*, long enough that the mineral crusts have grown their own gentle geographies, that the runnel-paths have deepened into comfortable channels, that the whole chamber has reached a sort of balance with its own wetness. The making is old enough to be geology.
+
+## Light, Dim
+
+Light comes from the water itself, in part. Every pool has its bloom: a pale green phosphorescence, faint as the last light in a cellar, coming from the mats that grow in the drainage grates — engineered ecology, or something that moved in and was allowed to stay. Add to this the glow-worm constellations strung along the ceiling runnels, and the slow amber pulse of the ceiling beads as they swell toward falling, and you have a dimness that is *warm* rather than gloomy — a candle-chamber dimness, a just-before-sleep dimness. You will not be able to read. You will be able to see, in a soft way, the whole intimate room of it: the scalloped floor, the weeping walls, the drop-strings bright as strung beads overhead.
+
+## The Life
+
+For a chamber with almost no plants — a few ferns cling to the warmest crevices, wispy and pale, more waterlogged moss than leaf — the Kettle is *thick with animals*.
+
+The drop-beetles farm the ceiling. They are the size of a thumbnail, dark and glossy, and they run their rounds along the runnels, herding and tending the amber beads, nudging them to gather and fall on schedule; the whole deafening drop-rhythm is, in part, *farmed*. The people here will tell you the beetles do not farm the water. The water farms the beetles, and the beetles are the water's hands.
+
+Salamanders live in the floor-scallops, blind and pale and long, and they are sacred in a kitchen sort of way — you do not eat them and you do not step on them, and when one swims across a pool it leaves a green wake that lasts a minute and fades. Steam-moths, wingspan of a hand, drift where the warmest water falls, drinking the condensation; their wing-dust is what makes the drop-strings glisten. And in the drainage roar, in the deep grates, the *eel-things*: the Kettle's problem and its pride, sleek grey things that come up the overflow pipes from who knows where and lie in the loud water with their mouths open, and the engineers leave them be because they keep the pipes clean and because you cannot catch them and because, the story goes, a man once tried and the Kettle went quiet for a day afterward, which frightened everyone more than the noise ever did.
+
+## The People, Barely
+
+Two engineers live in the Kettle — a posting, not a home — and they have been there long enough to have made their own pocket of it: a dry shelf, a heat-lamp, a hand-drawn chart of the drop-beetle rounds. They speak in the gaps between sounds. They keep the condenser tuned. They send the graded water down the pipes. When they sleep, the Kettle goes on without them — dropping, pooling, draining, glowing, farming its beetles, breathing out its warm wet breath through the wall-vents — and the deafening sound is, if you live there long enough to arrive at it, a kind of quiet.
+
+The rules of the world, inside the Kettle: everything is wet and everything is warm and everything is loud; nothing is ever dry; the water is the landlord. You do not dam a runnel. You do not silence a drop. You do not take from the grates. You keep the beetles' schedule. And you remember, stepping back out that dark mouth onto the cold high ledge with your ears ringing and your clothes clinging, that the cloud-floor below is dry as paper and thirsty as a throat, and the water you just spent a day in is the whole reason anyone down there lives at all.

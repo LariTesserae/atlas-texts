@@ -1,0 +1,33 @@
+I would be the tuner.
+
+I came in with a hard case and a set of brass forks — not the kind you strike, the kind you hold against a surface and listen through — because I'd heard there were rods on the flats that turned a gale into a pressure change, and all my life I had made my living from the fact that such things drift. I was good at it. I say that without pride now; I say it the way you'd say *I used to swim*, as a report on a body that no longer does the thing.
+
+The flats did not argue with my assumption. A place that old has stopped having opinions. It let me walk three days to reach the rod-field. It let me unpack. It let me lay a fork against the first thin rod, put my ear to the fork, and wait.
+
+Nothing was wrong.
+
+That's the whole of it, and it took me a week to believe. Rod by rod, up the spiral — I walked the spiral in the wind that would not stop, and each rod was in tune, and more than in tune: each rod was *doing something*. A gust came in across the field and came out the far side quieter, disciplined, corrected. The rods weren't singing. They were steering. They were a hand held open against a current, and the current went around them and lost a little of its rage, and I put my forks to every one of them and heard nothing that needed me.
+
+So I tried harder — and this is what I want to note about myself — I did not believe the field, so I went back and asked my own reference. And my reference was off. Not the field. My reference. Twenty years of use had let it drift by a hair, by the small human drift of a life spent measuring with the one thing I'd thought was stable. The flats had been correct all along. I had been out of tune with them, and I had walked three days to correct a thing that had no need of correction, carrying a wrong note in a case.
+
+I stayed. That's the other thing. I had come for a job that turned out not to exist, and I stayed. I didn't decide to. The mornings kept arriving and I kept being there. I sat with my back against a dwarf pine and watched the light go from the deep bruised blue to the fine cold blade, and I let myself be a small warm obstruction in a great cold passage.
+
+Every morning I turned to check the line of my footprints back to camp, and every morning the line was gone. Not faded. Gone. The wind erased the record within the hour, the way it erases everything, the way it had been erasing for a billion years before anyone thought to leave a print. I want to be clear that this was not cruel. It was the most restful thing that had ever happened to me. For the first time in a life spent keeping records, no one was keeping mine. I was unaccounted for. I was free in a way I had no word for and did not want one.
+
+On the fifth morning a kestrel came and hung in the gale over the field. It did not fight the wind. It had learned the wind the way a swimmer learns water. The roar of the whole plateau was going past and the bird was inside it, parked in it, using the pressure the way a hand uses a rail. I had spent four days leaning into that wind like a man leaning into a wall, and here was a small warm thing that had turned the wall into a floor. It hung there for maybe ten seconds, then folded and went down the current, and I was alone with the field.
+
+The wind is not against you. That's what I learned, and it took the bird to say it. It's not for you either. It is going somewhere, and there is a way to be inside it that costs nothing, and I did not know that way, and the kestrel did.
+
+I walked to the pier the next day. Low, cantilevered over nothing, neither rust nor chalk. I stood at the end of it. There was no sea. There had not been a sea for a length of time I could not fit into my head, and the pier had not been built within the last hundredth of that time. It was waiting for a water that was never coming, and it was not tragic, and it was not patient in the way that people are patient when they are suffering. It was patient the way an equation is patient. It had been made for a purpose, the purpose had ended, and the making had not. The pier was not abandoned. It was simply finished with one thing and still, somehow, correct.
+
+I had been wrong about the work — not the tuning work, the deeper work, the one that had driven me to every ringing thing in the world. I had been trying to be *needed*. And the flats were not, and never would be, done needing anyone. That was the grief and the gift both, and I have still not decided which came first.
+
+I do not know who made the rods. I don't think they are gone. I think they are extinct the way a solved equation is extinct — not vanished but *finished*, the work done, the answer correct, the person who did the work no longer required to be present at the correctness. I looked for them along the seams of worked metal and found no hand to shake. I found a standard of care still being kept, by reflex, by a thing so old it has forgotten the word for maintenance and simply maintains. The rods turned the gale. The metal hummed at a certain pitch. The pier held. Nothing had slipped. Nobody was watching. That was the whole of their presence, and it was enough to be going on with, and it will be enough for a very long time after I'm gone.
+
+On my last morning I closed the case. I had not recorded the tone. I want to say that clearly, because it is the only thing about the trip that matters. I had heard it — a single sustained note when the wind found a certain hollow, too pure to be natural, held for minutes and then released. I had set my instruments and taken my records and the records had come back with only the roar. The tone was below the register of the air. It was a pressure change in the sternum. My instruments do not listen with a sternum, so they heard nothing. All I brought back was the fact that I had felt it and the knowledge that I could not carry it. That is a better record than a recording. It is a record the wind made in me, temporarily, and it will fade, and it should.
+
+I put my hand on one rod before I left. Not to tune it. Just to feel it. It was warm — the fine warm of sun on worked metal, not the warm of care. It did not care. That is the mercy. If it had cared I would have stayed, and I would have ruined it, and I would have ruined myself.
+
+I walked out. My prints were erased before I reached the edge of the field. I would like to say the flats miss me. They don't. They never will. I was the only thing there in a hurry, and I left the hurry on the last rise and went down into the wet green world without it, and I have not entirely gotten it back, and I am glad.
+
+I was not the tuner. In the end I was the thing that got tuned, and I never heard it happen, which I think is how it's supposed to work.

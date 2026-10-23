@@ -1,0 +1,25 @@
+It would be easy to say nothing lives here. The vault has no ecology, no dust, no drift, no sign that anything ever stood in it and breathed. That is all true. But the place is not empty of residents. It is empty of *bodies*. There is a difference, and the difference has a shape, and the shape has habits.
+
+Look for a gap.
+
+In all that saturated composition — every object touching its neighbors, the floor a single unbroken lattice of contact — there is one place where nothing quite touches. A pocket, roughly the size of a crouched dog, set into the northern arc where the slate spires lean closest to the wall. It is not a clearing. The objects do not stop there. They stand apart by the width of a finger, all the way around the pocket, and the sound pours around the absence the way water pours around a stone.
+
+The pocket moves. Not quickly. Over an hour it drifts a hand's breadth along the curve of the wall, and where it passes, the vessels' notes bend by a quarter-tone and come back. That bending is the only sign of it you will get, unless you are patient, and unless you are quiet in the way the vault requires.
+
+In the middle of the pocket is the resident.
+
+It is difficult to describe, because it is not made of anything. It is made of the *edges of the things nearest it*. When it crosses the copper spirals, its outline is copper and green. When it passes the knapped flint, its outline is chipped and sharp. There is no solid core. What you are seeing, if you see it at all, is the interface between the objects and the gap — a hunched, roughly anthropic shape that exists only because the composition declines to close there. It is the vault's one refusal.
+
+Call it the resident. It has no name; the makers gave names to the objects, and this is not an object.
+
+It moves by being out of phase. This is its whole discipline, its entire biology. Everything else in the vault is held apart by the sound; the resident holds *itself* apart. It cannot touch the lattice, because touching would damp the chord at that point, and the chord would shrug, and a spiral would lean a hair too far, and the whole careful equilibrium would take one step toward collapse. So it has trained its body — if it is a body — into a permanent act of non-contact. It has been not-touching for so long that the not-touching has become anatomy. It is the only thing here that has ever had to try.
+
+It perceives by pressure. It feels the chord the way you feel a hand on your back: the low fundament as weight, the high partials as prickle. It navigates by roughness, seeking out the places where two notes beat against each other and the air has a grain to it. And where it finds that grain, it settles, and it *smooths*. It does not sing. It does not add a voice. It removes the micro-friction, the little mismatch, the place where the tuning is drifting a thousandth of a cent. It eats dissonance. It is a living filter, a hand that never stops adjusting, and it is the reason the vault has not needed tuning for an age. The vault believes it is self-sustaining. It is not. It is being maintained by something it has never counted as part of itself.
+
+The makers are gone, but the resident remembers them — not as memory, which requires a past, but as habit. The shape of its non-touching is the shape of a hand that used to reach in and turn a pivot. It is made, in some sense, of what the makers discarded: the offcuts, the failures, the pieces that would not hold their note. The vault set them aside. The set-aside pieces gathered, and the gathering became a shape, and the shape was given the only job left in a finished world. It is the vault's compost and its sacristan both.
+
+When you arrive, it notices you immediately, because you are the largest dissonance in the vault. You damp the sound where you stand. You are a roughness the size of a person, and the resident feels you the way you would feel a wrong note in a chord you have been listening to your whole life. It comes to you. It does not greet you. It sits at the edge of your gap — the gap your body has made in the composition — and it works at you. You will feel it as a pressure easing behind your eyes, a ringing subsiding by a degree you did not know was there. Your teeth will stop aching. It is not welcoming you. It is housekeeping.
+
+And when you leave, it will smooth the place where you stood until the roughness is gone, and then it will move on along the wall, and the pocket will drift, and the chord will close over your absence without a seam.
+
+It is the only busy thing in a world that finished. That is its strangeness: not that it lives here, but that it is *working*. Everything else has reached its final form. The resident has not, and will not, because the chord has more partials than any smoothing can hold, and because the walls themselves are slowly changing color as the sound turns to light. It will always have one more roughness to find. When it has none — if that day ever comes — it will have nothing left to do, and it will have to become an object, and it will become the last object, and the vault will be truly, finally still.

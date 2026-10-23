@@ -1,0 +1,15 @@
+# The Keepers of the Cup
+
+They come up in ones and twos, and they stay.
+
+You can tell a regular by the way they move at the rim: not cautious, but *unhurried*, the way you move in your own kitchen at night. They know which rocks are soft. They know the latch on the tripod that still holds. They have their spots — a shelf of older stone on the north side that has stopped growing, where a person can sit without being built into anything for an hour or two.
+
+They are not scientists, mostly, or not anymore. They are people who came up once to see the weather and did not come down, or came down and then came back up, and then again, and each time the interval got shorter until the interval was zero. There is a woman who was a glaciologist and a man who used to repair organs and a young person who has never told anyone what they were before. They share the work without discussing it. Someone checks the plates. Someone listens to the pulse of the lattice and writes down what it does, though the notebook has mineral bloom on it now and the ink runs. Someone feeds the mist-feeders by breathing on them, which they like.
+
+Their hands are pale and faintly luminous from the precipitate, and their hair has gone stiff and yellowish, and they smell like warm wet stone, which is to say they smell like the place, which is to say they smell like nothing you could name walking into a room. They keep their voices low almost all the time, not because they must, but because the Cup is already loud and they have learned not to add to it.
+
+They have a language for the place that they did not invent on purpose. The lattice is *the work*. The warm breath under the floor is *the big lungs*. The slow millwheel of the pool is *the turning*. When they say the light is *good today* they mean the amber has gone deep enough to see the pulse travel all the way across the net and come back. When they say someone has *gone into the floor* they mean it gently, and they mean it as a good death, and they do not mourn it loudly.
+
+They do not think of the absorption as the danger. They think of the descent as the danger — the cold, the dry, the world below where nothing accretes and everything simply wears away. Some of them have not gone down in years. Some of them cannot, now; the mineral has made their joints stiff and the dry air would crack them. They have chosen the warm cave at the top of the sky over the large cold world below, and they do not consider it a sacrifice, and they are not entirely wrong.
+
+The oldest of them — there are two, a man and a woman who arrived in different decades and have never agreed on which came first — have patches of translucent amber on their forearms the size of a thumbnail, the same glow as the rim, and the lattice knows their weight and does not brighten differently when they cross beneath it. They sit at the north shelf in the long dim evenings and watch the pulse go around and say almost nothing, and the mist-feeders climb onto their knees to be warmed, and the far tuning-fork hum of the instruments goes on and on, and the mountain breathes, and the rim is a little thicker this year than last.

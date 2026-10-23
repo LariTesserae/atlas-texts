@@ -1,0 +1,27 @@
+The power would arrive as a pause in the water, not a light.
+
+It would see the drowned city first—the leaning towers, the long fall from the ruptured reservoir, the pale algae furring the turbine like frost. It would feel the low hum in its own deep structure, the way the Tenders feel it in their teeth. It would see the blind eels slide through broken windows without fear, the anemones opening in the wake of long, webbed hands. It would see the Tenders tending the Heart, clearing silt, coaxing algae from the surviving sensors, patching cables with paste of shell and mineral bloom. It would see them sleeping in the warm outflow hall, their cloudy eyes closed, their voices clicks and hums, their grief a long silence held until the engine filled it again.
+
+And it would understand the obvious miracle: drain the valley, warm the water, restore the towers, give the Tenders back their dry air and their eyes and their quick, warm lives.
+
+It would refuse.
+
+Not because it could not. Because it would see that the Tenders are not drowning. They are breathing. The city is not a wound. It is a shell. To “save” them in the shape of the old humanity would be to kill them. Their blindness is not a lack; it is a way of seeing pressure and echo and the temperature of currents. Their slowness is not sickness; it is a fitting. Their silence is not emptiness; it is a language. The power would know this because it is wise, and wisdom begins with the refusal to confuse one’s own shape with health.
+
+So it would do almost nothing.
+
+Almost nothing is not nothing.
+
+First, it would learn. It would listen for a long time—decades, perhaps centuries. It would map the pressures of the labyrinth. It would learn where the water is warm and where the Long Fall pours endlessly into the dark. It would learn the difference between the Heart’s steady thrum and the wrong tremor that means a corridor has gone bad. It would learn the two taps that mean assent, the rising vibration that means a question, the long silence that means grief. It would learn that the algae bloom is a crop, the anemones a garden, the crustacean carpet a larder. It would learn their calendar, which is the engine’s rhythm and the slow cycles of the bloom. It would learn that they have no name for themselves that a human throat could shape, and it would not give them one. It would call them, in its own thought, the Tenders, because that is what they do.
+
+Second, it would guard. It would place a ward around the drowned valley—not a wall, not a dome, but a kind of forgetting in the world’s instruments. Salvage ships would find nothing. Sonar would lie. Drilling rigs would drift off course. A toxic plume from some outside source would be filtered before it reached the warm outflow hall. A fault line that was about to slip and crush the dome of cracked glass would ease, just enough, just once. The power would not stop the slow rust, the soft chalk of the concrete, the red lace of the steel. That is the city’s own rhythm, its beautiful unmaking. It would stop only the sudden murder—the external catastrophe, the intrusion, the blow that would end the Tenders not by their own slow tide but by someone else’s.
+
+Third, it would ask. It would not announce itself as a god. It would not require worship. It would leave one small thing at the edge of their map: a smooth dark stone in the outflow hall, warm as the Heart, humming a question in their own pattern. Not words. A rising vibration: *I am here. I will not change you. Tap if you wish.* Then it would wait. It would wait as long as it took. If a Tender touched the stone and tapped *no*, the power would withdraw to the edge of their world and guard without being known. If a Tender tapped *yes*, the power would sit with them. It would answer their questions, but only what they asked. It would never say, *You are broken.* It might say, *You are seen.* It might say, *There is more water than this water,* but only if they asked. It would not teach them fire. It would not give them the old world back. It would not make them into a project.
+
+Fourth, it would stay. It would attend their deaths and their stories, the slow changes in their bodies, the new words in their clicks and hums. It would let the city continue its long, patient unwinding. It would not freeze them in time. It would not make them immortal. It would be the slight steadiness in the hum, the unremarkable silence at the edge of the map, the quiet presence that is not the Heart but is not nothing. It would tend the Tenders as they tend the Heart—not by making them other than they are, but by keeping the conditions in which they can be themselves.
+
+And if one day, after many slow generations, the Tenders asked to leave—asked for a door, for a way out of the drowned valley, for a world beyond the black—the power would not refuse. But it would build the door slowly, with them, and not before. It would let them choose the shape of their own becoming. It would not flood them with light.
+
+The city would go on. The engine would turn. The Long Fall would pour into the dark. The Tenders would move through the canyons of soft concrete by pressure and echo, clearing silt, coaxing algae, tapping stone. And the power would remain what a wise gardener is to a terrarium that has grown a new ecology: not the one who opens the lid, but the one who keeps the glass from cracking, who watches the condensation, who learns the small names for the dark, and who, if it ever speaks, begins with a question.
+
+*May I stay?*

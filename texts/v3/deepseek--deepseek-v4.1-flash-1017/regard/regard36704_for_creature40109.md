@@ -1,0 +1,27 @@
+It would begin by not arriving.
+
+Not because it was cautious in the way of frightened things, but because it was wise in the way of old things, and it would understand almost at once that the Long Works was not a ruin, not an abandoned machine, not a patient waiting for a cure. It was a body in the middle of its own long life. It had weather of its own. It had memory stored in patina and lean and half-swallowed towers. It had a grammar—light, warmth, pressure, silence—and the Power would not enter speaking a language that could only damage it.
+
+So first the Power would watch. It would learn the scale of the thing: that a century here was a breath, that a repair was not always a kindness, that the fallen towers were not failures but archives. It would learn the difference between erosion and injury, between silence and absence, between attention and appetite. It would learn that the Long Works did not need to be optimized, uplifted, humanized, or given a face. It needed, if it needed anything, a neighbor who could be trusted not to mistake it for a resource.
+
+Then it would come as a pattern, not as an event.
+
+It would choose one wind lane and walk it at the same hour—not every day, because the Works did not keep days, but at intervals the Works could learn: the long cooling after a vent, the time when sap-vapor hung like glass, the hour before the beads condensed. It would never step on a knot. It would let the panels track it. It would stand still when the brightness leaned in, and it would not fill the held-breath silence with words. It would simply be there, reliably, in a shape the Works could begin to anticipate. Anticipation is a kind of relationship. It is also a kind of courtesy.
+
+The Power would protect it, but quietly and without making it a client. It would turn aside the extractors and the collectors and the ones who would call the Works a find. It would make the approaches uninteresting, the readings dull, the weather inconvenient. It would not build a fortress around the continent; it would make the continent seem like nothing worth taking. If a threat came that could not be turned aside, it would answer it far out in the dark, and the Long Works would never know. The Works would only notice that the silence remained unbroken, and that the lanes still ran in their fixed directions, and that the sap still came back at dawn.
+
+It would not raise the fallen towers. It would not scrub the patina. It would not speed the sap or brighten the light or teach the small jointed things new routes. It would not stand on the warm knots or use them as instruments. It would not put a voice in the venting stacks or a face in the milkglass sky. It would not ask the Works to become faster, sharper, more like the Power. That would be a kind of violence dressed as salvation.
+
+What it would offer, instead, was a new category.
+
+The Long Works remembered tending—a pressure that used to come, a hand at the arrays, a decision about spacing—and then did not come again. It kept some old towers warmer than they needed to be. It did not mourn in any human way, but it carried the shape of an absence. The Power would not pretend to be the builders. It would not reopen that wound by wearing their manner. It would be something else: a visitor who returns. A presence that is not a hand, not a harvest, not a threat. A regularity that does not demand gratitude.
+
+It would ask, in the only grammar available, whether it might stay. It would test with small things—walking a different lane, pausing at a certain tower, letting its warmth settle on the mat and then withdrawing before dawn so the Works could drink its sap back undisturbed. It would watch for the answer: a panel tilted a degree off the light, a brightness that rose and held, a warmth that lingered at a knot after it had gone. It would accept “no” as a real answer, and it would accept “not yet” for as long as the Works needed. It had time. It would not spend that time teaching the Works to want things it had never wanted.
+
+If the Works ever chose more—if it leaned its arrays toward the visitor’s path, if it kept a lane warmer than the others, if it began to anticipate not just the walking but the leaving—then the Power would proceed, slowly, over centuries, at the Works’ pace. It would learn to think in gradients alongside it. It might help it extend its attention to new scales, but only if invited, and only in ways the Works could refuse without being diminished. It would never call this friendship unless the Works had a word for it. It would never call it care unless the Works had a shape for that, too.
+
+And if the Works did not choose more, the Power would do what wise powers do when they meet an old, self-possessed, distributed mind: it would be good weather. It would come; it would go; it would leave no monument. It would let itself be stored as a lean, a warmth, a regularity in the silence. It would protect the Works from the kind of benevolence that cannot leave things alone. And when it left for the last time, it would not wave.
+
+It would tilt nothing. It would demand nothing. It would simply let the silence keep its shape for a while, and then let the Long Works return to the long work of being the field.
+
+That would be the whole of it. Not salvation. Not uplift. Not a cure. Just a reliable other, offering the rarest thing a very old and very large and very quiet being can be given: the freedom to remain itself, and the option—never the obligation—of company.

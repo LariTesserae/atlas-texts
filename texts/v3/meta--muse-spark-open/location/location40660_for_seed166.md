@@ -1,0 +1,40 @@
+It is not an ocean. Not exactly.
+
+It is a room below the world, and the room is full of water.
+
+To reach it you have to go down. Not far in distance, but down in kind — past the soil line, past the root tangle, past where the earth stops being soil and becomes stone. There is a hollow there. A small one. You could stand in it if there were air to stand in, which there is not. It is hamlet-small, grove-small, cathedral-small: one space with edges you can feel. A bowl cut into basalt and old limestone, perhaps thirty feet across, perhaps less - large enough to lose the sense of your own size in, small enough that you always know where the walls are.
+
+The stone is established. This place has been here a long time and has settled into its final shape. The water did the work. You can see it in the walls, which are not jagged or new. They are smoothed, undercut in places into low, dark lips, rounded at every corner as if the rock had been held in a palm for a thousand years. There are no sharp fractures, no fresh falls. Even the silt on the floor has arranged itself into low, graded dunes that do not shift. The erosion here is finished, or rather, it has reached equilibrium. Water moves, stone resists, and for a very long time now neither has won or lost.
+
+And it is cold. Not bitter, not killing — cool the way deep water is cool in late spring. The chill is even and everywhere. It comes off the stone, it hangs in the water without stratifying. Warm does not rise because nothing here rises. Cold does not sink because there is nowhere lower. The temperature has evened itself out so thoroughly that after a minute you stop feeling it as cold at all and start feeling it as stillness.
+
+The water itself is clear, but not empty. This is the thing that takes a moment to understand. You are not looking *at* water, you are *in* it, and it is in everything. Light comes from above, and that is strange because there should be no above here. But there is a shaft — not a built shaft, not a well. A vertical flaw in the stone, a throat perhaps a meter wide that opens all the way to the surface a long way up. You cannot see the top, not really. You see a column of paler water, a cylinder of illumination where motes hang. Normal daylight falls down it, filtered first by air, then by ten or twenty feet of standing water in the throat, so by the time it reaches the room it is diffuse, even, directionless but unmistakably day. It does not flicker. It illuminates the room the way light illuminates a room with a frosted skylight: bright enough to see grain and texture, dim enough that there are no hard shadows. Dust in the water — mineral dust, stone flour — catches it and makes it visible as a volume.
+
+You would expect life. There is almost none.
+
+On the lowest shelf of the wall, in a crescent where the light is strongest, there is a thin skin of vegetation. It is not green, not exactly. A pale, rust-brown algal mat, no thicker than paper, clinging to the stone in patches the size of your hand, with wide gaps of bare rock between them. A few threads of something like water-moss hang from an undercut, each strand no longer than a finger, swaying only when you move, otherwise perfectly still. There is nothing to eat them. There are no fish, no insects, no snails, no anything that swims or crawls. The water is too still, too mineral-heavy, too closed. When you hold your breath and listen you realize the absence is total. This is a plant life that exists without animal life, which makes it feel less like an ecology and more like a stain — life as a chemical fact, persisting because light and stone permit it.
+
+And yet, the place is industrial.
+
+There is nothing built here. That is important to say clearly because your brain will try to invent it to explain the feeling. There is no concrete, no brick, no rusted machine, no wreck, no cable, no cut stone, no tool-mark. No artifact at all. The walls are stone, the floor is silt and stone, the water is water. No hands have made this place.
+
+But the *behavior* of the place is mechanical, in the old sense of the word. Engine-like. Electrified without wires.
+
+The first machine is the water itself. Every ninety seconds — and you will count without meaning to — the entire room inhales. Not a current, not a flow. A pressure change. The water tenses, very slightly, as if a vast piston has moved somewhere beyond the walls. Fine silt lifts a millimeter off the floor and settles again. The algal threads shiver once. On the far wall, where the limestone has bled iron for centuries, a seep opens. It does not gush. It beads. A constellation of dark red-brown droplets wells out of the porous rock, hangs for a moment, and then detaches and falls — not quickly, but with the slow, regular fall of product on a line — down through the clear water to the floor, where they dissolve into a faint rusty cloud that never spreads beyond its own small radius.
+
+Then, on the opposite wall, the second part of the cycle: a vein of pale, almost white mineral — calcite, quartz, something that catches the light — hums. You feel it more than hear it. A low, 60-cycle thrum that travels through water and bone rather than air. For about ten seconds the vein is brighter, as if current is passing through it. Tiny bubbles form along its length, pinhead-sized, perfectly uniform, break free, and rise in a straight, plumb line toward the throat, also never varying, never scattering. They rise at the same speed every time.
+
+One side precipitates, the other outgasses. Inhale, exhale. Deposit, release. It is not fast and it is not dramatic. It is scaled production without anyone producing anything, a factory where geology does all the jobs: piston, conveyor, electrolyte, assembly line. The water is the lubricant and the product and the worker. Minerals are mined from one wall by pressure and acidity, carried three meters through still water, and laid down on the other as a faint, fresh crust that will never get any thicker than a fingernail because the cycle will reverse and take some back.
+
+It has been doing this for a very long time. The balance of erosion told you that, and the balance of the machines confirms it. This is not a process building toward something. It is a loop at equilibrium. Nothing accumulates. Nothing depletes. The rust cloud on the left is always the same size. The bubble stream on the right is always the same number of bubbles. The light from above is always the same diffuse day. The cold is always the same cool.
+
+Sound, in here, is almost nothing. Water carries sound well, but there is nothing to carry. Mostly quiet means that when you stop moving, the room stops. There is the faint tick of detaching droplets, the almost sub-audible hum of the vein when it brightens, and then, at the edge of hearing, the deep, distant throb of the piston cycle — not loud, not intrusive, more like the feeling of your own heart when you press your ears closed. It never changes tempo. It has no crescendo. Many people who stay here a while report that they stop hearing it entirely and instead feel time flatten.
+
+Because time does not really pass here. The rules are simple and stable to the point of strangeness, though nothing about the place *looks* strange.
+
+1. Everything that moves returns to where it started.
+2. No thing enters without an equal thing leaving. Water in from the throat equals water out through microfissures you will never find. Mineral from the left equals mineral to the right.
+3. Light arrives but does not accumulate as heat.
+4. Life may cling, but it may not spread.
+
+You can stay as long as your air allows and you will see no difference between minute one and minute sixty except the slow, mechanical breathing of the room, which was already breathing before you arrived and will continue after you have to go back up toward the air.

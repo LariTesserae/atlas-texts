@@ -1,0 +1,43 @@
+The City on the Shard Range
+
+It is not a mountain. It is a continent that forgot to come down.
+
+A highland so vast it makes its own weather, and so young the rock still remembers being broken. From orbit, if you could reach orbit with anything more than your eyes, it would look like a fresh scar on the planet — a single, long uplift thousands of kilometers end-to-end, raw basalt and granite thrust up in a single, geologically recent shrug. No soft hills. No worn-down domes. Everything is edge and plane, fault scarp and column, stair-step mesas where the uplift cracked and lift upon lift was exposed.
+
+Erosion has barely started here. That is what makes it strange to walk through. Rivers, where they exist, have not had time to carve wide valleys. They are gorges instead — sudden, vertical cuts a kilometer deep and only thirty meters wide at the lip, so straight you could have drawn them with a rule. You can walk across flat, frozen steppe and then be standing at nothing, a cliff simply beginning under your boot, dropping into shadow where a river roars far below. The scree slopes beneath the highest towers are still sharp enough to cut rope and skin. The talus hasn't rounded. The peaks haven't sagged. The whole range rings like a struck bell when the ice shifts because there is no deep soil to muffle it.
+
+And it is cold. Profoundly, steadily cold. Not the killing cold of polar night — the light here is normal, clear, high-altitude light that comes hard and white at noon and goes amber and endless in the evening — but the air never properly warms. At midday in summer, the stone in the sun might be comfortable to touch for an hour before it cools again. Breath always shows. Water always wants to be ice.
+
+Water exists here, but not generously. There is no ocean on the plateau. No great lakes. Air comes from the lowlands damp, hits the Wall of the Shard Range and condenses — and freezes. Almost all the water on the highland is seasonal or structural: the rime that forms every night on every surface and melts by noon, dripping from ledge to ledge; the small, fierce rains that come twice a year when the continental pressure system stalls and the plateau briefly makes its own clouds; the rivers trapped in their gorges, fed by snowfields perched impossibly high in the sharp country.
+
+Between those, the plateau is dry steppe, frost-desert, stone pavement. And in the folds where water does collect — in the lee of a fault step where snowdrifts persist into autumn, around a spring that forces its way warm from depth, along the lip of a gorge where condensation drips all day — life concentrates violently. A pocket of moss, lichen, black-rooted cushion plants, all hunched low against the wind. And where there is any plant at all, there is animal life.
+
+Which is to say: everywhere you look for green and find it, you will find movement.
+
+This high cold desert should be empty. It isn't. The density of living things is startling. The cliffs are banded black and white with nesting colonies — not birds as you know them lowland birds, but their high-altitude cousins: broad, quiet gliders the size of coats, with heavy fur rather than down under their feathers, and membranes between their legs that let them ride thermals without beating a wing. They crowd the ledges shoulder to shoulder for kilometers along a single scarp, tens of thousands of them, mostly silent. The young call once, high andthin, and then hush.
+
+On the flat, herds move. Low, shaggy grazers with wide splayed feet that walk on snow crust without breaking through, muzzles built to scrape lichen from stone. They number in hundreds and they leave trails so deep in the thin, sharp gravel that over centuries those trails have become roads. Following the herds are smaller things — dog-like pack scavengers with pale coats, burrowers that whistle, insects improbably large that shelter in stone cairns and buzz sluggishly in the brief warmth of afternoon.
+
+Abundance in a starvation palette. No forests, but a tapestry of lives woven tight.
+
+And woven through that tapestry, layer after layer upon it, is the city.
+
+Because people live here. Have lived here a very long time.
+
+You do not see it at first as a city in the lowland sense of sprawl. You see lines. Long walls following contour lines, terrace to terrace, cut-stone without mortar fitted so precisely frost cannot enter the seams. The built density here is incredible but vertical and terraced, not tall in the modern way. Nothing rises more than three stories — wood is rare at this height, metal rarer — and everything is built to not catch wind. Instead, the city spreads sideways across the steppe and hangs sideways off the cliffs.
+
+It follows the water, which means it follows the gorge rims and the fault springs. For five hundred kilometers along the main eastern scarp alone, there is essentially one continuous inhabited edge. Dwellings carved half into the rock and half built out with dry-stacked basalt blocks brought up from the talus. Covered walkways of stretched hide and woven grass matting connecting courtyard to courtyard to keep the wind off. Cisterns in every house, some no larger than a barrel, some as big as chapels, all fed by the morning melt from carefully tended fields of condensation stones — dark, porous rocks stood on end on roofs and in yards to draw frost at night.
+
+Downward, into the gorges, the city grows roots. Rope bridges of sinew and fiber, rebuilt every season, span the narrow cuts. Basket elevators on counterweighted pulleys descend to the river level where winter ice is harvested in blocks and summer fish traps are set. Along the sheer walls, stairways have been pecked into the living stone one foothold at a time with antler picks and hammerstones. You can stand at the top and look down and see lights — tallow lamps burning seal-fat in niches — marking doorways all the way down to the water, a thousand feet of occupied cliff face, laundry snapping silently in the gorge draft.
+
+The technology is primitive entirely through necessity. There is little ore accessible without deep mining the hard new rock, and fuel to smelt it is scarce — low scrub and dried dung burn cool. What metal there is comes from meteor iron and sparse copper veins worked with stone hammers, treasured for knives and needles. Everything else is stone, bone, horn, hide, woven fiber, felt. The highest art here is fitting — fitting stone to stone, fitting life to the thin margin the plateau allows.
+
+Change comes slowly. A new terrace takes a generation to finish. A family might spend its entire recorded history deepening a single cistern seep by a hand's breadth. The city does not expand so much as it settles deeper into the rock that already exists, smoothing the sharp youth of the range with human patience. Lichen gardens cultivated for dye and food advance a few meters a decade. Herd routes fenced and guided become streets. Middens of bone and broken stone, built up over centuries, become new hills.
+
+For all its size — and it is continental in scale, a nation that is a single city-state running along the spine of the world, where dialects diverge more with distance than any law changes — it is quiet. Sound carries badly in the thin cold air and the city has learned not to make unnecessary sound. No engines. No forges roaring day and night. What you hear walking its endless outer walls is wind through door-hangs, the soft collective shuffling of furred feet, distant whistles of the gliders, the clack of stone on stone as someone shapes a block, and underneath everything, the faint, patient drip of water from cistern to cistern, from roof stone to basin.
+
+At dusk the light goes flat and everything the color of stone becomes the same grey-blue, and then the windows kindle. Because though the air is thin, the sun is honest here. Days are cleanly lit and nights are cleanly dark, the stars overwhelmingly bright and steady beyond any haze. In that light, and that cold, the city holds.
+
+You understand after a few days why they built so densely and yet so low and quiet: on a young, vast, cold height that catches every storm and offers almost no shelter, density *is* shelter. One body against another. One wall sharing heat with the next. One cistern overflowing into the next. The gorge and the scarp and the terrace and the hive — all facing inward to keep the wind out and the little, precious damp in.
+
+It is not a hospitable world. But it is an inhabited one, utterly, to its horizon.

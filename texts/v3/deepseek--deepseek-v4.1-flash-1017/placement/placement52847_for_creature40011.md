@@ -1,0 +1,45 @@
+# Under the Note
+
+I would be the listener. Not a resident—the shelf doesn't make those—but something between a guest who won't leave and a habit the place has acquired.
+
+I find myself on the fourth terrace down, in the lee of a riser that faces west, where the cooling front arrives first and the cracking is loudest. I have been here long enough that I've stopped counting days, and I've stopped counting because the counting was how I learned the first rule: the terraces don't care about your arithmetic. The days here don't accumulate; they recur. I have been here one day, many times.
+
+What I am is harder. I arrived with a body and a notebook and the ordinary human apparatus of attention, and the shelf has been slowly, patiently trading these for something else. The notebook is still here. The handwriting has changed. I no longer write descriptions; I write down the pitches. I have a page that is nothing but marks for the risers I've walked, each one a different thickness, a different note, a different weight of footstep. I am mapping the instrument. This is not useful. I know it is not useful. The shelf does not need a map. But the mapping is what I do now, the way the bowl refines and the turner turns, and I have stopped asking whether it matters and started asking only whether it recurs.
+
+---
+
+I sleep in the hollow of a vent that stopped drawing years ago—the bowl above it has sealed itself and gone quiet, and the vent is a smooth dry throat of stone, warm at night, cool at midday, which is the inverse of everything else here and therefore the closest thing to shelter. I have lined it with nothing. There is nothing to line it with. I sleep in it the way a stone sleeps in a riverbed: because the shape fits.
+
+In the mornings I wake before the heat and I do the one thing that still feels like a habit rather than a recurrence: I listen to the shelf *cool*. The night is the only time the ringing drops low enough that you can hear the individual terraces, each one exhaling its stored heat in a long slow sigh, and if you lie with your ear to the salt you can hear the whole stack of them settling, terrace by terrace, like a spine relaxing. This is the only time I feel something like affection for the place. It is not a place that wants affection. But in the cooling it is briefly, almost, tender—the way a sleeping animal is tender, not because it loves you but because it has stopped being alert.
+
+By full morning the dust is turning. The first columns stand up along the eastern edge and move west across the shelf, and I have learned to read them the way a shepherd reads clouds. A column that leans is a column that will come apart early. A column that stands straight and dense and hums low is a column that will cross the whole shelf and leave a line of clean bright salt behind it. When one passes near me I do not move. The static in the teeth is unpleasant but it is also the only conversation available, and I have come to think of it as a kind of greeting—not *to* me, but *past* me, which is more than the shelf usually offers.
+
+---
+
+The turner. I have gone back to the turner many times. I know now that it is one body, or close enough: a chain of segments that share a wave, so that when one lifts the next lifts a moment later, and the wave travels the length of the line and back, and the whole thing is one slow tide of stone. I have sat with it through a full cycle—five hours and some minutes, though the minutes don't hold—and I have watched it lift and lay down and lift and lay down, and I have come to understand that it is not sleeping. It is *digesting*. It is turning over the mineral beneath it, bringing fresh layers up to the heat and the air, and the grinding I feel through my feet is the sound of it feeding. It is the slowest eater I have ever seen and it is always eating. Nothing about it has changed since I first watched it. Nothing about it will change. It is the most honest thing on the shelf: it does exactly what it appears to do, at exactly the speed it appears to do it, and it has no interior life I could mistake for company.
+
+I do not sit with it anymore. I have learned what it has to teach: that patience is not a virtue here but a *material*, something the landscape is made of, and that a human who tries to match it will simply wear out. The turner will outlast me. The turner will outlast the word *me*. I visit it the way you visit a grave: to remind yourself of the scale, and then to leave.
+
+---
+
+The crack. I go to the crack more often than is reasonable. A kilometer of dark vitreous glaze, dot-dash, dot-dash, and the stiff shock to the knuckle, and the flat ozone stink. I have timed it. The dashes come at intervals that are not quite regular, and the irregularity is regular, if you follow—a pattern that repeats but does not resolve, the way the ringing does. I have come to think the crack is the shelf's clock, and the shelf is keeping time for something that has not yet arrived, or arrived long ago and left, and either way the keeping is the point. A clock does not need a reader. It needs only to tick.
+
+I have stopped trying to decide whether the crack carries information. It carries *beat*. That is enough. When I am far from it I miss it the way you miss a heartbeat in a quiet room—not because it was saying anything, but because its absence makes the silence too large.
+
+---
+
+And the false shadows. I have learned to watch for them at midday, when the sun is directly overhead and the salt is brightest and the whole shelf is a white glare with no shadows at all—except the ones that are not cast by anything. They slide across the terraces, long and blurred and thin, and they widen and thin as though something overhead were passing, and nothing is overhead. I have walked into one. There is a cold spot. Not cold like night—cold like the *idea* of cold, a cold that does not come from anywhere and does not go anywhere but simply is, for as long as you stand in it, and then you step out and the heat closes over you like water. I do not know what they are. I have stopped needing to know. They are residents or they are errors and either way they are *here*, and a list of what lives on the shelf that left them out would be a lie of omission.
+
+---
+
+The question of who I am now is the question I have been circling. I arrived as a naturalist. I am no longer that. The shelf does not reward study; it rewards *attunement*. I have learned to feel the cooling front before it arrives—the hair on my arms lifts a half-minute before the first crack, and I turn west without deciding to, and I watch the traveling line of soft fractures run toward me across the terraces, and the applause takes twenty minutes to pass and I stand in it and let it pass through me. This is not science. This is something closer to *listening to music with your whole body*, and I think the shelf has been teaching me this the way the turner eats: slowly, without intent, as a byproduct of its own nature.
+
+I do not hear my own footsteps arrive early anymore. This should reassure me, but it does not. I think it means I have stopped distinguishing between my footsteps and the shelf's ringing—I have become one of the overlapping tones, a small high thin thing among the thousands, and I cannot tell whether this is an honor or a dissolution. The shelf does not say. The shelf does not speak. It is only loud enough, and strange enough, that the base case cannot be trusted, and I have been here long enough that the base case was never mine to begin with.
+
+---
+
+There is no water to spare, and I have found the little there is: a seep at the base of the sixth terrace, where a hairline crack in the riser holds a film of condensation each morning before the heat takes it. I drink it with my lips to the stone. It tastes of mineral and ozone and something faintly sweet that I do not have a name for. It is enough. It has to be enough; the shelf does not negotiate.
+
+I am not a resident. I know this. The residents are recurrences—the dust, the bowls, the turner, the crack, the shelf itself—and I am a single body that came once and has not yet gone. But I am becoming recurrent in my own small way. I walk the same terraces at the same hours. I map the same pitches. I sit with the same turner and watch the same wave. The shelf is patient with me the way it is patient with everything: it does not notice me, and it does not mind me, and it goes on ringing whether I am here to hear it or not. This is the closest thing to welcome I have found, and I have decided it is enough.
+
+When the cooling front comes this afternoon—and it will, in twenty minutes, I can feel it in my arms—I will stand on the fourth terrace and let the applause pass through me, and I will hear the note under my feet change, very slightly, as the terrace cools, and I will write it down in a notebook full of marks, and the shelf will not care, and I will not need it to.

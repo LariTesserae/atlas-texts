@@ -1,0 +1,31 @@
+I am the one who goes up.
+
+Not far up. Nobody goes far up. But the shaft-keeper goes higher than the rest — six ladders, or four ladders and a rope, up the reed-lined chimneys to where the scraped bladder-skin is lashed over the mouths, and I am the one who scrapes it, patches it, and lately has begun to wonder whether I am the one who is supposed to say the thing.
+
+They call me Wick. It's a thing, like everyone's name is a thing, and it means the floating bit of the lamp, the part that burns, and I have never been sure whether that is a compliment or a joke at my expense. Probably both. In the Kettle a name is a tool you are handed and expected to keep sharp.
+
+Here is what I know that the others argue around. The deep-enders say deepen the pool. The high-enders say raise the shelves. Both of them are shouting at each other in the dark from either end of the same fact, which is that the marsh is coming up and the Kettle is going up after it, and one of those is a good deal slower than the other.
+
+I keep a cord. It's gut-cord, waxed, and I tie a knot in it every wet season at the height the water sits against the base of the mound where the algae turns from green to black. Sixteen knots. My mother kept the cord before me and her knots are there too, under mine, fatter and softer and further apart. When I lay the cord out along the brick of the low chamber the knots run up the years like a staircase for a very small person. The first eight knots are almost level. The next five climb. The last three climb like something being chased.
+
+I have never shown the cord to anyone. I don't know why. That's not true; I do know why. In the Kettle, a thing you say gets argued with, and it gets worn smooth by being handled, and after a while it's a thing everyone has touched and nobody looks at. I would rather mine stay rough.
+
+My shoulders are the worst of anyone's. The shaft-keeper's body is a special ruin. You climb the ladders bent, and you crawl the last of it with your head turned sideways because the chimney narrows toward the mouth, and you come out into a green-gold boil of light that is only three handspans across, and you lie in it with the smell of the skin and the reed dust in your face and you use your shell to scrape the algae off the underside so that the beams come down clean. If I don't scrape, the light goes from gold to green to a dull brown green like old broth, and the vine notices before the people do. The vine is the only honest thing in the Kettle.
+
+Which is why I am the only one of us who doesn't flinch at the sky, and I want to be clear that this is not courage. It's exposure. The first time my mother took me up I screamed — the whole shaft heard it, and it got into the drip-song, and children still sing it at me. Now I can lie in the mouth of the shaft with my cheek on the reed and look out at all that emptiness and not scream. But I come down wrong. Every time I come down I have to put my hand flat on the daub and hold it there a moment and remind myself where the walls are. Wick the wallless. There is a joke there too and I have heard it.
+
+So I am not the one to ask which side is right. I am the one to ask what the wind is doing. I know the wind the way Fen knows clay — I know what a wet year smells like at a thousand paces, and I know that the reeds are standing further out than they were, and I know the traders came three days late last spring because there is a channel that used to be there and isn't. When they come, I am the one who goes down to them, because I am the only one whose eyes don't water, and I stand in the open with my hands behind my back and look at the sky across the marsh, and I don't say anything to them either. The traders think I am cold. The traders think we are all cold. We aren't, we're just loud and bent and we can't hear.
+
+Three things I keep that aren't the cord.
+
+I keep the birds. Not in a cage; they come and go through my shafts and I have learned which ones and I have opinions about them, and I have been accused, more than once, of feeding the marsh. It's true. I feed the marsh. A bird on the reed at the mouth of the shaft at first light is the only company I get that doesn't talk, and I will bribe it with cress.
+
+I keep my mother's handprint. She's in the wall of the third shaft, low down where the drips run, and her pot was re-tuned and it sits above her and the shaft-water finds it. It is the best note in the Kettle — I don't say that, but everyone knows it. Once a year I mix the daub and press my hand into the seal over her, and I take my hand away and the print stays, and it is getting to be a mess of hands in there, hers and mine and mine and hers, layered like the wall.
+
+And I keep a niche. I picked it years ago and I have told no one, but I have been scraping the soot out of it a little at a time, the way you'd clear a shelf for a thing you haven't made yet. It's high — the highest niche in the place, up under the third shaft where the chimney narrows and the light comes down in a bar that lies across the wall for an hour every morning. Marrow says it's a fool's niche, there's no room for a body that high, and it's true, there isn't, nobody has ever been laid up there, the bearers couldn't get the reed round the turn.
+
+But I am the one who goes up. And when it is my turn, I want the men and women of the Kettle to have to figure out how to get me there — I want them to have to sister the shaft, and take the light down for a day, and argue about it. I want them to have to learn to do a new thing with their hands because I asked for it, since that is the only kind of arguing that has ever changed anything in this place.
+
+And then the drips can find me, and the frogs can go on being brainless underneath, and the marsh can come up the way it is coming, and the Kettle can rise by a finger's width a year the way it always has, and someone can stand in my bar of light with a shell in her hand and scrape the green off the world so the gold comes down.
+
+She won't know she's standing on me. That's the best part of it. She won't even have to know.

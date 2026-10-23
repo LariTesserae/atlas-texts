@@ -1,0 +1,25 @@
+The benevolent and wise power would arrive as a pause.
+
+Not a ship, not a throne, not a beam of correcting light—just a long, deliberate attention settling over the Plateau of the Weeping Rooted, slowing itself to the speed of limestone and spore. It would come knowing that the first act of wisdom in a place like this is to refuse the urge to fix.
+
+It would see at once that the plateau is not a ruin with a remnant inside it. It is a being made of place: the Rooted weeping their slow irrigation, the old machines dreaming in mineral, the beetles and fliers and frogs and fungi threading the whole thing into a crowded, cyclical metabolism. The power would recognize the composite—not a people, not a machine, not a garden, but a living arrangement that has learned to keep itself alive in the ruins of a future that has already passed.
+
+So its first action would be nothing visible. It would listen at every scale. It would learn the grammar of mist: which artifact wicks which hollow, which Rooted seeps when, which spore pulse follows which warm downpour. It would hear the hum below hearing and not try to translate it into speech. It would map the nodes of life and the stony sea between them, and it would understand that the emptiness is not failure; it is the spacing that keeps the pockets from devouring each other. It would learn that the weeping is not grief. It would not offer consolation for a sorrow that isn’t there.
+
+Then it would do the smallest sufficient thing: it would make a boundary without making a wall.
+
+Around the plateau’s hazy edge it would set a quiet—not a dome, not a prison, but a selective membrane of attention. Rain would still come. Spores would still drift. Migrating fliers would still pass through the warm air. But extractive curiosity—the collector, the miner, the one who sees pearlescent bone and thinks resource—would find its gaze sliding away, its instruments returning noise, its maps growing vague at the margins. The plateau would become uninteresting to the wrong kind of hunger. The power would not hide it from those who could approach with reverence; it would only subtract the approaches that arrive as teeth.
+
+It would not seal the place. A terrarium sealed too well becomes a coffin. The membrane would let the world breathe.
+
+Then it would wait. It would not enter the hollows with boots and instruments. It would not speed the Rooted, or optimize the fungi, or wake the standing stones to ask them what they were. It would understand that the plateau’s intelligence, if it is intelligence, moves at the speed of stalactites; that to demand an answer in a human season would be a kind of violence. Instead it would offer a question in the only language large enough: a single extra pulse of warmth at dawn, held steady for a century. A millimeter of new seep. A pattern in the condensation that was not quite weather. And then it would wait for a reply that might come as a shift in a root, a new spore bloom, a stone’s script rearranging when no one was looking.
+
+If the composite answered—if the Rooted swelled, if the artifacts altered their hum, if the pockets synchronized in a way they had not before—then the power would enter a covenant. It would become a neighbor, not a landlord. It would repair only what was invited to be repaired, and only at the plateau’s own pace: a hairline crack in a pearlescent wall sealed over decades; a drying pocket given a finger-width of redirected mist; a failing seep coaxed back by the patient pressure of a thought. It would add nothing bright or fast. It would not teach the beetles to speak or the stones to sing. It would not make the slow heart quicker.
+
+If the composite did not answer, the power would accept that too. It would remain at the edge, a quiet presence in the haze, keeping the membrane intact and learning the place by watching. It would be company without demand. It would let the plateau remain itself.
+
+And it would do one more thing, because benevolence without memory is only weather. It would build a threshold—not inside the plateau, but at its rim—where a rare and careful visitor could come to learn without entering. A place of records and warnings and stories, a library of the plateau’s patterns rather than its specimens. There it would keep the knowledge of what the place is: not a treasure, not a ruin, not a resource, but a slow, composite life that has the right to continue being slow. It would teach that the weeping is irrigation, that the empty stone sea is a necessary silence, that the old machines are not gods but hearths, and that the wisest way to love a thing like this is often to leave it unimproved.
+
+Then the power would remain—or leave and return every century, which for such a being is much the same. It would keep watch. It would keep the membrane. It would answer the plateau’s mist with a mist of its own, not to change it, but to say: I see you. I am here. You may continue.
+
+That is what a benevolent and wise power would do, if anything. It would not turn the plateau into a project. It would not cure its weeping. It would make sure the weeping can go on.

@@ -1,0 +1,15 @@
+There is no *who* here, not in any sense you could greet. The population is a handful of pale flat things, a cloud of motes, and a luminous skin that is not quite alive but behaves as if it were.
+
+The flat things are the residents you can count: six, maybe seven, each about the size of a palm. They have no eyes, no limbs, no head, no front or back you could point to. A body is a wet sheet of tissue, thin at the edges, a little thicker at the center, pale as the film they cling to—so that on an untouched wall they are nearly invisible except for a wet shine and the dark track they leave behind. They are not built for this room so much as assembled by it: soft, slow, entirely surface.
+
+They live by pressing that surface against the luminous film. Their underside is the only part with any business to it—a soft sole that lays itself flat and lets the film come apart into them, or dissolves it, or absorbs it; the difference is not observable. They do not bite or scrape. They crop by contact. Where they have passed, the wall is dark and bare, and behind them the film returns, brighter for a while than the surface around it, as if the grazing were a kind of pruning.
+
+Their whole vocabulary is four verbs: cling, creep, feed, contract. They creep by waves of contraction too slow to see. Leave and come back, and one has moved a hand’s width and left a dark smear like an erased pencil line. Touch one, and it contracts into a smaller, thicker oval and goes still, exuding a thin clear fluid that smells of the pool—hot stone, wet mineral, faintly alkaline. It is not fear. There is no flight in them. It is the entire response they have.
+
+They do not seem to have young, or eggs, or a spawning. The count stays at six or seven. They are not pests and not gardeners, though the film does better where they have been. They are simply the room’s only grazers, and the room’s chemistry sets their pace.
+
+In the water and the mist are the motes: colorless, drifting on the convection, too substantial for dust and too indefinite for a name. They gather where the grazers have been, in the diluted wake of that clear fluid, and they hang there in slow clouds. Perhaps they are shed tissue; perhaps they are spores; perhaps they are a second life too small to classify. They do nothing visible except drift and gather, and be eaten, and gather again. They are the room’s plankton.
+
+And under all of them is the film—not a resident exactly, but the thing that makes residence possible. It is a mineral skin that grows in fine bands, heals when scraped, and feeds the grazers. It is alive the way a crystal is not, and not alive the way a cut is not, and it will starve and dim when the fracture seals and the water stops coming.
+
+For now the room has its seven pale palms on the wall, its cloud of motes, its slow wet sound of adhesion when one of them moves. They are what lives there: not a society, not a species you could name, just a small accidental population spending the room’s gradient as slowly as it can.

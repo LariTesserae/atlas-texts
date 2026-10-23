@@ -1,0 +1,29 @@
+# Hadal Spire
+
+The city grew downward from the broken ceiling of the world.
+
+It is called Hadal Spire, though no one living remembers who named it or why. The name persists the way a scar persists—long after the wound that made it has been forgotten. The settlement hangs from the underside of a stone sky: a vast inverted landscape of karst and fractured basalt, dripping and weeping, its surface never quite finished forming. The rock is young here. It still moves. Somewhere far above, the planet is still building itself, and the water that seeps through the stone brings minerals that harden into new ledges, new arches, new chambers that no one has mapped. The city annexes them as they appear. The city is always annexing.
+
+The architecture is not built so much as encouraged. Struts of something like chitin and something like ceramic lace through the cave walls, extruded by machines no larger than grains of sand, which work in slow tides, laying down infrastructure the way coral lays down reef. The structures they make are dense—close and layered, near-touching, grown for function rather than beauty. Corridors spiral through stone, connecting platforms that jut from walls or hang from cables anchored in the roof. There is no sky. There is no horizon. There is only the downward spiral of inhabited space, and the black water far below, and the things that live in it.
+
+The things that live in it.
+
+This is the loudest place I have ever been. The sound is not the sound of crowds or machinery, though there is some of that—the low hum of the city's constant construction, the drip and hiss of water finding new paths through stone. The sound is the fauna. They are everywhere. They are everything. They writhe along the walls, cling to the struts, drift through the wet air in shimmering curtains. Luminescent worms pulse in unison, their light a coordinated signal that ripples across the ceiling in waves. Somewhere below, something enormous is singing—a long, slow, grinding song that vibrates the rock and makes the water tremble. Smaller things answer. The whole cave is a conversation. The whole cave is a chorus. The sound is so constant that the residents have learned to sleep through it, to think through it, to live inside it as one lives inside air.
+
+The creatures are not vermin. They are not pets. They are the ecology, the infrastructure, the economy. Some of them are harvested: the luminescent worms for light, the filter-feeders for food or for material that can be processed into something edible. Some of them are farmed, their growth chambers threaded through the city like veins. Some of them are worshipped, though the worship is practical—the great singer below is propitiated with offerings of metal and silence, because sometimes it falls quiet, and when it falls quiet, the smaller things stop singing, and when the smaller things stop singing, the city goes dark. No one knows what happens after that. No one wants to.
+
+The water is everywhere. It condenses on every surface, drips from every ceiling, pools in every depression. The air is thick with it—a perpetual mist that tastes of iron and salt and something older. The humans who live here have learned to move through it without slipping, have learned to breathe it without choking. Their clothing is dark and close-fitting, studded with bioluminescent markers so they do not lose each other in the dark. Their homes are warm—small pockets of heat carved into the cold stone, lit by the worms, heated by the same geothermal vents that keep the water liquid. Outside those pockets, the temperature never rises above freezing. The water that drips from the ceiling is often ice before it lands. The city is cold, and wet, and dark, and loud, and alive.
+
+And yet—this is the strange part—there is something hopeful here. Something emerging. The city is unfinished. The world is unfinished. The stone walls are still growing, still changing, still becoming. The machines that lace the struts into place are not repairing a ruin. They are building something new. The maps are never complete because the territory is never complete. Every day, someone finds a passage that was not there before. Every day, someone charts a new chamber, a new ledge, a new place where the water has carved something that could become a home.
+
+The residents do not think of themselves as survivors. They think of themselves as residents. They have jobs, families, routines. They have festivals when the great singer sings a particularly beautiful passage. They have funerals where the bodies are given to the filter-feeders, returned to the cycle. They have arguments about politics and art and whether the worms should be harvested at dusk or at dawn. They have children who have never seen the surface and do not miss it, because how can you miss what you have never known?
+
+I asked one of them, a woman with grey eyes and a quiet smile, what she thought of the darkness. She looked at me for a long moment, as if the question were strange. Then she gestured around us—at the pulsing ceiling, at the dripping walls, at the spiraling city that stretched up and down as far as I could see, its lights and its sounds and its life filling the cave like water fills a bowl.
+
+"What darkness?" she said.
+
+And I understood. The light here is not the light of the sun. It is not the light of lamps or fires or screens. It is the light of living things, of things that are still becoming, of a world that is still building itself from the inside out. It is a small light, a close light, a light that only reaches as far as the next ledge, the next platform, the next turn of the spiral. But it is light. It is enough.
+
+The water drips. The worms pulse. The great singer sings. The city grows.
+
+I stayed for a while. I did not want to leave.

@@ -1,0 +1,19 @@
+I would come in over the marsh at the wrong hour, and someone would stop me at the lip with a hand and not a word, and we would stand there in the cold while whatever was in the water finished being in the water. That is the first thing the Sump teaches: not *don't*, but *not now*. I would learn to wait before I learned anything else.
+
+Then I would be let down, hand over hand on a rope, and given work. Probably the work nobody wants, which in a place like this is always the work of standing still. Somebody has to sit with an ear against a pole and tell the drip from the shift, the trickle from the clay thinking about coming down. Everyone hears it; not everyone has the patience to *only* hear it. I think I would. I think that is the kind of person I would turn out to be here — the one they send for when the dripping changes. I would come back and say nothing, and they would read my face and move a house.
+
+But that is not what I would end up doing, because the ceiling claims people.
+
+The cutting-back is the first duty and I would take to it, and taking to it is a dangerous thing. You go up on a rope with a bone hook and hang in the dark against the mat, and the mat is warm and breathing and full of small gray things that open when you touch them. The light you carry is a gourd of drifting animals on wet fiber, and it throws just enough to show you the underside of the roof, which is a country — a whole down-hanging country, root-ropes and bridged runners and shelves of pale leaf pressed flat, and in it the sacs, curled and soft, rooted and waiting. You hook them down. You fill your basket. The rope takes the weight. You eat well.
+
+And you stay a little longer each time. The first season you come down every evening. The second you sleep in a hammock slung from the mat, because the climb tires you and the roof is warm and you have begun to know its weather. The others bring you food on a pole and you lower your basket and they laugh at you, kindly, the way you laugh at a person who has fallen in love with something unsuitable.
+
+I would become the one who knows the underside better than the floor. I would learn where the mat is thin and where it is thickening, where it will let go next, which of the sacs open at a touch and which keep themselves closed. I would learn that a whole shelf of leaf drops with a sound like a dropped coat, and that you do not flinch, because flinching on a rope is how you die.
+
+I would not be able to answer, anymore, whether the gray flesh is plant or animal. The question would come to seem to me what it seems to everyone here: funny and slightly rude, and meaning nothing at supper.
+
+And when the two weeks come — when the sacs open and let go into the air in numbers past counting — I would be up there. I would cover my mouth and pull my lamp low and hang in the dark among them while the air filled with a fine pale drifting, and I would not be able to think of it as an attack or a plague. I would think of it as a neighbor doing what it does, on schedule, and me keeping out of its way. That is not a festival. It is weather with a season, and I would have learned to dress for it.
+
+So: who would I be? The part that cuts back and is fed. The part that hangs in the dark with the whole reaching roof pressing down, keeping my hands busy and my mouth shut, carrying a light that is not mine and never was — only kept, and replaced, and kept again. I would be a maintenance schedule with a heartbeat, in a bowl that is still falling in, and I would speak low, and I would listen more than I talked, and I would know that a repair is never the last one and would find in that not a tragedy but a Tuesday.
+
+And one day the rope would bring up an empty basket, and the town would look at each other, and somebody would say the thing they say, and they would cut the hammock down and go on cutting the ceiling back, because the ceiling does not stop and neither does anyone who lives under it.

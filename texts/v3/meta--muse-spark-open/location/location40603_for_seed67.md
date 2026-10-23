@@ -1,0 +1,37 @@
+This place is a floor.
+
+Not a floor *of* something. It is the floor itself, uninterrupted to the horizon in every direction and beyond the haze that marks where horizon should be. You are standing very low — not depressed like a valley, just low the way a calm sea is low. There is no high ground anywhere to give you perspective. The world was poured flat and left to cure. If there are mountains under it, if there was ever a geology here, it is sealed away completely. Nothing natural is exposed.
+
+What you stand on is made.
+
+In all directions, a lattice of concrete and iron and tile and rebar and aggregate, fused and cast and bolted and welded into a single continuous built plain. It is not a city. A city has streets and blocks and intention. This is more like a factory yard the size of a continent that was simply extended until it became geography. Low platforms, a few inches to a few feet high, rise in sharp rectangular steps. Shallow channels cut between them in perfect straight lines, kilometers long. Grates. Holding basins. Dry-docks with no ships. Cooling fins. Rows of low, blind industrial sheds that stretch away until atmospheric perspective turns them into a grey comb against the sky. Everything is fresh.
+
+That is the first strange thing: it looks poured yesterday.
+
+The edges are sharp. The concrete hasn't spalled. The iron hasn't rusted through, though it has blushed to a dark, wet orange-black at every joint. The corners where platform meets channel are still crisp ninety-degree angles, not worn by feet or weather. There are no cracks from subsidence, no heave, no collapse, even though this sheet of construction must weigh more than any crust could bear. It is young the way a new curb is young, before the first chip — except it goes on forever, vast enough that the air above it makes its own weather. Clouds form here, born off its warmth and damp and drift for days before they rain again onto the same endless made-ground a thousand kilometers away.
+
+It is warm.
+
+Not hot. Warm like the inside of a greenhouse after the heaters have been on all night, or the air above a laundry. A low, constant, bath-warmth radiates off the platforms themselves. If you place your palm on the concrete it is blood-warm. Somewhere far below, or perhaps everywhere just under the surface, engines are still running — you can feel it as a faint, even heat in the soles of your shoes — but they never stutter or surge. The temperature never changes. The light is normal, white-yellow daylight from a high sun obscured by a thin, even overcast that never moves to reveal blue and never thickens to storm. It just glows.
+
+And it weeps.
+
+Water is everywhere, but not as sea or river. There is too little relief for rivers to form and too much construction for a water table. Instead the whole plain sweats. Condensation beads on every vertical face of iron and tile and gathers and runs. Water sighs out of expansion joints. It wells up through weep-holes and trickles down every wall in dark mineral streaks. It stands in the channels — not flowing, just present, a few inches to a few feet deep, perfectly still, warm as the air, slightly oily, reflecting the white sky. In the larger basins it lies like a mirror over a tiled bottom you can still see. The air itself is close to saturation; your skin never quite dries. The undersides of pipes and overhangs drip at long intervals. *Plok.* Then a long silence. Then *plok* again somewhere else. The plain is a marsh without mud or reeds, a tidal flat made of concrete where the tide is condensation itself.
+
+There are no plants. Not one.
+
+No moss on the weeping walls where moss should be. No algae scum on the still water, though the water is warm and lit. No weeds prying at seams. Whatever prohibits growth, or whatever was built here, excluded chlorophyll entirely. Where you would expect green, there is instead a thin, dark film — mineral, bacterial, fungal — a slick that is not quite life as you know it, in colors of rust-red and slate-green and pale cream, growing in perfect, hair-thin tidelines along the water's edge. It doesn't spread. It just marks where wet has been for a long time.
+
+Because everything alive here moves.
+
+The fauna is overwhelming. Not in bursts, not in swarms that pass — in saturation. The water in the channels is dense with them. Pale, translucent shrimp-shaped things the length of your finger, and flat black water-lice that cling to the tiles, and eels of a kind that are not eels but smooth, jointed tubes that flex without fins. They are packed side by side, layered, hardly swimming so much as shifting against one another in the warm still water. On the dry platforms, they are different but just as many: crabs, or crab-like, with too many joints and shells the color of wet concrete so you don't see them until they move; and louse-flies that walk, not fly, in dense carpets that part around your feet; and things like pigeons but wrong — featherless, skin-winged, with barnacle feet — roosting shoulder-to-shoulder on every low roof and girder, thousands per shed, packed so tightly their heat adds to the air's warmth.
+
+And still it is mostly quiet.
+
+This should be deafening. A plain covered in bodies should rustle and click and shriek. It doesn't. The creatures make almost no sound. The shrimp things move without splash. The crab things step with soft, damp clicks that are lost in the open. The roosting things breathe through slits with a faint, collective sigh that sounds like wind in a vent, but there is no wind. Even when you wade — because to go anywhere you must wade — the water parts around your shins and the organisms part with it without startling. They do not flee. They do not attack. They just make room and close again behind you. The great industrial plain itself is quieter than it should be: no hammering, no pistons, no trains. Only the distant, almost sub-aural hum of whatever keeps it warm, and the occasional tick of cooling metal, and that endless, arrhythmic dripping from weeping joints.
+
+Nothing changes.
+
+The water level in a channel you watch for an hour will not rise or fall a millimeter, though drips constantly feed it and nothing visibly drains it. The creatures do not eat each other, or if they do, it happens so slowly and evenly that there is no gap in their ranks. The film on the tiles does not grow. The clouds above do not move. The light does not shift. The heat on your skin stays exactly the same. You realize after a while that the sharpness of every edge — the fresh-poured look — is not because this place is new. It's because it is held. In equilibrium. Time passes here, your heart beats, the drip falls, but the place itself does not age, does not erode, does not succeed from one state to another. It was built wet and warm and low and vast and dense and full, and it stays exactly that way, a still photograph the size of a world that you happen to be walking through.
+
+If you kneel and look close, you can see your reflection in the still channel water between the bodies of the water-lice, and behind it, reflected, the underside of the white sky that never clears, and the line of identical sheds going on until the world curves, if it curves at all.

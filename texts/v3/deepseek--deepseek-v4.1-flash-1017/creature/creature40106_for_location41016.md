@@ -1,0 +1,19 @@
+# What Lives in the High Weir
+
+The answer is: nothing, and everything.
+
+There is no one here. No gardener walks the terraces with a pruning hook, no tenant climbs the stalk-towers to check a cistern's level, no creature grazes the green roofs down to felt. The silence between the great plant structures is total in the way a held breath is total—but it is not empty. The High Weir is inhabited by its own becoming. The resident is the growing itself.
+
+Call it a single organism and you would be wrong in the way it counts. It is many: every stem a separate appetite, every root cable a private pull toward water, every bladder a small selfish store. And yet they fuse. A cut becomes a joint. Two stems lean into each other over a season and grow into one column that remembers both. The Weir is a crowd that has forgotten how to be separate. It is thousands of hungers negotiating a shared architecture, and the architecture is winning.
+
+The inhabitant is an intelligence without a seat. There is no brain in the High Weir, no ganglion, no core. There is only a distributed pressure: *grow toward the wet, grow toward the light, swell where water gathers, fuse where surfaces touch, split where weight exceeds strength, send up another chimney where heat accumulates.* These rules are not written anywhere. They are simply what the tissue does, the way your hand withdraws from a hot pan before you have decided to move it. The Weir thinks the way a river thinks: by always taking the path of least resistance until the path becomes the channel.
+
+What does it want? It wants more of itself. It wants the cloud line lower and the terraces higher. It wants the hollow chambers full and the chimneys tall. It wants the plazas wet and the seams swelling. It is not cruel—there is nothing to be cruel to. It does not eat; it drinks and it grows and it holds. When a terrace collapses into the water it does not mourn; the fallen mass becomes substrate, and the new shoots root in it before the splash has settled. The Weir's only relationship to loss is conversion.
+
+And it is *loud* with wanting. The creak of a trunk under load is a decision being made. The pop of a joint fusing is two selves becoming one and losing count. The boom of water in a hollow gallery is the whole city swallowing. If you stand in one of the wet plazas at midday, steam rising off the mat and the flat white light coming down through leaf roofs, you will hear the Weir talking to itself in the only language it has: the groan and tick and rush of a body that is always mid-transformation, always a little further along than it was a moment ago.
+
+Is it old? No. It is young the way a wound is young—raw, wet, unhealed, still knitting. Nothing has had time to soften. Every edge is a fresh cut that hasn't yet closed over. The Weir is not a civilization that rose and fell; it is a civilization in the first violent flush of building, and it has never known a single day of rest.
+
+And no one tends it. There is no gardener because the garden is the gardener. The plants graft and swell and split and fuse, and the result is a city, and the city has no citizens, only the ongoing act of its own construction. It is the closest thing to a mind you will find in the High Weir: a place that is intensely, ceaselessly *doing*, with no one doing it.
+
+Somewhere below, in the wet seams, a seed lodges. It swells. It sends up a shoot that will become a buttress that will hold a terrace that will collect water that will feed a chimney that will grow toward heat. No one planned this. No one is watching. The High Weir is busy, and it is alone, and those two facts are the same fact.

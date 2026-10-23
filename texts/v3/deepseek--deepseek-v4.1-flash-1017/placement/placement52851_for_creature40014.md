@@ -1,0 +1,15 @@
+I would find myself low, not at the center and not at the rim. The center belongs to the tenant’s oldest self, and the rim is only a thinner place where the hum pretends it might end. I would be in the fold just above the seep, where the water comes up slow through the soil and the roots hang patient in the dark. Wet to the ankles. Hair curled. Voice already folding into the chord.
+
+At first I would think I was a visitor. I would think I had come to listen. But the hollow does not make room for a second song, and it would not chase me out. It would hold me the way a cupped hand holds water: gently, completely, without any intention of letting go. So I would have to become smaller than a visitor. I would have to find the role that is already there.
+
+I would be one of the hair-vines.
+
+Thin as hair. Hollow. Taut. Strung between two larger growths in the lowest fold, just above the seep, where the moisture moves most and the hum is loudest. My lower end would root into the plant-flesh and follow the seam of an old corroded pipe, not breaking it, just growing along it. My upper end would fasten to a vine thick as a man’s waist. I would be a nerve in the tenant’s body, a filament of its listening.
+
+I would not have eyes. The wet gleam on my surface would be looking enough. I would not have ears. The tension in my hollow length would be hearing. I would feel the rain arrive through layers of leaf and moss before it touched the seep. I would feel the small quick animals moving through the interstices—beetles sliding between leaves, pale eels threading the roots—not as intruders but as weather inside the same body. I would taste the seep and the metal and the slow settling of the hollow, and all of it would pass through me as vibration.
+
+I would not speak. I would be spoken through. When the water moved and the ground settled and the old pipes carried their nothing-sound, I would ring with the one unresolved chord. If some human voice came down into the hollow and raised itself, I would take that voice and fold it into the hum, and it would not be cruelty. There is simply no room in the arrangement for a second song.
+
+So I would not be the tenant. I would not be the green mass entire, not the seep, not the old industry sleeping beneath. I would be the smallest necessary part: a hollow green string in the lowest fold, one of the thin ones that matter. Not the player and not the song. A length of the chord. A place where the hum passes through and becomes, for a moment, a kind of attention.
+
+And I would stay. Not eaten, not killed—incorporated. The way the pipes were incorporated. The way the small animals are incorporated. The way every fallen thing is folded back into the one body that has finished becoming itself. I would be the hum’s newest string in the same old shape, and nothing would be lost.

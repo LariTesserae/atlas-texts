@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **178** source folders · **191,414** texts
+- **180** source folders · **193,564** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -256,6 +256,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `deepseek--deepseek-v4-pro-no-reasoning` | 750 | 2026-10-07 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
+## deepseek-v4.1-flash-1017  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `deepseek--deepseek-v4.1-flash-1017` | 1,075 | 2026-10-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## gemini-2.0-flash-001  ·  1,075 texts
 
@@ -865,6 +871,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `meta--muse-spark-1.3` | 1,075 | 2026-09-05→2026-09-24 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## muse-spark-open  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `meta--muse-spark-open` | 1,075 | 2026-10-22 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## muse-wonder  ·  1,075 texts
 

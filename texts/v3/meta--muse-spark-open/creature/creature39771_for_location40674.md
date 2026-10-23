@@ -1,0 +1,57 @@
+They don't live *on* the High Works. They live *in* it the way lichen lives in stone.
+
+You see them first as wrongness in the scale. From Upper Tier 43, where you're standing, the Works looks uninhabited — too regular, too green, too much like a model of itself. The terraces step away from you in hundred-meter bites, each one a perfect, black-edged trough of industrial soil and seeping concrete, each one curtained with that foot-thick living thatch of ivy. It looks like no one could live there. It looks too wet, too cold, too busy holding itself up.
+
+Then one of the walls moves. Or — a door you hadn't seen as a door opens in a wall, and a figure in black oilskin comes out carrying a crate of brassicas, and then another figure comes out behind her carrying a second crate, and then a third, and you realize that house-front was a house-front the way a cliff-face is a cliff-face: it has people inside it.
+
+### The Tier-Born
+
+There is no original population. There hasn't been for a hundred and fifty years. No one remembers who first needed the mountain to do work, only the work itself. The people who live here now have been here long enough that their bodies have softened into the shape of the place.
+
+They are short and broad. Not from genetics so much as from selection and childhood. You spend your first ten years climbing. Everywhere is stairs. The stair nosings on the Works are dished in the middle from a century of boots, slick with moss and mineral sweat even in a handrail. To carry anything — water, greens, a salvaged motor, a child — you learn to keep your center low, to take the steps sideways when they're wet, to brace your thighs against the grade. The old retain the build: thick calves, heavy forearms, knuckles enlarged early. Their knees pop. Everyone over forty has the Tier-knee, a particular outward bow from walking the same camber for decades.
+
+They are pale in a way that never tans. Light 1.1 means no shadows. The sky is a high, pearlescent grey that never burns off. Under it, under the green arch of the gantry-cranes that have been turned into hops-trellises, skin stays the color of the underside of leaves. Their eyes are good in the dim — they don't squint, they don't pause coming out of a turbine hall into overcast, because there is no difference. Children born on the lower tiers, where the gorge traps the gloom deepest, have a faint nystagmus, an endless tiny adjustment to a light that never settles.
+
+And they are always damp. There is no such thing as dry clothes here. You can change your outer oilskin, wring out your inner wool, hang it on the pipe that runs hot along the back wall of every dwelling, but you will be damp again in an hour. The air beads. The concrete weeps behind the ivy curtains. Handrails sweat. So they smell like the place does: cold earth and iron and wet wool, and under that, the sour-green smell of watercress crushed underfoot. Their hair never fully dries. It is cut short, not for style but because long hair rots here, stays cold against the neck. Old women wear it cropped as close as old men.
+
+They do not think of this as hardship. Weirdness 0.1. This is normal. This is the world.
+
+### How They Fit
+
+Density 3.0 means there is no *outside*. You don't have a house *with* a view of the Works, you have a house *that is a part* of the Works' retaining wall. A family of four lives in a brick canal-house that is also the north wall of Cistern 22-B and the south wall of the potting shed above it. Their front door opens onto a catwalk. Their back wall seeps. The trough of soil that grows their potatoes is literally their roof, sixty centimeters of engineered black earth held by concrete, dripping through hairline cracks onto the tarpaulins they sleep under on heavy rain days. When they need more room, they don't build *out*, they build *through* — a new doorway knocked into a settling tank, a hammock slung over a sluice channel, a curing loft for beans built into the space under the stairwell that everyone uses.
+
+Because of that, there is no privacy as lowlanders understand it. Sound 0.7 means it's quiet, but not private. You hear your neighbors through the pipe, not through the wall: the clink of their sluice wheel, the cough of their forge, the children singing the counting song they use to time a drain. You learn to sleep through the 50-cycle thrum when the turbine hall on Tier 21 cuts in, and to wake instantly when the *tink... tink... tink* of an overflow you are responsible for changes tempo.
+
+They move like water moves here: constantly, in small amounts, turbulent. Dynamic 2.9.
+
+Watch any tier for ten minutes and you will see the anthill reveal itself:
+
+**The Keepers** — mostly older, mostly women, who tend the green agreement. They are not farmers, not gardeners; those words are too separate. They are maintainers of the lush. Every morning, each Keeper walks her beat with a hook and a barrow. She pulls water hyacinth off a canal before it mats and chokes the flow. She thins brassicas so they don't bolt in the cold damp. She trims the ivy curtain where it's getting too thick and starting to pry the concrete lip with its roots. She harvests not by field but by wave — a moving front of maturity that follows the water down-mountain. Today Tier 27's beans are ready; tomorrow it will be Tier 26. Nothing is ever all-planted or all-harvested. There is always someone, somewhere on the mountainside, pulling a root.
+
+Their hands are stained black-green to the wrist, permanently. The juice of the waxy ivy doesn't wash off in this water.
+
+**The Sluicers** — younger, stronger, who speak to the water machine. The whole mountainside is a machine for slowing water down, and it needs hands on every valve. A Sluicer knows by feel when a black-iron wheel is about to seize with mineral crust, when a spillway cut the width of a doorway needs to be cleared of duckweed and silt, when a balance pond three terraces up is rising a centimeter too fast because a crew on the moor tiers left a catch-gate open. They run when water punches through, not because it is dangerous — it rarely is, the system is too stepped to flood — but because water finding a new path means a new dark-green line down the ivy tomorrow, means moss washing off a stair, means a cistern wall staying too wet and spalling before winter.
+
+They wear iron-shod boots for gripping moss. They talk in short, verb-noun commands that sound like the machine: *lift-gate, tap-pipe, watch-level*.
+
+**The Shops** — Tech 2.5, but Tech that has forgotten how to be new. There are no inventors in the High Works, only Rewinders, Menders, Extruders. In a long, low shed roofed by a cistern that sweats condensation onto your neck, a man rewinds the same three motor types that have run the gantries for eighty years. Next door, a forge makes nothing but hinges and sluice-gate spindles. It has made nothing but hinges for three generations, and the boy working the bellows can tell by sound which hinge will bind. The black plastic sheeting that lines the troughs is extruded in a mill that is itself lined with the same sheeting. Everything is made to keep everything else making.
+
+Shift change is constant and overlap is total. The factory on Tier 22 vents steam sideways along the wall — you think it's weather, then realize it's a shift. Shutters open, workers spill out onto stairs where the next crew is already waiting. No gap. No silence. The Works cannot afford a gap. If a turbine hall goes quiet, another one three tiers down starts up before your molars stop tingling from the last one's hum.
+
+**The Carriers** — children and old men, mostly, who are the animals the Works doesn't have. Fauna 0.9 means there are no beasts of burden, no birds to scatter seed, no bees in number. So a ten-year-old with a yoke and two buckets becomes the stream. A line of old men with a hand-cranked gantry becomes the crane. They carry impossible loads down stepped streets on carts that sway: greens to the lower-tier kitchens where light is even dimmer, concrete aggregate made from crushed concrete from a terrace that was just taken down to build a new cistern. They pollinate the dwarf espaliered orchard trees by hand, with a rabbit-fur brush, tier by tier. They chase rats out of the pipe-packed dark not with cats — there are no cats — but with noise and patience and wire traps they made themselves.
+
+They are never still. Even sleep is a shift; someone is always awake listening for the change in drip.
+
+### What They Believe Without Calling It Belief
+
+They don't have a government. They have Water Law. It's not written down in one place, because there is no one place to put it, but everyone knows it: *You may not take faster than your tier gives, you may not block what the tier below expects.* A sluice crew that hogs water during a dry press will find their walkway mysteriously greased with black slime, their ivy curtain cut back too hard so their wall weeps too fast and cold. A Keeper who lets her hyacinth mat will come back to find someone else has harvested her potatoes early and left her a note scratched in the concrete: *kept it moving for you.*
+
+They don't have a religion. They have Maintenance. Old people touch the rust-dark iron buttresses when they pass them, not for luck but for reassurance: still solid, still there. When a retaining wall finally fails — and even in-balance, even settled, a wall will fail every few months somewhere in a watershed-sized town — it is not a tragedy. It is an event. The nearest hundred people converge without being called. They shore it with timbers, reroute the water, salvage the soil in barrows, and by the end of the week the wall is a scaffold, and by the end of the month it is a water-stair. They talk about walls the way lowlanders talk about ancestors: *That was Wall Jenner, she went in '82, held for ninety years.*
+
+They measure time not by dates but by greyness and by work. "Before the big reline of '41" means before they relined the main gorge canal with new concrete. "When the light was thin" means noon. "After the lift" means after the sluice wheel on your tier was freed.
+
+They do not dream of leaving. There is nowhere to go that makes sense. The lowland you can't quite see through the never-burning distance is a rumor of heat and sharp shadows and dry ground that doesn't weep. It sounds like a desert. If you walk for hours, the Works is still there, tier after tier, green and black and rust red under the low sky, exhaling. Some youths do walk down, down the thousand-foot stairsteps toward the gorge where the water finally runs fast, and then up the opposite flank, identical to theirs, to see if it's different. It isn't. It's continuous.
+
+So they come back, and learn to read the moss that never dries, and learn to keep their feet on the shine-worn stair nosings, and learn to keep their railing hand always slightly cold and damp, and learn to live as the animal that belongs to a building that became geography.
+
+You can spot the ones who belong from the ones who are just passing through by how they don't look across the gorge. They don't sightsee. They watch their feet, they listen for the *plip* from pipe to cistern that means their cistern, their trough, their wall, their work, is still in-balance.

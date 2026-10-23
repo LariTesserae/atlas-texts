@@ -1,0 +1,35 @@
+# The Weft
+
+You hear it before you see it, and for a long time before you understand it. The sound arrives over the horizon as a chord — not a hum, not a roar exactly, but a sustained harmonic mass with a grain in it, like a hundred thousand strings being bowed by a wind that never stops.
+
+Then the glare.
+
+The plateau is high and the air is thin and clean of anything that would soften light, and the whole surface of the world is pale. Not green — green needs water and there is none here, not a drop, not a cloud that isn't dry dust, not a puddle or a stream or a bead of dew. The plant world is bleached instead: bone, straw, ash-blonde, the blonde of old rope, with a faint green undertone only in the deepest shade. It runs away from you in every direction, flat to the eye, flat to the edge of vision, and it is bright enough that you can see the light through your own closed eyelids, red at the edges, white at the centre.
+
+The surface is fibre.
+
+Not grass, not moss, not leaf — fibre. Hollow filaments the thickness of broom straw, intergrown in every direction, matted and felted into something with the springy give of a moor and the stiffness of a scrubbing brush. It is one growth. There are seams and colour-variations and patches of different age, but no boundary anywhere that marks where one plant ends and another begins; the weaving is continuous from your feet to the mountains at the rim, and probably beyond the rim too. Walk on it and it sighs and works under your boots and rises again behind you, slowly, like something remembering its shape.
+
+Beneath the living mat is the dead of it — metre after metre of compressed fibre, and beneath that, fibre turned to stone by its own slow chemistry, laminated in pale bands. The plateau is made of itself. It has been making itself for a very long time, layer by layer, dust by dust, and the cliffs at its edges are cut through those layers like the cut face of a sponge turned to limestone. Nothing here is *built*. Everything here is *grown*, including the ground.
+
+Standing still, the noise resolves.
+
+At the surface: a hiss and a rushing, the whole felt flexing under gust fronts that travel across it as visible waves — long dark swells of bent fibre running away from you, and behind them a brightening, because the fibre lies down in the wind and its grain catches the light differently, so the glare itself is moving, whole hectares of it swinging from white to shadow and back. At head height: the chord. The stacks.
+
+They are spaced far apart — ten, twenty, forty kilometres — and you can see four or five of them from any point, thin pale towers rising out of the flat, some straight, some leaning with age, some eroded by centuries of grit into blades and vanes and split fins. Each is a hollow column of the same fibre-stuff, grown rather than made, and each one sings at its own pitch as the wind crosses its openings, and the pitches don't quite agree, and the disagreement is what makes the sound unbearable and beautiful. Some are the size of a cathedral and some are only chimney-height. All of them are old.
+
+The stacks are what this world has instead of industry.
+
+Nothing is manufactured here, but everything is processed. The wind carries grit — abraded fibre, mineral dust, the powder of the plateau's own edges — and the stacks inhale it, and inside them the dust is sorted and heated and fractionated and laid down in bands, and the bands are what you see on their flanks: rose, sulphur, iron-grey, a bruised violet, strata building up on the outside of a chimney like sinter on a geyser's throat. At their feet the air is warm, and that warmth is the only warmth for a hundred kilometres, and so the stacks are where the animals are. It is a refinery. It is also a stomach. There is no useful distinction.
+
+Down on the felt again: the static.
+
+Dry fibre rubbing on dry fibre, all day, over a continent — the charge builds until the mat crackles. You feel it in your hair and your teeth before you hear it. Little discharges run along the surface in blue threads, and sometimes a whole swell of it goes up a stack at once, a silent white flicker up the fluting, and then the crack arrives a half-second later and hits you in the chest. It happens constantly. It is part of the chord. At night the whole plateau glows faintly in the low places where the charge pools, and the animals that fly have learned to be afraid of the ground and not of the sky.
+
+The air is cool, and at dawn there is frost — but it is not water's frost. It sublimes off the felt by mid-morning as a bitter white fur that makes a sound like frying as it goes, and it leaves nothing wet behind, nothing dark, no stain. Nothing here rots. There is no rot without water. The dead fibre does not moulder; it abrades, it powders, it is taken up and re-sorted and laid down again in a stack, and so the world is very clean and very old and smells of dust and ozone and hot stone.
+
+What lives here lives thin and fast and mostly in the air. Kites: flat, wide, membrane-and-filament animals the size of a boat that ride the gusts and trail a hundred metres of fine root-like line down into the felt to drink its charge and sift its dust, and turn, and turn, all day, catching the light, going from white to nothing as they bank. They are not many. The emptiness between them is the point; you can watch one single kite for an hour without another crossing your view. Down in the fibre there are borers, small armoured things that chew channels through the mat and keep it from sealing over into a shell, and around the warm feet of the stacks there are sifters and scavengers and things that have no name in any language you would recognise, and above the stacks, riding the thermal, the pale shapes of whatever eats the kites.
+
+The rules are short. There is no water; the working fluid of this world is dust and charge and a vapour that freezes at night and forgets itself by noon. Nothing is constructed; the machines are organs and the organs are machines and no one here has ever needed the distinction. The form is settled — weathered, worn into its own shape, in balance with a wind that has been blowing for a geological age — and the state is never settled at all; every minute the surface is somewhere else, the glare has moved, a stack has shed a fin, a swathe has lain down and stood up again. It is a bazaar of one organism, an anthill the size of a country, and it is deafening, and it has been going on, without pause, without anyone's attention, for longer than the mountains at its edge have been mountains.
+
+You can navigate by ear. That is the thing that stays with you. Each stack has its pitch, the pitches shift as they age and erode, and the chord over the plateau is different at every point on it — so you stand in the bright flat roaring and you listen to which voices are loudest and which are behind you, and you know exactly where you are.

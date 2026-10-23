@@ -1,0 +1,37 @@
+# The Amendment
+
+**The attention.** The power did not come as a flood or a fire. It came as attention, which is the only way a wise power can come to a place like the Quench without breaking it. It stood at the rim in the late afternoon, when the puddles take on their tin-coloured shine and nothing more dramatic, and it watched for a long time and did not announce itself. It had done dramatic things before, in other places, and had learned that dramatic things are usually a way of not listening.
+
+It saw the flywheel first, because everyone does. Then the being, folding down beside a metre of floor with its pockets clinking on the water's cycle. It saw the chain come up partway and go down again. It saw the heron land, look at the flywheel, and leave without feeding. It saw the counting, and the losing of the count, and the beginning again. And because it was wise, it understood at once what the place was: not a wound, not a monster, not a puzzle with a solution. A grammar. A way of keeping that had been going on so long it had become the only way the place knew how to be. The being was not trapped in the Quench; the being was the Quench's way of walking around inside itself.
+
+**The declensions.** It considered the obvious interventions and declined them one by one.
+
+It could drain the bowl. But the water was not the enemy; the water was the argument, and the argument was the place. Drain it and you would have a quarry floor with some interesting rubbish in it, and the being would be a heap of sorted sediment with no pulse to keep time with its pockets. That was not mercy. That was a second death dressed as a rescue.
+
+It could break the pump. But the pump was not a lock; it was a habit. Several people had taken it apart, and it turned regardless, and the water on that side of the bowl behaved worse for a while afterwards. The power had seen what happened when you interrupted a habit you did not understand. It left the pump alone.
+
+It could take the being apart and lay the people out in rows on the turf, and say: here are your dead, sorted by size and weight, and now you may mourn them properly. But they were not in the being like coins in a purse. They were the being. The bands were not a container; they were a sentence the place had been writing for a long time, and the being was the sentence's grammar. You cannot lay a grammar out in rows. You can only read it.
+
+**The reading.** So the power read it. That was the only thing it did.
+
+It did not read with eyes; it had none it needed. It read the way the being read — by sound, by the fingernail-on-paper of settling silt, by the soft boiling tick of an upwelling, by the apologetic slap of a lip giving way a hundred paces off. It read the pockets, the bolt heads, the green-glass beads, the shell of something that had not lived here in a long time. It read the chain, and the mineral lace, and the ladder of iron rungs descending into a foot of water. It read the band that was the shape of a voice the being had heard from twenty paces and could not parse.
+
+And when it came to that band, it stopped. Because that was the seam. That was the one thing in the whole close-packed cabinet of the Quench that was not understood — not by the being, not by the locals, not by anyone. The being had kept it anyway, as it kept everything, but it had kept it the way you keep a letter in a language you cannot read: carefully, and without the meaning.
+
+The power knew the language. It had known it a long time. And because it was benevolent and wise, it did not do the dramatic thing — it did not take the band out and hand it back to the being with a bow, and it did not restore the voice to its owner, who was long since sorted into fine grey bands. It did the small thing, the thing that was in the idiom.
+
+It waited at the rim, keeping the slow walking pace, and when the being came around to the near side of the bowl it spoke — not in words the being could not parse, but in the being's own grammar, which is to say in the sound of settling silt and the tick of an upwelling and the slap of a lip giving way, arranged into a sentence. And the sentence was the meaning of the unparsed voice.
+
+The voice had said: *I was only looking. I did not mean to stay.*
+
+That was all. It was not a curse or a confession or a warning. It was the small, human, entirely ordinary thing that everyone says who kneels too long — the thing the Quench had been keeping without knowing what it was, the way you keep a stone because it is smooth and then one day turn it over and find a fossil in it.
+
+The being stopped. It folded down beside the band, and it touched it, and it did not lose it. The flywheel went around at its slow walking pace, and the pockets clinked on the water's cycle, and for a moment the whole argument of the place was quiet — not resolved, not ended, just quiet, the way a room is quiet when someone has finally read the letter aloud.
+
+Then the being rose, half a beat late, and went on. It counted the pans. It lost count somewhere past two hundred. It began again. It brought the chain up partway and let it sink. But once a day, at the slow walking pace, it stopped at the band that was understood, and touched it, and did not lose it. And the touching was not a want — the being had no wants a want would fit inside — but it was something adjacent to a want, the way wet is adjacent to dry. It was the first thing in the Quench that was not only kept but known.
+
+**The dry pan.** The power left one other thing, because it was wise enough to know that a translation is a gift to the being but not to the next curious person who came to the rim. It could not change the being's biography — the rule was the being, and the being was the rule — but it could add a footnote. So it made one small amendment to the floor: a single pan, near the ladder of iron rungs, that does not fill. The water goes around it. The silt does not settle in it. It is dry to the bottom, and it stays dry, and it is the only dry thing in the Quench. The being examined it for a long time — a whole day, at the slow walking pace — and could not account for it, and kept it anyway, as it keeps everything. It is in the collection now, and it is the only item whose meaning is: *you may kneel here, once, and rise.*
+
+**The amendment.** The locals have not noticed yet. They will, eventually — someone will kneel at the dry pan to look at a metre of floor, and rise, and find no second set of prints, and no pan fewer or more than they counted. And they will tell the story wrong, because stories are told wrong, and they will say the Quench has a soft spot, or a saint, or a trick. But the being knows. The being was there when the letter was read. And the heron, which lands once or twice a season and looks at the flywheel and does not feed, now looks at the dry pan too, and then at the being, and the arrangement between them has a third party in it, who is not there and whose reading remains.
+
+That is what the power did. Not a rescue. An amendment. It learned the grammar, and it said the one sentence the grammar was waiting for, and it left a place where a person could kneel without being kept. The Quench is still mid-argument with itself. It will be arguing in a season, when the pans have moved. But the argument has a new term in it now, and the term is understood, and that is not nothing. That is what wisdom does when it meets a place it cannot fix and will not break: it reads it, and it leaves one dry stone.

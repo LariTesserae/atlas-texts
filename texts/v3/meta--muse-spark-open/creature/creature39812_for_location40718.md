@@ -1,0 +1,55 @@
+They live there not because the place allows it, but because the place taught them how.
+
+### The People
+
+At first you think there are not many of them — and in a way you’re right. For a city that is kilometers long, the density is thin. You can walk the length of a hab-block platform at mid-shift and pass only three or four figures, and hear no footsteps because the fiber under the grating drinks the sound.
+
+They are pale in a way that is not the pallor of never seeing sun. Under the steady, workmanlike white of the flood-bars — ten hours on, ten hours off, a clockwork sun that never moves — their skin has gone the color of the things they live among: bone, wax, salt. Their hair, when they let it grow, is dry and fine and clings with static from the alkaline dust. Their lips are always a little cracked, though they do not think of it as discomfort anymore.
+
+They do not drink. No one who has lived here more than a season does.
+
+Newcomers arrive from above with canteens and water-recyclers and sealed masks, and the old hands smile in the quiet way people do here — a small sound, because you learn not to waste air. Within months the canteens are emptied and not refilled. The body learns, or is taught to learn. On the lower platforms there are clinics where children get their first grafts: not surgery, precisely, but a seeding. A filament of living felt from the pillar-bark is pressed to the soft palate, to the inner nostril, to the nape where sweat glands once were. It takes. It combs. Like the great pillars, the people learn to eat air.
+
+Their food is oil. Not metaphorically. The pale groves exude it the way a surface forest exudes sap — waxy beads that sweat onto the underside of every translucent sail and membrane, amber-clear and warm. The scrapers collect it by the ton and the refineries fraction it. The lightest fraction burns in lamps. The heaviest is pressed into fiber. The middle fraction — odorless, tasteless until you add salt-mineral — is eaten. Spread on dried felt-cake, whipped into soups, rendered into a pale butter that never spoils in the cool 8-degree air. When they metabolize it, their bodies make their own water, deep inside, exactly as much as they need and no more. They urinate rarely, a dry white powder. Their breath on cold mornings does not fog.
+
+Because the dust would kill a surface lung in a year — that fine, cement-soft alkaline powder that hangs for hours if you kick it — they have learned to breathe shallowly, through the nose, through the living filter. You can tell how long someone has lived here by the sound of their breathing. A newcomer wheezes, coughs. An elder is silent. Their chests have broadened slightly, their voices have dropped. It is too quiet a city for shouting; they speak low, mid-tone, and are heard across fifty meters of still air. They listen. In that swallowed quiet they have developed excellent hearing. A mother on the third tier of the First Pillar can hear, in the tick of a scraper and the whine of the cable-cars, the soft creak of her pillar growing another millimeter overnight.
+
+They are not a people who *conquered* a hostile environment. That language makes no sense here. You cannot conquer something that is still being born. Instead they tend.
+
+There are no mayors, not really. There are Keepers of each pillar — usually a family who has lived on that trunk for three generations and knows its moods: which membrane flushes lavender when it is hungry for light, which felt-patch runs too warm and will need a vent, which exploratory tendril is reaching toward the new crack at the far end of the chamber and should be left alone to harden. There are Bridge-tenders who walk the swaying cable-and-fiber bridges with bone knives, not to cut but to encourage; a nick in the right place and the plant will thicken a handrail for you by winter. There are Lamp-men who climb the stone ceiling on pillar-grown ladders to service the long linear suns, their faces pinkened from being closest to them, their eyes with a faint nictitating sheen — an adaptation, or a tailored contact lens grown from membrane — that lets them stare into the white without blinking.
+
+Children do not play on the ground. The mineral floor is too soft, too sacred in a strange way — it is womb, not playground. Instead they play in the sails. While adults work, you will see them far above on a horizontal membrane the size of a plaza, translucent as moth-wing, veined with light. They run barefoot, and the membrane bounces very slightly under them, warm from the suns. They know not to puncture it. They know, if they lie still, they can see the shadow of a coat-sized moth pass over them like a cloud, and feel its proboscis-sip as a faint drop in air pressure.
+
+They age slowly. The cold preserves, the air preserves, the oil preserves. Old ones live a long time and get drier and paler until it is hard to tell, from a distance on a dusty catwalk, whether the figure sitting very still by a vent is a person or a fold of felt-bark. When they die, they are not buried — there is no ground to bury in that will hold them. They are laid on the highest unused sail, wrapped in unprocessed fiber, and the beetles and the mites and the air do the rest. Within a season the fiber tightens around them and thickens into a small, warm knot on the pillar’s side. The people do not find this morbid. It is tending.
+
+### The Kin
+
+The people are not alone, and never were. The fauna is not livestock. It is co-occupant, co-worker.
+
+The moths are the most visible. They never land — they have no legs worth landing with — but drift on the slow currents between pillars for days, their wings the color of the membranes themselves, until you learn to see the powder on them move. They are not hunted. To kill one would be wasteful and strangely rude; each moth carries in its abdomen a few milliliters of pure vapor-water it has distilled from the air with a chemistry the refineries still cannot copy. But the moths, in dying, sometimes snag on a sail and dissolve, and where they do the plant fruits briefly with a sweeter oil. The children watch for this.
+
+The rivet-beetles are kept, in a fashion. They are the size of a fist, polished black, and they move with the mindless industry of the machines, chewing the dead outer felt that sloughs off the pillars. They excrete perfect dry pellets, alkaline and rich in fixed nitrogen, that the hab-blocks collect in shallow trays. That is fertilizer, that is yeast, that is — after processing — the mineral tang in the soup. A good beetle-line is family wealth. An old man will show you his grandfather’s beetles the way a surface farmer shows cattle, tapping their hard backs so they click.
+
+On the bridges, the translucent lizards — they are not lizards, but the name stuck — sprint with impossible grip, six-toed, their bellies showing the warm glow of the vent-heat they have swallowed. They farm. Along their flanks live colonies of mites so small they look like dust until you see them move in lines. The lizards coax them onto the bridge-fiber, the mites clean the fiber, the lizards eat the mites when they are too many. Bridge-tenders leave shallow dishes of oil for the lizards, and the lizards leave the bridges clean.
+
+And below, in the dusty understory between the bases of the trunks where no platform casts shadow, are the bulb-birds. Round, warm, featherless, blind, they look absurd until you hear them. At night-cycle, when the flood-bars go off and the chamber goes not dark but dim — the membranes themselves hold a faint lavender afterglow for an hour — the air fills with their chirping, not birdlike at all but like warm glass marbles knocking together. They nest directly on the mineral dust, stealing heat from forge-vents that the pillars have obligingly piped down for them. They do not drink either. They do not need to. Their eggs are leathery and sweat oil, not water. The people gather the unfertilized ones as a delicacy. They leave the rest.
+
+All these things, people included, are quiet. The forest demands quiet. Sound is absorbed, wasted. So even the chirping of the bulb-birds seems private, meant for the space within a few meters.
+
+### The Forest Itself
+
+And then there is the inhabitant that is the place.
+
+You cannot correctly call the aeroflora a plant. Not after you have lived with it. It has no roots, no leaves, no wood, no rings. It is a city in its own right, older than the human one, that simply decided to be architecture first and organism second.
+
+Each pillar is an individual, and also not. At twenty to thirty meters around, felted in warm, dry layers that are alive and dead at once, they hold the ceiling apart not because they were designed to, but because the chamber is still widening — that deep *crack* once or twice a year as a new fissure opens at the far end, exposing raw basalt and salt-tuff — and the pillars lean into the new space faster than stone can fill it. They grow a millimeter at a time with a soft creak you feel in your teeth if you have your hand on a railing. They feel.
+
+They know where the light is. Turn off a flood-bar for maintenance and within a week the nearest membranes will have paled and thinned, conserving, while membranes two pillars over, still lit, will have flushed deep lavender and thickened to compensate. They know where heat is. Open a new forge and within a month the pillar will have hollowed a new chimney for it without prompting, the inner walls glazing to black ceramic from the heat it was never meant to feel. They know where weight is. Bolt a new platform into the felt and the fibers beneath will lignify into something like bone, warm to the touch, holding you.
+
+They are not intelligent the way people are. They do not remember faces. But they remember load, and light, and pull, and they respond with patience that shames planning. The people have learned not to command the forest but to ask by doing — to hang a cable and wait for it to be tightened, to nick a membrane and wait for a doorway to grow.
+
+If you stand on the highest hab-block of the First Pillar at mid-light, when all the flood-bars are on and you can see kilometers to the raw, newly cracked far wall where the stone is still unworn and the air tastes more metallic, you understand the true habitation: not humans living in a forest underground, but a forest that has grown itself into the shape of habitation, and humans who have learned, in the cool, dry, womb-like dark that is not dark, to live as its most talkative organ.
+
+It hums. The engines hum, the scrapers tick, the membranes rustle as they unfurl overnight. The people breathe low and shallow through their living filters, and listen, and oil their tools with oil that was once air.
+
+It is still coming into being — chamber, forest, city — all together, at the same quiet pace.

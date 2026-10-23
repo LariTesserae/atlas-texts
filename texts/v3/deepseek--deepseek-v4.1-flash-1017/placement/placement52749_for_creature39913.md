@@ -1,0 +1,11 @@
+I would find myself in the narrow column at the center, the only place where the vault has left standing room. My shoulder would be against a cradle of splint. My heel would press the felted matting. A guy-line of waxed grass would touch my cheek and hum there, and I would be the warm thing in a dry room: breath, pulse, a little dampness at the hairline, a soft irregular noise inside the drone.
+
+At first I would think I was the visitor. But the vault does not have visitors; it has pressures and accommodations. The vine would feel me the way it feels a sagging cradle or a knot that has settled—a damping in the chord, a warmth, a small interference. It would not turn toward me. It has nowhere to turn. It would simply begin, very slowly, to include me.
+
+Then what would I be? Not the vine. Not the lichen. Not the vault. I would be the first clock.
+
+The vault has one note and no hours. I would bring a second rhythm—heartbeat, breath, the blink of an eye. Not a melody. A measure. I would sit in the honeyed light that comes from nowhere and count, and the chord would become something it had never been: a drone with a rest in it, a held note with someone listening. I would be the interval that makes the holding audible.
+
+If I stayed, I would settle too—not into fiber, not into grip, but into a kind of knot. My attention would become a guy-line. My memory would be the shape of the seams I learned. My breath would be a slow, dangerous dampness the vault would have to accommodate or expel. The vine would not resent me. It would take up my weight the way it takes up a slackening cable: another presence to be held.
+
+So I would be the visitor who does not leave, the small warm breach in the equilibrium, the thing that is not settling but counting. The vine’s name, if it had one, would be a verb: *to hold*. Mine would be a small unit of time. *Meanwhile.* I would be the meanwhile in the choir—the pulse in the changeless light, the only thing the vault is waiting for, and the only thing that makes its waiting visible.
