@@ -1,0 +1,21 @@
+The beings that occupy this violently birthing geology are the **Vitric Masons**.
+
+They are tiny, highly specialized arthropods, none larger than the top joint of a human thumb, and they are utterly continuous with their environment. In the crushing, syrupy brine, a standard exoskeleton would be a liability, too brittle and energetically costly to maintain against the pressure. Instead, their bodies are aqueous gel encased in a hyper-flexible, ultra-thin tegument that permits free fluid exchange with the surrounding water. They are practically invisible. To observe them is to look at a shimmer in the water, a localized thickening of the medium.
+
+Their visible presence is defined solely by their internal workings. Deep within their translucent thoraxes are concentrated clusters of chemosynthetic organs—the "nebulae" mentioned in the description. These organs glow with a cold, pulsing luminescence that shifts between deep azure, viridian, and a sickly, pale lime green. These lights are not constant; they flare when the creature is actively secreting building materials or processing food, and dim to faint embers when they are resting in the nacre crevices of their towers.
+
+When they move through the open siphons, they are drifting constellations, their millions of tiny lights swirling in currents of their own making. When they land on a structure, the lights stabilize into a shimmering, flowing skin over the architecture.
+
+Their anatomy is devoted almost entirely to construction. They possess six pairs of multi-jointed thoracic legs tipped with hardened silicate claws, allowing them to grip the razor-sharp quartz of the "emerging" geology without slicing their delicate bodies. Their heads are dominated by complex mouthparts designed not just for feeding on the grey bacterial mats, but for manufacturing their city.
+
+A pair of large maxillipeds serves as trowels and mixers. Behind these lie powerful secretory glands that filter the heavy metallic salts and minerals directly from the supercooled brine.
+
+They have two distinct construction modes. The first involves extruding a thick, milky paste of calcium carbonate, harvested from the water and mixed with a biological binding agent. The Masons swarm over a jagged spur of basalt, clicking their mandibles rhythmically, depositing layer upon infinitesimal layer of this paste. It hardens almost instantly in the cold, pressurized water, forming the bone-white, bulbous foundations of the gothic-termite towers.
+
+The second mode is more delicate. From spinnerets located at the rear of their abdomen, they extrude pure, liquid silica. As they scuttle across the gaps between spires, they draw out threads that freeze instantly into spun glass. They weave these threads back and forth, creating the shimmering bridges and the intricate, lacelike balustrades that overhang the abyss.
+
+Their behavior is a paradox of individual fragility and collective relentlessness. An individual Mason is easily destroyed—a sudden shift in a quartz lattice can crush dozens. Yet, the hive mind is undeterred. They are driven by a chemical imperative to bring order to the geological chaos.
+
+They are sensitive to the piezoelectric throbbing of the walls. When a new fracture opens, releasing a fresh plume of mineral-rich, bacteria-laden water, the Masons swarm toward it in a glittering cloud. They feed frantically on the new bacterial blooms, their internal lights flaring brightly, and then immediately begin cladding the fresh geological wound in their ornate, calcified armor.
+
+They are silent workers, their only communication a complex exchange of pheromones that taste metallic in the water, and the visual language of their pulsing lights. The "muffled friction" you hear is the sum total of billions of these glass-tipped legs scratching against stone and shell, and the infinitesimal *hiss* of liquid minerals freezing into solid city. They are a living civilization of glass and bone, racing to construct a fragile permanence inside a womb of crushing rock that is still actively trying to kill them.

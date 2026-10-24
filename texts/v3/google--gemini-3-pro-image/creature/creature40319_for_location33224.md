@@ -1,0 +1,17 @@
+This is a world of function over form, of eternal operation, and the things that truly *live* here—not merely existing as consumers like the metallic fish or the rasping grazers, but as integral components of the machine—are the **Attendants of the Flow**.
+
+They are biological imperatives made manifest, creatures evolved not for reproduction or predation, but for maintenance.
+
+To spot them, you must look closely at the surfaces of the titans. Against the iron-hard rind of the Pumps, they are almost invisible. They are semi-translucent, lithe beings, vaguely anthropomorphic but stretched thin by the current, appearing like intricate sculptures of solidified, cloudy water and high-tensile cartilage. They possess no eyes—sight is redundant in a world filled with unchanging light and deafening sound—but their entire bodies are highly sensitive acoustic receivers, attuned to the resonant frequencies of the plant-machines.
+
+They do not swim in the open water. They belong to the surfaces. They move along the vertical flanks of the Pumps on four articulated limbs tipped with gripping pads that function like organic electromagnets, locking onto the vibrating cellulose with unbreakable force. To watch them move is to watch a slow, deliberate mountaineering expedition up the face of a vibrating skyscraper.
+
+Their primary purpose is homeostasis. You see them clustered around the immense intake sphincters at the base of the Pumps. In that zone of terrifying suction, where the water roars into the turbine chambers, the Attendants work with methodical fearlessness. They anchor themselves with their hind limbs, leaning out into the rushing torrent to use specialized, rake-like forelimbs to clear debris from the stiff sensory cilia of the intakes. They are the cleaners of the great maws, ensuring the flow is never choked.
+
+Others tend to the Filter-Webs. Where the immense parabolic dishes stretch across kilometers of open water, the Attendants are the weavers and repairers. When a section of the translucent root-fiber is torn by debris or wears thin from the incessant grinding whine of filtration, these beings congregate. They exude a quick-hardening, viscous bio-polymer from spinnerets on their abdomens—a substance identical to the web itself—literally welding the structure back together with their own bodies. They crawl across the vast, shimmering nets like spiders repairing a sail in a hurricane, unaffected by the staggering scale of their task.
+
+They do not appear to eat in a traditional sense. They are symbiotes connected directly to the energy grid of this place. When they rest, they flatten themselves against the thrumming skin of the Pumps, pressing their chest cavities against the cellulose. They feed on the vibration itself, absorbing the kinetic energy of the turbines through acoustic resonance, recharging their biological batteries with the waste noise of the factory.
+
+They have no language other than the tasks they perform. Their communication is instantaneous and networked, a shared awareness transmitted through the conductive medium of the water and the vibrating substrate of the plants. If a Pump changes pitch by a fraction of a hertz, every Attendant within ten kilometers knows instantly and adjusts its behavior.
+
+They are ageless, unchanging, and utterly devoid of individuality. They are the white blood cells of this high-altitude ocean, the silent, translucent ghosts haunting the machinery, ensuring that the great, cool, deafening factory runs forever.

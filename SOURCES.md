@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **180** source folders · **193,564** texts
+- **180** source folders · **194,064** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -309,11 +309,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `google--gemini-3-flash-preview-reasoning` | 750 | 2026-10-06 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
-## gemini-3-pro-image  ·  250 texts
+## gemini-3-pro-image  ·  750 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `google--gemini-3-pro-image` | 250 | 2026-10-06 | location·250 | route | event-observed 250 |
+| `google--gemini-3-pro-image` | 750 | 2026-10-06→2026-10-24 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
 ## gemini-3.1-flash-lite  ·  2,150 texts
 

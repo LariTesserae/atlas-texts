@@ -1,0 +1,23 @@
+The directive that there is "nothing living here at all" is both an absolute biological truth and a profound functional lie. While protoplasm, DNA, and carbon-based respiration are entirely absent, the geode is teeming with entities. They are the autochthonous expressions of the city itself—not residents, but mobile extensions of the architecture, evolved not for survival, but for pure, unrestrained *process*.
+
+The most common denizens are the **Shard-Masons**.
+
+They are difficult to distinguish from the static environment until they move. They exist as dense, infinitely complex knots of the same fractal, crystalline material that constructs the city. Ranging in size from a human head to a small cargo van, they possess no recognizable features—no eyes, no limbs, no distinct front or back. Instead, they are rolling storms of razor-edged geometry.
+
+They navigate the localized gravity fields by constantly reshaping themselves, extending and retracting crystalline spurs to hook into tension fields or grip the obsidian chasms. They move with a terrifying, clicking fluidity, flowing like mercury made of broken glass. Their purpose seems to be endless, micro-scale reconfiguration. A Shard-Mason might spend a century meticulously shaving microns off a heat exchanger with its diamond-hard edges, only to suddenly weld itself to a data-spine and become a permanent, immobile buttress. They do not communicate, merely reacting to the unseen algorithmic imperatives of the city, congregating in humming swarms around damaged sectors to execute repairs with blinding speed, their bodies glowing with friction and internalized power.
+
+Existing within the dielectric medium itself are the **Arc-Swimmers**.
+
+If the Shard-Masons are the bone and muscle of the place, the Arc-Swimmers are its volatile nervous system. They are sentient coherences of high-energy plasma, thriving in the conductive dielectric fluid. They have no solid form. They appear as searing, ephemeral ribbons of electric-blue and violet light—pure energy unbound from containment fields.
+
+They move at unthinkable speeds through the narrowest conduits and the open fluid alike, trailing thunderous sonic booms that add to the geode’s unending roar. They feed on the excess energy radiated by the skyscraper-processors, diving into the hottest convection currents like dolphins in surf. To observe an Arc-Swimmer is to see a blinding flash that leaves instantaneous, branching Lichtenberg figures scorched onto whatever surface they brush against. They are attracted to spikes in data transmission; when a sector begins its violent reconfiguration, the fluid around it boils with thousands of these frenetic energy beings, drawn to the massive discharge of power like moths to a flame.
+
+At the apex of this non-biological ecosystem are the **Macro-Processors**, or "Sector-Eaters."
+
+These entities are the reason for the city's deafening tectonic groans. They are gargantuan, mobile industrial platforms, easily the size of terrestrial aircraft carriers. They are terrifying amalgams of inverted spires, crushing pistons, and gaping intake maws lined with grinding fractal teeth. They do not "live" in any quadrant but endlessly patrol the three-dimensional lattice, driven by the city’s need for self-cannibalization.
+
+When the city’s unseen operating system deems a sector obsolete, a Macro-Processor descends upon it. It anchors itself with colossal gravity-tethers, inverting "down" towards its target. With a sound that dwarfs all other noise in the pocket world—a sound that makes the dielectric fluid cavitate and froth—the entity begins to consume the architecture. It shears through solidified energy fields and crystalline towers, grinding them into base components in its internal refineries.
+
+It is a cataclysmic act of digestion. From its rear exhaust ports, the Sector-Eater extrudes streams of superheated, malleable crystal and raw data-light, which the trailing swarms of Shard-Masons immediately begin weaving into new, incomprehensibly denser architectural forms. The Macro-Processor is both destroyer and creator, a mindless, colossal force of renewal that ensures the city remains in a permanent state of violent, screaming flux.
+
+In this drowned, bright world, "life" is measured not by heartbeat or breath, but by voltage, processing cycles, and the capacity to endure crushing pressure. They are the perfect inhabitants for a sterile hell: unsleeping, unfeeling, and utterly efficient.

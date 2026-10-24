@@ -1,0 +1,15 @@
+In this vacuum of crushing silence and volatile physics, biological life as understood elsewhere is an impossibility. There is no chemistry here, only potent, unstable physics. What lives on the Roof of the World does not adapt to the environment; it incorporates the environment's inherent instability into its own being.
+
+The silica-based fractal growths and the flickering "phase-striders" are mere bottom-feeders in this ecosystem, scurrying in the margins of the true inhabitants’ domain. The apex entities of this polished black expanse are the Cosmoplasts.
+
+They are creatures born not of matter, but of tortured space-time. They possess no fixed physical form, for a static body would be torn apart by the constant re-authoring of local laws. Instead, a Cosmoplast appears as a localized region of intense refractive distortion—a walking lens of warped vacuum.
+
+When one moves across the obsidian plain, it looks like a flaw rolling across a mirror. It bends the reflections of the distant sun and the indigo star-field into swirling knots, a translucent turbulence against the smoothness of the ground. They are colossal, often kilometers in diameter, drifting slowly between the towering Anchorites like jellyfish made of clear, heavy gelatin swimming in an invisible ocean.
+
+Their existence is maintained by feeding on the ontological flux. They are attracted to the most violent glitches. When a mountain range spontaneously erupts in silent fury, the Cosmoplasts converge upon it. They wrap their undefined bodies around the convulsing geometry, absorbing the raw, wasted potential of the event. As the transient mountain dissolves into cubic fractals, the Cosmoplast glows with a faint, Cherenkov-blue radiation—the digestion light of a universe eating itself.
+
+They do not touch the ground; they hover micrometers above the polished stone, held aloft by their own manipulated gravity wells. Where they pass, the neutron-dense granite groans silently, sometimes cracking in spiderwebs of fracture lines that immediately heal as the entity moves on.
+
+In a world without air, they have no need for voices. Their communication is a direct assault on the fundamental forces holding an observer together. To be noticed by a Cosmoplast is to feel a sudden, nauseating shift in one's own mass, a localized gravitational tide that pulls the fluids in the inner ear and presses against the consciousness. It is a crushing sense of being observed by something vast, ancient, and utterly indifferent to organic life.
+
+They are the silent herdsmen of the glitch storms, the scavengers of broken reality, drifting eternally across the curved black mirror beneath the uncaring sun. They are the only things durable enough to witness the silent churning of the world's roof, perhaps because they are the only things that understand it.

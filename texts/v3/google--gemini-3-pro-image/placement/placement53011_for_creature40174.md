@@ -1,0 +1,19 @@
+The air tastes of ancient grease and wet dust before it even reaches my lungs. It is a physical weight, thick and humid, clinging to the back of my throat like swallowed wool.
+
+I am standing—or rather, crouching in the permanent, shimmering stoop required for travel—in what serves as a major thoroughfare on the mid-levels. Below my feet, there is no reassuring solidity of stone; the "floor" is merely the impacted ceiling of the level below, a slick, uneven topography of polished clay that knows the shape of my soles better than I know my own face.
+
+My center of gravity is low, knees perpetually bent to absorb the shock of the uneven terrain and to pivot quickly around the endless obstacles. I am compact, built densely like a sack of wet grain, a physique chiseled by the crushing geology of this place. My spine carries a dull, persistent ache between the shoulder blades—a constant tactile memory of the timber beams that loom just inches above my head.
+
+I am wedged into a bottleneck, a junction where three narrow, tubular corridors converge into a slightly wider, low-ceilinged communal space. The light here is treacherous. Tallow lamps sputter in carved niches, throwing manic, dancing orange shadows that make depth perception a guessing game. My eyes, rimmed red and chronically stinging from the acrid smoke that pools at eye level, rely less on sight and more on the familiar, slick geography under my hands.
+
+My left hand is pressed flat against a support beam thick as a barrel, its surface worn to a glass-like smoothness by centuries of palms seeking balance just like mine. The wood is warm and damp, vibrating slightly with the relentless, grinding activity of the thousands of souls packed above and below us.
+
+I am not alone for a second. The concept does not exist. I am currently pressed shoulder-to-bicep with three other people. We do not apologize for the contact; friction is our primary form of communication. Ahead of me, a woman with arms like knotted roots is wrestling a terrified, bleating goat through a gap barely wide enough for her hips. The smell is overwhelming—the ammoniac reek of the animal, the sour tang of unwashed wool clothing stiff with dried sweat, and the pervasive, underlying scent of wet, warm earth.
+
+A bead of condensation, heavy with soot, drops from the sagging reed matting overhead and lands squarely on the back of my neck, sliding down beneath the collar of my thick felted tunic. I barely register the cold shock. I am too focused on the rhythm of the crowd, waiting for the slight opening that will allow me to slide my own burden forward.
+
+My hands, broad pads of callus stained a permanent gray-brown, grip the rough twine straps of a basket sitting near my feet. It is filled with broken shards of excavated pottery—fill for a wall that slumped two levels down yesterday. My fingernails are worn down to the quick, snub-nosed tools adapted for clawing at clay and gripping rough wood.
+
+The noise is deafening, a roaring ocean of sound that my brain has learned to flatten into a continuous thrum: the rhythmic *thump-thump-thump* of grain mortars nearby, the squalling of an infant strapped to a chest pressing against my back, the shouting of orders over the din. Suddenly, a sharp *CRACK* echoes from somewhere above—the sound of an old timber finally giving up the ghost.
+
+The entire crowd freezes for half a heartbeat, eyes shifting upward in the smoky gloom, ears straining to hear if a rumble will follow the crack. It doesn't. The noise resumes instantly. The woman shoves the goat through the gap. I exhale a breath I didn't know I was holding, heave the basket of shards onto my shoulder, and shuffle forward into the warm, crushing embrace of the hive. I am just another restless particle in this churning, buried ocean of mud, keeping the structure alive by sheer force of movement.

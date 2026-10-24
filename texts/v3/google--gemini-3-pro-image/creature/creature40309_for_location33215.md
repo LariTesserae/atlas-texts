@@ -1,0 +1,11 @@
+What lives here is the anchor of the stasis, a consciousness weathered down to its absolute elemental core, stripped of all biology and form. It is not a ghost in the traditional sense of a departed soul trapped between worlds; rather, it is a remnant of intent so stubbornly persistent that it refused to dissolve when its physical vessel turned to dust eons ago.
+
+It has no body to displace the thick, clammy air, yet it possesses a tangible weight. Its presence is felt as a localized intensification of the hollow’s heavy stillness—a pressure against the eardrums, a slight, inexplicable deepening of the chill in the very center of the nave. It resides primarily near the dark pool and the ancient circle of stones, hovering low to the damp ground.
+
+This entity is the author of the traces. The three parallel lines on the rock face were not carved with tools, but abraded over centuries by the persistent, repetitive friction of a physical form that has long since ceased to be. The stone circle was its anchor point, a place of motionless concentration maintained for millennia.
+
+Now, existing without senses as we know them, it perceives the hollow through the medium of the environment itself. The slick patina of moisture on the sleeping leviathan rocks serves as its skin; the motionless, humid air is its breath. It does not "see" the gray twilight, but it feels the infinite, static gradations of dampness in the moss. It does not "hear" the rare *drip... drip...* of condensation; instead, it registers the minuscule ripples of pressure that emanate through the atmosphere with each impact.
+
+Its existence is defined by a paralyzing slowness matching the geological timescale of the erosion around it. It is conscious, but its thoughts move like glaciers. The realization that a visitor has entered the depression might take a year to fully form in its awareness. The impulse to react to that presence would take centuries to translate into even the faintest exertion of will.
+
+It is trapped not by walls, but by its own perfect equilibrium with the silence. It is a fixed point of pure, unending perception, an eternal witness frozen in the immense gap between the falling drop and the waiting stone. It is the mind of the hollow, forever contemplating the unchanging dark water, holding the silence in place.

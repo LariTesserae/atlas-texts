@@ -1,0 +1,15 @@
+To focus only on the skittering arthropods or the lumbering, sloth-like maintainers would be a mistake. They are merely the microbiome of this place—the gut bacteria and white blood cells keeping the larger anatomy functioning. They are numerous, loud, and necessary, but they are not the purpose of this cold womb.
+
+The true inhabitants are far harder to see, for they are camouflaged by the very architecture that birthed them.
+
+They are tall, elongated beings, vaguely humanoid but sculpted with a severe, attenuated grace that denies terrestrial origin. Their bodies are formed from a substance identical to the surrounding structure—a polished, flexible obsidian material that is simultaneously organic akin to horn, and conductive akin to metal. In the deep purple gloom, they are invisible, mere negative spaces against the faint bioluminescence. It is only when one of the pulsing fungal nodes flares brightly that they are revealed.
+
+Under the ultraviolet flash, they do not just reflect light; they absorb and transmute it. Subcutaneous patterns illuminate across their sleek, faceless helms and down their multi-jointed limbs—complex, glowing lattices of indigo and violet circuitry that mirror the fiber-optic roots threaded through the walls.
+
+They have no eyes. In this crushing deep, sight is secondary to sensation. Their entire being is a receptor for the intense metallic electromagnetism of the space and, more importantly, the foundational *thrum* of anti-gravimetric power. They navigate not by photons, but by feeling the warp and weft of the heavy gravity fields they are actively repelling.
+
+They move with a deliberation that borders on glacial. In an environment frantic with dripping water and jerky insectoid motion, their stillness is profound. A step takes a minute to complete; a turn of the head is a thoughtful, protracted gesture. They are creatures operating on a different timescale, synchronized not to the frantic ticking of seconds, but to the slow, inexorable pressure of geology.
+
+They are the conductors of this slow-motion symphony. They stand for hours at major junctions of the root-machinery, placing hands with long, articulate fingers flat against the slick black surfaces. Through this contact, they are continuously reading the stress fractures in the surrounding bedrock, directing the hydraulic pressure of the growing walls, and modulating the frequency of the buoyancy field that keeps the cavern from collapsing.
+
+They are intensely cold. Standing near one sucks the heat from a human body, contributing to the perpetual fog as their super-cooled physiology demands energy from the air. They are silent, making no vocalizations that human ears could perceive. Their communication is internal, transmitted directly through the conductive root-system they are integrated with—a shared consciousness flowing through the black veins of their buried cathedral, patiently, powerfully pushing the world away to make room for itself.

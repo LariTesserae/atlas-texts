@@ -1,0 +1,19 @@
+This isolated pocket of reality is not merely an ecosystem; it is a body, and it has a heart.
+
+The entity that claims this space is less an inhabitant and more the manifold consciousness of the structure itself. It is the Architect, the Gardener, and the Kiln-Master of this dry domain. It has no singular name, for there is no one else here to speak it, but its presence is heavy and inescapable, a gravitational anchor in the disorienting shift of the chamber.
+
+It is immense, a sprawling convergence of the very materials that define the space. At rest—which is its primary state, spanning centuries—it looks like a catastrophic collapse of the architecture centrally located in the "nave." It is a massive, asymmetrical agglomeration of sintered terracotta plates, ranging in size from fingernail scales to massive, curving tower shield segments, all meticulously fitted together without mortar. The seams are labyrinthine, a fractal jigsaw puzzle of rust-colored armor.
+
+Depending on how the variable gravity catches it, the entity might appear to be a mountain peak growing from the floor, or a massive, dormant hive hanging pendulously from the vaulted ceiling. Given the folding nature of the space, it is often both simultaneously.
+
+Thrusting through the gaps in its ceramic hide are great, branching spurs of the mineral flora. Massive antlers of smoky quartz and bleeding-edge fluorite jut from its back and flanks, glowing with intense, trapped geothermal heat. These are not decorations; they are sensory organs and energy collectors. Through these crystalline lattices, it feels the minute vibrations of the ceramic arthropods grazing, tastes the dryness of the nitrogen-thick air, and perceives the complex topological folding of its world. It does not see with eyes; it perceives the entirety of its domain simultaneously as a map of heat gradients and structural stress points.
+
+When it moves, the reality of the chamber groans.
+
+Movement is a tectonic event. It does not possess limbs in a vertebrate sense. Instead, it reconfigures itself. The manifold plates shift, unlock, slide over one another with the deafening, resonant grinding of massive unglazed pots rubbing together—a sound that drowns out the delicate *tink-tink* of cooling crystal. A "limb" forms when thousands of plates flow like a landslide into a pseudopod of armored clay, reaching out to tend a section of the garden.
+
+Where its "hand"—a crushing agglomeration of heated ceramic—touches a wall, the matte finish is perfected. A chipped flange is remolded in an instant of intense, localized heat, leaving the edge razor-sharp once more. It delicately encourages the growth of a mica fern by exhaling a concentrated plume of mineral-rich dust, which instantly accretes onto the crystalline structure.
+
+It is the source of the spatial distortion. Its sheer density is so profound that it bends the localized physics around it. The "soft perspective" of the room is its gravitational shadow. As it shifts its bulk, "down" reorients towards its center of mass. To stand near it is to feel a sickening pull in the inner ear, a sense of falling toward a creature made of kiln-fired earth and burning stone.
+
+It is aware of you. To its geological mode of perception, you are a bizarre, frantic anomaly—a squishy, water-filled sack moving at impossibly fast speeds, vibrating with chaotic chemical energy. You are a fleeting curiosity, a mayfly buzzing in a sealed tomb. It tolerates your presence because you are too insubstantial to damage its work, and you will desiccate soon enough, your tiny amount of moisture offered up to the thirsty air, your trace minerals eventually adding a microscopic layer to the glory of the terracotta walls.

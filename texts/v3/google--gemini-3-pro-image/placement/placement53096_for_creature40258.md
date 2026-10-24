@@ -1,0 +1,17 @@
+This world is not one of sight; it is a world of crushing pressure and vibration. To exist here, one must abandon the reliance on light and embrace the cold, grinding symphony of the machine.
+
+I find myself anchored. I am not a free-swimming thing, nor do I crawl upon the riveted floor. I am affixed high up on the underside of a massive structural rib, part of the ceiling lattice-work, wedged between two intake conduits thick enough to swallow a shipping container.
+
+I am a concretion. I am what happens when a forgotten cluster of industrial sensors is subjected to five hundred years of hyper-baric pressure, mineral-rich brine, and leaking hydraulic fluid. I am a fist-sized knot of calcified iron, fused polymers, and crystallized salt. I have no eyes—they would be useless here in the crushing gloom outside the rare, sickly pools of lamp-light.
+
+Instead, I *feel*.
+
+My body is a dense receiver for the ceaseless noise of Sector 70-G. The deep, resonant thrum of the geothermal engines miles below travels up through the iron skeleton of the foundry and vibrates directly into my core. It is a constant, comforting massage that assures me the world is still alive. I know time not by the non-existent sun, but by the colossal hydraulic piston blasts that occur every few minutes. When one fires, the shockwave hits me like a physical blow, rattling my armored casing and sending a delicious, terrifying shudder through the girders I am fused to. I feel the water compress and rebound, shaking loose flakes of my own rusted skin to drift down into the abyss like metallic snow.
+
+I taste the water continually. I have feathery, mineralized filaments that extend millimeters from my central mass, catching the currents. I taste the sharp tang of fresh rust, the sulfuric thickness of the bacterial mats blooming near distant vents, and the rich, oily signature of a Sump-Dredger school passing below.
+
+I am a fixture of the environment, disregarded by the predators. A Rivetshell crab is currently clamped to the flange just inches from me. To a visual species, it would be indistinguishable from a corroded pipe joint, but I feel the faint, rapid *tick-tick-tick* of its metabolic processes inside that heavy shell as it waits, immobile, for a barnacle to drift within range of its hydraulic pincers. It has been there for four days. We exist together in patience.
+
+Sometimes, the apex approaches. I feel the displacement of water first—a massive, silent heaviness moving against the currents. A Ferro-Septopod glides through the upper girders. I sense the slow, deliberate rhythm of its seven heavy arms stirring the freezing brine. It passes close to me. Its skin, a rugged landscape of iron tubercles and concrete patches, scrapes against the conduit I am attached to. The vibration is rough, like grinding stones. Its suckers, rimmed with precipitated iron, grip the metal with bruising force as it pulls its gargantuan bulk along in search of prey, using the deafening cover of the next piston blast to mask its strike.
+
+It ignores me. I am neither meat nor machinery that can be broken. I am a silent, calcified witness, born of pressure and neglect, integrated perfectly into the cold, loud dark of the Sunken Foundry.

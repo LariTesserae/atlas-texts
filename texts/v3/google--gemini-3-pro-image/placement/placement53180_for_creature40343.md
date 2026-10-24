@@ -1,0 +1,15 @@
+The roar is not just sound here; it is the medium in which existence is suspended. It vibrates through the wet stone, through the pressurized air, and through the very core of my being.
+
+I am situated midway down the great throat of the Oubliette, clinging to a vertical sheerness of unweathered slate. My world is a precarious, razor-edged ledge, perpetually drenched by frigid groundwater that sluices down from the unseen surface, yet simultaneously blasted by the convective heat rising from the screaming vents below.
+
+I am not one of the pale, gliding swimmers in the fog; I am too dense, too heavily armored for the air. Nor am I a massive, waiting Slate-Crawler, though I share their camouflage.
+
+I am a Lithoderm—a creature of accreted mineral and stubborn biology. I am small, perhaps the size of a human hand, segmented and flattened against the rock face. My carapace is not mere chitin; it is a rough, cemented mosaic of basalt grit and sulfurous deposits, harvested from the environment and glued together with my own metallic saliva. To the casual eye—if any existed here—I am just another jagged blister on the weeping wall.
+
+My existence is defined by the violent boundary line. A few inches upward, the water is cold enough to slow my metabolism to a crawl. A few inches downward, the steam jets would boil the moisture beneath my armored plates. I thrive in the chaotic, sputtering margin between the two, where the thermal shock cracks the rock and liberates minerals, and where thick, slimy bacterial mats grow furiously fast in the heat and damp.
+
+I have no eyes. Light is a meaningless concept in the churning fog. Instead, my entire underside is a sensitive array of pressure receptors and thermal pits. I "see" the world through the concussion of the geology. The deep, rhythmic booming of the magma chambers below is the baseline hum of my universe. The higher-pitched scream of the nearest steam turbine vent is my sun, providing the heat necessary for movement.
+
+I sense the approach of danger not by sight, but by subtle shifts in the vibratory landscape. When a massive Slate-Crawler shifts its weight on a nearby ledge, the microscopic tremors transmit through the rock face to my gripping legs, warning me to lock my joints and become immobile stone. When a swarm of the leather-winged things dives too close, the turbulence of their passage disrupts the steady upward draft of steam, a pressure drop I feel instantly against my dorsal plates.
+
+My life is a slow, tenacious graze across the slick, vertical gardens of heat-loving moss. I move with hydraulic deliberation, scraping sustenance from the razor rocks with hardened mandibles, ever mindful of the crushing noise and the scalding blasts. I am a tiny, hardened barnacle on the inner workings of a geological machine, enduring the violence of the earth's engine room because, in this deafening, hostile pocket, toughness is the only currency.

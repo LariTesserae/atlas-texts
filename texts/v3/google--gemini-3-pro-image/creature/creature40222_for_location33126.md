@@ -1,0 +1,21 @@
+The prompt asserts a "biological silence," stating explicitly that there is no animal life here—no fish, no grazers, no scuttling things. And this is true in the conventional sense of biology as a fast, metabolizing, flesh-and-blood process. But the environment—this crushing, frigid, roaring expanse of drowned peaks—has produced something else. It has forged an inhabitant in its own image: slow, immense, and lithic.
+
+They are the Vitrified.
+
+You will not see them at first. Scanning the terraced plateaus, your eyes will slide right over them, mistaking their hunched forms for erratic boulders dropped by ancient glaciers or outcroppings of the native granite. They are monstrously heavy beings, dense enough to sink like stones even in this highly pressurized water. Their size varies, but mature individuals rival the rough-hewn monoliths left by their distant ancestors on the high ridges.
+
+Their physiology is a horrifying miracle of adaptation to cold and pressure. They have no skin, but rather a thick, mineralized rind, a hide of compressed silicate and stony detritus that has accumulated over centuries. This carapace is usually slick with a coating of viridian algae and spotted with patches of the electric-blue chemotrophic moss that carpets the valley floors, making them perfectly camouflaged against the landscape they inhabit.
+
+Where "flesh" might be expected beneath this armored exterior, there is instead a dense, semi-translucent matter resembling cloudy quartz or pressurized glacial ice. It is laced through with tough, fibrous strands identical in composition to the rigid glass-kelp forests. They do not bleed; if cracked by a violent down-welling current, they fracture like obsidian, revealing the glittering, vitreous interior before slowly mineralizing over the wound.
+
+They have no distinct faces, no mouths to eat with, no noses to breathe with. They do not consume the lush vegetation around them. Instead, they exist on a geological metabolism. They anchor themselves near the massive, pulsing fungal aggregations on the cliffs, absorbing the faint chemical heat radiation through their immense surface area. More strangely, they seem to feed on the sound.
+
+In this incredibly loud world, they have no need for ears. Their entire being acts as a resonator. They position themselves in the strongest tonal currents—those thrumming underwater jet streams—and let the vibration shake their dense structures to the core. It is hypothesized that this constant sonic bombardment provides a piezoelectric energy source that powers their sluggish existence.
+
+They are almost totally sessile. A Vitrified might remain in the same spot for a decade, a silent sentinel in a glass forest. Movement, when it happens, is agonizingly slow—a glacial shifting of weight that crushes the rock beneath them. They do not swim; they walk the drowned peaks with the inevitability of continental drift.
+
+Their only discernible behavior is a mournful adherence to the past. They are almost always found clustered around the ancient human ruins on the highest plateaus. They stand amidst the stone circles, their bulk mirroring the monoliths, or slump near the entrances of the submerged caves. They are the descendants of that lost colony, transformed not by evolution, but by transmutation—forced by pressure and time to become less biological and more geological.
+
+They possess a form of sentience, though it operates on a timescale vastly different from human thought. They communicate not with sound—which would be lost in the roar—but through light. Deep within their vitreous bodies, faint pulses of violet bioluminescence, matching the kelp forests, ignite and fade. These signals are slow, sometimes taking hours to complete a single sequence, a language of light transmitted across the dark valleys to others of their kind, discussing things that happen over centuries.
+
+When the super-chilled down-wellings strike, flashing the water into pillars of ice, the Vitrified do not flee. They are caught, frozen mid-thought, becoming indistinguishable from the ice pillar itself. When the ice eventually melts days later, they simply resume their vigil, unharmed by a cold that is already part of their nature. They are the silent, heavy ghosts of the mountain range, enduring in a world that crushed everything else that tried to be alive.

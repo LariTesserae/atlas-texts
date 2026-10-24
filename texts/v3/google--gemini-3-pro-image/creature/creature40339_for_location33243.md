@@ -1,0 +1,19 @@
+This is a place where flesh is an impossibility. To survive here, life must discard biology and adopt the geology.
+
+The primary inhabitants of the churning slurry are the **Lithic Resonators**.
+
+They are not born; they accrete. In the crushing depths of the superheated mire, where the pressure turns the mud into a grinding paste, consciousness forms around fragments of the deepest, densest elements—shards of iron, heavy silica, and kernels of radioactive material.
+
+A Resonator has no permanent shape. It is a loosely organized vortex of heavy debris held together by sheer will and a mastery of vibration. They resemble swirling, ambulatory rock-slides, roughly conical or crab-like mounds of grinding stone and metal ranging from the size of a barrel to the size of a small house. They have no eyes, for there is nothing to see in the opaque suspension. Instead, they possess thousands of fine, crystalline filaments—grown from extracted quartz—that bristle from their shifting shells. These filaments are hyper-sensitive acoustic receptors.
+
+In a world of total noise, the Resonators survive by screaming back. Their core consciousness exists as a self-sustaining standing wave, a precise counter-frequency to the planetary roar. This internal vibration is what generates the localized gravity field that holds their makeshift bodies together. If they lose focus, or if the external Cacophony overwhelms their internal frequency, they simply deliquesce, their component stones scattering back into the anonymous muck.
+
+They move slowly through the deep, denser currents of the slurry, grazing not on organic matter, but on stability. They are drawn to the "calcified nodules of order"—the obsidian monoliths and fossilized leviathan ribcages. A Resonator will anchor itself to one of these smooth surfaces and begin to vibrate intensely. This sonic abrasion slowly liquefies the orderly matter, which the creature then absorbs to reinforce its own crumbling lattice. They are the digestive agents of the planet, breaking down the last stubborn vestiges of form.
+
+When the ontological turbulence peaks—when the mud momentarily sculpts a fleeting city or a dead god's face above the surface—the Resonators below enter a frenzy. They surge upward through the boiling column, riding the convection currents. They cluster beneath the temporary mirage, their quartz filaments vibrating wildly, feeding on the sudden, intoxicating presence of *meaning* and *structure* before reality reasserts itself and the vision dissolves in a burst of steam.
+
+There are others, too, things further removed from comprehension.
+
+High above the churning surface, riding the thermals of superheated steam, are the **Vapor-Wrights**. They are barely there—filmy, translucent jellyfish-like entities composed entirely of stiffened aerosol gels and trapped volcanic gases. They are vast, some spanning acres, yet they possess almost no mass. They drift in the jaundice-yellow light, utterly silent, feeding on the electrical discharges that crackle through the metal-rich clouds. They are fragile; a single burst from a mud-geyser below tears them apart, scattering their gaseous bodies until they slowly coalesce again days later.
+
+And somewhere in the middle, trapped between the crushing mud and the burning air, live the **Hollow Men**. They are the tragic inhabitants of the "temporary islands of cooled slag." They are not native. They appear to be the mineralized echoes of beings that might have once lived on the continent before it was ground down. They are brittle, statuesque figures of rust and fused silica, trapped on the vibrating islands. They cannot move, save for the endless jittering caused by the roaring earth. They wait, enduring the steam, their empty eye sockets fixed on the non-existent horizon, until the inevitable moment their island sinks back into the boiling mire, taking them down into the crushing darkness to be recycled.

@@ -1,0 +1,17 @@
+This is the domain of the **Lithic-Gorgers**, creatures that are less flesh and blood than they are animate geology and industrial runoff. They are the apex scavengers of this closed loop, massive, slow-moving beings that have evolved not merely to survive the toxicity, but to embody it.
+
+At first glance, a Lithic-Gorger is indistinguishable from the landscape it inhabits. They are squat, hulking things, roughly the size of a rusted Volkswagen Beetle, staying low to the treacherous ground. Their backs are not covered in fur or scales, but in a dense, chaotic carapace built from the very refuse surrounding them. Over decades of slow life, they secrete a viscous, metallic cement—a biological mortar—that binds scavenged scrap to their dorsal plates.
+
+A mature Gorger carries a heavy, shifting armor of shattered gear-teeth, curled flakes of boiler-plate, shards of stratified shale, and thick nodules of the same cancerous verdigris that blooms on the dead machines. They look like walking slag-heaps, like mounds of debris that have suddenly lurched into cumbersome motion.
+
+Beneath this heavy, rattling shell, their bodies are pale, segmented, and shockingly soft, resembling the compressed grubs of giant beetles, but slick with the same cold, greasy sweat that pervades the hollow. Their skin exudes a constant, chilling fluid that smells intensely of battery acid and wet pennies, lubricating their passage through the abrasive mud. They move on dozens of stout, chitinous legs that end not in feet, but in splayed, gripping pads designed to find purchase on slick iron and slimy rock.
+
+Their heads are brutish, armored spades, devoid of eyes, as the dim light is useless here. Instead, they navigate via clusters of sensitive, crystalline nodes located around their "mouths," which sense magnetic fields and subtle shifts in chemical gradients. Their primary sense is taste-touch.
+
+The mouth itself is a horrific piece of organic machinery. It is a grinding maw dominated by mandibles tipped with fused iron pyrite. They do not hunt in a traditional sense. They dredge. A Gorger will position itself against a calcified engine block or a particularly rich vein of mineral bloom and begin the slow, relentless work of consumption.
+
+A low, resonant grinding sound—like a millstone chewing gravel—emanates from them as they work. They rasp away at the rusted metal and the brittle mineral lattices, ingesting the oxidized iron, the heavy metals, and the sulfurous deposits. Their digestive systems are essentially slow-burn chemical furnaces. They process the poisons, extracting trace energy from the breakdown of heavy oxides.
+
+What they cannot use, they excrete, adding to the environment's toxicity. From vents along their flanks, they weep the oily, rainbow-sheened fluids that feed the pools, and their solid waste forms new, concentrated nodes of mineral growth, planting the seeds for future "blooms" of rust. They are the unwitting gardeners of this metallic hellscape, consuming the old decay and seeding the new.
+
+They are utterly placid, almost lethargic, moving only yards in a day. The smaller armored slugs graze directly on their shells, cleaning them of parasites, ignored by the giants. They have no predators; nothing else here could pierce their armored hides, and their flesh is so saturated with heavy metals that to take a bite would be instant poisoning. They exist in a state of permanent, slow metabolic churn, cold, wet, and heavy, the living spirit of the sump.

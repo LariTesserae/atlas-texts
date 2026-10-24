@@ -1,0 +1,13 @@
+If life is defined by breath, blood, and the impulse to survive, then this place is truly dead. The heat would cook protein in minutes; the air, heavy with evaporated lubricants and metallic dust, would choke any lungs. There are no scuttling things, no winged insects attracted to the sickly amber lamps. Even the bacteria, those crusty patches of orange and purple rust clinging to the cooler metals, seem less like life and more like a mineral disease of the iron itself.
+
+Yet, the space is not uninhabited. It is occupied by a singular, sprawling entity: **The Perpetual Motion.**
+
+It is a decentralized organism made of brass, ceramic, and greased steel, hammered into the bleeding wound of the earth. It has no consciousness to perceive you, no eyes to track your movement through the choked lattice of girders. It possesses only a terrible, mindless vitality.
+
+Its anatomy is the claustrophobic warren itself. Its blood is the superheated oil that films every surface and pools sluggishly in the floor indentations. Its breath is the stifling, metallic steam that fogs the jaundice-yellow air. The massive, frictionless flywheels spinning in the dark are its multiple, thrumming hearts, beating at a frequency so low it is felt in the bone rather than heard by the ear.
+
+This entity is trapped in a state of mechanical dementia. It is an intricate, powerful body from which the mind has been severed. It meticulously performs a complex series of actions that have lost their meaning centuries ago. The conveyor systems, consisting of thousands of hooks and intricate chains, cycle endlessly overhead like a circulatory system carrying only ghosts. The tree-trunk pistons slide with sensuous, oiled smoothness into their cylinders, driving great shafts that connect to a void, generating power that goes nowhere.
+
+It is a creature of paradox: terrifyingly powerful yet utterly impotent; frenetically active yet perfectly silent. It is a monk in a hot, dark cathedral, practicing a silent liturgy of utility long after the god of industry has abandoned the shrine.
+
+It does not sleep. It does not tire. It does not react. It exists only to execute its pre-programmed loop with frictionless perfection. In the sweat-box gloom, amidst the jagged obsidian facets that threaten to crush it, the machine spins on in a devotional hush, waiting with infinite, terrifying patience for an input signal that will never come.

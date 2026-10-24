@@ -1,0 +1,17 @@
+The life here is less a population and more an infestation, a secondary biological skin growing over the raw industrial skeleton. They are the Narthex-Grubs, the insulation-lice of the upper mantle, and their total biomass in this cramped nexus likely outweighs the metal they cling to.
+
+To the eye, they are repulsive sacks of gelid life, utterly colorless in the dismal light. They possess the nauseating translucence of deep-sea horrors or embryonic things that were never meant to be exposed to air. Their hide is a wet, permeable membrane, slick with a freezing slime that serves as antifreeze, allowing them to exist in the sub-zero deluge without turning solid. Through this cloudy skin, one can trace the sluggish movement of internal fluids—not blood, but a milky, hyper-oxygenated coolant pumped through a simplified lattice of viscera.
+
+They are functionally blind. Eyes are useless energy expenditure in a world lit only by electrical failure. Instead, their "heads"—tapered, worm-like stumps—are studded with sensitive pits designed to detect thermal gradients and electromagnetic fields.
+
+Their forms hover disturbingly between arthropod and mollusk. A mature grazer, the length of a forearm, might possess three dozen pairs of segmented, chitinous stubs that pass for legs, tipped with iron-hard gripping hooks adapted for purchase on slick metal and wet slag. Yet, the main body is soft, pliant, capable of squeezing into the jagged gaps between bulbous welds. They do not have a rigid exoskeleton; they are masses of pressurized gristle that shiver constantly against the encroaching ice.
+
+Their existence is defined by a desperate, glacial hunger for energy. They are the ultimate parasites of industry. They cluster in shivering mountains around the "hot zones"—the unshielded power junctions and heat exchangers.
+
+The largest colonies are enormous, meter-thick scabs obscuring critical infrastructure. The creatures at the bottom of the pile are pressed flat against the scorching ceramics of the power couplings, their wet bodies boiling where they touch the heat source, directly absorbing thermal radiation and bleeding off stray voltage through their conductive slime. Their bodies act as organic step-down transformers, metabolizing raw electricity into chemical energy.
+
+The creatures on the outer layers of these piles are frozen stiff, frosted over with ice dust, waiting their turn in a grand, agonizingly slow rotation to the heat source, a process that might take "years" in this timeless place.
+
+Their movement is so slow it is nearly imperceptible, a tectonic shifting of pale meat. They do not scuttle; they ooze, coating the sharp edges of girders in their numbers. When a failing coupling spits a glob of jittering blue sparks, a ripple goes through the nearby carpet of creatures as they blindly orient toward the transient energy burst, a thousand wet, sightless heads turning in unison.
+
+They make no sound that can compete with the monolithic roar of the engines. The soft, wet clicking of thousands of gelid carapaces grinding together in the crushing density of the colony is a secret noise, lost entirely to the deafness of the cavity. They are a silent, seething, freezing shroud of life, feeding on the waste heat of a machine too vast to notice them.

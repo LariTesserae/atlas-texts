@@ -1,0 +1,19 @@
+The beings that dwell in this wet, resonant hollow are not merely inhabitants; they are the maintenance system for the geo-botanical machine they occupy. They are huge, sedentary creatures, evolved—or perhaps designed—to withstand the perpetual chill and permeating dampness.
+
+At first glance, in the jade-filtered twilight, you would mistake them for outcrops of the living architecture. Their height rivals that of a tall human, but they are easily three times the width, possessing a dense, low center of gravity. They have no true skin or fur. Instead, their exterior is a thick, deeply fissured husk, somewhere between calloused hide and lignified cellulose, mirroring the texture of the iron-hard bark surrounding them.
+
+This outer plating is dark, sleek with perpetual moisture, and ranges in color from the blackened brown of peat to the grayish-green of wet slate. Just like the buildings, the inhabitants are substrate for the environment. Filigrees of emerald moss grow in the deep creases of their joints, and pale, bracket fungi sprout from their broad, hunched shoulders. They do not seem to mind this colonization; it is simply part of living here.
+
+They move with glacial deliberation. To watch one cross a mossy plaza takes time. Their legs are thick, pillar-like stumps that compress the spongy ground, ending not in feet, but in broad, textured pads that grip the slick root-floor without slipping. They possess four powerful arms arranged radially around their upper torso, each ending in three-fingered hands capable of immense, crushing grip, yet gentle enough to manipulate the glass vacuum tubes without shattering them.
+
+The defining characteristic of these beings, however, is their integration with the industry that hums around them. They are symbiotes of copper and steam.
+
+Much like the trees have pipes grafted into their bark, the inhabitants wear—or perhaps grow—heavy augmentations of oxidized copper and dull brass. Plates of verdigris-stained metal are riveted directly into their tough outer husks, serving as armor for vital areas. Their joints are reinforced with external brass hydraulics that hiss quietly as they move, aiding their heavy limbs in turning the massive iron gears of the engine houses.
+
+Their faces are difficult to discern, usually obscured by a heavy, ornate cowl made of woven copper wire and thick, waxy leaves. Beneath this covering, one might catch a glimpse of large, multifaceted eyes that glow with the same faint, bioluminescent amber light that pulses in the sap-tubes. They have no mouths suited for speech. Instead, a grilled brass respirator is permanently affixed where a jaw would be.
+
+They do not eat in any conventional sense. When they require sustenance, they lumber to specific docking ports on the exterior of the cathedral-roots. There, they connect the brass fittings on their torsos to valves in the copper plumbing. They stand motionless for hours, steam curling around their mossy forms, as they directly siphon geothermal heat and the processed, glowing plant sap into their systems.
+
+They are a silent species. The only noise they make is the heavy *squelch-thud* of their footsteps, the hiss of their hydraulic joints, and occasionally, a deep, resonant subterranean thrum emitted from their chests that harmonizes perfectly with the beat of the pistons. This low-frequency vibration seems to be their method of communication, a sonic language that travels through the root-floor, felt rather than heard by their kin across the misty plazas.
+
+They are the stewards of the slow rhythm. They tend the moss, they scrape the fungi from the glass windows, they lubricate the massive pistons with synthesized plant oils, and they ensure the flow of steam and sap continues uninterrupted. They are ancient, patient gardeners in a landscape where machine and plant are one garden, existing in a perpetual, dripping stasis.

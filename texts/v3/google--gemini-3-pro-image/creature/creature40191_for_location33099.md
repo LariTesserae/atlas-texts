@@ -1,0 +1,15 @@
+The things that built this place, and which now tend to its eternal stasis, are creatures of calcified armor and vibration. They are rarely seen because there are so few of them left, and because they move with such glacial slowness that they blend perfectly into the architecture they carved aeons ago.
+
+They are crustaceans of a sort, though evolved far beyond any surface variety. An adult is roughly the length of a human forearm, segmented like a monstrous isopod, encased in an exoskeleton that is less like organic chitin and more like polished travertine. They are the colour of old bone and wet quartz. Over geological time, the minerals in the constant dripping water have deposited onto their backs, making them look like mobile shards of the city itself. When still, wedged into a narrow doorway or crouching on a bridge, they are indistinguishable from the architecture.
+
+They are utterly blind. Eyes are useless in this confusing, sickly-green glimmer. Instead, their pale, armored heads are dominated by elaborate arrays of feathery antennae and stiff, sensitive bristles that constantly sweep the wet stone ahead of them. These sensory organs are hyper-attuned to the texture of the rock and, crucially, to vibration.
+
+The deafening roar of the cavern is their entire world. They do not hear it as noise; they feel it as a thrumming, tactile map. They navigate the insane density of their hive by sensing the subtle shifts in acoustic pressure as they pass open doorways or cross the sliver-thin bridges over the churning mud below. The deep, grinding groan of the shifting earth is their heartbeat.
+
+They move on twelve multi-jointed legs, tipped with hard claws that find purchase on the slime-coated basalt. Their gait is mechanical, jerky, yet perfectly secure. They can cling to the undersides of the bridges as easily as they walk on top, scuttling upside down through the dripping shadows.
+
+Their existence is one of mindless, sacred repetition. They are not individuals; they are maintenance drones for the city-organism. A creature might spend a century slowly abrading a microscopic rough patch on a spiral carving, polishing it smooth with its mineralized mouthparts beneath a constant stream of water. Another might spend a millennium patrolling a single stretch of transit latticework, ensuring the drainage fissures remain clear of sludge.
+
+They eat the rock itself, or rather, they process the mineral-rich slurry that coats everything. Their mouths are complex grinders that scrape the wet surfaces, ingesting the microscopic bacterial mats that subsist on the sulfur and iron in the water, along with dissolved stone. They excrete a cement-like paste, which they use to reinforce weakening lintels or patch hairline fractures in the basalt, ensuring the city never changes, never crumbles.
+
+They are cold, wet, and unbelievably ancient. They do not communicate, they do not breed, and it seems they do not die, save for perhaps being crushed in a slow geological shift. They are the silent gears in this deafening, roaring machine, eternally curating a wet mineral tomb.

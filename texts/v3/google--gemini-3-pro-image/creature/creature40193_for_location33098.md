@@ -1,0 +1,15 @@
+You will not see them at first. The sheer violence of the light and the overwhelming density of the green tapestry serve as a perfect camouflage. You have likely walked past a dozen of them already, mistaking their stillness for inorganic matter.
+
+They are the children of this unique collision between aggressive biology and imperishable technology. They are the Vitrified Wardens.
+
+They are humanoid only in the loosest sense—tall, elongated bipeds that stand perhaps eight or nine feet high, slender to the point of fragility. Yet, they possess an immense, static tensile strength. Their biology has adapted to utilize the materials littered around them. They do not have skin or fur; they have carapaces fashioned from the same milky opaque glass and polished white ceramics of the geodesic domes.
+
+These exoskeletons are practically invisible against the searing brilliance of the high-altitude sun. The harsh light hits their glassy surfaces and flares, making their edges indistinct, blurring them into the superheated atmosphere. Where the specular chrome is integrated into their joints—at the knees, the multi-hinged elbows, and the articulation points of their long, multi-fingered hands—they mirror the sky with such perfect fidelity that you seem to be looking right through them.
+
+They are absolutely, terrifyingly silent. They have no mouths, for they do not eat in any conventional way. They have no need for respiration in this thin, biting air. Their energy is derived purely from that blinding violet-blue sky. They are photovoltaic organisms. They stand rigidly on the knife-edge ridges or atop the towering refinery stacks for days, weeks at a time, arms slightly away from their sides, palms turned upward, drinking the lethal radiation of the sun.
+
+Because they are so still, and because the environment is so relentlessly wet, they are being reclaimed by the landscape even as they live within it.
+
+The electric chartreuse moss that carpets the basalt creeps up their ceramic legs. Ferns sprout from the crevices between their glass plating. Their shoulders and backs are often heavy with miniature ecosystems of lichen and dripping creepers. They do not fight this embrace. They exist in a perfect, passive symbiosis with the choking green. When they do move—a shift of weight measured in hours, a slow turning of a faceted head to follow the arc of the sun—the moss stretches and tears silently, only to begin regrowing immediately.
+
+They are few in number, solitary creatures scattered across the vast caldera like the ruins themselves. They seem to act as the silent curators of this high-tech graveyard. You might occasionally see one standing over a massive, gleaming capacitor, its glass hand resting gently on the metal housing, as if sensing the dormant potential within. They do not repair, they do not build, and they do not destroy. They simply witness, eternally preserved in the cold damp, watching the slow, agonizingly beautiful victory of the moss over the machine.

@@ -1,0 +1,15 @@
+It is not immediately obvious that anything lives here at all. In a space so dense with inanimate clutter, life must camouflage itself as debris.
+
+The thing that dwells in this interstitial blister is a scavenger of entropy, a slow-metabolizing organism that has evolved not just to survive the crushing cold and toxic soup, but to become compounded of them. At first glance, hunched in the shadowed V-shape between a sweating concrete slab and a bundle of verdigris-crusted copper pipes, it looks like a forgotten heap of oily rags left behind by a long-dead welder.
+
+It is roughly the size of a crouched human, but its anatomy is horribly indistinct. It has no fixed shape, possessing instead a viscous, semi-solid plasticity that allows it to ooze through the gaps in the steel grating and pour itself into the tightest recesses of the machinery. Its "skin" is a shuddering tapestry of the environment: patches of textured rust, slick membranes coated in black hydraulic grease, and calcified ridges that mimic the yellowish coral blooms growing on the pipes. Embedded within its hide are shards of sheared bolts and flakes of iron, armor repurposed from the structure's own decay.
+
+It has no eyes; in this flickering amber gloom, sight is a secondary sense. Instead, its entire surface is a sensory organ tailored to vibration and chemistry. It feels the sub-threshold hum of the junction boxes vibrating through the grating. It tastes the metallic tang of the coolant mist on its oily exterior. It "hears" the deepest groans of the superstructure pressing down from miles above, a sound that seems to soothe it into a deeper torpor.
+
+Its movements are glacial. When it shifts—perhaps once every few hours, stimulated by a change in the rhythm of the dripping water—it doesn't step; it flows like partially frozen sludge. A limb might differentiate itself from the main mass, a thick, pseudopod extension dripping with the viscous black water from below the grating, reaching out to wipe a surface clean of its toxic condensation.
+
+It feeds on the industrial waste. It grazes on the pale, fibrous chemical scum floating in the stagnant pools, extending tube-like siphons down through the mesh floor. It presses its body against the weeping architectural seams, absorbing the semi-metallic slurry that oozes from the cracked concrete like a poultice.
+
+It is profoundly cold to the touch, colder even than the surrounding iron. It generates no internal heat, existing in a state of near-suspended animation, its life processes slowed to match the geological pace at which the walls are closing in. It is silent, save for a wet, sucking sound when it detaches itself from a surface, or the faint *clink* of embedded metal scraps shifting within its amorphous bulk.
+
+It is the spirit of the blister, a biological echo of the mechanical stress. It is a lonely, ragged clot of living refuse, patiently waiting for the final, crushing embrace of the world above.

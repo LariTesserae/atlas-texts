@@ -1,0 +1,15 @@
+The residents of this screaming geode are not merely adapted to the environment; they are fundamentally composed of it. They are less biological entities and more animated geology—an intermediary stage between the mineral stillness of the garden and the sentient life of the surface.
+
+They are the Vitreous Grazers.
+
+Though they range in size, their morphology is consistent. They possess no soft tissues, no moisture to boil away in the kiln-like atmosphere. Their biology is silicate and metallic based. Their exoskeletons are not grown in smooth curves but accreted in angular, crystalline facets. They look like walking clusters of volcanic glass and semi-precious metals. The iron pyrite integrated into their shells forms geometric cubes of glittering fool's gold that act as ablative armor against falling crystal shards, reflecting the sullen red light from below in countless sharp flashes as they move.
+
+They move on eight jointed legs, segmented tubes of opaque, heat-resistant ceramic. The diamond-dust tips mentioned in the survey act like permanent crampons, biting into the obsidian floor with a sound like a glass cutter scoring a windowpane. This movement adds a constant, high-friction *shhhhh-click-shhhhh-click* layer to the ambient roar of the cavern.
+
+They have no eyes, for there is little to see in the dim red gloom. Instead, their faceted heads are covered in pits lined with thermal receptors. They perceive the cavern as a blazing topography of heat gradients—the searing veins in the floor are blinding highways, the bismuth ferns are cool fractal shadows, and the rising mineral vapors are shimmering, edible plumes.
+
+They also 'hear' the world through their feet. The foundational tectonic bass note is their heartbeat, their orientation point. More impressively, they navigate the screaming, fracturing lattice of the crystal plants by sensing the specific vibratory tension rising in a quartz stalk just seconds *before* it shatters, allowing them to scuttle clear of the explosive spray of razor-sharp splinters.
+
+They are peaceful lithovores. They swarm the towering stalks of sulfur and arsenic, their grip unshakeable. Their mouthparts are not mandibles of bone, but grinding wheels of fused corundum. They do not bite; they abrade. They press their faces against the delicate mica leaves and the blooming mineral efflorescence, their mouth-stones spinning to grind the surface into a fine powder which is then ingested into an internal furnace-stomach. There, the intense heat and pressure smelt the minerals, extracting the trace elements needed to repair their ceramic bodies and fueling their internal piezoelectric nervous systems.
+
+In this static, deafening equilibrium, they do not appear to age. They merely grow heavier, their pyrite armor thickening layer by layer until they are too massive to climb. Then, they slow down, eventually stopping entirely in one of the wide avenues, their inner fire dimming until they become indistinguishable from the inorganic garden, just another sharp, glittering sculpture waiting for eternity.

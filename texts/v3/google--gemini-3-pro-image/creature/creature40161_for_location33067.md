@@ -1,0 +1,15 @@
+They are the kinetic counterparts to the stationary pylons, the hands that wield the hammer of this forge. In this deafening, steaming crucible, entities exist that are not born of flesh or chitin, but seem extruded from the same fundamental fabric being woven by the towering machines.
+
+They are lofty, hovering forms, silhouetted against the hellish orange glow of the central birthing rock. They possess no true biological features—no limbs, no faces, no discernible sensory organs. Instead, they appear as mobile monoliths of the same matte, light-absorbing material as the pylons. They are roughly humanoid in verticality but entirely abstract in shape—tall, shifting columns of vantablack geometry that seem to absorb the surrounding chaos rather than reflect it.
+
+Gravity does not claim them. They glide silently inches above the razor-sharp basalt tessellations, unaffected by the treacherous footing or the explosive growth of crystal gardens. The intense heat of the amphitheater, enough to boil the blood of an organic creature, is merely their operating temperature. The perpetual deluge of hot condensation strikes their surfaces and instantly flash-boils into steam, clothing each entity in a perpetual, swirling shroud of its own vapor.
+
+The frenetic biological life of the arena—the metal-shelled crawlers and screeching flyers—are beneath their notice, mere sparks flying from an anvil. The fauna, in turn, gives these silent giants a wide berth, an instinctual avoidance of forces they cannot comprehend.
+
+These entities are the operators of the genesis engine. They drift between the perimeter pylons and the pulsing central dome of slag. When they work, they do not use physical tools. Instead, extensions of shimmering, gravimetric distortion—visible only by the way they warp the violent air and bend the violet light—emerge from their shadowed cores.
+
+They gather around the central bulge of rising semi-molten matter. With their intangible manipulators, they reach directly into the churning slag. They isolate globs of the raw, proto-material, lifting it from the mound, suspending it in the humid air. Then, channeling the chest-vibrating thrum of the surrounding pylons, they bombard the suspended matter with focused streams of violet energy.
+
+Under their direction, the chaotic slag doesn't just cool; it *compiles*. The raw stuff screams—a sound distinct from the geological groans—as it is forced into hyper-dense, impossible geometries, refined from chaotic potential into stable, crystalline reality. Once a segment is forged, the entities release it, allowing it to integrate into the growing, jagged floor with a tectonic crunch.
+
+They communicate not with sound, which would be lost in the roar, but through modulation of the gravimetric hum that permeates the space. They are a collective consciousness focused solely on the task of ontological manufacturing, indifferent architects standing amidst the violent splash of creation, forging existence one violet-infused ingot at a time.

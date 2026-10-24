@@ -1,0 +1,13 @@
+The heat is not an external assault; it is a medium, thick and iron-tasting, that upholds my heavy existence. To a softer thing, this air would be a suffocating blanket of kiln-dry dust, but to me, it is merely the atmosphere of home. It carries the essential scents: the sharp tang of sulfur, the deep, bloody smell of hematite, and the fainter, desirable aroma of softer mineral salts waiting to be harvested.
+
+I am wedged in a fissure, a narrow throat between two soaring escarpments of violet crystal. Above, the spears climb into the velvet gloom until gravity claims them; below, the path is a treacherous tumble of razored debris.
+
+I have been still for a long time. In the darkness, my form is indistinguishable from the chaotic geology around me. I am a squat, brooding density, a boulder paused in its slow tumble. My exterior is a crusted chaotic jumble of sharp mineral shards, dusted with the eternal yellow powder of the realm. I do not feel the air against "skin"; I feel the ambient thermal gradient pressing against my polished facial carapace, telling me that the wall to my left is marginally cooler than the wall to my right.
+
+It is time to move. The deep, resonant thrum of a geothermal vent far beneath the floor vibrates up through my pedestal feet, a comforting, grounding hum that maps the terrain better than light ever could.
+
+I shift my weight. It is a deliberate, hydraulic motion. As my massive shoulder rotates forward to navigate the squeeze, the outermost layer of my crystalline armor grinds against the canyon wall. There is a sharp, glassy *crack*, and a cluster of vitrified shards shears off my body, tumbling down into the dark. I feel the vibration of the break, but no pain. It is merely the shedding of a layer, a necessary ablation. My true structure, the dense obsidian skeleton beneath, remains untouched.
+
+I bring a heavy, clamp-like hand forward, testing a jagged outcropping before trusting it with my tonnage. In the grip of my other stony fist, I hold my chisel—a length of volcanic glass, darker than the surrounding gloom.
+
+I am hunting. Not for flesh, but for the specific resonance of a vein of chemically complex rock I scented cycles ago. It is a slow pilgrimage. Haste is death here; a slip could lodge me inextricably between unyielding fangs of quartz. But I am patient. I am durable. I am of the rock, and eventually, the rock yields. I take another heavy, grinding step into the glittering dark.

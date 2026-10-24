@@ -1,0 +1,21 @@
+The denizens of the Undercroft do not merely inhabit this chaotic expanse; they are its kinetic output, the sweating, grunting gears in the immense, struggling machine. They call themselves the "Forged," though whether this is a title of pride or a grim acknowledgment of their reality is impossible to say in the din.
+
+They are a stunted, broad people, compressed by generations of heavy gravity and low ceilings. Their physical forms have blurred into the environment; it is often difficult to tell where flesh ends and industrial salvage begins. Their skin, rarely seen beneath layers of protective filth, is thick and pale as tallow, hardened into permanent, leathery ridges by constant abrasion against iron and stone.
+
+They are coated—lacquered, almost—in the very substances of the Undercroft. A permanent slurry of axle grease, coal dust, and rust stains their bodies a mottled brownish-black, giving them the appearance of corroded statues sprung to jerky life. Many wear plates of scavenged scrap metal, hammered crudely to fit shins, forearms, and shoulders, held in place by leather straps that have fused with their own calluses. Rivets sometimes seem to hold skin together as often as clothing.
+
+Their eyes are perhaps their most striking feature: enormous and watery, evolved to capture the miserable light from the sputtering lamps. To protect these sensitive organs from the flying grit and sparks of their endless industry, almost all wear heavy, opaque goggles fashioned from brass casings and thick, scratched glass. When they push these goggles up to their foreheads during rare moments of rest, their faces looked stunned and naked in the gloom.
+
+The Forged are defined entirely by their labor; their bodies are warped to fit their specific function within the hive.
+
+There are the **Haulers**, bowed almost double, whose spines have curved under the weight of iron girders moved manually across swaying wire bridges. Their shoulders are humped masses of muscle, scarred where harnesses have bitten deep over decades. They move with a swaying, ponderous rhythm, their breath hitching loudly in the damp air.
+
+There are the **Strikers**, the hammer-hands. Usually asymmetric, one arm is hideously overdeveloped, a vascular tree trunk of muscle capable of swinging massive iron mallets for twelve hours at a time. Their hearing is completely gone, shattered years ago by the clangor of their own work. They communicate in a brutal, abbreviated sign language of jerks and shoves, their faces set in permanent snarls of exertion.
+
+And there are the **Riggers**, darker and smaller than the rest, who scamper along the underside of the high gantries. They are wiry, their fingers tipped with thick, horny nails that grip steel cables like talons. They are the ones who patch the high leaks and secure the precarious shanties, often hanging upside down over lethal drops, their eyes reflecting the weak bioluminescence of the jarred fungi they carry for light.
+
+The culture of the Forged is one of grim, desperate pragmatism. They do not understand the "why" of the Foundry-Hive, only the crushing imperative of the "must." They are a technologically regressed priesthood serving a mechanical god they no longer comprehend. Their lives are a constant battle against entropy; if they stop hammering, the ceiling falls. If they stop hauling, the supports buckle.
+
+They eat the pale, rubbery fungi that sprout from the rotting timber, supplementing it with the oily meat of the giant, chitinous insects they manage to club to death in the deeper shadows. They drink the condensate that they collect in rusted troughs, liquid that tastes perpetually of copper and mold.
+
+They are a silent people, not by choice, but by necessity. Conversation is impossible. When they must vocalize, it is in chest-deep bellows meant to cut through the wall of noise—warning shouts, commands to heave, or cries of pain when a cable snaps or a hammer misses its mark. They are stubborn, calloused, and immensely durable, existing in a state of perpetual tension, much like the groaning structures they spend their short, brutal lives holding together.

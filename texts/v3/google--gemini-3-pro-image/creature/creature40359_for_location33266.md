@@ -1,0 +1,17 @@
+This environment—a silent, frozen crucible of slow-motion metal digestion—is dominated by a lifeform that is less an animal and more a geological event.
+
+You will not see it at first. The optical distortions of the basin and the dense chaos of the ferro-botany provide perfect camouflage for a creature composed of the exact same materials. You might stare at a distant ridge of compacted girders and crystalline ivy for hours before realizing the entire formation is slowly, agonizingly migrating.
+
+It is the Apex Lithovore of this rust jungle.
+
+It is colossal, a sprawling, ambulatory agglomeration of scrap that can measure hundreds of yards across. It has no defined head, tail, or limbs in any terrestrial sense. Instead, it is a massive, shifting mound of scavenged plating, fused engine blocks, and thick, woven mats of the razor-wire brambles that it has incorporated into its own carapace. It looks like a section of the industrial substrate tore itself free and began to crawl.
+
+Its movement is tectonic. It doesn't step; it grinds forward on a churning underbelly of exposed gears and hardened, abrasive tracks that chew into the synthetic bedrock, leaving a swath of polished metal behind it. This movement is so slow it is barely perceptible to the human eye, save for the showers of glittering aluminum leaves that are shaken loose from the canopy as it passes.
+
+The creature feeds on the landscape itself. The "front" of the entity is a shifting array of grinding orifices—fissures in the armor plating lined with rotating teeth made of salvaged drill bits and excavation buckets. It plows through the ferro-botany, shearing through trunks of rebar and thickets of silicon ferns. This material is pulled into an internal furnace-stomach, not fueled by fire, but by hyper-concentrated acids and crushing pressures that break down the alloys into constituent elements.
+
+It is the living embodiment of the world’s slow cannibalism. As it consumes the iron trees and the ancient substrate at its leading edge, its trailing edge is constantly sloughing off material. Showers of rusted flakes, brittle slag, and crystalline feces tumble from its rear, immediately beginning the slow process of re-integrating into the metallic soil to feed the next generation of ferro-botany. The creature is a rolling cycle of destruction and creation, forever rebuilding its own massive body as it moves.
+
+In the overwhelming silence of the basin, its presence is usually felt before it is heard—a deep, sub-audible vibration in the metallic ground that rattles the iron filings in your lungs. When it does make a sound, it is horrifying: the shriek of metal shearing against metal, a groaning basso profundo of a million tons of stressed steel adjusting its weight, echoing strangely in the thin air.
+
+Under the ruthless, undiffused light, it is a blinding spectacle. The quartz and glass components integrated into its hide catch the glare, fracturing the light into impossible prismatic shards, while the deep recesses of its armored folds remain pools of absolute, lightless black. It is a terrifying, majestic glacier of rust and gears, the undisputed master of a dead world that is somehow, impossibly, alive.

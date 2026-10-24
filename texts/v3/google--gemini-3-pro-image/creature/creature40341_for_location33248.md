@@ -1,0 +1,15 @@
+The inhabitants of this terminal basin are not immediately visible. In a landscape of such crushing biological density, where every square inch of bark supports a towering pagoda of epiphytes, one expects the masters of this domain to be equally loud and riotous. They are not. They are the stillness at the center of the fever.
+
+You might first mistake one for a geological feature. Standing atop the smooth, weeping hummocks of granite, positioned perfectly to catch the brunt of the merciless vertical noon, are tall, slender pillars of grey-green matter. They are motionless, sometimes for weeks at a time.
+
+They are the Curators—or perhaps merely the final, intended crop of the biospheric engine.
+
+They are huge, easily three times the height of a human, but impossibly gaunt. Their bodies are elongated stalks, textured exactly like the water-slicked ancient stone they stand upon—smooth, cold, and perpetually sweating condensation. They have no distinct limbs in the traditional sense, but rather dozens of ribbon-like membranes that trail from their elevated torsos down to the ground, pooling around their bases like skirts of wet silk. These membranes are enormous surface areas for heat dissipation in the soup-thick air, and they shimmer with a faint, oily iridescence similar to the clouds of silent insects.
+
+They have no faces, and no need for eyes in a world of blinding, omnipresent illumination. Their "heads" are fluted, concave dishes tilted toward the zenith, receptive organs that drink in the specific wavelengths of focused light engineered by the ancients. They are constructed of the same material as the environment: part robust, slow-growing biology, part sub-atomic machinery. Their skin doesn't just mimic the weeping granite; it *is* functionally identical, interacting with the nutrient-filtering energy field of the stones beneath their feet.
+
+They are utterly silent. They have no mouths and no lungs, exchanging gases directly through their vast, damp surface areas. The high-frequency vibration of the insect clouds passes through them, read as information about atmospheric humidity and floral rot.
+
+When they do move, the motion is nauseatingly slow, a geological shifting of weight rather than muscular articulation. A Curaator might take an entire afternoon to tilt its solar receptor three degrees to follow the sun. To cross the shallow lagoons between islands, they do not wade; they deliquesce. Their solid forms lose cohesion, slumping into grey, viscous jelly that flows into the water, joining the writhing mass of translucent things below the surface, only to reform, agonizingly slowly, on a distant granite shore days later.
+
+They do not tend the garden; they *are* the garden's interface. They are the conduits connecting the furious, microscopic biological dynamism of the trees to the eternal, macro-level stillness of the stone machines. They stand in the blinding heat, weeping water, eternally processing the energy of a finished world, watching with eyeless faces as time fails to pass.

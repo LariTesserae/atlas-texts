@@ -1,0 +1,15 @@
+The true inhabitants of this crushing, frozen plateau are not the frenetic, clattering swarm on the surface. Those millions of ceramic entities are merely the external microbiome—the skin parasites and maintenance drones—for the beings that occupy the titanic habitation blocks.
+
+They are the Lithotopes.
+
+To survive the paralyzing cold and pressure, life here abandoned biology eons ago, or perhaps never embraced it at all. The Lithotopes are massive, sentient concretions of the same ferro-crystalline composites and sweating obsidian that form the city. They are incomprehensibly dense. A single individual, standing perhaps three times the height of a human, possesses the mass of a battle tank.
+
+They do not have distinct faces or limbs in a recognizable sense. They are multifaceted, hulking monoliths that shift and reconfigure their geometry to move. When still, they are indistinguishable from the brutal architecture surrounding them, save for a faint, deep internal glow that pulses slower than a resting heartbeat—a core of geothermal heat siphoned from deep below the crust, kept barely restrained beneath layers of ablative armor. Their surfaces are slick with the ubiquitous freezing condensation, weeping rivulets of supercooled fluid that serve as conductive pathways for their consciousness.
+
+They inhabit the deep, windowless interiors of the extruded blocks, spaces where the air pressure would liquefy soft tissue instantly. They do not need light; they perceive their world through hyper-acute seismic echolocation, reading the groan of the tectonic plates and the incessant clicking of the surface swarm to build a vibrating, three-dimensional map of their surroundings.
+
+Their movements mimic the glacial pace of their city’s growth. A Lithotope does not walk; it displaces itself, shifting its immense tonnage centimeters at a time in agonizingly slow, shuddering slides that grind the metallic floors beneath them. To observe one "cross a room" is a vigil requiring days.
+
+They are the authors of the city's violent extrusion. Through resonant frequencies generated in their dense cores—sounds too deep for human hearing to process as anything other than nausea and bone-shaking vibration—they sing to the fault lines beneath the plateau. They direct the tectonic pressure, coaxing magma into specific channels, cooling it instantly with pressure and alchemical triggers to force the raw towers of rock and metal upward.
+
+They are beings of infinite patience and crushing weight, living on a geologic timescale. Their thoughts move as slowly as shifting continents. When they communicate with one another, it is through deep-earth tremors passed through the soles of their feet, conversations lasting decades, planning the placement of a single spire that will not finish emerging for another century. They are the silent, weeping gods of this cold, dark forge, slowly pushing their metallic civilization out of the planet's unwilling crust.

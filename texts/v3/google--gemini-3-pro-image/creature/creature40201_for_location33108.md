@@ -1,0 +1,19 @@
+They are a people sculpted by cold, damp, and impossible geometry. To the colossal, indifferent scale of the world-city, they are less than insects; they are lichen, clinging stubbornly to the sheltered undersides of the monumental architecture.
+
+Physically, they are squat and dense, their bodies compressed by generations of conserving heat against the pervasive chill. They move with a deliberate, energy-saving slowness, navigating the treacherous slopes of ice-glazed gneiss with practiced caution. Their skin is thick, pale, and deeply wrinkled, resembling the very stone they live upon, permanently puckered by the relentless humidity that never dries. Their eyes are narrow slits hidden beneath heavy brows, shielded against the biting wind and the searing, impossible glimmers of broken reality.
+
+They are masters of the moss. It is their only resource beyond stone and ice. They harvest the thick, furry walls of vegetation from the leeward gorges, processing the fibers into everything they own. They wrap themselves in layer upon layer of woven moss textiles, dyed in muted earth tones—bruised purples, deep brownish-greens, and charcoal grays. These garments are heavy, perpetually damp, and smell intensely of wet earth and cellar rot. When hunkered down against a cliff face, wrapped in their cloaks, they become almost invisible, merging perfectly with the patches of vibrant life that scar the dead gray world.
+
+Their lives are defined by the profound silence of the landscape, a silence they rarely break. They speak in soft, sibilant undertones, a language composed of hushed clicks and breathy whispers that do not travel far in the thin air. To shout would be an affront to the overwhelming quiet of the tomb. They have no cultural memory of animals, birds, or insects. The concept of a living thing that is not a plant or a person is alien to them. The only voices they know are the groans of the shifting foundations and the scream of the wind.
+
+But their most defining characteristic is their adaptation to the "wrongness."
+
+They do not view the ontological breakdowns with terror; to them, it is simply weather. It is dangerous weather, certainly, but natural to their existence. Over millennia, they have developed a localized, evolutionary intuition—a sixth sense that tingles in their bone marrow just before reality tears.
+
+When a shimmering curtain of false imagery begins to materialize, showing a sun-drenched jungle, they do not stare in wonder. They avert their eyes, knowing that to look too long at a world that shouldn't exist is to invite madness. They simply wait for the air to solidify back into freezing mist.
+
+When the gravity in a valley begins to fluctuate, and ice boulders drift upward like dandelion spores, they do not panic. They feel the shift in their inner ears moments before it happens. With practiced stoicism, they lie flat, gripping iron-root handholds carved into the rock, tethering themselves and their meager possessions until the unseen fields stabilize. They watch a glacier flow uphill with the same dull acceptance a farmer in another world might watch a thunderstorm.
+
+When a localized time-warp accelerates a patch of moss into dust in seconds, they instinctively give the area a wide berth, sensing the temporal heat haze shimmering in the air. They understand that to step into that space is to age and die in a single breath.
+
+They are the tenacious ghosts haunting a machine they believe to be a sleeping god. Their fires are pinpricks of orange light in the overwhelming blue-gray dark of the gorges. They huddle together, chewing tough, waxy leaves for sustenance, chipping flint in the smoky dimness, existing solely in the brief, stable pauses between the twitching dreams of the ancient city.

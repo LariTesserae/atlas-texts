@@ -1,0 +1,17 @@
+The dampness is the first thing, always. It is not an intrusion, but a condition of existence. It settles upon my thick, porous skin like a cool, slick mantle, soothing the permanent dryness that comes with high altitude. I take a slow, deep breath, my barrel-shaped chest expanding fully against the restrictive layers of oiled canvas and felted wool to draw the thin, chilled air deep into my lungs.
+
+I am standing on a maintenance gantry, a rusted skeleton of riveted iron clinging precariously to the sheer granite face of what the ancients called the "Foundry Pillar." Below my bronze-shod boots, the metal grating vibrates—a constant, low-frequency tremble that travels up through my thick soles and into my shins. It is the city’s pulse, the subterranean thrum of immense hydraulic engines deep within the rock, harvesting the geothermal warmth that keeps us alive.
+
+My large, dark eyes, adapted to the eternal twilight, easily pierce the gloom. The view before me is a vertical ocean of shifting greys. The stratocumulus layer churns sluggishly hundreds of feet below, a turbulent floor that hides the unseen depths of the caldera. Rising from this cloud sea are the other pillars, monolithic stumps of eroded stone crowned with the moss-heavy weight of our settlements. Their lights—the sickly yellow glow of gas lamps and the pulsing sea-green patches of fungal bioluminescence—smudge softly in the saturated air.
+
+My immediate task is near. A massive bronze gear, half-embedded in the cliff face and pitted with centuries of slow rotation, turns with agonizing deliberation. It is slick with condensation and heavy mineral grease. Next to it, an insulated steam pipe, thick as my thigh, snakes along the rock. It is warm to the touch beneath my leather glove. A small jet of vapor hisses rhythmically from a loose flange—a minor disharmony in the city's quiet song.
+
+I unhook a heavy bronze wrench from my belt. My movements are deliberate, weighted with a low center of gravity that defies the dizzying drop just inches from my feet. There is no rush here. Time is measured not in seconds, but in the slow erosion of stone and the rotation of great wheels.
+
+I fit the wrench to the bolt. With a slow, steady application of immense torque, I tighten the flange. The hissing stops. The silence returns, dominated only by the muffled subterranean thrum and the incessant *drip-drip-drip* of water falling from the moisture-harvesting nets hung high above in the fog.
+
+A fellow custodian approaches on the narrow catwalk, emerging from the mist like a shadow solidifying. We stop. Our reflective eyes meet in the dim light. We do not speak; the damp air swallows sound, and words are precious energy. Instead, I tap the now-silent pipe twice with my wrench, sending a specific vibration down the metal artery of the city. He feels the message through the soles of his boots, nods slowly—a tectonic shift of heavy shoulders—and continues his slow patrol toward the funicular cages.
+
+I lean against the cold iron railing, looking down into the churning void. A large, leather-winged creature detaches itself from a cornice above and swoops silently past me, disappearing into the cloud layer. I feel no vertigo, only a bone-deep understanding of gravity and stone. My wool coat is heavy with absorbed moisture, and I notice a new patch of bright green moss beginning to thrive on the shoulder seam. I let it be.
+
+I am content. The gear turns. The steam rises. The stone weeps. The city breathes, and I am its patient watchman.

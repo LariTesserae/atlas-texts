@@ -1,0 +1,15 @@
+This is not a place for flesh. The sheer acoustic pressure would liquefy soft tissues long before the abrasive slurry scoured the bones away. The things that live here have discarded biology for geology; they have become extensions of the violent physics that bind the sphere together.
+
+There is the gray leviathan, the kinetic-eater described in the texts, an mindless ribbon of cured rubber that rides the pressure knots. But it is merely a grazer, a massive, insensate parasite feeding on the ambient violence. It is not the true master of this submerged cathedral.
+
+The true tenant resides at the core, anchored to the base of the obsidian spire. It is the source of the bruised purple glow.
+
+It is an entity of arrested development, a primordial gargoyle fused with the volcanic glass. It is immense, perhaps fifty feet tall, hunched and curled in a fetal position against the raw rock. It is biologically immortal because it is mostly mineral. Its hide is not skin, but a segmented armor of polished basalt and obsidian, denser than diamond, sleek and black as an oil slick. Over millennia, the abrasive, mineral-heavy currents have scoured its carapace until it shines, a dark mirror reflecting the sudden flashes of sonoluminescence.
+
+It has no face, for it has no need of senses that operate on light or scent. The deafening roar that saturates the sphere *is* its sensory input. The entity perceives the chaotic world around it through vibration; every collapsing cavitation bubble, every shift in the insane gravity, every movement of the gray leviathan paints a three-dimensional sonic map directly onto its crystalline nervous system. It resonates with the sphere. It *is* the sphere’s heavy, silent heart.
+
+The strange, spiraling gouges found along the spire radiate from this being. They are not decorative markings. They are scars of creation, clawed into the rapidly cooling magma eons ago by the entity's own hand—a hand that is now a massive, unified gauntlet of fused volcanic rock, resting against the spire it helped shape. The violet bioluminescence bleeds from the seams between its armor plates, pulsing slowly, a geothermal heartbeat against the surrounding twilight gloom.
+
+The brittle, chemosynthetic crystal-"vegetation" tries to grow upon its back, forming delicate white lattices on the dark armor. The entity ignores them. Eventually, a violent shift in the current shatters the growths, sending their shards swirling into the murk, leaving the obsidian hide gleaming and bare once more.
+
+It does not move. It has not moved in human history. It waits. The entire sphere—the roaring water, the flashing steam boundaries, the fluctuating gravity—is merely an incubator. The violence of the environment is a hammer, endlessly beating against the anvil of the central spire, trying to crack the entity's armored shell. It is a creature gestating in a womb of noise, sleeping a deep, geological sleep, waiting for a birth that requires the destruction of its world to complete.

@@ -1,0 +1,17 @@
+The things that live here call themselves the Grafted, though whether they chose the name or had it forced upon them by circumstance is lost to the grinding history of the lattice. They are a stunted, thick-set people, shaped by the crushing gravity of their endless labor and the thin, impoverished air.
+
+You hear them before you see them—or rather, you hear the absence of the machine noise where they move. They communicate in a complex, rapid-fire sign language of gloved hands and jerking forearms, a silent cant developed to bypass the deafening roar of the pumping stations. When they do speak, their voices are cracked and booming, trained to cut through the thrum of pistons, but they rarely waste breath on sound.
+
+Physically, a Grafted is a walking testament to the environment’s hostility. Their skin, rarely seen beneath layers of oiled canvas, waxed leather, and treated bark-cloth, is pale and mottled, resembling the underside of the giant, damp leaves that surround them. It is often slick with the same metallic condensation that drips from the pipes.
+
+Their most striking feature, however, is the integration of their industry into their flesh. Life on the lattice is punishing, and the human form is too frail for the work of harvesting a god. There isn't an adult among them who hasn't surrendered a piece of themselves to the brasswork.
+
+A forearm lost to a snapping high-tension vine is replaced by a complex hydraulic pincer, powered by a small, glowing vial of refined sap strapped to the bicep. An eye clouded by steam burns is swapped for a multi-lensed brass ocular, constantly clicking as it magnifies distant canopy-ridges or inspects microscopic stress fractures in a gear tooth. Their legs are often braced with external copper struts, ending in heavy, cleated boots tipped with iron crampons designed to bite into calcified timber and find purchase on the treacherous, spongy moss.
+
+They smell of the city: acrid ozone, old sweat trapped under heavy clothing, and the sickly-sweet, coppery tang of the raw sap they harvest.
+
+They are a pragmatic, dour lot, their temperaments dampened by the eternal cold and the knowledge that they are trespassers. They harbor a deeply ingrained, superstitious terror of the structure they inhabit. They know the lattice is alive. They feel its slow, tidal breathing beneath their iron-shod feet. They see how quickly a neglected brass pipe is swallowed by new growth, the metal corroded by aggressive enzymes in days.
+
+They are parasites terrified of their host. Their existence is a frantic, endless maintenance cycle. They are constantly patching leaks, hammering new taps into virgin wood, and shoring up habitation pods that are slowly being crushed by the thickening burls they are built within. They are obsessed with the "hiccups" in reality, pausing their work with held breath whenever a gear turns backward or distance distorts, praying the plant-god isn't waking up to shake them off like fleas.
+
+Yet, they are also deeply addicted to the harvest. The refined sap, that glowing, semi-magical fluid, is their fuel, their heat, their light, and, in diluted forms, an intoxicant that allows them to endure the misery of their sky-bound existence. They are bound to the lattice, hating the thrumming, wet world they occupy, but utterly incapable of surviving anywhere else, their own bodies now half-made of the very machines they serve.

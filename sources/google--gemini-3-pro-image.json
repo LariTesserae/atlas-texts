@@ -3,12 +3,14 @@
   "requested_endpoint": "google/gemini-3-pro-image",
   "endpoint_granularity": "verbatim-route",
   "date_first": "2026-10-06",
-  "date_last": "2026-10-06",
-  "texts": 250,
+  "date_last": "2026-10-24",
+  "texts": 750,
   "by_type": {
-    "location": 250
+    "location": 250,
+    "creature": 250,
+    "placement": 250
   },
   "evidence_grades": {
-    "event-observed": 250
+    "event-observed": 750
   }
 }

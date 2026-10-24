@@ -1,0 +1,15 @@
+The cold here is not a sharp thing; it is a weight. It presses against the thick, layered felt of my woolen garments, seeking the heat of the skin beneath. The air is thin, demanding long, slow pulls into my broad chest to find enough breath, each inhalation tasting of wet iron and ancient mist.
+
+I am standing on a narrow terrace carved into the western face of a massive canyon structure. The stone beneath my bare feet—for we need the direct grip of textured skin on slick slate to survive here—is polished smooth by generations of slow shuffling. It weeps constantly. A thin film of water, squeezed from the mountain's heart by immense pressure, slides beneath my thick, calloused soles, chilling them. My toes, broad and splayed, grip the edge instinctively.
+
+I am of the Cenoa. My center of gravity is low, my frame sturdy and compressed against the persistent pull of the void below. My skin, pale with the grey-green tint of lichen, is cool and tough, shedding the ambient moisture just like the canyon walls.
+
+The mist is thick today. It swirls at eye level, obscuring the canyon floor hundreds of feet below, where the invisible deep river roars its muted, vibration-heavy song. It sounds less like rushing water and more like the earth itself humming a low, dangerous note.
+
+My eyes, enormous and reflective, adapted to this eternal grey twilight, pierce the shifting vaporous veils. I do not blink often. There is no need to rush vision here. The world reveals itself slowly. Across the chasm, the opposing cliff face is a dizzying honeycomb of dark, rectangular shadows—doorways leading into the stone hive where my kin dwell. Thousands lived packed together in these weeping walls, yet I hear nothing but the slow drip of water.
+
+A stone bridge, a mere ribbon of dark rock unsupported by mortar or magic, arched over the foggy void, connects my level to theirs. Another Cenoa, heavy with oil-soaked woolen cloaks dyed rust-red, moves across it with the terrifying, fluid slowness that is our way. They do not look down. We never look down with fear, only with respect.
+
+My large, thick-fingered hand rests on the terrace edge, feeling the slick velvet of emerald moss that constantly tries to reclaim our walkways. In my other hand, I hold a chisel made of dark, hardened basalt. My task today is curation. A new fissure has opened above the dwelling of my lineage, spilling water too freely across the entryway threshold. I must gently widen an existing groove in the rock face, coaxing the flow into a cistern instead.
+
+I raise the chisel. The action is unhurried. To strike hard would be to insult the stone. I work with a patient rhythm, chip by tiny chip, merging my labor with the eternal erosion of the plateau. I lean into the mountain, feeling the damp chill seep through my layers, welcoming it. I am stone that breathes, slowly dissolving in the mist, waiting for the mountain to finish carving me.

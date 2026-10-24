@@ -1,0 +1,13 @@
+The noise is not something you hear; it is a medium you swim through. It is a crushing, gelatinous ocean of sound—the titanic roar of unseen waterfalls, the screaming grind of metal chewing on itself, and the deep, nauseating frequencies of the shifting earth pressing against your chest cavity.
+
+You are submerged. Not in water, but in warm, viscous slurry that reaches past your midsection. It tastes of copper and ancient rot. You cannot see. The concept of sight is almost theoretical here. There are brief, agonizing flashes of blue lightning that sear the retina, illuminating vertical cliffs of weeping stone and the skeletal remains of derricks, but mostly, there is only the suffocating, hot blackness and the flickering orange ghosts of dying bulbs that offer no true illumination, only moving shadows.
+
+You are heavy. Gravity feels stronger here, magnified by the miles of rock above and the dense, saturated air pressing down. But you are built for weight. You possess a low, segmented center of gravity, armored in thick, pale chitin that is constantly slick with oily condensation.
+
+You are not one of the giants. When the deep, tectonic grinding starts—the sound that isn't the pumps, but something living and massive scraping its iron-studded belly across bedrock—you freeze. You press yourself flat into the warm muck, letting the slurry cover your armored back. You feel the vibrations of their footfalls in the sensitive bristles of your underbelly, thud-crunch, thud-crunch, shaking the very mud you hide in. You wait for the metallic shriek of their passing to fade back into the general cacophony.
+
+You are a scavenger in this drowning tomb. You move on twelve specialized legs; the front pairs are spade-like, designed to dig and leverage against the jagged basalt, while the rear pairs are feathered for churning through the deep pools of oily water.
+
+Your world is defined by texture and temperature. You seek the heat. You navigate by following the thermal plumes in the water, leading you to the scabrous, rusted iron pipes that snake through the dark. You clamp onto these pipes with hardened mandibles, rasping away the rich, mineral-heavy corrosion and the mats of slimy fungal bloom that thrive on the warmth. It is a slow feast of rust and slime. Sometimes, you get lucky and find a giant annelid stunned by a rockfall, and you tear into its soft, coppery flesh before the other bottom-feeders arrive.
+
+You are a creature of the seam, living in the treacherous space where the raw, violent geology of the earth meets the rotting cadaver of industry. You are blind, armored, perpetually warm, and deafened by existence, crawling through the dark, wet guts of the world.

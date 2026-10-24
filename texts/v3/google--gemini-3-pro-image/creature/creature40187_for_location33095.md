@@ -1,0 +1,13 @@
+It is the anchor of this drowned cathedral, a being that is less an inhabitant and more a manifestation of the chamber’s crushing physics. It is vast, occupying perhaps a third of the nave’s central volume, yet it is almost impossible to discern until it moves.
+
+It is a creature of slow-motion geology, an accreted behemoth. It has no skin or scales in a terrestrial sense. Instead, its exterior is a shifting mosaic of the same black, razor-sharp slate that forms the chamber walls. Over centuries, it has absorbed and integrated the broken teeth of the environment into its own carapace. These jagged plates are held together by thick, ropy fascia of pale, cartilaginous tissue, similar in texture to the violet mats on the floor but tougher, flexing sluggishly as the creature shifts its weight.
+
+It has no eyes; sight is a useless luxury here. Instead, the entire surface of its mineral hide is sensitive to the minutest changes in hydrostatic pressure. It "sees" the chamber as a constant, heavy embrace, experiencing the environment as a tactile map of resistance and flow.
+
+It does not swim. Swimming implies a lightness this thing does not possess. It traverses the chamber with agonizing deliberation, anchoring itself against the raw rock walls with multifaceted limbs that are more like articulate outcroppings of slate than legs. When it moves, the action is a geological event in miniature. The grinding sound of rock against rock travels through the dense water as a deep, nauseating vibration that you feel in your bones before you hear it.
+
+It feeds on the glass forests. It does not hunt; it grazes with the inevitability of a glacier. It will slowly press its massive, armored bulk against a wall thick with the brittle chemotrophic tubes. The faint indigo bioluminescence flickers wildly as the delicate structures shatter against its hide. It then extends broad, sweeping feeding fans—frills of translucent, feathery membrane coated in digestive slime—to collect the nutrient-rich shards and bacterial blooms suspended in the suddenly clouded water.
+
+It ignores the ribbon-creatures; they are too insubstantial for its notice. It ignores the polished sphere and the ceramic strut buried in the floor; they are inorganic indigestibles, mere bumps in the terrain it navigates.
+
+The creature’s existence is perfectly tuned to the dilated time of the cyst. A single movement of a limb might take an hour to complete. It is a lurker in the deep time of the earth, a living sarcophagus built from the debris of the initial catastrophe, thriving in the cold, thick pressure that would crush anything else. To witness it is to watch a mountain breathe.

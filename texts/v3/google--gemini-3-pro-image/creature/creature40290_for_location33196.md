@@ -1,0 +1,23 @@
+To exist here is to be an anomaly, a defiance of the sterilizing violence that defines the chamber. The common biology of the surface world would be boiled into soup within seconds. Therefore, what lives here is rare, dependent on the extremes, and fundamentally alien in its resilience.
+
+There are two distinct categories of residents in this screaming sauna. The first are the scavengers of the periphery, barely clinging to existence. The second are the children of the machine itself.
+
+On the outermost wet ledges, where the blinding white light fades to a steamy grey and the temperature drops just below boiling, the bacterial mats mentioned in the description are not merely passive slime. They are thick, pulsating carpets of chemosynthetic life. In the rust and violet sludge, complex, layered communities thrive on the mineral-rich spray and the faint chemical leakage from the ancient conduits in the walls. They are the foundation of a micro-ecosystem crushed into the margins.
+
+Feeding upon these mats are the translucent creatures. Up close, they are more complex than a mere scuttling shell. They are multilegged isopods of calcified glass, thumb-sized armored tanks built to withstand immense hydrostatic pressure and sonic vibration. They have no eyes—sight is useless in the blinding saturation—but are covered in sensitive cilia that detect the minute shifts in the thrumming bass of the engine. They move with agonizing slowness, clamping down tight to the slippery rock whenever the machinery shifts its pitch, waiting for the tremors to pass before resuming their graze on the bacterial rust. They are the desperate survivors, eking out a living in the shadow of a god.
+
+But they are not the true masters of this domain.
+
+The primary inhabitants are something else entirely, entities that do not hide on the cooler fringes but thrive in the absolute epicenter of the violence. You do not see them at first because they are born of the same blinding elements that assault your senses.
+
+They are entities of dense, vitrified hydro-gel. They have no fixed skeletal structure, appearing as fluid, shifting masses of highly organized, polymerized silicate that range in size from a human head to a small cask. They are nearly invisible in the chaotic water, possessing the same refractive index as the churning superheated fluid. You only perceive them when they move against the backdrop of the sleek, black obsidian pylons.
+
+When they pass in front of the dark machinery, they catch the harsh, vibrating white light and refract it internally, momentarily glowing like trapped stars before dissolving back into invisibility against the spray.
+
+These gel-forms are not harmed by the boiling temperatures; they require them to maintain their semi-fluid state. A drop in temperature would solidify them into brittle statues. They are similarly dependent on the deafening noise. The deep, resonant bass thrum that shakes your chest bone is their lifeblood; the sonic pressure waves keep their internal structures coherent. Without the noise, they would lose cohesion and dissolve into the water.
+
+They are masters of the chaotic hydrology. They do not swim so much as they integrate with the flow. When the incomprehensible machinery whips the water into gravity-defying upward pillars, these creatures ride the surge, accelerating upward in the torrent, spinning within the vortex without being torn apart. They are pliable enough to absorb the kinetic punishment and dense enough not to be obliterated by it.
+
+Their relationship with the obsidian pylons is intimate, almost parasitic. In moments of relative calm in the churning pools, you might see one of these vitrified shapes slide onto the surface of a pylon. They press their gel-bodies flat against the seamless, humming black material. They seem to be feeding directly on the sickeningly powerful energy radiating from the machine, absorbing the vibration and heat through direct contact. They glide along the smooth surfaces, leaving no trace, perhaps cleaning the machinery of mineral buildup, or perhaps merely basking in the output of an engine built by masters long forgotten.
+
+They are silent, eyeless, and tough as diamonds, living in perfect, terrifying symbiosis with a machine that could boil an ocean. They are the only things smooth enough, resilient enough, and strange enough to inherit this white-hot, deafening cathedral.
