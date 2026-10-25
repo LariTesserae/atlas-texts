@@ -1,0 +1,17 @@
+I find myself first as a pair of wet hands, not as a name. The hands are pale, nicked, white around the knuckles, and they are pressing a wicker panel into place on a gallery rail. I am on the southeast wall, forty steps above the floor, maybe more. The roar does not seem loud here, only bodily, as if the mountain is breathing through its teeth.
+
+I am small for this town, but that means I can walk the raised rims without stooping. The stone is new and soft at the edges; my bare feet know where it is still cheese and where it has cured. I am careful not to leave a footprint on a white rim. A footprint left too long becomes a room.
+
+Below me the terraces descend like a giant’s washboard, each pool holding a different kind of light. The cloud comes through the notch and erases them one by one. Somewhere up the wall a door has grown almost too small for a man to pass. It is not ruin. It is storage. In our town a door is not a thing you own. It is a thing you keep open.
+
+I think I am a child still, because I remember when that door was wide enough for two. Now I must turn sideways to pass. I have grown, but the door has grown faster. I do not mind. It means the water is still working; the mountain is still being born; the law is true. What the water touches, it takes.
+
+My work is not cutting stone. My work is listening. I lie on the high gallery with my ear against a runnel and trace the flow by its pitch. When the water speaks in a higher hiss, it is making a new lip. When it goes thick and quiet, it is backing behind a crust. I make a sign to my uncle across the gap: closed fist, sealed. He signs back: open palm, clear. We do not need to shout. The water is already speaking for us.
+
+I would be the one with the flat fingertips, the one who can tell by touch whether a channel has been scraped that morning. I carry a small copper scraper on a cord around my neck, though I am not yet allowed to repair. I am learning the names of things not as words but as actions. A pool that has grown a hand’s width is a year. A door that has closed by a thumb is a decade. A willow turned to porcelain is a lifetime standing still.
+
+Sometimes I think I am not a person at all, only a piece of the hollow that has learned to walk. My skin salts white at the hairline. My wet wool smells of lime. When I stand still, the mist begins to settle on me the way it settles on a wicker frame, and I can feel myself becoming a wall in waiting. This is not a sad thought. It is the same thought the mountain has.
+
+I find myself, in the end, on a high gallery where the water drips just past my shoulder, not on the death-shelf but near enough to hear the mineral note change. Below, the town is mostly empty windows. The pale frogs sit at the edges of the least disturbed pools. A white stonefly lands on my wrist, then flies into the roar. I am not lonely. I am inside the running instrument.
+
+So I would be a child of the hollow, one of the few, a future room-tender or keeper of the overflow. I would be found on the southeast wall, below the third sluice gate, with one hand on a wicker wall and one hand signing “clear” to no one in the mist. I am not so much born here as deposited, a small human shaped by the water’s patience. My name, if the town used names aloud, would be something like the sound of a runnel closing, but they would not say it over the water. They would sign it: two fingers crossed for blocked, then opened slowly, palm up. Clear.

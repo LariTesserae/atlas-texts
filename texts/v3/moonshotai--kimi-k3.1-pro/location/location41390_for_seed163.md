@@ -1,0 +1,41 @@
+## The High Moss
+
+The plateau can be heard from the rim long before its separate parts can be distinguished: a broad, continuous roar, too steady for weather and too large for any single machine. Wind carries portions of it away and brings others back. Beneath the roar are finer sounds—the tearing hiss of steam, water hammering inside steel, the hard whine of a turbine, the occasional clang of a pipe contracting in the cold.
+
+It is a loud place, but not a busy one. For minutes together, nothing visible changes except steam leaning in the wind and water creeping across a patch of green stone.
+
+The High Moss lies on the shoulder of a broad volcano, above the last trees. Its open basin is a day’s walk across, though the clear air makes distances unreliable. What appears from the rim to be a single gently tilted field resolves, on foot, into pressure ridges, collapsed troughs, tilted slabs, and long fissures still sharp enough to cut a boot. The lava is young. Its clinker has not been rounded by rivers, its ash has not been sorted into soil, and its fractures have not yet widened into a coherent system of valleys. There are no old gravel bars, no polished cobbles, no mellowed banks. Water has begun to work on the rock, but so far it has done more leaking and seeping than carving.
+
+Almost none of that black rock is visible.
+
+A continuous skin of vegetation covers the basin: dense moss over the lava, liverwort in the wet fractures, sedges and cotton grass where water lingers, low alpine herbs rooted in the accumulated bodies of earlier plants. This is not soil with plants on it. It is plants making the first soil, layer by slow layer. Underfoot, the surface flexes. A boot may rise wet and clean, or sink through a mat of roots into tea-brown water. Some hummocks are firm old cushions, deep and resilient; others are green roofs over hollows.
+
+The cover is total without being crowded. Nearly all of it lies below the knee. The basin’s emptiness is vertical: wide intervals between the rare flower spear, the isolated wellhead, the weather mast, the pale seam of a service track. From a slight rise, a person standing upright becomes an event in the landscape.
+
+Here and there, a rosette plant has spent decades storing enough growth to flower. It sends up a thick stalk, blooms once, and begins the long process of drying where it stands. The dead stalks persist for years in the cool air, silvered and fraying, surrounded by the low green life that will eventually close over them.
+
+Water is present in more forms than open water. Rain is frequent, and after it every leaf carries a bright drop. Cold rock and pipe cladding collect condensation from the steam field. Moss releases water when pressed and slowly takes it back. Shallow pools occupy collapse hollows, some no wider than a hand, others merging into dark, sedgy meres. Their drainage is provisional. A pool may overflow into a root mat, vanish down a fissure, and reappear hundreds of metres away as a line of wetter, brighter vegetation.
+
+The geothermal water follows different paths. It emerges warm and clear at a few scattered outlets, leaving rims of silica and ochre, feeding narrow runnels where the moss gives way to mineral crust. These warm threads do little to warm the basin as a whole. The heat is plumbing, not climate. A hundred metres from a steaming outlet, frost can remain in the shade of a hummock until afternoon.
+
+The air is cool enough to numb wet fingers. Yet the light is severe. At this elevation the sun has a hard white brilliance, and after rain the entire plateau seems designed to return it: wet leaves, steam, mica in the ash, the white heads of cotton grass, the glazed sides of pipes. One can be chilled and sunburned at the same time. Cloud does not necessarily bring darkness; sometimes it arrives as luminous fog, whitening distances while the ground immediately underfoot remains intensely green. Shadows are brief, sharp, and very black.
+
+Crossing the basin reveals loose districts rather than abrupt boundaries. The western slopes belong mostly to rain. There the vegetation is deepest and the pools are stained brown, with slow seepage stair-stepping from one plant-built terrace to the next. In the centre, the mat thickens into a floating mire around several open meres. Sedges have dammed and diverted the water more effectively than erosion has. The eastern shoulder is drier underfoot and rawer: young lava ribs show through, steam escapes from narrow ground fractures, and the plant cover becomes finer and more tightly pressed to the rock. Beyond it, the land breaks toward the lower country in a series of ungraded steps.
+
+The industrial works are scattered across all of this without ever amounting to a settlement.
+
+A wellhead stands on a stained concrete plinth. A kilometre away, an insulated pipe crosses a hollow on low steel saddles. Farther on there is a windowless separator shed, a fenced transformer no larger than a room, a numbered gauge post, a collapsed timber shelter with moss on its roof. The turbine hall is at the far rim, low and pale, with power lines leaving it on widely spaced poles. There are no streets and almost no storage yards. The service track is often only two bands of crushed cinder, interrupted where water or vegetation has reclaimed it.
+
+The field is still being brought gradually into production, and somewhere a well is usually being tested, cleaned, or carefully bled. That is the principal source of the roar. Steam under pressure does not sigh; it rips through the air. Near an open vent, speech is useless. The sound presses on the chest and seems to come through the ground as well as the ears. Even ear protection does not produce silence, only a reduction from unbearable to enormous. At a distance, the separate vents and machines merge into a single weather-like concussion, rising and falling with the wind.
+
+Smaller sounds survive only in sheltered pockets: water ticking under a root mat, the dry friction of sedge stems, the tick of cooling metal. Then a gap opens in the terrain and the roar returns. It is difficult to judge whether anything is approaching. Footsteps, voices, even a vehicle on the track can remain inaudible until close.
+
+Animals are scarce. Small beetles occupy some of the cold pools; brief hatches of insects rise from the wetter moss in the warmest weeks. Occasionally a dark bird crosses the basin and disappears without its call being heard. There are no grazing herds, no busy colonies, no constant movement at the water’s edge. Human visits are likewise infrequent and purposeful: a maintenance crew, a inspection vehicle, fresh paint around a valve. The numbered equipment often looks more attended to than the paths leading to it.
+
+The greenness offers no reliable promise of safety. It may mark deep peat, a bridge of roots over a fissure, or a thin crust warmed from below. The obvious dangers are the honest ones: roaring vents, hot runnels, mineral ground too bright and bare for anything to grow. Elsewhere, the safest guide is usually the old service track, though even that can end at a flooded hollow with no warning.
+
+Change is patient. Frost wedges another grain from a lava edge. A sedge hummock raises the level of a pool by a few centimetres over many years. Moss finds a pipe bracket and begins, almost imperceptibly, to cover it. Mineral deposits thicken around an outlet; a channel shifts; a flower stalk finally falls. The machinery runs continuously, but the landscape does not share its urgency. On any single bright afternoon, nearly everything that matters seems to be happening too slowly to watch.
+
+From the rim, the whole region reads as a sparse scattering of white steam above a green-black floor, crossed by water and the thin lines of pipes. It looks unfinished because it is unfinished: the lava has not yet become ordinary land, the water has not chosen its rivers, and the plants are still building the ground beneath themselves. Only the machines have drawings, intended dimensions, and fixed outputs.
+
+For now they run without pause, and the young plateau remains wet, cold, dazzling, and almost empty—speaking through its scattered engines at the top of its voice.

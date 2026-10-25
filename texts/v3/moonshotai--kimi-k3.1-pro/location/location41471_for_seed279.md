@@ -1,0 +1,41 @@
+## The Slow Choir
+
+The Slow Choir is a low, newly exposed basin where the water table has never quite separated from the ground. Until recently, in geological terms, it lay beneath a shallow mineral sea. Now the sea has withdrawn, leaving a broad floor of spring-stone, black glass, and salt between broken rims of higher land. There are no mountains and few true slopes. From the southern rim, when the cloud lifts a little, the basin can be seen extending for tens of kilometers.
+
+At that distance it resembles a flooded reed bed.
+
+The resemblance ends with the wind. Nothing bends.
+
+Hundreds of thousands of hollow mineral columns crowd the basin floor. Some rise only to the knee; others stand fifteen meters high, their upper ends disappearing into low cloud. They are the casings of ancient vents and younger springs, built from milk-gray silica, dark silica glass, and thin seams of iron-stained stone. In places they stand in open ranks around black pools. Elsewhere they are packed so closely that their walls touch, leaving narrow, water-filled slots instead of paths. Many are fluted, split, or fused into groups. Their broken rims remain sharp enough to catch light.
+
+Almost nothing in the basin has been rounded. Fractures have clean lips. Shattered plates retain their points. Even the old rubble looks freshly broken, though some of it has lain in the same pool for centuries. There is no soil to soften it, only wet gravel, mineral paste, and a thin dark crust that breaks under pressure with a glassy snap.
+
+Water is seldom out of sight, but the basin is not uniformly flooded. Much of it moves out of view: seeping through the crust, descending inside the columns, passing from pool to pool along buried seams. In firm-looking places, moisture beads around a footprint. Condensation gathers on the stone even in still weather and runs downward in threads so fine that they seem to be lines drawn on the surface. The larger pools are cold and often clear at the edge, becoming abruptly lightless where the bottom drops into an unsealed vent.
+
+The light never grows strong. At its brightest it resembles early morning beneath an approaching storm. Usually the cloud ceiling rests just above the taller columns, flattening every distance and giving the wet stone a dull pewter sheen. The air is cool without being bitter, and tastes faintly of salt and metal. Mist does not drift through so much as gradually accumulate. A district can be visible for days, then become slowly uncertain, until only the nearest columns remain and the rest of the basin persists as sound.
+
+And the basin is loud.
+
+Close at hand there is the hard ticking of droplets on glass, the thin hiss of water finding a crack, the gulp of a pool accepting another pool’s overflow. Inside the hollow columns, falling drops produce knocks and hollow ringing notes. Farther away these sounds layer into clatter, roar, and a drone low enough to be felt in the chest. The noise does not depend on wind. Some of the loudest intervals occur when the air is completely still.
+
+Each stand of columns has its own register, governed by the length of its cavities and the level of water within them. As the water table rises or falls, the register changes. Thus the basin’s vast, rough chord drifts through the seasons. The change is too gradual to hear from hour to hour, but a place that resonated painfully in the teeth may, months later, seem to sound from somewhere beneath the feet.
+
+The northern shatterfield, where uplift has tilted the crust into great cracked polygons, gives back rain as a continuous white hiss. The central stands produce most of the deep sustained notes. To the east, where broad pools lie among shorter, clogged columns, the sound is lower and more intermittent: heavy knocks, subterranean bubbling, occasional reports that travel across the water without revealing their source.
+
+Sounds also remain longer than they should. A sharp impact may return after too great a delay to be an ordinary echo, distributed among several places at once. Three nearby columns tick in succession; a pool answers with a muted bass note; then something far beyond sight repeats the original pitch. Nothing about the behavior requires intention. It appears simply to be a rule of the place that sound enters readily into stone and water, and leaves slowly.
+
+The loudness makes the basin seem active, but almost none of its large processes can be watched. Rain may continue with little variation for weeks. A pool may need a whole season to rise the width of a finger. Microscopic deposits thicken the column walls layer by layer, slowly narrowing their voices. Collapses are rare, though tremendous when they occur: one falling column can bring down a whole interlocked stand, and the concussion travels through the ground farther than it does through the air. Afterward, the new wreckage remains bright and angular for an age.
+
+Scattered through this mineral crowdedness are a few constructions. They are too small and isolated to suggest a settlement: a roofless, single-chamber cell; a three-sided enclosure just large enough to stand inside; four slabs forming a stair that descends directly into a pool; a short causeway ending against an impassable wall of columns. Some are cracked by the young terrain. Others are half sealed in fresh mineral crust, and a few have columns rising through their floors.
+
+They contain no fittings, metal, furniture, or mechanisms. There is only stone placed upon stone, and occasionally a threshold bearing several faint, straight marks—too regular to be fractures, too few to read. No roads connect the sites. Yet many stand where the basin’s noise changes character. Inside one roofless cell, the surrounding roar may diminish until only a single low note remains. Whether they were made for shelter, listening, measurement, or some purpose with no present equivalent, they do not make the basin feel inhabited. They make its emptiness harder to interpret.
+
+Life is widespread only where it cannot easily be seen. There are no plants, even along the quietest margins: no moss in the cracks, no floating mats, no roots binding the gravel. Instead, the waterlines carry thin gray, violet, or bronze films. These are communities of extremely simple organisms drawing energy from iron, sulfur, and other dissolved minerals. Some appear to assist the deposition of new stone. Under dim light their surfaces look like faint oil on water, though they leave no residue when disturbed.
+
+Animals are rare enough that their presence is usually inferred. Occasionally a transparent swimmer, no longer than a finger, turns slowly beneath the surface of a deep pool. Its body resembles a folded thread of clear gelatin around a dark internal line. It grazes the mineral films, then may remain motionless for days. One pool can contain a single individual while the next twenty contain none. There are no insects in the air, no birds crossing the cloud, and nothing that browses among the columns. Now and then a broad ripple moves against the outflow of a pool, but the basin offers many explanations besides animals.
+
+Within the denser stands, the regional openness disappears. The visible world reduces to wet walls, slots of water, and a narrow strip of cloud overhead. Distances become deceptive; a loud stand may be far away, while a silent pool lies just beyond the next column. Yet the sound also gives the basin a kind of invisible extent. From any one place, several districts can be heard at once, layered beyond sight.
+
+There are already mute regions where the columns have clogged or broken. Their silence feels more exposed than the noise, and often stranger. In time, more of the basin will join them. The pools will seal, the cavities will narrow, and the deep common note will separate into smaller, local sounds. That ending is not imminent. It belongs to the same patient scale as the basin’s making.
+
+For now, the Slow Choir remains a crowded landscape with almost nothing living in it, an open landscape with little room to move, and a nearly motionless landscape that never stops sounding.

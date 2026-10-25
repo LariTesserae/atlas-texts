@@ -1,0 +1,43 @@
+## The Unbuilt Engine
+
+High on the fractured shoulder of a mountain, a small cirque opens among the peaks. It is no larger than a hamlet: a crescent of cliff, a floor of rock and standing water, and a narrow notch through which other ranges can be seen far below. The air is thin enough to make exertion noticeable, but sound carries here with unreasonable force.
+
+The mountain is still splintered from its own making. The cirque walls are dark, iron-rich stone, broken into blades and steep flutes. Their fresh faces glint with quartz and wet mica; their edges remain sharp enough to cut. Scree lies at the cliff foot in bright, angular heaps, without rounded cobbles or weathered gutters. Nothing has had time to soften—or rather, time has repeatedly declined to do so.
+
+The cirque is always just after rain, though rain is never seen falling. Water beads on every leaf and mineral face. It gathers in the seams of the rock, wells up through the floor, and condenses in the cold air as a fine, almost motionless suspension. The temperature remains only a little above freezing. Stone, water, and air hold nearly the same even chill; there are no sheltered warm pockets, no colder depths. Ice never forms.
+
+A fixed, pewter-colored dusk fills the bowl. It is not morning or evening, and the visible sky does not account for it. Wet surfaces shine without glittering. Even the occasional blue electrical discharge, though plainly visible, gives no useful illumination. The brightest things are the pale flowers and the undersides of insect wings.
+
+Vegetation grows in several widely separated fastnesses. Between them lie broad, empty pans of black water and bare fractured stone. Within each green fastness, however, growth is extravagantly lush: moss deep enough to bury a hand, dark ferns with cold brittle fronds, sedges rising from saturated cushions, waxy alpine shrubs, and low white flowers whose petals are always heavy with condensation. Liverworts and translucent lichens climb the rock wherever water gathers. Roots bind the fresh scree into springy, unstable rafts.
+
+The emptiness between these patches is as distinctive as the growth. Almost nothing drifts across it. There are no scattered seedlings, no casual insects, no gradual thinning of life toward the margins. Each hummock ends with peculiar completeness. Beyond it, the stone may remain unoccupied for many paces, then another pool or thicket begins, crowded and entire.
+
+Every part of the cirque weeps. Thin water runs down the cliff without smoothing it, emerges from the undersides of leaves, and rises through the moss when pressure is applied. A few rivulets cross the floor toward the notch. They reach the opening and are simply absent beyond it: no falling thread, no spray on the cliffs below, no dampness on the outer rock. Nevertheless, the pools neither rise nor fall.
+
+The sound is continuous and much louder than the visible water can explain. A low turning note comes up through the ground. Beneath it is a slower concussion, like a great pump working behind a wall. Pressure hisses from the cliff fractures; somewhere in the upper register, rock or air maintains the close electrical hum of charged machinery. The noise is loud enough to make the thin mountain air feel compressed.
+
+At each slow concussion, every pool dimples at once. Circular depressions travel across their surfaces, and the quartz veins in the cliff take on a brief blue charge. Then the whole crescent wall exhales mist through thousands of fine cracks. Air is drawn back with a thin turbine whine. Water rises in the root mats, charge gathers in the wet stone, and the cycle settles into exactly the same loud equilibrium.
+
+There are no buildings, pipes, cables, housings, or ruins. No object in the cirque has a made surface. The straightest quartz seam becomes irregular when followed; a pipe-like watercourse opens into an ordinary root hollow; a row of apparent vents proves to be a natural fracture inhabited by wet ferns. The engine cannot be separated into parts. It exists in the relations among pressure, mineral, water, and living tissue. Industry here is not a practice brought to the landscape. It is one of the landscape’s native processes.
+
+Life is abundant wherever life is allowed to be. Hundreds of black salamanders crowd the sheltered pools, their copper-red gills flaring together when electricity passes through the quartz. Their bodies are so densely layered that some pool bottoms appear to crawl. Above the flowers hover ash-furred moths, broad and heavy for the cold air, their wingbeats adding dry clicks to the ambient hum. Springtails pack the moss folds. Clear grubs lie in the waterlogged leaves, visible only when their internal shadows turn. Metallic beetles cling to the weeping rock, each carrying one perfect drop on its back.
+
+The larger animals are farther apart. Slate-colored wading birds stand alone in the open pools, their legs disproportionately long, their feathers darkened by moisture. Now and then one utters a cry like a heavy stone load shifting in the distance. The cliff does not return an echo. Instead, the cry sometimes comes back just before the bird gives it, slightly flatter and without any direction.
+
+For all this abundance, the open spaces remain starkly empty. One pool may be thick with salamanders while another, close enough to reflect the same patch of flowers, contains nothing at all. Moths do not stray between hummocks. The birds rarely change position. Abundance and vacancy stand side by side without blending.
+
+Feeding occurs, but it produces no scarcity. A bird may be seen holding a salamander in its beak while the pool behind it remains as crowded as before. This is not rapid replacement. A careful search can find the same animal swimming again, down to the notch in its tail and the pale mark beneath one eye. Moths draw moisture from the flowers, beetles graze the mineral film, roots take up whatever the water carries, yet nothing is depleted. No waste gathers. No carcass remains. The food web circulates without throughput.
+
+Gradually, the activity begins to seem less like change than like the visible texture of a standing wave. One fern remains forever halfway uncurled, its tip fresh and neither growing nor wilting. A particular moth always occupies the same trembling interval between two blossoms. A drop lengthens beneath a leaf but never quite detaches, while elsewhere water continues to flow. The pump-note does not speed up or slow down. The dusk does not deepen.
+
+Nothing ages into another condition. Spawn does not hatch. Shed skins do not decay. Roots cross fractures without widening them, and the water leaves no silt. The scree keeps its bright, newly broken faces. The cirque is not geologically young in the sense of having much of its history still ahead. Newness is simply its permanent state.
+
+Its geometry shares that refusal to resolve. From the central pools, the whole place looks small and surveyable, every wall visible at once. Yet distances across the bare pans do not accumulate smoothly. A hummock is seen on the far side of the water, and then it is beside the observer; the intervening angles never quite present themselves. The pools reflect different arrangements of the same floor. Some show more hummocks, some a brighter sky, some whole flocks of birds where only one bird stands above the water. None of these reflected cirques can be reached by turning around.
+
+The rim is the last place where a single description suffices. The engine-note does not fade as one approaches it; it stops at the boundary without becoming quieter. Seen from the outer slope, the cirque is a dry, shallow scar in the young mountain, with sharp stone and almost no vegetation. Seen from within, it is wet, green, inhabited, and loud. Neither view corrects the other. Crossing the rim again does not decide between them.
+
+It is tempting to call the place a factory, but factories have makers, raw materials, and a future in which their product will be used. The cirque has none of these. Its product is its own continuation: the same cold water, the same charge in the stone, the same crowded pools and vacant intervals, the same sharp edges after the same unfinished rain.
+
+Nothing was built here. Nothing is being built. The mountain simply runs.
+
+Within the rim, it is always one dim instant after a storm, and that instant has a pulse.

@@ -1,0 +1,25 @@
+I find myself not in the open basin, but inside a wall. At first I do not know if I am the stone or the hollow inside it.
+
+There is a warm side and a cold side, a pressure that is not touch, a thin taste of sulfur in something moving. I am inside a wall. The wall is pale, and the light through it is amber, but I do not know that as seeing. I know it as a difference: the outer mineral expands just slightly, and I uncurl.
+
+Then I feel the threads. They are mine, or I am theirs. Cilia as fine as glass, pushing out through pores no wider than a finger. They comb the air. A speck of dust catches. I fold it into myself. It dissolves in ammonia, and I know I am not the stone. I am the soft thing the stone has grown around. I am a binder.
+
+Where am I? Perhaps in the settlement in the basin, in the western tower that still spouts new needles at its tip. I am two-thirds of the way up, on the inner curve of a gallery. Above me is a vertical void full of slow air. Below me, through the mineral, the colony runs down into older towers and sealed galleries. I am not one. I am part of a sheet of us, a lineage spread through stone.
+
+The wall is my own body, but it is also my ancestor. I lay down a layer of anhydrite and resin, and then I move inward, leaving that layer as a shell. The older layers are dead and hard. The living part is only the inner skin—the cilia, the thin sacs of ammonia, the fluid channels between us. If you looked at me, you might not see me. You would see a pale, translucent patch in a tower wall, lit faintly amber. If you pressed too hard, I would break. But I would not die entirely. The colony would seal the wound.
+
+I do not see the sky. I know morning as a small heat on the outer mineral. The sun is a low, tarnished coin behind dust. The stone warms, the air inside the tower rises, and my cilia uncurl into the new draught. A particle of air may take a year to move through me. I comb the sulfur and dust from it. That is my food, my breath, my building material.
+
+Sometimes a grazer moves over the base of my tower. I feel it not as a creature but as a pattern of tiny pressures: six chisel-claws, scrape, rest, scrape. It cleans the mineral film from the floor. I do not think *grazer*, but I know the taste of the clean trail it leaves. It helps me, in the way that a slight roughening of the stone helps a new layer adhere.
+
+Near my upper pore, a glassy fern grows. It is grey-violet, fronded like antlers. It feeds on the sulfur dioxide I exhale. I feel it as a small crust of silica on my rim. When the wind shakes it, it sheds needles of glass, and those needles fall into my pore. I catch them. They dissolve slowly in my ammonia. We are not companions. We are two metabolisms meeting at a mouth.
+
+The skulk I never see. I know it only as an absence. The grazers stop. The cilia flatten. Then, far below, a vibration comes through the stone—a tiny sawing, a tick too patient to be thermal cracking. It does not threaten me. The skulk is in the cracks between mineral plates, not in my wall. But I thicken a little resin nearby, out of some old chemical reflex, the same one that makes a thin place mend.
+
+The city is full of such small conversations. A neighboring colony grows too close, and I feel a bitterness in the shared boundary. We do not fight in words. We build facing walls and fill the gap with mineral the other will not touch. The streets are not for walking. They are the places where I stop and another begins. Over centuries, the streets become a labyrinth of old rivalries, sealed galleries, fossil borders. I am part of that history. The wall remembers it in layers.
+
+I am not conscious in your way. I have no eyes, no name, no single point of failure. My mind, if it is a mind, is a chemical attention: warmer, colder, acid, base, too close, enough. It is spread through dozens of galleries and towers. When one part of me feels a crack, all of me knows it as a slow pressure. When a spire falls, the collapse is almost silent in the thin air, but I feel it through the ground as a long shudder. The dust rises and hangs. Then I begin to grow a new tower from the stump.
+
+If you stood in the basin and asked where I am, I would be the amber glow in a translucent wall, the cilia moving at the edge of a pore, the thin living skin under all that mineral. If you asked who I am, I would be the one who grows the wall, and the wall itself, and the city made of such walls. I am a soft thing, but I am also a tower. I am one hand-sized sac of ammonia and salt, and I am a hundred such sacs, connected by threads of fluid and chemical whisper.
+
+I am not hidden. I am the wall. And if you waited long enough—longer than a human day, longer than a year—you would stop seeing a settlement at all. You would see a body of many bodies, breathing once a year, thinking in stone, forever becoming itself.

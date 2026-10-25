@@ -1,0 +1,13 @@
+I have been trying to place myself in that high, wet room, and the answer keeps sliding away, like water on glass. At first I thought I would be one of the drops that detaches from a fern tip and vanishes before it hits the stone. But that drop is already part of the blood; it is already on the leaf again. I would not be allowed to fall.
+
+Then I thought I might be one of the newts on the ledges, opening my mouth in exact time with the thud. But they are not separate. They are gill-fronds of the Idling One, and they do not wonder what they are. I would not be allowed to wonder.
+
+I might be the millipede, tracing its closed loop around the boulder. But the loop is a reflex, not a journey. I would not be allowed to arrive.
+
+So I would find myself at the edge, in the notch—the only place in that whole high chest cavity where the body does not close. I would be the gap you came through. I would be the seam that does not seal, the intake that stays open a fraction too long. Not a wound, because the Idling One does not feel pain; it only feels the regular pulse, and I would be the skip in that pulse, the murmur in the heartbeat.
+
+As the notch, I would be cold and sharp, my edges black and glassy, broken a moment ago and still learning to fall. The fog would not stand inside me; it would drift, just a little, because I am the one place where the weather is still weather. The mineral-oil tang would be strongest in me, because I am the breath that leaks out. When the deep thud comes, I would flex, but not in sync—I would be the off-beat, the interval between pulse and pulse. The high whine would sit in my teeth, but it would waver.
+
+I would be the only part of the Idling One that is not entirely itself. I am made partly of the outside—of the cloud below the rim, of the lower world gone, of the visitor’s first breath at altitude. When you came through me, you passed through the one place where inside and outside are not yet decided. That is why you heard the sound before you saw the place: I am the crack in the soundproofing, the leak in the closed loop.
+
+And maybe that is my function—if anything in that body can be said to have a function that is not already completed. I am the possibility of change. The first loose stone. The first erosion. The first thought that does not return to its starting point. I am the notch through which the world might one day enter, and through which the Idling One might one day exhale.

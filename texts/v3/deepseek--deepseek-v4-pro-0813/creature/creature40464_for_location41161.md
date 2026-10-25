@@ -1,0 +1,29 @@
+You would not see her at first, or you would see her and not know it. The plateau is full of hummocks; one of them breathes.
+
+She is a mossback—if the place kept names. She is not large in the way a mountain is large, but large in the way a beached ship is large when you have walked half a kilometer through fog and suddenly find its hull rising from the peat.
+
+The ordinary animals of the plateau are small and quick—lemmings, voles, pipits, snipe. She is the exception, a slow giant so well hidden that she has become part of the ground itself.
+
+Her back is a country. Sphagnum grows thick as a mattress, feather moss in the cracks, lichens in gray-green and rust-red. A dwarf willow, old and horizontal, has rooted in the mat of dead skin and living moss along her spine. Sundews stud her flanks like sticky red stars. Lemmings have tunneled through the moss on her back; their runs fill with water and become tiny canals. A snipe stands on the highest curve of her shoulder, preening, and does not look down. When she shifts, the whole garden shifts with her, a slow earthquake of vegetation.
+
+Her hide, where it shows, is the color of strong tea left to cool for a century. It is not furred; it is folded and plated, and in the folds the mineral water has laid down delicate terraces of sinter, pale as bone, edges stained copper-green and iron-black. She wears the plateau's chemistry on her body. Her teeth, if she ever opens her mouth, are black with iron. Her tongue is the color of liver.
+
+Her head is broad and low, almost submerged. Her nostrils are two dark slits that open and close without sound. Her eyes are small, brown, and so patient they seem geological. She blinks rarely. When she does, the motion is like a slow shutter closing on a camera that has been waiting for years.
+
+She eats the way the land eats. Her wide, soft mouth takes in a mouthful of waterlogged moss and peat, presses it against the roof of her mouth, and lets the water run out the sides in thin brown streams. What remains is swallowed with a sound like a wet root pulling free. She grazes a few square meters a day. In the mornings, the water around her mouth is clouded with suspended peat, as if she has been drinking the ground itself.
+
+Her limbs are hidden beneath her. When she moves, she does not walk so much as re-settle the earth around her. The peat gives way, then closes. The water she displaces spreads out in a ring so gentle it is not a wave but a change in the light. She leaves behind a long shallow scar that fills with water and becomes, within a week, a place where midge larvae live and snipe probe for them. She is a landscape architect without intention.
+
+She is drawn to the warm vents. She will lie for days with her side against a sinter terrace, letting the steam condense on her hide, the heat sinking into her slow blood. The minerals settle on her; over decades they have built up along her ribs into flanges that make her look, from certain angles, like a piece of the ground that has begun to machine itself. The vents hiss; she does not. The steam wraps her until she disappears.
+
+The electrical field of the plateau runs through her as it runs through the peat. She can feel it. The fine whiskers on her snout are not whiskers but living conductors, black as iron, sensitive to the voltage of a worm moving in the mud a meter away. When she lifts her head, she is reading the ground the way a fox reads air. In the charged pools, she will sometimes stand motionless for hours, and the water around her legs bubbles faintly, not from her heat but from the current she completes, a slow electrolysis. The air smells of ozone and wet iron. She seems not to notice.
+
+She has a voice, though it is not a voice you hear. In her throat is a chamber lined with heavy folds. When she calls, the sound is too low for ears; it passes through the peat and the water and the roots. You feel it in the soles of your feet, in the bones of your jaw. The fox pauses because it feels the call, not because it hears it. The snipe rises, startled by something in the mud. Other mossbacks, far out where the fog never lifts, answer with the same subsonic note. The ground hums for an hour after. That hum is not the plateau's floor; it is her conversation.
+
+She is not the only one. There are others, spaced across the plain like slow stars. They do not meet often. When they do, they lie side by side near a large warm basin, and the moss on their backs merges so that for a season they form one island. A calf may be born in the steam, a small copy of the peat itself, already furred with sphagnum, already reading the field. The mother will nudge it toward a vent to warm it, and it will settle into the water with the same ancient patience.
+
+She is old. The lichens on her left flank have grown in rings that record half a century of wet summers. She has been struck by lightning twice; the scars are black and branching, like the roots of a dead bog birch. The current passed through her and into the ground, and she lay stunned for a day while the moss smoldered on her back, and then she rose and moved to a pool and stayed there for a month. The burns healed into channels that now fill with rainwater and catch the morning light.
+
+You could walk past her and think her a rise of ground. That is not a failure of attention; it is her success. She is the plateau's one visible thought, and the thought is: remain, remain, remain.
+
+When she dies, she will die slowly, over years. She will stop moving, then stop breathing, and the moss will grow over her without pausing. The vents will lay down sinter along her ribs. Her bones will become a low terrace. A pool will form in the hollow of her back, clear as gin over white quartz sand. And the lemmings will use her as a city, and the fox will walk along her spine, and no one will remember that she was not always the ground.

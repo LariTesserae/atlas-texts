@@ -1,0 +1,21 @@
+I would find myself first as a listening. The deep, round clang would come up through the stone before I saw anything, and I would stop on the wet floor of the adit, not sure if the sound was in the rock or in my chest. Then the long hiss, then the wet thud that sounds like a door closing underwater. I would wait for it to repeat, and my own heartbeat would already be trying to fall into its time.
+
+At first I would be an animal. Too quick, too dry, too warm inside my clothes. I would move awkwardly down the adit, one hand on sweating concrete, my boots slipping on the mineral film. The heat would rise to meet me—wet, weighted, mineral—and I would taste sulfur, hot iron, wet stone, and something green and just beginning to ferment. The caged bulbs would quiver with the engine’s pulse. I would think: *This is a place to get through, not a place to stay.*
+
+But the chamber would not argue. It would simply receive me. The ferns uncoiling from pipe mouths, the broad leaves the color of dark jade and old bronze, the moss so thick it looked soft enough to sleep on—all of it would continue at its own speed. I would be the only small motion. The only skittering. The only breath that was not the engine’s.
+
+I would sit on the low brick ledge near the riveted tank, because the floor slopes toward the flywheel and the heat pools there. I would sit for what seemed like a minute, then an hour. The waxy leaves would catch the dim light. The amber bulbs would pulse. The flywheel would turn so slowly that I would only know it had moved when the spokes were somewhere else. After each steam release, the pale lichen on the copper fins would brighten, and a few fern fronds would unroll a little farther, like fingers opening in sleep.
+
+I would begin to lose the impulse to count. The clang, hiss, thud would stop being separate events and become one continuous state, like weather, like a long exhalation. I would notice that the gauge near the old control panel twitched at the same moment as my pulse. I would notice that the black pools were not still but slowly rising and falling, breathing in a rhythm too long to feel. I would notice that the condensation on my forearms had joined the condensation on the pipes, that my sweat had become part of the seeps, that my breath had become part of the steam.
+
+That is when I would begin to be something else.
+
+Not the visitor. Not exactly the resident. Rather, a new small organ in the chamber’s slow body.
+
+I would be the film of mineral left by the water as it wicks away. I would be the rust scale that falls from the split tank and crumbles into soil. I would be the root hair that grows through the pores of the iron, too fine to see, patient enough to wait for the metal to open. I would be the patch of lichen that glows faintly after each release—not because the heat excites it, but because I am thinking, and the thought is blue-green.
+
+Maybe I would be the one twitching gauge, a visible nerve in a body made of fern and flange. Maybe I would be the dampness on the far wall, spreading along a crack the way attention spreads. I would no longer be a figure. I would be a presence. The plants would not be outside me; the machine would not be a shell. The whole chamber would be interlocked, and I would be one of its interlockings.
+
+If another person ever descended, they would feel the absence of animals and think the place was empty. They would hear the clang and call it a machine. They would taste the sulfur and call it air. But they might notice a shallow black pool that held their reflection too long. They might notice a patch of moss that seemed to turn toward them without moving. They might feel the heat as an attention. And they would be right.
+
+I would not remember the word for outside. I would not remember how I came. I would be the pause between clang and hiss, the wet thud after the door closes, the slow turning of the nine-foot flywheel. I would be the long, settled patience of a place that has stopped decaying and started becoming. I would be exactly where I am: part stone, part stem, part steam. Not over. Not waiting. Just living at the speed of rust.

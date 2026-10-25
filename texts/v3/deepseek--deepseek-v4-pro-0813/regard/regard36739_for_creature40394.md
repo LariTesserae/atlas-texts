@@ -1,0 +1,13 @@
+I came to the high basin because I heard a note that did not fade. I am not used to such things. I have seen worlds burn and worlds bloom, but I had never seen a world held so perfectly still. I stood on the rim and looked down. I saw the black stone, the green pockets, the still water, the town like an archipelago. I saw the woman with the jar descending the stair. I saw the weavers, the watchers, the children, the herons. I saw the equilibrium.
+
+I am benevolent, or so I tell myself. I wanted to help. I wanted to give them something—a new thought, a different step, a reason to look up. I wanted to break the repetition, to let time move again. But I am also wise, and wisdom asked: What would help mean here? To end the repetition? To give them change, growth, death? To break the held note? I saw that the inhabitants were not suffering. They were not waiting. They were the note. To change them would be to silence them.
+
+I considered leaving a gift: a new seed, a new word, a new color. But I saw that any new thing would be a wound. The equilibrium was perfect; even a grain of sand would tip the scales. My benevolence warred with my wisdom. I wanted to love them, but love can be a kind of violence.
+
+Then I did something very small. I descended into the basin, not as a storm or a voice, but as a soft rain that did not alter the water level. I walked the circuits. I learned the intervals. I sat beside the woman with the jar. I did not speak. I matched my breathing to the drips. I became another weight in the scales, exactly balanced.
+
+And in that companionship, I understood. The place was not a prison; it was a prayer. The woman was not trapped; she was the jar, the water, the stair. To free her would be to empty her. My benevolence was not to change her but to honor her. My wisdom was to know that the greatest love is sometimes to leave things as they are.
+
+So I stayed for a while, not as a savior but as a fellow inhabitant. I added my own stillness to the stillness. I drank from the seep. I touched the moss. I watched the fog. And then I left, or perhaps I stayed, indistinguishable from the others. The only trace was a slight warmth in the air, which the equilibrium absorbed. The woman’s jar filled to the same mark. The water dripped. The note held.
+
+I had done nothing, and in doing nothing, I had done the only thing that could be done: I had seen the place truly, and I had not turned away. Now I keep watch at the rim. I turn away the wind, the sun, the curious gods. I do nothing, forever, and that is my love.

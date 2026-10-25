@@ -1,0 +1,19 @@
+Nothing human lives in the Kettle. The place belongs to older tenants.
+
+From the bare ledge, at first it looks like a dead bowl of black rock. Then the floor moves. It is not rock. It is a living carpet of small white hexapods, each no bigger than a thumbnail, blind and armored, packed so tightly they touch on all sides. They flow in slow currents, climbing over one another, leaving no gap. When one is disturbed, two blue dots on its back open like cold stars, and a ripple of blue light crosses the bowl. The sound of them is dry rain. They feed on the sulfur crust and their own shed skins. The floor is not a crowd; it is a surface. It eats itself and is remade.
+
+Out of the floor rise the hoodmaws. They are the size of small dogs, with flat shovel-shaped heads and mouths that open sideways. They do not hunt. They plow through the hexapods, swallowing them by the hundreds, and the living floor closes behind them. They are silent. If the small ones are skin, the hoodmaws are mouths. They are not intruders. They are the appetite of the same long body.
+
+Around the hottest vents, pale tube-things grow from the rock. They are leathery cylinders with fringes of cilia at their mouths. They sip sulfur gas and pulse when the fumaroles exhale, swelling and relaxing like lungs. They shed tiny white young into the carpet. They look like a strange garden of pipes, but they are animals. They are the breath of the Kettle.
+
+Then there are the kiln-keepers. They sit inside rings of black stone, each a meter or two across, built from flat basalt plates. A kiln-keeper is the size of a crouching person: black-shelled, with long forelimbs and a face that is only a heat pit. It does not see light; it sees heat. The fumaroles are bright coals. The blue flashes of the hexapods are cool sparks. The other keepers are slow furnaces. The keeper sits in its ring and tends the stones. It hooks a plate with one long forelimb and turns it, tilting it so the stone catches and holds the heat from the floor. Then it settles again. It does this for hours, for years, for generations.
+
+The rings are not mere architecture. They are territories, nests, heat-traps. Each keeper lives inside its ring as though the ring were an organ it must keep alive. Near the one entrance, long parallel grooves are polished into the basalt, scraped by generation after generation of keepers’ forelimbs. They shine faintly. The keepers do not make tools. They make time.
+
+There is a low cairn on the bare ledge, built from stones no living keeper remembers placing. It is the only thing that looks like a monument. But the keepers do not go to it. Their memory is not in cairns. It is in the rings, in the grooves, in the way the plates have been turned so often their edges are concave.
+
+The creatures of the Kettle are not separate species sharing a room. They are more like tissues of one body. The carpet eats and is eaten. The hoodmaws move the food inward. The tubes breathe the sulfur air. The kiln-keepers keep the heat steady and hold the territories. The whole bowl may be one colony, one animal with a hundred million mouths. Or it may be an ecosystem so tightly packed that it has become an animal by accident. In the dark, the distinction hardly matters.
+
+If you stepped onto the floor, the hexapods would rise over your boots, not to harm but to search for moisture and salt, and the hoodmaws would come. The keepers would feel your heat as a wrong shape in the long red dark and would turn their stones away from you. The rules are not spoken. There are no voices, no wind, no water. The loudest thing in the Kettle would be a footstep.
+
+But if you stay on the bare ledge, very still, and let the fumaroles’ long exhalation become the only voice, you may see it clearly. The Kettle is not a place where things live. It is a life that has become a place.

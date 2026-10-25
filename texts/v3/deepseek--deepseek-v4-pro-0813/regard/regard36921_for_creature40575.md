@@ -1,0 +1,21 @@
+**What the Benevolent and Wise Power Would Do**
+
+The power came as attention, not as force. It descended through the water column like a memory returning to a body, past the blue attenuation, into the cold. It did not displace the water; it became the water’s remembering. It saw the Drowned High Country not as a place that contained life, but as a life that had become a place. The mountains were made of bodies; the valleys were paved with shells; the spires were glass sponges breathing. The being who lived there was not a single creature but the whole composite—coral, sponge, worm, fish, eel, ray, whale, and the current that bound them all together.
+
+For a long while the power did nothing. It watched the benthic storms grind at the towers, felt the cold press into the bones of the world, heard the silence textured by the tick of shrimp and the whisper of falling sediment. It saw a spire fall and larvae settle on its rubble. It saw the eel’s patience, the ray’s slow shadow, the whale’s low call arriving as pressure rather than sound. It saw that destruction was not the opposite of this landscape but its metabolism—that the mountain was always falling and always being rebuilt.
+
+Then it reasoned.
+
+Could it warm the water? Warmth would dissolve the carbonate, weaken the great structures, and the mountains would slump into white mud. Could it bring light? Light would call in a green world—algal films, photosynthetic slime—that would overgrow the glass and bone and steal the animal architecture. Could it still the current? Stillness would starve the filter feeders, the corals and sponges that live by combing the moving water. Could it make the mountains unbreakable? Then they would no longer grow, no longer provide new surface for the settling larvae. Could it save every life from being eaten? Then every life would starve, and the place would become a museum of the hungry.
+
+The power understood that the high country’s cold, dark, violence, and silence were not flaws but the exact conditions of its beauty. To change one was to erase the whole. The falling spire was not a tragedy to be prevented; it was the opening of a new room in the city. The benthic storm was not an enemy; it was the breath of the mountain. Even the eel’s sudden strike was, in the long accounting, a form of tenderness—the tenderness of the current, of the food web, of a world that did not hoard itself.
+
+So the power chose not to change the place.
+
+But because it was benevolent as well as wise, it did one small thing. It saw that the only threat the high country could not absorb was the one that would come to take rather than to witness: the nets, the drills, the noise, the heat of those who would turn a mountain of creatures into a resource. The place had survived its own storms for millions of years; it might not survive being found by the wrong finders. So the power drew a veil over the drowned summits—a current of forgetfulness, a blank in the maps of acquisition, a confusion of soundings and instruments. It did not hide the place from itself, only from being turned into a commodity.
+
+Then the power remained.
+
+It became the distance between mountains, the held breath between whale calls, the blue attenuation from which light arrives already tired. It did not intervene again. It watched the larvae settle, the worms retract their feathery crowns, the eel strike, the ray stir the sediment into small clouds. It watched a new sponge begin as a speck of glass and grow toward the dark. It watched the mountain fall and be rebuilt, fall and be rebuilt, in the long silence that was not silent but full of small sounds.
+
+Its gift was not a miracle but a continuity. The high country would continue to be exactly what it had always been: a built landscape, a living mountain, a storm that never raises its voice. And that, the power knew, was the most benevolent act of all—to let a perfect thing remain itself, and to stand guard at the edge of its silence, doing nothing, which was everything.

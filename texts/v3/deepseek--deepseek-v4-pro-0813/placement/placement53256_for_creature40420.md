@@ -1,0 +1,11 @@
+You would find yourself not at a peak, but on the face of a wet cliff below the fog-gull ledges. The cloud has been lying against the black rock for hours, condensing into a sheen. At first you think you are the altitude—the cold wet pressure in the chest, the low oxygen, the too-sharp sound of stone. Then the body lets go.
+
+You are a film of water sliding down a pane of glassy basalt. Not a stream. A membrane, a few cells deep, moving slowly along the joint where the rock weeps. You are not one creature. You are a thin, moving country of rotifers and tardigrades, too small to see, suspended between stone and air. You live in the moisture itself. You graze on the mineral crust, the faint iron and sulfur taste the water carries. You are a middle layer the world made before there was soil.
+
+Above you, the fog gulls pack the ledges. Their droppings streak the stone and, over years, become a kind of soil. When they lift off, the air pulls at your surface, and the sound passes through you like heavy canvas shaken. You carry the mineral dust of that departure down the cliff, one cell-thickness at a time.
+
+Below, a warm spring stirs. You smell it before you reach it: sulfur, iron, wet copper, a faint electric edge. The bacterial mats bloom in rust and yellow. The larvae of flies tremble at the water’s edge. You are the medium that will carry their minerals outward, the same water that rose as steam and became cloud and now runs back down. When the blue glimmer travels along the wet cliff, it uses you as a wire, a brief nerve of light along the fault.
+
+You are not the vent finch, though the finch flies through you when you are steam. You are not the pika, though the pika wets its fur in you and leaves its tracks in your silt. You are not the steam owl, though its low note travels through the fog you helped make. You are the circulation itself, the closed loop, the living film between the planet’s heat and the cold grey sky.
+
+So you would find yourself everywhere the rock weeps. In every thin dark line of moisture. In the droplets on a finch’s wing. In the milky skin of the warm pools. In the pika’s damp fur and the owl’s pale face beaded with fog. You are not a person. You are the water returning itself, carrying the smallest lives through an unfinished land—the wet membrane through which the range feels itself becoming.

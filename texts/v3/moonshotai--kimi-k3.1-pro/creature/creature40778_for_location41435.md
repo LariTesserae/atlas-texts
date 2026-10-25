@@ -1,0 +1,43 @@
+Life does not spread in the cirque. It occurs, whole and at full intensity, wherever it occurs at all.
+
+One fastness is a low raft of moss and sedge, springy above a pool so crowded with salamanders that its bottom seems to have only one slowly turning body. Another is vertical: ferns gripping a wet cliff flute, translucent liverwort beneath them, metallic beetles stationed on the black stone. Another may be little more than a shrub, a patch of white flowers, and the small volume of air inhabited by one moth. Each fastness is complete. None sends pioneers across the bare pans.
+
+The salamanders are the most numerous visible lives. Their black bodies differ subtly once they can be distinguished: one has a blunt head, one a crooked hind toe, one the familiar notch in its tail. There are larger and smaller animals among them, but size is not age. None is young. None is becoming old. Their transparent spawn remains full and clouded with possibility without approaching hatching.
+
+They lie layered upon one another without apparent struggle. Being at the bottom does not seem to be a disadvantage, nor being at the surface a preference. When pressure moves through a pool, the whole mass shifts; individual bodies slide a little, turn, and settle elsewhere in the crowd. At the electrical concussion, hundreds of copper-red gills open together. For that instant the salamanders seem less like animals warming themselves at a common stimulus than like separate, sensitive places in which the same event has become visible.
+
+The bird can take one, and the pool can remain full. More unsettling than the undiminished crowd is the persistence of identity. The notched-tail salamander may be held motionless in a slate wader’s beak while, behind the bird, that same notched tail slips beneath another black body. There is no evidence of a second, perfectly copied animal. The error would be to demand that beak and pool agree upon a single sequence of events. The cirque does not make them agree. Individuality persists here without biography.
+
+Above the flowers, the ash-furred moths live at the scale of a few trembling wingbeats. They are broad and heavy-looking, their bodies furred against a cold that never lifts, their wing undersides pale enough to seem brighter than the dusk. Water pearls in the fur without soaking it. Their dry clicks fall between the pressure-hisses and the low turning note, so small that they should be inaudible and are not.
+
+They visit the white flowers tirelessly, but nothing follows from the visits in the way flowering usually leads to seed. Moisture is taken and remains available. Petals are touched and do not bruise. The visit itself is the completed event.
+
+Each moth has its own minute circuit: two blossoms and the trembling interval between them, or the sheltered side of a shrub and a short arc above a sedge cushion. This is not quite confinement. At the edge of a fastness, a moth does not batter itself against an invisible wall. It simply turns, as it has always turned, before the bare stone becomes relevant to it. No casual moth crosses the open water. No unfamiliar wing ever appears above a flower.
+
+On the weeping rock, the beetles carry their single drops with the care of animals bearing a weight they have never been able to put down. Each drop remains perfectly whole, trembling at the pump-note, tightening when the beetle climbs, never merging with the water beaded around it. Sometimes it contains a pewter sky. Sometimes it reflects more cliff than stands above the beetle, or a cluster of white flowers growing where there is only naked stone.
+
+The beetles graze the mineral film without clearing it. Their paths neither accumulate into trails nor wear the rock. They are always in the midst of feeding, and the film is always just grazed.
+
+Below them, springtails pack the moss so densely that a fold can appear to move independently of the cliff’s exhalation. A pressure passes through the green cushion, and thousands of tiny bodies alter its texture at once. Clear grubs lie in the waterlogged leaves, their transparent tissues almost indistinguishable from the water around them. Only their internal shadows betray them, turning slowly from narrow spindles into branching shapes and back again. They are not waiting to pupate. No later insect is concealed within them. Metamorphosis would require a future.
+
+The plants are not merely the setting for these animals. Moss, roots, liverwort, and wet mineral respond so closely to the same pressures that their effects cannot always be separated. Water rises through a root mat; the mat lifts almost imperceptibly; ferns in the fracture above it give back mist. The pale flowers do not turn toward any source of stronger light. Their brightness belongs to their tissue, not to the hour.
+
+A fern left halfway uncurled is not frozen in anticipation of opening. Its fresh tip is neither a promise nor a delay. That half-uncurled state is simply one of the shapes life takes in the cirque. Elsewhere growth continues extravagantly, yet never becomes succession. The fastness does not mature, spread, or exhaust itself.
+
+Against all this crowding, the slate-colored wading birds seem almost absurdly separate. Each stands alone, its long legs placing its dark body at a deliberate remove from the water. It may remain through concussion after concussion without shifting its feet. No silt clouds around them. The pool dimples beneath the bird, reflects a different arrangement of hummocks, and becomes still again.
+
+They are not guardians, though their stillness makes guarding easy to imagine. They keep no watch over the salamanders, regulate nothing, and recognize no visible boundary between territories. If one knows more than the beetles know, it gives no sign.
+
+Now and then a bird utters its cry, a sound like a stone load settling far inside the mountain. Sometimes the cry comes back before the bird has made it: flatter, sourceless, already complete. The bird may then turn its head and open its beak, taking its place in the sound rather than answering it. Above a pool in which one bird stands, the reflection may contain an entire flock. The reflected birds do not move in formation. Each stands a little differently, as though the water were showing other forms of patience available to the same solitary creature.
+
+The vacancies have as much precision as the lives. An empty pool is not stagnant, poisoned, or abandoned. Nothing in it is struggling to begin. It dimples with every concussion; mist crosses it; its reflected sky may brighten. Yet no salamander enters from the crowded pool nearby, and no seedling establishes itself on its margin. Its emptiness is not a lack waiting to be repaired. It is one of the cirque’s persistent conditions, as exact as copper gills or a drop on a beetle’s back.
+
+It would be easy to gather all these inhabitants into a single organism and call the fastnesses its tissues. That comes close, but makes the place more comprehensible than it is. There is no central body, no concealed heart beneath the concussion, no great animal sleeping under the floor. Nothing needs to be underneath.
+
+Nor are the creatures the engine’s attendants. The salamanders are not employed to carry charge, the moths do not maintain the flowers, and the birds do not keep the pools in balance. Nothing performs a duty it could neglect. Each lives according to its own narrow perceptions: the salamander’s pressure and crowding bodies, the moth’s two flowers and charged fur, the beetle’s film beneath its feet and drop above its shell, the bird’s pool whose reflections do not agree with it. If the cirque knows itself, it does not do so in one thought.
+
+What joins these lives most plainly is synchrony, not unity. At the concussion, gills flare, drops shiver, springtails alter the surface of the moss, and the green fastnesses take water into their roots. Then each returns to being incomparably itself.
+
+Beyond the rim, none of them waits in dormancy. There are no eggs under the dry stone, no seeds in the scar, no salamanders sealed in cracks. Cross inward, and they are already in the midst of their actions: the grub turning its shadow, the beetle correcting its footing, the moth trembling between blossoms, the notched-tail salamander somewhere beneath the crowd.
+
+The mountain runs, and at close range its running is not one life but many—crowded, solitary, rooted, winged, translucent, metallic—each complete without concluding, each continuing without becoming something else. Between them, the empty stone remains empty with equal exactness.

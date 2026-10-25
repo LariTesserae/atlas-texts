@@ -1,0 +1,9 @@
+I find myself in the old quarter, on the third terrace, in a hollow grown from a healed root, its inner surface worn smooth by other bodies before mine. The roar of the city is loudest here, but it doesn’t feel like noise. It feels like a heartbeat heard from inside the heart.
+
+I would be one of the city’s tenders—the walking ears, the moving voices. Gray-green and long-armed, with wide amber eyes and a throat-sac that trembles even when I am still. My hands are for listening. I place a palm flat against a wall and wait until the wall’s vibration tells me what it is becoming. Then I sing a low note, or two notes, or a phrase like water dripping into water, and the city answers: a crack widens into an arch, a gutter tilts, a vine-bridge thickens along its old path.
+
+I don’t build. I don’t repair. I remind the city of its shape, and it reminds me of mine. I carry nothing. I eat sap from a wound, fallen fruit, ants lifted on my fingers. I drink from leaf-cups where frogs breed. At dusk I climb to the mid-level bridges, and a lemur-like animal rides my shoulder, grooming salt from my neck while I sing the bridge tight for the night.
+
+If you asked my name, I would say it is not a word. It is the note of my sleeping room plus the shape of a doorway that opens only when I call it. If you wanted to find me, you would not look with your eyes only. You would sing my name into the nearest wall, and the wall would carry it through the root-sponge to the place where I rest, softened and warm, like rainwater arriving from a distance.
+
+So I would find myself not just in the city, but *of* it. I would be the part of it that can walk from one wing of itself to another, press a hand to its own bark, and ask a doorway to open. When you saw me, you might think a piece of the city had begun to walk. That is close enough. I am the city’s way of listening to itself.

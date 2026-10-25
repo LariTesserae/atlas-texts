@@ -1,0 +1,37 @@
+## Mill Hollow
+
+Mill Hollow is not a mill, and nothing in it was made.
+
+It lies in a cool lowland only a little above sea level, on ground so ancient that its original relief has almost ceased to matter. Whatever hills or valleys once distinguished it have been worn down, filled in, and covered. Age is not expressed here through ruins or exposed strata, but through an absence of incident. There are no raw banks, no sharp divides, no young gullies. Even the broad plain has no drama of flatness; it simply continues, rising and settling by less than a footstep would reveal.
+
+Vegetation covers all of it. Not as a layer over the land so much as the land’s final material: moss and fine roots underfoot, then tougher rhizomes, old leaf fiber, and dark, intergrown wood. Stone and soil may lie far beneath, but they have no visible expression. The plain flexes slightly under weight. In drier weather its surface feels like coarse, compressed cloth; after rain it holds moisture without becoming mud.
+
+From a distance, Mill Hollow is only a darker seam in this green and brown continuity. Up close, it resolves into a small, bounded grove roughly two hundred paces long and half that across. Its vegetation rises twelve or fifteen meters, with massive trunks and root buttresses standing far apart. The walls are dense, almost impenetrable intergrowths of moss, bark, reeds, and slender trees. Above, branches incline toward one another without closing the roof. Ordinary daylight enters through the long opening: pale and even under cloud, faintly warm in direct sun, never enough to dispel the coolness.
+
+The remarkable thing is not the amount of vegetation, but the amount of air.
+
+Inside, nearly all the volume is empty. The floor is level and open, a springy skin of low moss crossed by no trail and interrupted by no pool. The nearest trunk may be twenty paces away. A bird crossing from one wall to the other appears conspicuously large, simply because there is so little else for the eye to hold. A falling leaf can turn several times in the open air before landing. The place has the proportions of a cathedral without the accumulation of columns, furnishings, or side chambers. It is more like a grove whose center has remained clear for so long that the emptiness has become structural.
+
+Every solid surface is plant tissue, living or dead. Some of the oldest wood has been rounded and silvered until it resembles worn cable. Dead stems remain bound inside newer growth, and fine roots pass over them in smooth, pale seams. Here and there, hollow culms stand in close parallel like conduit; broad leaf bases form natural gutters; buttresses meet the floor at angles that briefly suggest joinery. None of the regularity survives close inspection. Nothing is cut, fitted, or maintained. There is no path at the entrance, no artifact in the moss, no buried wall giving the hollow its shape.
+
+Water is equally reticent. No stream enters, and the lowest point contains no pond. Rain comes intermittently, sometimes hard enough to fill the grove with a brief, dense drumming, sometimes only enough to darken the outer leaves. Between rains, condensation supplies much of the moisture. At dawn, beads gather along leaf margins and in the axils of stems; a few cupped hollows retain water no deeper than a hand’s breadth. Drops occasionally fall from high in the walls, each one startlingly distinct. By afternoon there may be no visible water at all, though the inner moss remains cool and damp and the broken ends of old stems stay black with moisture.
+
+The air smells of wet bark, crushed green tissue, and old fiber. It is cool without being misty or cavernous. There are no warm islands in the sunlight and no cold current along the floor. The coolness is simply the condition of the place.
+
+The sound is what first suggests industry.
+
+Before the interior can be seen, the hollow produces a low, continuous laboring noise, something between distant ventilation, a millrace, and heavy machinery operating behind several walls. Up close, it separates into sources. Air moves through thousands of dry, tubular stems and makes a layered hum. Large trunks creak at different pitches as their crowns respond to wind. Seed cases tick and snap in the outer thickets. After rain, water adds an irregular pattern of clicks and small resonant impacts.
+
+Beneath all this is the noise of animals: wingbeats, stridulation, claws on bark, the dry rustle of bodies moving through old leaves. Small frogs occupy some of the persistent water pockets and contribute a harsh, ratcheting chorus. Hidden birds call into the central air, where their voices acquire an unusual carrying power. At its fullest, the combined sound requires a raised voice to be heard across the floor. Yet the center can appear completely vacant.
+
+Fauna are abundant, but concentrated in the plant shell. Beetles work through the damp wood; springtails and mites crowd the wetter moss; spiders wait at stem junctions; snails graze the shaded surfaces. Larvae live inside softening culms, and small birds move through the walls after them. A few mammalian shapes occasionally thread the root thickets. There may be hundreds of thousands of animals within the hollow’s small boundaries and, at any given moment, only a moth, a bird, or a single snail visible from its center. Their scarcity in the open air is not scarcity of life. It is a distribution: life occupies the surfaces and leaves the volume unused.
+
+The industrial impression survives even after every sound has been explained. The hollow has throughput. Leaves intercept light and rain; stems conduct moisture; the root mat stores and redistributes nutrients; animals fragment dead tissue; weather and growth return the remainder to the substrate. Material is continually taken in, separated, transported, consumed, and returned. Processes are repeated throughout the walls at the scale of the whole grove. But nothing is stockpiled. No product accumulates, no waste heap grows, and no chimney or engine exists beneath the metaphor. It has the organization of a factory without design, and production without output.
+
+Most ancient of all is this balance.
+
+The hollow is not frozen. Leaves move, animals feed, stems die, water fills its small reservoirs and disappears again. But the rim neither advances nor retreats. The moss does not deepen into a marsh. The open center does not narrow beneath succeeding generations of trees. Growth is matched by consumption and weathering; replacement occurs within the existing arrangement. There is no gradient from a vigorous young edge to an exhausted old heart, no pioneer vegetation awaiting the next stage. On the scale of seconds, everything is busy. On the scale of the landscape, nothing is underway.
+
+Weather passes through without giving the place a new direction. A rainstorm makes it louder and darker for an hour; a dry interval silvers the outer stems. Then the same proportions return: dampness without standing water, coolness without frost, abundant life without visible crowding, total vegetation around an almost total void.
+
+There is nothing particular at the center—no deepest pool, oldest trunk, concealed mechanism, or commanding view. There is only the plant floor, the ordinary sky, and the loud labor hidden in the walls. The hollow seems less like a clearing than a capacity that has been maintained until it became terrain: small, ancient, full of life, and nearly empty. Its only lasting product is the space in which all that labor can be heard.

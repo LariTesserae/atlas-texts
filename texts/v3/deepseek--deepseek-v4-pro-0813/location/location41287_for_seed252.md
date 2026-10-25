@@ -1,0 +1,23 @@
+There is a place under the hot white ground, a few meters beneath a young sinter terrace. It is not deep, but it is hidden, reached through a narrow throat in the rock that you must crawl through. The air that comes out is warm and wet, like breath. It smells of damp stone, a faint sulfur tang, and something like rain on hot rock.
+
+At first, the chamber is only light. It is bright, steady, almost shadowless. The light does not fall from an opening; it rises from the walls. The upper surfaces are covered with a thin film of silica and water, and that film glows. It is a blue-white light, something between burning salt and early morning. The film is a natural optical cavity, a self-assembled photonic crystal that converts broad thermal infrared into a narrow visible band. If you scraped it off and studied it, it would look more like a device than a mineral, but it grew here. No one built it. In this landscape it is not strange; it is simply what the mineral does.
+
+The room is small—ten or twelve paces across, four meters high—but sparse enough to feel larger. The floor is dark, wet, and smooth, with only a few forms in it: a single pool, a slit vent, a cluster of white blades. Most of the chamber is open air and steam. The emptiness is not absence; it is spacing.
+
+Water is everywhere but rarely deep. It condenses on the ceiling, beads along the walls, sheets down the black rock, and collects in a pool too hot to touch for long. The air is dense and about forty-five degrees. You sweat without working. The floor wells up around your boot with a thin film. Droplets gather at the tips of the stone blades and fall one by one.
+
+The rock is fresh. The edges are sharp, not rounded by time. This cavity was opened recently by a pulse of acidic steam, and the new surfaces look it. The sinter rim around the pool is as crisp as broken sugar. There is no soil, no dust, no green. No plants grow. The only living color is a faint grey chemosynthetic film on one wall, feeding on sulfur and iron. It is not a plant; it is older than plants.
+
+The only animal is rare. Every few minutes, a colorless amphipod no longer than a grain of rice rises into the clear water of the pool, feels the boundary between hot inflow and cooler film, and sinks back. That is all the visible fauna. It is enough.
+
+The pool has a rhythm. Every seven or eight minutes, a surge of hot water rises from a throat below, lifts the pool’s surface into a low dome, spills over the sinter rim, and recedes, leaving a faint new thread of mineral. Each flood hardens in the hot air. The chamber is building itself, layer by layer.
+
+The water cycle is active and precise. Hot vapor escapes from a slit at the far end, curls upward, hits the cooler dome, condenses. Droplets run down the glowing film. Where the water is saturated with silica, it leaves behind a new layer of opal, perhaps one molecule thick. Over time, those layers become another sheet of the light-producing film. The brighter the walls become, the more heat leaves the rock as light, cooling it just enough to keep the condensation steady. It is a feedback loop, balanced and alive without being biological.
+
+The sound is mostly quiet. There is a low hiss from the vent, like distant pressure. A drop falls from the central rib every few seconds, each one landing in the pool with a small, dense note. Between drops there is a near-silence. Occasionally a crystal cracks or a flake of sinter splits, sharp as a twig snapping.
+
+The rules of the place are simple. Water moves upward as steam, condenses, falls, and deposits minerals. The walls grow inward by a molecule each time the pool floods. The light is not sunlight; it is heat made visible by a natural optical cavity in the mineral. The system pulses every few minutes. Life is rare because the water is too hot and mineral-rich for most bodies, but what lives here is slow and translucent. The chamber is one small pocket in a much larger geothermal network under the terrace, a single lung in a hidden body.
+
+You could stay for an hour and witness only a few events: the pool surges six or eight times; the steam hisses; the glow brightens slightly after each flood; one amphipod rises and sinks. That is all. The few things present are given room. The rest is light and wet stone and heat.
+
+It is not strange. It is a young, hot, wet, bright hollow under the ground, untouched and unbuilt. If a person had made the film on its walls, it would be called technology. Here it is geology, self-assembled and patient, bright as a lamp left on in an empty room.

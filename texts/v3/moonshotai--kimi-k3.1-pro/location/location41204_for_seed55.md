@@ -1,0 +1,41 @@
+## The Low Cistern
+
+At first, the place seems to be only water: cold, dark, and without a meaningful surface. There is no visible sky, no shoreline, and no horizon beyond which the basin might end. The water itself is clear, but clarity does not make it luminous. Distance simply becomes darkness.
+
+Far below, the darkness acquires a floor.
+
+It is not seabed. Broad stone flags appear beneath the suspended leaf-dust, their joints running straight for astonishing distances before turning at exact, obtuse angles. Between them are narrow conduits of fired clay, courses of small hand-cut blocks, and old timber braces blackened by water. What resembles an outcrop is the exposed edge of a foundation. What resembles a boulder is a masonry fragment. Beneath the visible pavement lie fillings of rubble and ceramic, then older pavements, then older conduits. No natural substrate has ever been uncovered. Even the finest mud is manufactured at one remove: powdered mortar, clay worn from pipe walls, mineral scale, and the compacted remains of vegetation.
+
+The construction lies low and has been worn lower. Across distances large enough to contain their own climates of water, the floor rises and sinks by almost nothing. There are no mountains of ruin, no deep trenches, no commanding walls. Collapsed chambers have spread into broad, shallow swells; buried conduits make long depressions; the remains of sluice houses survive as ridges only a few body-lengths high. The whole province is approaching the profile of a plain, though every part of that plain was deliberately placed.
+
+Its immensity came from repetition rather than machinery. Each component is simple. A stone was pecked into shape with another stone. Clay was pressed, dried, and fired. Timber was cut with an adze and pinned with wooden pegs. Here and there a metal cramp survives, thin and green, but most joints depend on gravity, friction, and fit. Tool marks remain in protected recesses: parallel adze facets, the crescent left by a stone maul, finger grooves in mortar that has outlasted its maker by an almost geological interval. No individual span is especially ambitious. The ambition is in the continuation.
+
+Age has softened everything without quite reducing it to disorder. Mortar has dissolved first, then the exposed corners of brick and tile. Ceramic conduits have become oval under the weight above them. Timbers that did not decay have swollen into the spaces they once merely crossed. Broken edges are rare; nothing remains jagged for long unless it has broken recently, and “recently” here can mean within the last several thousand years.
+
+Yet the Cistern is not bare. It is densely, almost excessively grown.
+
+The pavement carries a low felt of olive, brown, and nearly black vegetation. From a distance it looks like discoloration; close by, it separates into minute overlapping leaves, hair-fine filaments, and cushioned mats that lift slightly where water passes beneath them. Holdfasts enter the masonry joints. Above this lower growth stand cupped fronds, jointed stems, and long ribbons of tissue, some held toward the remote surface by floats no larger than seeds. Their colors are mostly theoretical in the darkness. Their surfaces register instead as textures: waxed, rough, brittle, gelatinous, fibrous.
+
+Growth occupies successive levels rather than covering the floor alone. Mats line the inside of pipes. Ribbons emerge through gratings and return through neighboring openings. Old stems serve as attachment points for younger growth, while entire thickets are rooted in the accumulated bodies of earlier thickets. In the densest districts, open water survives only as narrow lanes and small, irregular chambers. Elsewhere, a persistent current has kept a conduit clear, or a broad ceramic roof remains too smooth for holdfasts, and the darkness opens for a while.
+
+The lushness is not vigor. It is accumulation.
+
+Light is not absolutely absent, but it is too weak and too seasonal to serve as illumination. At the brightest part of the long cycle, the uppermost water takes on a faint directionality: one can tell, without quite seeing, where above must be. The highest foliage uses nearly all of that slight allowance. Below it, the garden continues through interminable dark intervals, growing with extreme slowness and shedding little. Cold suppresses both metabolism and decay. A fallen frond may remain recognizable beneath later growth for centuries. A thicket can be ancient without any of its living tissue being particularly old.
+
+There are no animals among it. No fish move between the stems, no shells accumulate in the joints, no small bodies burrow through the sediment. Nothing grazes the mats back, nothing pollinates them, and nothing makes a nest in their shelter. Plants spread by spores, runners, and fragments carried short distances by the water. Decomposition is left mostly to microbes and dissolution, and both proceed patiently in the cold. Without browsing or disturbance, the vegetation has been free to become architectural.
+
+The water is not motionless, although its motion rarely rises to the level of a visible event. Across the Cistern’s vast breadth, small differences in temperature and dissolved minerals separate it into immense layers. Water chilled in one district creeps along the floor; water that has passed through deep mineral fillings rises almost imperceptibly elsewhere. Where these bodies meet, a front may be marked by a veil of leaf-dust or by a slight change in the orientation of the fronds. The front takes seasons to cross a district and generations to alter the basin as a whole. At the largest scale, even these weak drifts curve and organize into broad circulation.
+
+This is the local weather: not storms, but the gradual arrival of water with a different history.
+
+The old construction still guides it. A buried channel, though nearly flattened, gives a current a preferred path. A root-clogged pipe turns flow into seepage. A collapsed roof forms a mound around which suspended material settles. Some districts are consequently swept and spare, with long intervals of exposed black tile. Others have become living filters through which water passes so slowly that it seems to belong to the plants rather than to the basin. The system continues to store, release, and strain water, though no gate opens and no original operating plan could now account for it.
+
+Sound is scarce. There are no surface waves, no animal calls, and usually no current strong enough to make vegetation audibly lash against stone. The ordinary sounds are minute: water hissing through a narrowed joint, a stem parting from a wall, the faint tick of ceramic responding to a change in temperature. At long intervals, a slab settles or an old support fails. The water carries such a sound enormous distances, a single dull note with no echo and no answer. Then the quiet resumes, often for longer than a lifetime.
+
+The Cistern’s districts differ, but they differ without sharp borders. Fields of low, vegetation-covered domes grade into lattices of open ductwork. Ductwork gives way to broad submerged courts whose walls survive only as changes in the floor. In some places the paving has been lifted into countless low blisters by growth beneath it; in others, everything has subsided into a level, root-bound deposit. There is no dramatic central ruin and no untouched periphery. The same processes continue everywhere at slightly different rates.
+
+Nothing here appears to be awaiting restoration. Nor does it seem to be dying. It is settling toward a condition it can maintain: low relief, weak circulation, dense old growth, and change so gradual that damage and repair are often the same process. A fracture admits water; water carries sediment; sediment supports growth; growth binds the fracture. The made environment and the ecology within it have ceased to be separable.
+
+In the deepest darkness, a tile loses another almost immeasurable fraction of its edge. A root crosses a joint that has been open for millennia. A spore detaches, drifts a short distance, and settles on a surface already crowded with predecessors.
+
+For the Low Cistern, this is activity. For a very long time, nothing else needs to happen.

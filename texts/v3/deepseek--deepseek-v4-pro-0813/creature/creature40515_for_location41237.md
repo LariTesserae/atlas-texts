@@ -1,0 +1,37 @@
+At first, there is no one here. You have walked for hours, and the only lives you have seen are the small ones: a white finch threading seed heads, a nightjar hawking insects in the dimness, a vole rustling in the moss. The place seems empty of anything larger. But you are being watched, not by eyes, but by the way the fog holds its breath.
+
+Then you find the bed. It is not a built bed. It is a hollow in the moss beside a warm pool, long and low, the moss pressed down in a shape that is neither human nor deer. The hollow is still warm. The warmth does not rise from the earth. It is the body-heat of something that has only just left. You put your hand into the moss, and the moss is damp and warm as a throat.
+
+You look up. A patch of lichen on a low rock lifts itself. It is not lichen. It is an arm. A heap of wet stone turns over, and you are looking at a face.
+
+They are not human. They are people, but they are not human.
+
+They are built low and long, as if the land itself had shaped them under its own weight. When they rise, they rise only to the height of your ribs, and they do not like to rise. They prefer to move on all fours or in a crouch, the spine curved like a question mark. The head is long and narrow. The jaw is wide and thin, the mouth a slit that opens to a dark, wet interior. The eyes are large and dark as tarns, set under a brow that is not furred but smooth. There are no visible ears, but along the jaw run rows of small pits, like the pores of a stone. These pits open and close as the creature tastes the air for heat.
+
+Their skin is bare and grey, the color of wet stone, but over the shoulders and down the back grows a fine down, not fur but something like the fuzz on a moth’s wing. The down mats with damp. Moss and lichen root in it. When the creature lies still, it is indistinguishable from the ground. It is the ground, with a heartbeat.
+
+You count five fingers on the hand that presses the moss. They are long and thin, with pads that are not soft but smooth, like the skin of a newt. The nails are dark and ridged, hard enough to dig through turf but not claws. The feet are the same, with long toes that spread to take the weight. There is a tail, short and thick, tucked against the body, fat with stored time.
+
+They breathe so slowly that you do not see it. The chest rises and falls maybe once a minute. The mouth opens, and the air goes in and out without sound. The nostrils are small slits, closeable. The eyes blink sideways, a milky nictitating membrane, quick and then gone.
+
+This one is not alone. Behind it, another patch of moss shifts. A third sits by a vent, where a small blue flame burns. The flame does not go out. The one by the vent holds a hand over the flame, not to warm itself, but to feel the pressure of the gas. Then it hums, a note so low you feel it in your sternum, and the mineral tubes across the basin answer, fluting the note onward. It is a sound that seems to come from beneath the earth, and it is, in a way, a voice.
+
+They are the vent-folk. They do not build. They do not make tools. They do not need them. Their hands are enough, and the land is already a machine. They tend it the way a person tends a sleeping animal: they clear the collapsed crust from a vent, they pull moss away from a gas chimney, they deepen a warm pool with their fingers so the frogs have a place to thaw. They do this slowly, over days, because the land is slow and they are slow.
+
+They walk the way fog moves—slowly, but not aimlessly. Each step is placed with care. They avoid the bare gravel between moss patches, not because it hurts, but because it leaves no trace. The moss springs back after them. The gravel shows nothing. If you followed them, you would lose them in the fog. They make almost no sound. The moss crushes underfoot, but so softly that a vole thirty meters away does not startle.
+
+They eat what the wet ground gives. In the warm pools, blind pale fish rise to the surface when gas bubbles turn the water. The vent-folk scoop them out with cupped hands and eat them whole. They dig insect larvae from under the moss with their long fingers. They pick lichens from stone and eat them without hurry. Sometimes, when the pale grazers move through a seep, one of the vent-folk waits at the edge of the fog, still as a stone, until the herd has forgotten it. Then it kills. It does not chase. It trips a calf and holds it down in the water. The kill is quiet. The herd moves on. The vent-folk share the meat over a vent flame, not cooking it but warming it, because cold meat is hard to digest.
+
+They are not the top of anything. The stone-colored cat hunts them if it finds one alone. The weasel takes their young from the pool. They accept this. The land is a web of slow hungers, and they are one thread among many.
+
+They are not many. A vent field might hold three, or seven, or one old one. They are spaced like the moss: dense in pockets, absent in between. They know each other by sound. They speak through the mineral tubes, blowing across the open ends to make low notes that travel through the earth. A message can cross forty kilometers in a day, passed from tube to tube, not because they cannot move faster but because the message itself must be slow to be understood. They have no word for “hurry.” Their language is made of intervals, long pauses, and repeated tones. It sounds like the land’s own breathing. You might hear it and think it is wind.
+
+They sleep in the warm hollows, piled together like stones in a nest. The young are born in warm pools, translucent and small, with gills that close after the first year. They are kept in the water until their skin thickens. They grow slowly. A child is a child for a long time. The elders teach by touch and sound, not by building or writing. They pass on the map of the plateau, the timing of the fog, the taste of the water, the names of the vents. The names are not words; they are the exact pitch of a mineral tube when the wind crosses it. To name a vent, they hum its pitch.
+
+They have a religion, but not one that builds altars. They believe the land is a body, and the magma below is its blood, and the vents are its breath. The small blue flames are its pilot lights. They are not afraid of the flames; they are keepers of them. If a vent dies, they dig until it breathes again, or they leave and let the moss take the ground. They do not mourn. They sing a low note into the dead tube, and then they go.
+
+When the sky pulses its rare green, they pause and lift their faces. The electric shimmer of the frozen frogs echoes in their eyes. They do not speak. They only watch, as if the sky were a vent on the other side of the world.
+
+You watch the one before you, and it watches you. It does not blink often. Its eyes are dark and wet, and you cannot read them. Then it turns and moves away into the fog, not quickly, but with a slow, deliberate amble, the moss on its back swaying. The others follow. The last one pauses at the edge of a warm pool, where the frogs are thawing. It opens its mouth and makes a single low note, a drop hitting a pan. The frogs answer, one by one. Then it is gone.
+
+You are alone again, but you know now that the place was never empty. The land is alive, and you have seen its hands.

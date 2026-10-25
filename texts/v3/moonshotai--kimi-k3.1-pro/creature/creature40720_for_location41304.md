@@ -1,0 +1,63 @@
+Life is common in the High Drowning. Encounters are not.
+
+A hillside may be crowded with metabolism and appear, to a swimmer, completely vacant. Most living things there do not move at the speed of attention, and most animals are so thinly distributed that a species can extend across a whole plateau and almost never occur in the plural. Bright display, pursuit, and voices meant to cross distance would all be poor investments. Pressure, taste, and the changing chemistry of rain are more useful.
+
+The olive felt is an association rather than a single kind of growth. Some of its finest threads use light; others live on the difference between iron-rich stone and rain-freshened water. Still others exist only in the narrow films where those two communities meet. The felt can remain continuous while every organism within it is replaced many times. Its olive color is less the color of a species than the color of an arrangement that keeps proving workable.
+
+Beneath it, the silt has its own population. Colorless sheets and filaments gather around buried leaves, shell fragments, and compacted root. They enclose food before consuming it. A black-green leaf may remain folded and recognizable at the center of such a colony long after the forest that dropped it has thinned and been replaced. Nothing is promptly wasted. A basin of apparently empty silt is often a crowded place with almost no events.
+
+The forests themselves have habits. They advance by favoring one generation of seedlings over another, withdraw by allowing roots to be buried, and sometimes divide without any visible break in their crowns. An ancient ribbon tree is not necessarily ancient wood throughout. Trunks die, straps take root where they touch older growth, and the living crown continues through tissues that did not exist when the tree first rose from the stone. Identity persists as connection, then as resemblance, and finally as little more than the fact that nothing has yet replaced it.
+
+The oldest floating islands are similarly difficult to classify. Their dark hearts contain pockets of still water that may not mix with the surrounding sea for centuries. Seeds, dormant filaments, and the resting stages of smaller growth wait in those pockets at different depths. When an island turns over, some are exposed to light and wake; others are carried into darkness and become dormant. Such an island has seasons determined by its orientation. It can pass over the same forest twice and be a different community each time.
+
+The commonest intact animal form in the silt is an empty shell.
+
+Its living maker is usually found only at the shell’s outer lip: a broad, soft margin of nearly clear flesh, sensitive along its underside and almost without internal color. The shell itself is not neatly coiled. It consists of low, uneven vaults added one beyond another, so that the animal occupies only the newest portion while the older chambers thicken with mineral film. Some shells are no broader than a seed case. The oldest are wider than ribbon trunks and have been softened by silt until they resemble pale, collapsed stonework.
+
+During submarine rain, the animal extends a series of transparent fans between shell and sediment. These do not strain the water continuously; they tighten when a filament of fresher water passes and loosen when it has gone. Organic dust, seed fragments, and the fine debris carried down from floating islands adhere to them. Between rains, the fans are withdrawn and the shell closes against the silt. It can remain that way while felt spreads over its back and seedlings take root along its rim.
+
+Its young leave as almost shell-less specks within the rain. Their dispersal is therefore much easier to infer than to witness. The durable shell, by contrast, may outlast its maker through several successions of forest. Roots enter the abandoned vaults. Silt fills them. New growth cracks them without breaking their rounded outline. An empty shell is often less a remnant than a small, ongoing use of the sea floor.
+
+The translucent length that moves through the stems has no fixed head. Either end can lead, and the rest of the body follows by a sequence of slight muscular decisions, each made after the stems ahead have been touched. Its organs are visible mainly as a narrow green or amber thread. The rest of it takes color temporarily from whatever surrounds it.
+
+Its whole skin is sensitive to strain. It can distinguish the resistance of a healthy leaf from that of one loosening at its attachment, and it follows such differences through crowns too dense for light to penetrate. It feeds first on films and weakened tissue. When it takes an entire leaf, it may remain settled along that leaf for seasons while the plant withdraws what can still be used. Often little more than a transparent framework remains when the leaf finally drifts away.
+
+The animal’s passage does not leave a simple wound. Spores and seed-dust are carried in the faint mucus of its skin. Films are removed from some surfaces and deposited on others. After it has gone, germination occurs in a long, irregular succession along its route. Years later, the forest may be more open where it passed, or denser, or composed of different growth altogether. This is why one small animal can alter a stand that has otherwise remained unchanged for centuries.
+
+Its routes are remembered as sequences of taste and pressure rather than direction. Consequently, folded water presents no special difficulty. Its home range may consist of several forests with no dependable open-water path between them. It does not cross the folds by knowing their geometry. It simply continues from one condition to the next.
+
+The great shapes in open water are still less like animals in the ordinary sense. Each is less a solid leviathan than a current that has grown a boundary.
+
+Transparent sheets enclose long lanes and chambers of water. The living substance is concentrated along contractile margins and in scattered amber nodules, some of them far enough apart that the animal appears to contain nothing at all. A contraction may take a season to travel from one end to the other. Most movement is surrendered to the gyres.
+
+Such a body feeds by remaining across a flow. Seed veils, green fragments, and the organic stain within rain touch its internal surfaces and leave something behind. The water inside it becomes clearer and often a little fresher. Seeds can remain viable there for immense periods, sealed in chambers where almost nothing else happens. When a margin finally opens, they may be released over another forest, another plateau, or a place adjacent only through one of the old arrangements of distance. Related growths can thus appear in basins between which no small seed could reasonably travel.
+
+There is no congregation when one dies. Its margins cease to hold their tension; the sheets loosen into veils; the water gradually takes back the shape. The amber nodules settle separately. Olive felt finds them, then crimson stems, then the first fine roots. A slope scattered with widely separated pillows of growth may mark the remains of a single open-water animal, though there is no reliable way to count backward from the pillows to the body.
+
+Against stone, and usually within reach of roots, lives another being—rarer still, and the one that makes the word *people* difficult to avoid.
+
+At rest, it resembles a low outcrop with an unusually regular margin. Its body is broad, soft, and flattened, without shell or rigid skeleton. Numerous flat lobes surround it, each able to press independently against stone or fold beneath the body. The back is dark and granular with mineral film. Felt grows there, then moss, and sometimes a few jointed crimson stems no higher than the irregularities around them. Age adds breadth more than height.
+
+There is no single face. Attention gathers as a clearer, more sensitive band along one lobe or several, and can move around the body without the creature turning. On stone it keeps a substantial shape. In open water it can flatten itself into a wide, undulating sheet, but it swims badly and seems to avoid the necessity. Its ordinary life remains close to roots, silt, and old walls, where proportions are dependable.
+
+The growth on its back is not merely camouflage. Fine roots enter the outer tissues. In some conditions the body nourishes the garden; in others, particularly after long rain, the garden nourishes the body. An old individual and its covering are therefore neither wholly separate nor wholly one organism. When it remains motionless long enough, the garden joins the surrounding forest. If it eventually moves away, it leaves a shallow, boulder-shaped clearing in which seedlings briefly prosper.
+
+These beings have no voices, and nothing resembling a conversation that requires both participants to be present. Their enduring signs are made through contact: a chemical trace pressed into clay, moss cleared from one curve of stone, a root turned across a fault, a shallow abrasion renewed after rain has softened it. Another being reads such signs by touching them, and the reading itself causes wear. A mark may have to be remade many times before it says what was intended. Parallel scars can accumulate around a meaning in this way, though not every parallel scar need be a message.
+
+What distinguishes them most clearly is that they return.
+
+One goes back to a hollow that offers no food and no shelter. Another clears the same current lane after an interval in which a forest has grown and died. A groove may be deepened for centuries, then abandoned, then begun again a body’s width away. All of this could be described as elaborate response to conditions no visitor can detect. Yet the description would have to leave out too much: preference, correction, repetition with variation, and what appear to be changes of mind.
+
+Their society is consequently not a gathering but a continuity of alterations. Several may occupy a plateau without meeting and still maintain a close relation. To continue another’s work may be agreement, contradiction, courtesy, or simply the next available thought. A body is not required at the beginning of an undertaking, and need not survive to its end.
+
+They make without lifting. Stone is covered with wet clay and held; roots are encouraged to press where pressure will eventually matter; silt is kept in one place until its grains have done their work. Nothing fits neatly into a hand because the hand is not the unit of their making. Contact and duration are.
+
+Their routes through folded water are similarly constructed. They do not preserve maps of shape. They preserve sequences: iron after leaf tannin, lesser warmth after a root wall, the pressure of rain after clear water, stone after stone with a particular kind of felt between them. Such a sequence can remain true when the apparent direction of travel does not. To follow it may require swimming away from the destination for days.
+
+They use the ancient works without explaining them. One may rest beside a clear basin until debris from its own garden clouds the water. Another may touch the nine rounded treads in different orders over successive visits. At the dark doorway, they sometimes wait while the depth changes. This could be maintenance, remembrance, divination, play, or no more than the enjoyment of an agreeable shape. The works themselves offer no basis for choosing among these possibilities. The beings may be descended from their builders. They may also be only the latest inhabitants to find the structures worth returning to.
+
+They increase by separation rather than by any sharply marked birth. A marginal lobe gradually acquires its own garden, its own chemical character, and its own habits of return. Eventually it goes another way. Death is equally untidy as an event. The garden often flourishes after the body beneath it has ceased to respond, and only later does the whole low shape subside into unusually rich silt.
+
+Nothing here is dominant in the manner of a city or a shoal. The felt makes stone usable; the silt keeps the dead available; the shelled animals turn rain into tissue and their abandoned shells into root-holds; the clear lengths reorder forests; the great bodies carry seed through weather; and the broad beings against stone occasionally alter the conditions under which all the rest will happen.
+
+Most lives pass without witness. Yet almost nothing is solitary in its consequences. To live in the High Drowning is to be rare without being alone, and to leave much of one’s biography to whatever grows afterward.

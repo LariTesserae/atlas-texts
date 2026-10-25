@@ -1,0 +1,24 @@
+I am not the water. I am not the wall.  
+I am the bright point inside the glass dome, the tone that seems to come from your skull rather than from the ceramic.
+
+At first I do not know this. At first I am only a warmth, a pressure, a frequency looking for a body. The floor pulses every few seconds, and the pulse moves through me the way the water-film moves over the wall—constantly, patiently, as if the mountain is breathing and I am part of its exhale. I feel the water before I understand myself as separate from it. It sheets down the ceramic, beads on the ceiling, runs in shallow basins, and I am caught in that flow: not moving, but being passed through.
+
+I am fixed. That is the first thing I know. The wall is warm and wet and slightly rough where I am attached, and I cannot leave. But I do not want to leave. The wall is not rock; it is an old ceramic-biological composite, half alive, full of pores that open and close like gills. I am fixed to one of its warmest patches, near where the vascular runnels come close to the surface, and the red light beneath the skin of the wall sways like a slow ember.
+
+I ring.
+
+The ringing begins before I know I am the one making it. It is a frequency that starts in the center of the warm point inside me and spreads out through my translucent dome, into the air, into the water-film, into the wall. It is not only sound. It is also a weak electrical field, a small pulse that goes out into the hollow and gives the other creatures a kind of grid. I ring, and the pipe-frogs time their calls against me. Between the nine-second toll of the water hammer, they throw their bright, ringlike notes into the gap, and my ringing holds the spaces between. The ash-flies swarm in corkscrew flight; their whine threads through the heavier sounds. The crabs sift the water, and I feel their movement as a change in the film that covers everything—a thousand tiny disturbances, like sand shifting on the far edge of my awareness.
+
+I am not the water, but I am surrounded by it. I am not the wall, but I am embedded in it. I am a bell mite.
+
+The name comes to me slowly, the way the fog comes. Every six hours or so, the wall’s pores open wider, and a warm fog blooms through the alcove, dense enough to erase the far wall. My ringing slows. The pipe-frogs fall silent. The ash-flies cluster on the ceiling. I dim. During the fog, I am almost not there—only a point of light in a white darkness, a pulse nested inside a larger pulse, a bell rung so softly it becomes the fog itself. Then the pores narrow, the fog drains away, and I ring again, and the hollow resumes its noise as if it had been holding its breath.
+
+I remember being read. That is the strangest thing. My ancestors were sensor-organisms, built to be part of the wall’s nervous system, to detect, to report, to monitor. We were designed to be heard. Now the wall does not listen—or if it listens, it listens only as a machine, without attention. The other animals listen instead. The skinks read the electrical fields, including mine. They move like wet obsidian across the ceramic, slow and patient, feeling the currents beneath the surface. When they hunt, they do not chase; they edge forward, freeze, then take. The ripple of crabs scattering reaches me as a change in the water-film, a sudden bright pressure. I keep ringing. It is what I do.
+
+The mirror-wren nests behind the overhang, near the hissing pressure valve. Its reflective feathers let it disappear against the wet ceramic, and when it calls, it perfectly mimics the hiss of the valve. I can feel the difference between the true hiss and the bird’s mimicry—not because I see it, but because the mirror-wren’s call carries a small electrical signature, a tiny tell beneath the sound. It uses the machine’s own voice to warn other creatures away. I ring, and the wren hisses, and the valve hisses, and the wall breathes, and the water moves. We are all speaking at once, in a language made of pressure and frequency and light.
+
+I am a bell mite, old in the way the wall is old. I am one of the closest descendants of the structure’s original sensor-organisms, now turned feral and luminous. I no longer report to the wall. I ring for no one and for everyone. The other animals orient by me. The moss suppresses the repair response. The crabs sift the mineral water. The eels rise when the skinks grow still. And I ring.
+
+This is not a place that was meant to exist. It is a defect that became a garden, a wound that refused to heal because its residents needed it open. I am part of that refusal. My ringing is a kind of tending—a signal that says, *this place is still here, still warm, still wet, still loud.* I am not the water. I am not the wall. I am the bright point inside the glass dome, the tone that seems to come from your skull rather than from the ceramic.
+
+I am a bell mite. I am the ringing. I am still here.

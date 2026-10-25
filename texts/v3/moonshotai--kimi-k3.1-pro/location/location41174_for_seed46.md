@@ -1,0 +1,35 @@
+## The Unfinished Orchard
+
+Near the top of a mountain still in the act of rising, there is a cleft just wide enough to enter sideways. The mountain has no weathered silhouette. Its ridges are splintered and exact, its cliffs terminate in fresh crystalline faces, and its ledges have not yet collected the softened debris of age. There is no scree below them, no rounded gravel, no soil carried down from somewhere higher. Erosion has not discovered a method here. Even the summit is provisional: over long ages, new mineral matter accumulates along its fractures, lifting the whole mass by increments too small to witness.
+
+The cleft opens into a cavity no larger than a small room. It is easy to miss from a few paces away, and from farther off the mountain appears entirely solid. There is no horizon inside, no expanse, and almost no sky—only a narrow blue-white seam above the entrance. Ordinary daylight enters through it. It is neither colored nor dimmed by anything miraculous. For part of each day it falls directly onto the floor, making hard shadows and revealing the commonplace grain of the stone.
+
+The heat is the first violation of expectation. Outside, the altitude leaves the air thin and sharp; inside, the cavity is as hot as the space beside a kiln. Nothing burns. The warmth comes from rock still completing its crystallization and from slow reactions in the living seams below. It presses evenly against the skin. The air barely moves, and when it does, it carries smells of hot ceramic, crushed green stems, warm metal, and a faint resinous sweetness.
+
+There is no water. None has ever condensed on the walls, lain in the fractures, or risen as vapor through the stone. The floor is a single dry sheet of pale mineral salt, smoky glass, and metallic crystal, uninterrupted by mud or dampness. Even the vegetation is independent of water. Its tissues are organized around heat-stable oils, mineral gels, and stored electrical charge. A broken stem releases a clear, viscous fluid that shines briefly in the sun and then skins over without evaporating.
+
+Most of the cavity is empty. Three groves stand well apart, with broad intervals of bare floor between them, but within each grove the growth is lavish. Black, braided trunks rise through thickets of fan-shaped leaves. Some leaves are deep green and flexible; others are bronze-edged, translucent, or covered in overlapping scales so fine they resemble fur. Beneath them, cushions of low vegetation pack every sheltered hollow. Fertile plumes lift above the canopy, their filaments slowly gathering charge until their tips shine with reflected daylight.
+
+These are not minerals merely imitating plants. They grow toward the light, close their leaves against excessive heat, repair injuries, and produce offspring. Their young begin as dense green knots no larger than grains of sand. Over decades, a knot may put down one conductive thread and open its first leaf. Nothing here needs pollination, and nothing comes to eat the foliage. There are no insects in the plumes, no burrows beneath the roots, no animals crossing the open floor. Nothing hunts, calls, hides, or startles.
+
+The groves also give the cavity its peculiar industry. Nothing was constructed—there are no laid walls, drilled channels, cables, housings, or tools—but the place nevertheless manufactures.
+
+Sunlight falling across a leaf separates charge within its tissue. The charge travels downward through the trunk and into a root-bed laced with conductive crystal. There it drives the patient separation of metals from salts. Thin deposits accumulate along natural seams; new layers of leaf and root incorporate some of the material, while the remainder becomes part of the wall. Current returns through the stone, completing a circuit that belongs neither entirely to the mountain nor entirely to the vegetation.
+
+At intervals, a seam contracts under heat and releases its stored stress as a slow pulse. Other seams answer hours or years later. The effect is less like an engine running than like an engine gradually discovering that its parts are related. Regularity emerges without design. Leaves from the same grove may be identical down to their smallest branching veins. Mineral layers accumulate in repeated bands. Even waste is processed: dead foliage does not rot, but pales, delaminates, and is drawn back into the root-bed over centuries, substance by substance.
+
+For long periods, the only sound is a hum at the lower edge of hearing. It seems to come from the whole room rather than any point within it. Occasionally a crystal ticks as another layer finds its place. Leaves do not rustle; there is seldom enough moving air. Their motions occur over seasons as they turn, open, or withdraw. A visitor could remain for an afternoon and conclude that nothing had happened.
+
+The deeper strangeness is that the orchard does not consistently obey sequence.
+
+On the rear wall falls the shadow of a fourth grove. It is detailed and botanically precise: braided trunks, layered fans, the thin comb of a fertile plume. It shifts with the daylight and shortens at noon. But there is no fourth grove. The floor corresponding to it is bare glass, warm and unbroken.
+
+Root-channels approach that emptiness from the other groves and stop against surfaces that have not yet opened. In one blank stretch of wall, the industrial hum is slightly stronger, although no conductive seam can be found there. Given enough time, a hairline of metal may appear precisely where the sound has been strongest. When it does, the hum sometimes ceases, as if the present has finally caught up with a process that had already begun.
+
+Nothing flickers or vanishes dramatically. The revisions are slower than growth. A patch of wall acquires grooves that appear to have guided roots for ages, though the roots have only just reached them. A young shoot casts two shadows: its own, and a paler one belonging to the shape it will have after several more cycles of growth. Cause is not absent here; it is merely still being fitted around its effects.
+
+The ordinary light makes all of this more difficult to dismiss. There are no apparitions in darkness, no lurid flares, no sense of crossing into a dream. Sunlight simply enters, illuminates what is present, and illuminates a few things that are not yet present with equal clarity.
+
+The mountain continues to rise. The three groves thicken by a leaf, a filament, a mineral layer at a time. The empty spaces between them remain broad and quiet. Nothing tends the orchard, and nothing is waiting to complete it. It is a small, hot interval of life and production inside raw stone, organizing itself with industrial patience before reality has settled what the finished place should be.
+
+On the rear wall, the shadow of the fourth grove turns almost imperceptibly toward the sun.

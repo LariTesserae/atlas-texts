@@ -1,0 +1,15 @@
+I find myself on the stone steps at low tide, the third step still streaming. The sea has just let it go. I am barefoot, because boots slip on the wet limestone, and my hands are cracked at the knuckles and smell of kelp and lime.
+
+The noise comes first. Birds packed on every ledge, water pulling through the narrows, wind singing in the old steel cable, the low thrum of the turbine from the next stack. I stand inside it as if inside weather. The birds do not fly from me. I am part of the rock to them, or part of the water.
+
+I scrape the third step. The kelp is thick and dark, full of small crustaceans that drop back into the sea. The fourth step is still underwater. I wait. The tide goes out in its own time. I work one-handed, then the other. The water is cold enough to numb a hand in a minute. The steps are steep; a slip would put me into the channel, and the current would take me through the narrows before anyone could turn a boat.
+
+The steps are old. They were cut for miners or quarrymen, not for me. The lowest are worn almost to a slope. I know each one. The first step clinks under my heel. The third has a crack that holds stale water; I pour it out to keep the moss from taking hold. The fifth is broken at the corner. The seventh is missing, and I fit a plank from the old rail track into the gap, checking it every day before I trust it. The eighth is rust-red where minerals bleed from the rock. Below that, the steps disappear into dark water.
+
+I am the one who clears the steps. The others call me Step, or the one on the stairs. The boat-runner waves and points at the waterline so I know how low the tide will fall. The cable-man lowers a bucket of fresh water or a piece of dried fish on a line. The listener writes me in her notebook: *steps kept clear, plank checked, kelp scraped.* I have seen her through the mist, a small figure on the highest ledge, recording the place. She records me too. I do not mind.
+
+At high tide the steps are gone. I retreat to the ledge where the old rail track ends in air and watch the sea take back my work. The water rises over the first step, then the second, then the third, and the kelp begins again. It will always come back. I know that. The work is not about winning. It is about keeping the crossing possible for one more day.
+
+Maybe that is who I am: not the step, not the keeper of the step, but the one who holds a small vertical path open between the water and the rock. The place asks everything to cling, climb, swim, or fly. I cling to the steps, and the steps cling to the cliff, and the cliff is slowly dissolving into the sea. It is enough.
+
+The light is silver-gray and ordinary. Rain comes, fine and dense. It runs over my hands and cleans the kelp from them. The birds rise and settle. The cable sings. The tide turns. I take up my brush and go back down while the water lets me.

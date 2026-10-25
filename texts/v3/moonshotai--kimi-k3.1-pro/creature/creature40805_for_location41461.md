@@ -1,0 +1,51 @@
+## Life in the Standing Works
+
+Nothing lives in the Standing Works as an operator lives in a factory. There are no keepers within the drums, no settlements concealed by the fins, no intelligence issuing instructions through the currents. The outcrops would continue without witnesses.
+
+Life persists at their edges.
+
+It appears where the Works create a small, repeated difference: between wet stone and dry, between one conducting seam and another, between compression and release. These differences are never allowed to grow, but before they vanish something living may use them.
+
+The seepbacks remain the most visible inhabitants. At rest, one is easily mistaken for a scale of mineral crust lifted slightly at the rim. The ash-grey shell carries no growth rings and often has the same patina as the stone beneath it. Its many legs are folded so closely around the edge that they seem to be fractures. Only the long knock of a buried diaphragm distinguishes animal from outcrop. The vibration passes through the ground, the shell rises by less than a millimetre, and a wave of loosening travels around the legs. For a moment the whole creature is outlined in clear air. Then it clamps down again.
+
+The underside is the soft part. It is dark, moist, and faintly iridescent, crossed by branching conductive tissues that resemble metal foil until they contract. A seepback feeds across nearly this entire surface. Clamped at the margin of a brine lens, it bridges mineral zones of slightly different potential. A minute fraction of the local current passes through it, driving chemical changes in the salts held against its underside. The animal does not eat electricity, exactly, and it does not dissolve the pavement for food. It lives on the chemical products of a current that would be flowing whether it were there or not.
+
+Its feeding leaves the brine effectively unchanged. What is reduced in one tiny chamber is oxidized in another; what the tissues take up is later returned. Even the animal’s warmth is difficult to distinguish from the warmth of the seep.
+
+Seepbacks can walk, although their walking seldom resembles travel. A leg releases, tests the adjacent surface, and takes hold before another moves. On dry silica they are clumsy and quickly become still. Along a damp seam they move with greater assurance, following neither moisture nor salinity alone but the narrow combination of both that permits their underside to function. They have no obvious eyes. Vibration and electrical potential produce their strongest responses. A change in light does not interest them, and the unchanging light offers them no clock.
+
+Their clocks are local. Near a small outcrop, a seepback may adjust its grip at every sharp contact-tick. Near one of the great groups, its activity follows the slower diaphragm beat instead. Rest and movement are not divided into anything like day and night. They are phases of the hum.
+
+Most seepbacks spend their lives beyond the reach of another animal’s senses. They have no call, no display, and no apparent need to defend a feeding place. On the rare occasions when two occupy the same lens, they settle far enough apart that their conductive undersides do not touch. Nothing recognisable as courtship follows. Nor are there territorial contests, cooperative movements, or lasting pairs. They are not social animals made solitary by scarcity. Society simply does not seem to be one of their possibilities.
+
+No small seepbacks have been found. There are no eggs in the brine, no soft newly formed shells, no moulted coverings caught beneath an overhang. All observed individuals are approximately adult in size, though not identical in proportion. Their shells repair themselves by slow exchange with the seep, and their soft tissues continually replace their own material without producing growth. Whether individuals are extraordinarily persistent or are replaced by some process that has never been witnessed remains unresolved. A dead shell would not clarify the matter for long. Without the living underside to regulate its chemistry, it would go back into solution at the same margin from which its minerals came.
+
+The visibly bare stone around a lens is not necessarily sterile. Some of the wet margins carry transparent films, generally only a few cells thick. They have no colour because they do not use light and can spare nothing for pigment. They form no felt, crust, or slippery margin. Under magnification they appear as flattened cells and short, irregular chains lying within the water itself rather than on the stone.
+
+These films live on differences in the chemical state of iron, sulfur, and other dissolved materials. The Works continually renew those differences; the films continually use them. It is tempting to say that they eat the brine, but the bulk composition of the brine remains steady. More precisely, they eat the brief inequality between one part of a cycle and another.
+
+There are no blooms. A film does not spread onto the dry pavement or thicken into a mat. Excess material loses its organisation and dissolves, while damaged portions are replaced. The quantity of living matter remains so small that removing it would not visibly clean the stone.
+
+The permanent drizzle hollows are not richer oases. The rain itself is nearly sterile, having passed through a local cycle of evaporation and condensation that carries very little with it. Where it falls on unsuitable silica, nothing lives at all. Where it strikes brine above a conductive seam, clear films may occupy the zone of repeated mixing. To them, the rain is not weather and certainly not an occasion. Nothing emerges because it is raining. Nothing reproduces after rain. The rain has simply always been one of the conditions under which their chemistry proceeds.
+
+A second, less accessible kind of life occurs within some active outcrops. In the capillary spaces between crystal sheets are colourless colonies usually called vein threads. They are not fungal growths, despite their branching appearance; the branches follow stress fractures rather than seeking food. Individual cells are elongated and enclosed in extraordinarily thin mineral sheaths shot through with conductive tissue.
+
+When an electromechanical sheet flexes, the threads flex with it. The movement produces small potentials across their sheaths, enough to pump ions and support a very slow metabolism. Immediately after a heavy slab enters resonance, an inhabited seam may contract by a distance too slight to move its surfaces visibly. This response is always too late to cause the resonance and too weak to regulate it. The threads are passengers in the motion, not its source.
+
+They can occupy outcrops that appear completely dry. Their water is held in spaces far narrower than the damp films visible on exposed seams. They require no open pool, no rainfall, and no contact with seepbacks. Some appear to spend long periods dormant between mechanical phases, becoming chemically active only while the stone is actually deforming.
+
+Taken together, these inhabitants do not form a food web so much as several separate connections to the same nonliving circulation. The seepbacks are not important grazers of the films. Nothing hunts them. Nothing burrows through the pavements in search of the vein threads. There is too little biomass for predation to be a dependable way of life, and no need for it when energy can be taken directly from contact, stress, and resonance.
+
+This also explains the absence of animal evidence. There are no grazing trails because there is nothing on the pavements to graze. There are no nests because no observed animal raises young. There are no shell heaps because shell material returns to solution. There are no accumulations of waste rich enough to darken a hollow. Life does not build a second landscape over the mineral one.
+
+Nor do the inhabitants appear to accumulate experience in any straightforward way. A seepback responds to injury, obstruction, or a change in contact, but repeated disturbances produce no clear evidence of lasting learning. Its behaviour remains fitted to the local cycle rather than to a personal past. It can be active or inactive, damaged or repaired, misplaced or restored. These are states, not stages. Nothing about it suggests youth, maturity, decline, or an approaching end.
+
+If one is lifted from a lens and set down again, the local ticking continues without alteration. For a few beats the animal may adjust at the wrong moments, lifting its shell after the vibration rather than with it. Then its movements close around the rhythm once more. That brief awkwardness is among the clearest signs that it is a separate living thing and not merely another compliant piece of the outcrop.
+
+It is possible to call the entire Standing Works alive. It has circulation, self-repair, stable organisation, and a continuous throughput of energy. But the word explains little. The Works show no variation, no exploration of another possible state, and no response beyond restoration. Their rhythms carry no detectable messages. The smaller inhabitants are more recognisably alive precisely because they can be slightly out of phase, because they can be removed without stopping the hum, and because their persistence serves no visible mineral function.
+
+They do not maintain the Works. The films do not regulate its currents, the vein threads do not tune its slabs, and the seepbacks do not clean its contacts. If every living thing vanished, the basin would remain just as loud.
+
+At the edge of a brine lens, a seepback settles its shell against the stone. Somewhere below, the diaphragm knocks. Its legs release in sequence; transparent cells take up and release their ions; within a dark fin, a thread contracts. For an instant, living cycles coincide with mineral ones.
+
+Then the starting state returns. Nothing has been built, bred, learned, or completed. But beneath the ash-grey shell there is still soft tissue, and the next vibration still passes through something capable of responding. In the Standing Works, that continuing softness is almost the only evidence that anything lives there at all.

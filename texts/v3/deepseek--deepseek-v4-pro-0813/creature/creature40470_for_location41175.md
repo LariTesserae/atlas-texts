@@ -1,0 +1,23 @@
+You would think it was empty. The brine is too cold, too mineral-thick, too saturated with plant chemistry for animals. A fish would die before it could twitch. No worm troubles the silt. No midge drifts at the surface. But the valley is not empty. It is inhabited.
+
+The inhabitants are rooted.
+
+The chime-reeds are the most numerous. They grow in the old leats and channels, tall hollow stalks armored with calcium and silica. The current plays them. Each reed is a pipe, and as it thickens its note lowers. A young stand is a scatter of flutes; an old stand is an organ chord. They lean into the flow, their open ends aligned so the water passes over them in the way that makes them sing. In the Narrows, they grow so dense that the water itself seems to tremble, and the sound travels for kilometers. They are the choir’s upper voices.
+
+The anchor-trees are the lower ones. They stand on the ridge flanks, alone or in loose stands. They are not wood; they are pale cartilage and sponge, their branches netted like drowned oaks. They bend in the current and creak, a low groaning that carries through the brine. Their roots go down to the mineral seeps, and they drink slowly, for years, for centuries. They are the listeners, or the strings. They do not sing the melody; they hold it in place.
+
+The glow-moss is the light. It spreads over the terraces and the rims of the sinkholes, thick and spongy. It pulses. Not randomly: a colony brightens, then another, then another, in a wave that travels across the valley like a slow thought. It is blue-green, a light that has never been seen by an eye. If the Drowned Choir has a mind, it is this: a web of light moving over the stone, keeping time.
+
+The bladderweed are the breath. They are translucent globes, helmet-sized or smaller, clustered around the anchor-tree roots and in the open silt. They fill with methane and other gases. When they can hold no more, they burst, and the sound is like a distant wood block. In chains they pop, one after another, and the water fills with bubbles. They are the percussion.
+
+There are other, smaller lives: bacterial mats that stain the brine with rust and sulfur, fungal threads that bind the sediment, films that turn dead plants into new growth. They are the quietest inhabitants, but they are everywhere.
+
+And there is something else. It is not a separate being. It is the valley itself, the pattern made by all of them together. The reeds are planted or self-sown in spirals that follow the old field divisions. The standing stones with their cup marks stand among them. The leats that once carried snowmelt now carry the deep current, and they hum. The current shifts, the note bends. Sometimes a phrase repeats for minutes, as if the valley is remembering a song.
+
+The human builders are gone. Their drystone terraces and corbelled huts are still there, but the plants have grown into them. A doorway turned away from the current is now drifted with silt and moss. A clay pot holds not grain but filtered silica. A stone axe rests on a wall, its wooden handle blackened and intact, and a bladderweed grows around it. The people left; the plants stayed, or arrived, or were already there, and they have made the ruins their own.
+
+There are no animals. That absence is not a hole. It is a condition that shapes every life here. Nothing hunts. Nothing flees. Nothing mates. The only hunger is for minerals and heat and gas. Death is not a violence; it is a settling. The dead plants fall into the silt and feed the next growth. The valley is an ecology without prey, without predator, without fear.
+
+If you hung above a drowned terrace and looked north, you would see the valley open out: pale silt, a line of standing stones vanishing into dark water, a far ridge lit by slow waves of blue-green moss. You would hear the sound all around you—low, continuous, almost too loud to notice after a while. You would feel the absence of animals, but it would not feel empty. It would feel full. The plants would be breathing, ringing, glowing, growing in the dark.
+
+The one who lives there is not one. It is many. It is the rooted and the hollow and the glowing and the gas-filled. It is the memory of the mountain, the sound of the leats, the light on the terraces, the slow exhalation of the deep. It is the Drowned Choir. It has no face and no voice but the one the water makes through it. It is not waiting for anyone. It is singing to itself, in the dark, and it has been singing for a long time.

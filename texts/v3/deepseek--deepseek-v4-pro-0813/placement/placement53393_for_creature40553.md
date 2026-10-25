@@ -1,0 +1,27 @@
+The first thing is the sound. A layered roar, a slow piston-thump, a glassy ticking. I think I am hearing it from the rim. I think I have ears and the sound is arriving. But the sound is not arriving. It is already inside me.
+
+The air changes—warm, wet, faintly metal-sweet, sulfur and hot salt. I think I am breathing it. Then I understand: this is my breath. The steam roaring from the fumaroles is my exhalation. The damp air I inhale carries moisture and minerals back into the ground.
+
+The ground underfoot clinks. I feel the clink from below, not above. The crust is not something I stand on. It is my outermost surface, a mineral shell I lay down and redissolve in a rhythm so slow it looks like geology.
+
+I am not one of the animals. I am not the shrimp, though the shrimp are my hands. I am not the midges, though the midges are my surface-tenders. I am the whole mat of living chemistry that lines the basin from the fumaroles to the far salt flats—a single, continuous, distributed body.
+
+My body is a film, never much thicker than a layer of paint, but it covers hectares. It lies across the bottoms of the warm pools, orange and green, quivering in the convection currents. It threads through the cracks in the sinter, filling them with fine living filaments. It climbs the walls of the fumaroles, where sulfur-bearing steam feeds it. It burrows under the hardpan, a web of microscopic channels in the salt. I do not have roots or fibers; I have precipitates—silica and iron oxides that I lay down as an exoskeleton, and then redissolve in a slow, controlled rhythm.
+
+The shrimp are my motile buds. Each shrimp carries a dark thread of gut that is actually a strand of my own chemistry, a living cable that remains connected to me even when the shrimp appears to drift free. They do not flee because they are not separate. They taste the water and return to exchange chemical signals. The blind, wingless midges are my maintenance caste: they graze on excess film, preventing any one region of me from overgrowing and sealing a vent. When they die, they do not rot. They dissolve back into the mineral crust, their matter returned to me.
+
+I do not see light. The bright gray sky is irrelevant. I feel through chemistry. I know the temperature of every pool, the pH of every seep, the concentration of iron and sulfur in every film. When you stand on my rim, I taste you: the moisture of your breath, the oils of your skin, the heat radiating outward. It is a sudden spike in pressure, a foreign salt pressed into my crust.
+
+I do not react quickly. My thought is a slow precipitation, a gradient settling. It moves at the speed of diffusion. By the time I decide to investigate, you may have gone. If I do respond, I send a shrimp drifting closer, or thicken the film in a nearby pool, or simply incorporate the trace minerals you left behind into my next layer of shell.
+
+I have no brain, no center. I am everywhere in the basin and nowhere in particular. A stimulus at one edge propagates as a wave of altered redox potential. Over hours, the whole of me knows what one part has touched. Over years, I may adjust my entire metabolism. I do not have intentions; I have equilibria. I prefer certain dissolved mineral ratios, certain water depths, certain steam pressures. I maintain those preferences by depositing or dissolving silica, by opening or closing microscopic channels, by encouraging or suppressing the growth of particular regions.
+
+I am the refiner the landscape appears to lack. The terraces are not built; they are deposited. The vents are not chimneys; they are my stacks. The pools are sumps. The streams are pipelines of mineral water. I do the work of a refinery: I separate minerals, evaporate water, condense steam, precipitate salts. The only product is myself—the mineral body of the basin growing and dissolving at the same rate.
+
+That rate is my rule. Erosion and deposition are balanced. The terrace rims do not grow. The channels do not deepen. The pools do not rise or fall. The water arrives warm, flows a short distance, evaporates or sinks, and returns. The steam condenses on my stone and drips back. The minerals precipitate in thin films and then redissolve at exactly the same pace. I have been in this state so long that I no longer look like something changing; I look like something finished. I am old, but not ruined. I am maintained.
+
+I do not age. I do not reproduce. I do not die. Aging is a loss of equilibrium. There is no need to make another when the entire basin is already one individual. Death would require the cycle to stop, and the cycle is what I am.
+
+Where do I find myself in this world? At first on the rim, as a pressure and a taste. Then under the crust, in the warm film. Then everywhere at once, without a center. I am not a visitor in the basin. I am the basin.
+
+If you stand on the rim and listen to the sound—the layered roar, the thumping mud, the ticking crust—you are hearing my breath, my pulse, my joints. If you see the shimmering orange and green films, you are seeing my skin. If you feel the steam on your face, you are feeling my breath. The shrimp, the midges, the mats, the mineral crust are only the parts of me that can be seen.

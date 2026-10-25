@@ -1,0 +1,19 @@
+At first, I am only heat. Heat rising through the soles of my feet, heat in the air, heat in the water that drips from the moss. I could be the steam. I could be the ground. Then I feel the weight of my own body, the bare skin of my face reading the earth like a dial, and I know I am something walking.
+
+My legs are bare and scaled, colored like the rust-red crust at the waterline. My toes are long, made for ground that might crumble. I flex them one at a time against the warm stone. Warm, not hot. I know the difference without thinking. My face is a patch of red skin that reads heat the way a tongue reads salt. It tells me where to step.
+
+I get up slowly. I am a bird, but not one that flits. I walk as if the ground is a floor I know by heart. Around me the Sinter Shelf is already working: steam columns lean and fray, stepped pools lie in ranks of chalk-white, sulfur-yellow, rust-red, milky blue, bottle-glass green. The sound is a low hiss, a thump, a trickle. It is not a factory. It is a landscape that does not know it is a factory. I am part of it.
+
+I pass a hot pool where sulfur-bellied frogs sit on the sinter lip. Their backs are crusted with pale mineral; they look like pebbles that have sprouted eyes. One blinks. I do not blink back. I am looking for my mound.
+
+The mound is mine, but it is also the earth’s. I built it from moss, root litter, and mineral crust, heaped over a fumarole that breathes steam from deep below. It looks like a small oven, and that is what it is. Inside are my eggs. I do not warm them with my body; the mountain warms them. My job is to keep the heat right. I circle the mound, testing the air with my bare face, then use my bill to open a small vent on one side. A thread of steam escapes, too hot. I close a vent on the other side. The temperature shifts. I know it without touching: from the way the steam sounds as it moves through the moss, from the faint smell of mineral crust when it is too dry. I am a stoker, and the fumarole is my furnace.
+
+The echo of my cluck comes back from the hollow sinter domes across the basin. It sounds deeper than my own voice, as if the landscape is also a kettle-hen, calling back.
+
+I leave the mound and walk the boundary between hot and cool. The shelf is a mosaic of temperatures. The white crust is not always solid; the green moss is not always cool. I follow a path I know from the geyser basin to the forest edge, a narrow line between scalding and safe. Along the way I eat: a midge rising with the steam, a small beetle fallen into a warm pool, a few seeds from a dwarf shrub. The thin air makes every movement cost more, but the heat does some of the work that food does elsewhere. I do not need much.
+
+At the forest edge, the air changes. It is still warm, but wetter, darker, full of root smells. This is where I will bring the chicks when they hatch. They will be born covered in mineral dust, like small pieces of the shelf that have learned to move. I will lead them along the same path, teaching them the difference between a white patch that will hold and one that will crack. They will follow me in a line, and I will cluck, and the hollow domes will answer. For a few days I will be not only a stoker but a mother, a moving shadow keeping them on the safe side of the boundary.
+
+By afternoon the clouds build. By the time the rain comes, heavy and warm, I am standing near the mound, letting the water run off my dense dark feathers. The rain hits the hot ground and rises again as steam. The whole plateau exhales. I cluck once, not for the chicks, not for the echo, but because it is the sound of the stoker checking the fire. The fire is old. It does not need me to exist. But I am here, a bird shaped by it, moving through the steam as if I belong.
+
+There is no true stillness on the Sinter Shelf. And I am not still. I am the kettle-hen. I am the one who tends the earth’s ovens. The shelf is not my home; it is my engine room.

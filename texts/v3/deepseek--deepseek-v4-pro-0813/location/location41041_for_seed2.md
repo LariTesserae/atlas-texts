@@ -1,0 +1,23 @@
+The place is called the Underworks. It is not a drowned landscape; it was built to be under water.
+
+At the surface there are only a few black stacks and yellow buoys, the rest an endless grey, wind-chopped sea. Below, the water is the medium.
+
+You descend through ordinary daylight. At ten or fifteen metres the light is still green-grey, not abyssal, and the surface overhead is a bright, shifting ceiling. The floor below is not a seafloor. It is deck: poured concrete panels, steel grating, rubber matting, bolted plate. The seams run straight and are stenciled with numbers. There is no natural ground anywhere. The sediment that gathers in corners is not sand; it is concrete dust, rust, crushed shell, and industrial fines.
+
+The deck runs beyond sight. It is vast, continental, a made landscape. But it is not crowded. Hundreds of metres of open water separate the structures. The place is empty in the way a warehouse is empty when the lights are on and the machines are far apart. Most of any given view is water.
+
+From the deck rise pump houses, transformer platforms, sluice gates, heat exchangers, lock chambers, pipe gantries, elevator shafts. They are industrial, not futuristic: riveted steel, I-beams, heavy valve wheels, cable trays, zinc anodes, thick glass portholes, yellow lamps. Some rise only a few metres. Others rise until their tops break the surface, where gulls sometimes stand. There is no shore, no natural hill, no rock outcrop. The breakwater is a machine. The ground is a floor.
+
+The edges are new. The sea has not had time to blunt them. There is little marine crust, no thick barnacle reef, no soft rounded corners. Rust is bright orange at scratches. Paint is still sharp. The place feels recently made, or perpetually renewed, as if maintenance crews and cold water keep it from aging.
+
+Vegetation is sparse. A thin film of pale algae grows in the grooves of grating and along the lower thirds of columns. Around warm outfall pipes, short brown kelp sways, but it never forms forests. Sea lettuce clings to the undersides of floats in patches of bright green. Most surfaces are bare. The plants are like weeds in a new parking lot: present, opportunistic, but not dominant.
+
+Animals are far more abundant. The machinery releases warm water and fine organic waste, and plankton bloom in the plumes. Small silver fish—herring, smelt, young cod—move around the structures in tight schools. They scatter when a striped bass or a dogfish passes. Crabs and lobsters live in the pipe mouths. Barnacles form rough collars around columns. Mussels line the upper levels in dark bands. Sea stars lie on the concrete. Anemones open on valve wheels. Moon jellies drift through the water like pale paper. Seals pass as long shadows, and cormorants from the surface dive down with trails of bubbles. The ecology is ordinary, but busy.
+
+Sound is loud and constant. It travels through the water and seems to arrive inside your ribs. There is a low mechanical throb from turbines. Pumps clank in slow rhythms. A valve hisses. Water rushes through a sluice somewhere to the left. A repair tool bangs far away, high and sharp. The noise does not startle the fish. They have grown into it. When a pump cycles off, the silence feels like pressure for a moment, and then another starts.
+
+The water has its own climate. Warm outflow rises in slow columns. Colder water slides beneath. Where they meet, the light bends and the water turns streaky. Currents change with the pump schedule. A front of clearer water may move through, or a cloud of fine industrial sediment may roll across the deck like fog. Bubbles rise in curtains from vents. Surface storms pass as pressure changes overhead. The place is large enough to have internal weather: currents that begin and end without leaving the system.
+
+It is active. Locks fill and drain. A rail-mounted crane swings a bundle of pipe. A maintenance tram crawls along the deck. A sediment trap opens with a grumble and sucks up a grey drift. Fish move from one warm plume to another. A predator rushes the silver school; it opens and reforms. Sea stars climb the legs of a pump house. The machinery runs on cycles, and the current tells you which valves are open.
+
+Rules of the Underworks: The ground is not ground; it is a floor and it may be lifted. The water is not wild sea; it is working fluid, pumped and filtered. The lights are instructions—red closed, white open, blue safe. The animals are not intruders; they are part of the system, kept out of intakes by screens but not driven away. Nothing here is supernatural. It is only the ordinary world, built too large and left to run under the sea.

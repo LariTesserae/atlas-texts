@@ -1,0 +1,33 @@
+### What Lives in the Slow Condenser
+
+Nothing lives in the whole of the Slow Condenser. Life occupies only the itinerary of a drop: the cold bend, the underside of the return main, the basin-sized tray, the gutter, and the first fibres of the wick. Beyond that route, the chamber belongs to iron and dust. Its ecology is an archipelago of dampness, each island separated from the next by hot metal more impassable than distance.
+
+The most continuous residents are microbial, though continuity here means persistence rather than activity. In the tray’s lowest seam, and deeper in the wick where the last moisture lingers, there is a film so thin that a lamp shows little more than a darker crescent. It is not lush slime. It is a patchwork of transparent, iron-stained, intermittently living material, feeding on what the condensate carries with it: soap residue, traces of oil, paper sizing, and the small organic inventory of old machinery. Flux salts and metals make much of the water hostile; some organisms tolerate them, while others survive only in the narrow places where condensate has diluted everything.
+
+When the tray dries, the film becomes almost indistinguishable from scale. Not all of it revives. Some cells remain dormant, some wake briefly when water returns, and some die and become material for their neighbors. This is the chamber’s nearest approach to abundance: a microscopic recycling at the edge of a basin, sustained by water that never becomes deep enough to reflect a lamp.
+
+The two patches of grey-white felt belong to the same economy. Their visible surfaces are only fringes. The greater part of each growth is threaded through the shredded paper lagging, following seams of adhesive, oil, and old moisture. It decomposes its shelter almost imperceptibly. A patch may spend years without advancing far enough to be measured against a bolt head, then extend a few fine hyphae after the rare rain.
+
+The translucent filaments raised at those times may be reproductive structures, or merely living threads reaching into air that has briefly become humid. No observer has returned at the right intervals to find out. Their collapse is not quite death; the felt remains in the seam, and the deeper growth remains within the lagging. The maintenance forms call all of this *vegetation*, but the word suggests an encroachment. In fact, the fungus holds its ground precariously. It does not spread across the chamber. It persists in two small disagreements with dryness.
+
+The pale, many-legged animal is the only inhabitant that might be said to go anywhere.
+
+It has the taxonomic uncertainty of something seen by people who were looking for leaks. No one has usefully counted its legs. Sometimes it appears to be a fibre moving by capillary action, until it stops, changes direction, and tests the edge of the tray with movements too deliberate for water. Its body is small enough to pass beneath scale and into the capillary spaces of the lagging. Darkness is no obstacle to it. Heat is the fence.
+
+It probably grazes the microbial film and perhaps the softer fungal threads. It can drink at a meniscus without needing open water. When the metal warms beyond some narrow tolerance, it withdraws beneath the tray lip or into the paper, where temperature and humidity change more slowly. A journey from one side of the tray to the other may be possible only during the brief rain, or not possible at all.
+
+Years between sightings do not imply years between animals, still less one impossibly ancient individual. There may be a tiny lineage continuing in the lagging. There may be occasional arrivals on clothing, brushes, or replacement insulation, most of which leave no descendants. There may sometimes be no animal in the chamber at all. The records cannot distinguish endurance from recurrence. They record only that, on a few occasions, something pale moved where nothing was expected to move.
+
+The fragment of web proves less still. It proves that silk once existed behind the cold main. A spider might have entered on an inspector’s sleeve, found a sheltered suspension of pipes, and spun before discovering that the room offered almost nothing to catch. Its maker might yet survive in some unreachable crevice, but a web thickened with oxide dust is not sufficient evidence of an occupied dwelling. It may simply be the last trace of a visitor that could not make a living there.
+
+Human beings are not inhabitants either, though nearly every new possibility arrives with them. Their clothing carries spores, fibres, skin fragments, and occasional stowaways. A hand leaves salt and oil; exhaled moisture briefly changes the air at a cold surface; a portable lamp alters the temperature of a small crevice. For a few hours, inspection brings light, movement, and vibration. Then the hatch closes, and almost everything introduced becomes dust or dormancy.
+
+It is tempting to count the Condenser itself as the chamber’s great slow animal. It takes in heat, yields water, grows scale in its narrow passages, and seals small leaks with their own deposits. But the comparison only goes so far. The machine does not notice the life at its margins. To that life, it is not a companion but terrain and weather. A minute of warm rain may constitute a growing season. A full revolution of the central shaft may contain many microbial generations and no measurable change in the felt. The organisms do not wait patiently in any human sense. They become active when conditions permit, and otherwise approach invisibility.
+
+All of them depend on small imperfections in the system: a seam that does not quite dry, a wick that does not quite surrender its last moisture, insulation that has retreated far enough to make one bend cold. A perfectly heated, perfectly drained chamber would contain little beyond spores in the dust.
+
+When the next bead falls, the living response will be far smaller than the sound. Somewhere in the tray’s film, water will enter material that had begun to resemble scale. A few cells may resume their chemistry. The fungus may receive none of the drop at all. If the pale animal is beneath the lip, it may pause at the vibration, then touch the new dampness with whatever passes for caution in so small a body.
+
+By the time the click returns from some distant bend, the water will already have disappeared into a film, a fibre, a meniscus. Nothing will answer the machinery. The heat will close over the event.
+
+The Slow Condenser is not full of secret life. It is simply not quite empty.

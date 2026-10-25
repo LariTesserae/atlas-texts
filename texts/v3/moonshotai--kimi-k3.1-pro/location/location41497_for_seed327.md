@@ -1,0 +1,37 @@
+## The Hollow Crown
+
+Above the other summits, where even the larger birds of the valleys are seldom seen, an old mountain narrows around a place called the Hollow Crown. From below, the mountain looks like a splinter driven into the sky. At the top, however, nothing is sharp. Wind and water have rounded the dark limestone into fluted shoulders and shallow, smooth-walled basins. Tiny fossil shells sometimes show in the dry rock: this highest, airiest ledge was once a sea floor.
+
+The Crown itself is small, perhaps seventy paces across, but little of it is floor. A broken crescent of ledges surrounds a deep solution shaft, open on one side to the outer precipice. The rest is sky. On clear days the lower mountains lie beneath it like strewn gravel, and the valleys are only changes in the color of shadow. The horizon feels indecently wide for so small a piece of ground.
+
+Its emptiness is not barrenness. It is the space between things. At one end is a wet garden the size of a room. Across an interval of bare stone stands a roofless shelter. Farther around the rim, a single ancient tree grows almost horizontally from a cleft. Between these presences there may be nothing but silver rock, thin air, and the drop. One can cross the open center with a glance, yet no straight path crosses it on foot.
+
+No stream climbs here from elsewhere, and there is no deep tarn. The summit makes and keeps its own water. Cloud condenses in the cold joints of the rock; rain collects in fractures; the seep at the head of the garden releases it slowly, even after days of clear weather. The stone there is always black and slick. Water gathers in cup-shaped hollows, spreads through moss, and finally slips over the inner lip in threads too small to be called waterfalls. The updraft in the shaft tears them apart before they fall far. Their mist sometimes rises along the outside of the mountain and settles on the garden again.
+
+In the afternoon, when cloud climbs the cliffs, it can rain gently from below. Fine droplets move upward along the rim and bead the undersides of leaves, the bottoms of ledges, a visitor’s chin. A leaf dropped into the shaft may vanish, hesitate far below, and then come sailing back past one’s face. Stones do not return. Usually no one hears them land.
+
+The cool air smells of wet lime, crushed green stems, and the faint mineral sweetness of standing water. Clear mornings are simply and normally lit: pale sunlight, dark shadows, no strange radiance. Under cloud the light becomes an even silver-grey. When the sun breaks through, the colors return all at once—the rust-red stems of sedges, yellow-green moss, the waxy blue leaves of creeping shrubs.
+
+The garden’s lushness lies in thickness rather than height. Moss grows several fingers deep over old stone. Black-stemmed ferns unfold in its wettest pockets. Sedges and low, broad-leaved herbs press together around pools no wider than a hand. Hooded scarlet flowers nod on leafless stalks, their throats dusted with pale pollen. Farther from the seep, vegetation follows narrow veins of moisture and then stops abruptly. The lone tree beyond it is less than knee-high, though its trunk is thick and twisted with age. Its roots grip the outside of the rock like fingers; its small needles hold drops long after the rest of the ledge has dried.
+
+For such an empty place, the Crown is extraordinarily loud.
+
+The shaft gives the wind a low note, sometimes a breathy booming, sometimes a tone steady enough to seem intentional. Water hisses through moss and ticks into stone cups. Then there are the animals. Their abundance is concentrated in the wet surfaces and sheltered cavities, leaving the great volume of air mostly vacant.
+
+Thumb-sized seep frogs sit beneath the ferns, olive-brown with white throats. On humid evenings their calls are so large and rapid that the garden seems to contain animals the size of dogs. Their tadpoles graze the thin algal skins of the pools. Midges hatch from the same water in brief, dense columns; spiders wait under the flower stalks, and the frogs take whatever the spiders miss.
+
+Hundreds of slate-backed swifts nest in dry holes down the inner wall. For long intervals not one crosses the open sky. Then an insect hatch draws them out, and the hollow fills with scything wings and hard, excited cries. They feed meters from the rock, turning so closely together that the flock appears to be a single creature repeatedly changing its mind. Copper-colored bees work the scarlet flowers. Small furred herbivores, seldom seen whole, clip the sedges and leave bundles of stems to dry in cracks.
+
+A pair of pale raptors owns the wider air. Their arrival is usually marked by silence rather than sound: bees vanish into flowers, swifts flatten themselves against the wall, and even the frogs falter. One raptor passes through the Crown in a single quiet line. Then it is gone, the wind-note returns, and the smaller lives resume at full volume.
+
+Human marks are few and easy to miss. The shelter is a low curve of dry-laid stone with a gap away from the prevailing wind. Its walls have settled and lichen has grown across the joints; whatever roof it had is long absent. Beside the seep, a shallow channel was pecked directly into the rock with patient, primitive tools. A split length of wood once extended it toward a carved basin, though only the stone sockets for its supports remain. Along the most exposed traverse are three old peg-holes and a stain of fiber preserved inside a crack. A smooth hammerstone lies in a niche, exactly where a hand might leave it and expect to find it again.
+
+There is no road, no field, no rubbish heap, no sign that a group ever stayed for long. Whoever came here used stone, wood, cord, and their hands, and altered almost nothing. They may have come for water, feathers, eggs, or simply to reach the place. The mountain has absorbed their work more completely than it has absorbed the garden.
+
+Through a single day, the Crown can seem to pass through several kinds of weather. Morning may be clear and still, with wet pools reflecting an ordinary blue sky. By noon the first cloud touches the cliff below. Mist pours upward through the shaft; droplets gather on cold stone; the swifts become agitated along the cloud’s bright edge. The seep quickens. Later the cloud tears away, and every leaf and fossil shell gives back the sunlight in separate points. On the coldest clear nights, a film of ice skins the smallest pools, but by midmorning it has usually melted into the same measured dripping.
+
+Yet all this activity has not made the place feel young. There is little fresh scree. Fallen flakes are rounded and already held by moss. Roots open cracks while the mats bind the loosened grains into new soil. Birds carry seeds in and nutrients out; water removes lime and returns some of it as pale crust around the pools. The garden shifts, the handline rots, the shelter settles another fraction of a finger. The Crown’s essential shape endures.
+
+Nothing there is still, but almost nothing seems newly invented.
+
+And when the wind drops, the small scale of the place becomes clear again: one garden, one tree, one ruined shelter, a few wet stones around an absence. Then a frog calls, another answers, and the shaft takes their voices and deepens them. The Hollow Crown is empty in the way a bell is empty. Its hollowness is what allows it to sound.

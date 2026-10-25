@@ -1,0 +1,39 @@
+**What the Gardener Would Do**
+
+She comes to the rim of the bowl at the hour when the lamps are lit but the steam makes day and night the same. She does not descend. She has been a wise power for longer than the mineral terraces have held their shape, and she has learned that wisdom is mostly the art of not doing.
+
+She stands in the upland air where the birds still sing, and she looks down into the hollow. The town is a single body: the pumps are hearts, the water is blood, the canals are veins, the mineral crust is slow-growing bone. The people are nerves, carrying messages through iron with double taps and slow triples. The plants are lungs, breathing steam back into the air. The absence of animals is not a wound; it is a held note, a silence that belongs to the chord.
+
+She thinks of the ways she could help. She could part the mist and let the sun fall on the boardwalks. But the mist is the skin of the place; to part it would be to open a chest. She could call the birds back, the frogs, the midges over the pools. But the ring rejects animal life, not as a cruelty but as a boundary. The place has chosen, or been chosen, to have no animal heart but its own composite one. To force a single live moth inside would be to introduce a wrong frequency.
+
+She could heal the pale crust on the pumpmaster’s arm, the scale behind the old weir-keeper’s ear. But that crust is the beginning of their belonging to the terraces, the first page of the stone book they will join when they die. The people do not fear it. They call it the place signing its name on them. To scrape it away would be to take their signature.
+
+She could stop the pumps and give the people silence and rest. But the pumps are the place’s pulse. Under the deep rotary thud, the people sleep like swimmers in a warm current. If the pumps stopped, the mineral would grow over the walkways, the hot pools would rise, and the town would become a garden without a gardener. That would not be mercy. It would be murder of a slow, patient kind.
+
+So she does none of these things. She descends the rim path, not as a shadow, but as a pressure, a slight shift in the air that the steam accepts. She walks the slatted catwalks, and the boards do not creak under her. She passes the salt-wife in her lantern-lit stall, and the salt-wife looks up, then down again, already forgetting what she saw.
+
+She is looking for the places where the grammar might break itself.
+
+She finds the first one on the eastern spur. A tram has stopped at the loading platform, and in the conductor’s cart is a small cage with two songbirds. A trader from the uplands has brought them, not knowing the rule. The conductor is arguing with him, low and firm: *No animals inside the ring. You know this.* The trader shrugs. *They’re only birds. They’ll be dead by morning anyway if they stay out here.* He is about to carry them down to the market stall.
+
+The Gardener sees the whole shape of the evening if he does: the birds dead by morning, no mark, no heatstroke, just a stillness like a station between two seconds. The trader’s anger. The town’s quiet guilt. The small crack in the story the people tell about themselves—that their no-animal rule is not a cruelty but a law of the place. It would not be a tragedy, not really, but it would be an infection of the spirit.
+
+She does not break the rule. She does not touch the birds. She walks to the rail of the tram line and lays her hand on the iron. The rail shivers, just once, a long slow harmonic that travels up the spur. Far up the line, the driver feels it through the brake lever. He steps down from the tram, looks at the cage, looks at the rim, and for a reason he cannot name, takes the cage from the trader’s hand. *Not today,* he says. *We’ll go back.*
+
+The trader argues, but the driver is already turning the tram. The Gardener watches until the cage disappears into the steam at the top of the bowl. The birds are singing in the uplands by evening. The town never knows how close it came to a small wrongness.
+
+She finds the second place in the pump house. The main bearing has a hairline crack in its housing, not yet fatal, but growing at a rate that will kill it in a year. The pumpmaster is sleeping in her felt-lined chamber, one hand on the casing, her breath matching the piston stroke. The Gardener kneels beside the bearing. She does not heal the crack; she does not work that way. But she sees the water’s path, the way a small diversion from a warm pool could ease the pressure on the housing, a few degrees of cooling that would let the metal rest without changing what it is. She adjusts nothing. She simply leans against the pipe, and the pipe’s temperature drops by a fraction, and the stress lines settle. The bearing’s rhythm steadies. Upstairs, the pumpmaster’s hand on the casing relaxes, and she dreams of a bird made of steam that does not die.
+
+The Gardener does not stay to see the dream. She leaves the pump house and walks along the boardwalk until she finds a child—a girl, maybe seven, standing at a junction where two pipes cross. The girl taps the rail twice with her knuckles. There is a pause. From below, through the iron, comes a tap in reply: one, then a pause, then two. The girl smiles and taps three times, slow. The iron answers with three. The Gardener watches this conversation, and she understands something she had almost forgotten: companionship does not require blood. It requires attention. This child has an entire town of iron and water and mineral that attends to her. She is not lonely. She is apprenticed to a different kind of love.
+
+On a windowsill above the pool, the Gardener notices a row of sinter shapes—a toad, a tiny bird, a fish that never moved—each with a small brass tag. The girl has arranged them to face the lamplight. She has blown steam over them to make them seem alive. The Gardener does not pity her. The girl is not pretending; she is practicing a form of attention the town has taught her, a way of keeping the mineral dead company. The Gardener thinks: *This is a child who will never be cruel, because she has learned to love things that do not love back.*
+
+The Gardener kneels at the same rail. She taps once, very softly: *I am here.* The girl does not hear it; she has already gone to bed. But the iron keeps the tap, folded into its resonance. In the morning, when the girl passes the junction and taps twice, the rail will answer with a faint triple tap—a new phrase, not urgent, just a greeting. The girl will stop. She will tap the phrase again, and the iron will echo it. The town will have a new story: the pipes have learned a new sound. No one will know it was the Gardener. But the girl will know, not as a fact, but as a feeling, that the place wanted to say good morning.
+
+By midnight, the Gardener has done all she will do. She climbs back to the rim and stands in the dry air, where the stars are visible and the wind moves. The town below is a bowl of orange steam and greenish light, breathing. She does not look back. She has done almost nothing, and she knows that almost nothing was exactly right.
+
+She has not saved the town. It did not need saving. She has not blessed it. It was already a kind of prayer. She has not healed its people. They were already becoming the place, and the place was becoming them.
+
+She has only kept them company for one night, turned away one small wrongness, eased one bearing, and left one tap in the iron, like a coin in a fountain.
+
+And that, she thinks, is what a wise power does when it finds a place that is not broken: it does not stay to be worshipped, nor does it leave to forget. It listens, and if it must act, it acts so softly that the place remains its own.

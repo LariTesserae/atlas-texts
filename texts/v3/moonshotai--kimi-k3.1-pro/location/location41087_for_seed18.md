@@ -1,0 +1,41 @@
+## The Crown Sump
+
+Nine kilometres above any visible footing, at the crown of an industrial stack, there is a warm room called the Sump. The name is misleading. It contains no lake, no deep reservoir, not even a dependable puddle. It is a sealed chamber of riveted steel, wired glass, ceramic insulation, and greened copper, seventy paces across and tall enough that its upper pipes become difficult to distinguish. Outside, ice feathers the windward bolts and the air is too thin to breathe. Inside, the temperature holds at just above thirty degrees.
+
+The stack falls away beneath the windows until cloud erases it. There is no sense of standing on a mountain. There is only the slight, continual knowledge that the floor is a manufactured interruption in an almost bottomless height.
+
+Daylight enters through frosted roof panels and high rectangular windows. It is surprisingly ordinary light: white in the morning, grey when weather passes below, pleasantly bright at noon. At night, old electric lamps come on behind wire guards. Nothing is hidden in picturesque gloom. The rust, the leaves, the immense drop beyond the glass, and the single empty chair bolted to the inspection walkway are all plainly visible.
+
+Most of the Sump is empty.
+
+The walkway forms a narrow ring around an open central throat. Above and below that throat is simply air, crossed at long intervals by a pipe or structural brace. There are no stores, no heaps of discarded parts, no machines standing idle in corners. The engines responsible for the place are elsewhere, far below. Here there is only their sound, the shell built to contain it, and the life fastened around its edges.
+
+The terrain is therefore vertical. Its cliffs are cooling fins; its valleys are condensation gutters; its caves are square duct mouths and the spaces behind loose access panels. Its caves smell of hot enamel and moth wings. Its only plain is the open middle, where nothing can stand.
+
+The roar comes up through the throat without pause. It is less something heard than something the body is required to endure. It presses behind the eyes, makes the teeth feel loosely fitted, and turns speech into a private movement of the mouth. After a while, the mind invents rhythms inside it—choirs, approaching trains, waves withdrawing over shingle—but these are courtesies imposed on a noise that is actually changing almost not at all.
+
+The emptiness is partly its work. The Sump tolerates no loose thing. Vibration walks every unattended object across the steel, patiently, by fractions of a millimetre, until it reaches a drain, a seam, or the throat. This may take an afternoon for a washer and most of a century for a ceramic knob, but the result is the same. Tools are chained. Nests are wedged deep into insulator caps. Seeds are sticky, hooked, or heavy enough to lodge immediately. Even the chair is bolted down. A tin cup hangs from it on a short brass chain; two centimetres of water and a clutch of translucent frog eggs occupy the bottom.
+
+Water is always somewhere in the Sump, but almost never everywhere.
+
+For long periods, the exposed walkway feels dry and warm, and the central air has a faint mineral harshness. Yet touch the wall and your fingers come away wet. Condensation beads behind the fern beds. It gathers in cold copper eyebrows above the windows, ticks into a gutter for several minutes, then stops. Some filter cassettes remain damp for years. Others dry between one slow mechanical cycle and the next, their mosses becoming dark and brittle without quite dying.
+
+Rain, when it comes, is an operation rather than weather. Somewhere above, a bank of baffles changes position over several days. Warm air from the factories below meets a newly chilled surface. Droplets swell along the condenser combs until their weight overcomes the vibration holding them in place. Then, for eight or ten minutes, rain falls from the roof in sparse, bright lines. There is no thunder besides the engines, no cloud besides condensation, and afterward the gutters carry the water away with businesslike gulps.
+
+Around the walls, the vegetation is almost violently lush. This is not the lushness of a crowded forest; it is a thick, living lining around a hollow. Ferns unscroll fronds longer than a person’s arm. Black-green moss fills the cooling fins. Vines with waxy crimson leaves root in filter felt and hang in heavy festoons, never quite crossing the central space. Small white flowers open close to the metal, where moths can find them without flying far into the roar.
+
+No soil was ever carried up here. What resembles soil in the aluminium trays is a compacted cake of shredded gasket rubber, paint dust, metal oxides, guano, old roots, and the papery remains of insects. It is fertile in the way an old industrial filter can become fertile: by catching everything and refusing to let go. Copper salts have stained some roots turquoise. The leaves above them look perfectly healthy.
+
+Life is abundant only at close range. A glance across the chamber may reveal two slate-coloured birds and nothing else moving. Spend an hour beside one wall, however, and the place becomes populous. Transparent-winged moths rest beneath the leaves. Blind crickets tap their courtships directly into the pipes. Tiny snails graze green films inside the gauges. Frogs occupy the cup, the gutters, and a cracked ceramic junction box. Spiders stretch their webs only across acoustic shadows, where flying insects gather and the vibration will not immediately shake the silk apart. The birds own the entire empty centre, hunting with long, silent turns. Nothing sings. Nothing needs to.
+
+Near the exact centre of the throat is the Sump’s one openly strange feature: a column, about a body’s width, in which the roar loses its direction. It does not become quieter. It simply ceases to come from anywhere. A hand extended into it feels pushed and pulled in alternation, though the air appears still.
+
+Dust and rain behave differently there. A droplet may drift sideways, join several others without falling, and hang trembling in the ordinary daylight. A released leaf descends in a slow helix, sometimes taking an entire afternoon to pass out of sight. The hunting birds clip the column’s edge and emerge slightly higher than they entered. No instruction plate explains this. The only warning near the throat is older than the vegetation and concise: **HOLD NOTHING OVER THE OPENING.**
+
+The whole chamber is old, but it is not ruined. Its erosion has settled into forms it can maintain. Vibration has already removed everything it can loosen. Corrosion has polished the exposed bolt heads and then stopped beneath hard shells of oxide. Condensation has worn shallow runnels through enamel, and moss has lined those runnels without widening them. Roots stitch the filter cassettes together more effectively than their original fasteners. Every leak has found a route; every route has acquired an ecology.
+
+Nor are the engines working quickly, despite their deafening insistence. Their noise is the friction of an operation conducted on a scale too long to watch. The baffles take seasons to open. A pressure needle crosses one painted division in several years. The pitch of the roar changes by less than a semitone between summer and winter. Once in a great while, a maintenance arm emerges from the wall, replaces a ceramic bead or tightens one clamp, and withdraws. The room is not abandoned. It is being attended to at the speed at which it changes.
+
+When the next rain comes, the Sump briefly reveals its whole population. Moths lift from the leaves. Frogs appear at the gutter mouths. Snails extend their horns, and the two birds cut flashing paths through the droplets. Water shines on fern, rust, glass, and chained tin cup. For a few minutes the hollow seems full.
+
+Then the drains swallow, the leaves drip, and life withdraws into the manufactured seams. The roar remains exactly as it was. Above the clouds, the little made room resumes its patient work: holding warmth against the altitude, shaking loose whatever cannot fasten itself down, and condensing just enough water to keep its green edges alive.

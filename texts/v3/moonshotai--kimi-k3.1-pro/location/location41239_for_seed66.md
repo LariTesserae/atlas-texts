@@ -1,0 +1,49 @@
+## The High Cistern
+
+The High Cistern occupies an uplifted country rather than a mountain. Its lowest streets lie nearly three kilometres above the distant lowlands, but there is no single summit, no picturesque peak beneath it. The highland spreads beyond every horizon: rounded ridges, broad limestone basins, flooded quarries, and escarpments stepping down into cloud. The city takes weeks to cross. Its eastern wards can be standing in clear, ordinary sunlight while warm rain moves slowly through the west and the reservoir districts are making their own fog.
+
+From above, it might be mistaken for an exposed geological formation that has been extensively plumbed. Bone-grey terraces follow the contours of the rock. Dark factory ranges occupy the old watercourses. Aqueducts cross valleys in long, level strokes, and cistern roofs shine briefly between buildings. There are no green belts, no trees along the streets, no weeds in the paving. Nothing in the High Cistern is green by nature.
+
+The terrain is immensely old. Its limestone has weathered into soft-backed hills and deep, mature ravines; only the working quarry faces show fresh stone. Rain has rounded the untouched ledges, and feet, wheels, and animal bodies have rounded nearly everything built. Thresholds are hollowed like spoons. Stair treads dip at their centres. In the oldest wards, the streets run in shallow troughs whose original paving can be seen several courses down in the walls.
+
+Water is everywhere, though seldom deep. Warm rain arrives often and usually without violence. Impermeable beds beneath the limestone hold perched water close to the surface, so cuttings sweat, basements seep, and cliffs develop dark vertical stains after a wet night. Condensation gathers on cold water mains even in clear weather. Gutters continue ticking long after the rain has stopped.
+
+The old building rule is **do not seal; drain**. Ground floors are open, sacrificial, or built as sluiced arcades. Courtyards have overflows rather than merely drains. Bridges are designed to be scraped clean of the pale mineral beards that grow beneath them. Where water leaves warm limestone, it deposits tufa: white and ochre aprons below fountains, stony cuffs around outlets, thin translucent dams across abandoned channels. A pipe left unattended does not simply corrode. It may also slowly close with stone.
+
+The city is densest in layers rather than in crowds. Streets run over culverts whose roofs support older streets. Pipes pass beneath balconies and emerge through walls as public taps. Tramways cross above loading courts; above them are cable galleries, roosting ledges, catchment roofs, and tanks. Between these close-built wards lie broad administered spaces—reservoirs, animal shallows, bare catchment slopes, and quarries—but none is quite separate from the city. Each has gauges, access stairs, service roads, and a maintenance office somewhere nearby.
+
+Its materials are limestone, dark brick, fired clay, cast iron, copper, glass, hide, and spun mineral fibre. There is no timber to season and no plant fibre to weave. Even modest houses have a certain mineral heaviness. Wealth is expressed in glazed tile, well-fitted metalwork, dry upper rooms, and water that runs clear.
+
+The air is warm and slightly thin. At noon the sunlight can be hard and commonplace, whitening the stone and making wet rails painful to look at; at other times cloud softens everything without turning the city dark. After rain, the smell is a mixture of wet lime, iron, hot oil, animal musk, and the sharp ammonia of crowded roosts. Skin rarely feels completely dry. Night brings enough cooling for dew, but not enough to interrupt the warmth for long.
+
+Industry follows the water. Turbines turn where aqueducts drop between levels. Deep-bore gas feeds furnaces and slow gas engines; electric cables connect these to pumps, tram substations, ceramic works, foundries, and filter houses. Much of the city’s manufacturing exists to maintain the rest of it: pipe is cast to replace pipe, insulators are fired for pumping stations, wire is drawn for tramways that serve the wireworks. Other factories dredge mineral silt, render animal oil, cure hides, and grind shell for ceramic aggregate.
+
+The elevation shows in the machines. Engines have broad intake towers and heavy compressor houses. Flywheels are wide, strokes long, gearing emphatic. They are built for torque rather than speed. A large pump may seem almost contemplative when watched from outside: a pause, a deep compression, a deliberate stroke, and then the long answer of water in a main. Inside, of course, the accumulated force is deafening.
+
+White vapour hangs over the factory steps, while rain washes soot down the walls in black fans. Chimney plumes drift for great distances in the weak gradients of the highland air. Weather crosses the city patiently. A bank of reservoir fog can take a whole day to relinquish a district.
+
+The food web begins in the seep water. Chemosynthetic films—ochre, grey, brown, or nearly black—coat stone wherever dissolved iron, sulphur, and warmth occur together. They are the closest thing the highland has to pasture, but they are not vegetation. They do not green in sunlight, flower, or root. They spread as stains and slick mineral felts, slowly using the chemistry of the rock. The city’s warm wastewater and animal refuse enrich them further, making some industrial outfalls extraordinarily fertile.
+
+Consequently, the city is saturated with animals.
+
+Snails pave the bottoms of shallow channels so completely that the water seems to be flowing over cobbles. Transparent eels knot around outfalls and scatter through the dark when a sluice opens. Small crustaceans click beneath gratings. Insect larvae cloud the warm sumps, and their winged adults rise in columns over factory roofs. Swifts cut through these columns all day; at dusk, small bats replace them, pouring from expansion joints and unused ventilators.
+
+Every bridge supports several populations. Every quiet pool acquires a seething centre. Chimney caps, window grilles, and courtyard screens are not optional refinements but basic structure. An unused room does not remain empty in the way an unused room elsewhere might. It becomes a roost, a nursery, a shell midden, or a place where something has begun patiently enlarging an entrance.
+
+The largest animals are the bell-throats: heavy, broad-headed amphibians with smooth slate-dark backs and wide, deliberate feet. Adults stand higher than cattle. They gather in herds in the flooded quarries and reservoir shallows, scraping microbial crust from submerged stone with their hard lower jaws. When one rises, water sheets from a back initially indistinguishable from a collapsing bank. Their young inhabit canals and drainage basins throughout the city.
+
+Bell-throats mature over decades and may use the same route for centuries. Their passage is written into the architecture: low bridge arches would be useless, so the arches are high; certain avenues descend directly into water; gates are wider than freight requires. Surveyors traditionally mark **water first, herds second, streets third**. When a herd crosses an urban ward, trams stop and sluices are held. The crossing may take days. This is treated as an inconvenience of the same order as rain, not as an invasion.
+
+Their name comes from the long, resonant calls produced in their throat sacs. A herd at night can sound like a pumping station trying to answer another pumping station several valleys away.
+
+Sound is one of the city’s principal materials. From a distance it is a broad, steady labouring noise. Closer, it separates into rainfall on clay roofs, water knocking inside pipes, turbine rumble, the electrical hiss of wet insulators, tram wheels, shell-clicking, wings, and the low bell-throat calls carrying through both water and stone. It is not equally loud everywhere, but true silence is rare. People born in the High Cistern often wake when a familiar pump stops rather than when it starts.
+
+Meals and markets reflect the same ecology: eel, snail, herd meat, rendered oil, cultured microbial curds, and dense cakes from vat-grown protein. Public time is reckoned less by planting and harvest than by filter-scraping, reservoir stages, major overhauls, and the slow maturation of the herds. A bridge may still be described as new after several generations. District plans routinely exceed the working lives of the people who approve them.
+
+This does not mean nothing happens. Swifts dart, eels churn, machinery strikes, and a sudden release of water can send animals pouring through an arcade. But those quick events occur within a very slow frame. Canal dredging approximately balances siltation. Tufa removal approximately balances deposition. Worn stone is replaced with brick made from dredgings, ash, and crushed shell. Herd ranges shift over lifetimes rather than afternoons. Even abandonment is gradual. A deserted district never becomes a forest; it becomes a sump and a rookery, louder each year.
+
+The balance is not effortless or gentle. Filters clog, animals crack masonry, stagnant wards stink, and maintenance crews scrape, cull, patch, and dredge without end. Yet their labour rarely changes the city’s settled form. It keeps the form available.
+
+At evening, from the western escarpment, the High Cistern can look almost sober: wet stone and iron under an ordinary copper sun, cloud below, distant rain standing in pale columns over the far wards. Then the pump notes begin to carry upward, and the bell-throats answer from reservoirs too far away to see.
+
+The city endures not by keeping the highland out, but by governing the rate at which water, stone, and animals pass through it.

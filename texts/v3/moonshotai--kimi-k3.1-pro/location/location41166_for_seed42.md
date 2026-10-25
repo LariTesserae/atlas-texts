@@ -1,0 +1,39 @@
+## Senn, the Kept Tarn
+
+High in a mountain cirque, above the last trees and beneath slopes that hold old snow through summer, the town of Senn lies entirely underwater.
+
+There is no dry quarter, no island shrine, no air trapped beneath an upturned hull. Its lanes, rooms, work yards, gardens, and public square all occupy the same cold body of water. Far overhead, the tarn’s surface makes a bright, restless ceiling. Wind crosses it as silver wrinkles; sometimes the shadow of a cloud passes over the whole town at once.
+
+Yet Senn is not submerged in deep-sea darkness. On an ordinary day, it has ordinary daylight. The water is clear, and the town lies on a shallow, sloping shelf where sunlight still reaches the paving. One can read chisel marks on the oldest lintels and distinguish the amber of a snail shell from the olive stone beneath it. Reds are subdued, distances turn gently blue, but there is no perpetual twilight. At noon, the open square is simply bright.
+
+The cirque itself is old and settled. Its glacial steps have been softened by water, and the rockfall that once narrowed the outlet is now only a rounded, root-covered shoulder. There are no fresh scars or raw fans of gravel. Senn occupies three broad terraces on the shelf: twenty-odd buildings, a common hall, two work yards, seed beds, fish weirs, and the square. A swimmer can cross the settlement in a few unhurried minutes. Its boundaries are plain without being walled. On one side the shelf drops into deeper, unbuilt water; on another, a white inlet descends from a hanging cleft. Beyond the last seed beds, the paving gives way to dark stones and then to open lake bottom.
+
+The basin is less a lake containing plants than a plant containing a lake.
+
+A continuous mat of loomroot lines the cirque. Its rhizomes, some dark and thick as cables, braid through gravel and bind the terraces together. Fine green growth furs every stone. Ribbon-leaved stems rise from the mat in tall, sparingly placed columns, while lower leaves lie in layered fans along the bottom. Mosslike growth fills mortar joints; translucent filaments trail from roof edges; roots pass through walls and emerge holding stones that would otherwise have fallen.
+
+This abundance is not a crowded thicket. The cold limits each season’s growth, grazing animals crop the young leaves, and the townspeople continually clear certain spaces. Consequently, Senn is green almost everywhere but open almost everywhere as well. Houses stand apart. Broad intervals of illuminated water separate the work yards from the hall, and the lanes are often empty except for a single distant swimmer. The vegetation is total as substrate and material, not as visual congestion. Its richness is old richness: what a warm marsh might produce quickly, Senn has accumulated over centuries.
+
+The town’s oldest construction is dry-laid stone. Rounded blocks fit without mortar, their joints now sewn shut by roots. Later buildings were made by training loomroot around frames of lashed stems, then removing or leaving the frames as the living walls thickened. Roofs were never needed against rain; they provide shade, shelter eggs, interrupt the weak current, and give rooms a sense of enclosure. Some doorways open in walls. Others open in roofs or floors. Stairs serve as much for pulling oneself downward as for climbing.
+
+The newest district scarcely looks built at all. It consists of pale cords stretched between stone weights, a few upright antler stakes, and rectangles cleared in the bottom growth. These are intentions for rooms. Given enough years, guided roots will become their walls. A person may lay out such a room knowing that another generation will be the first to use it.
+
+Senn’s technology is almost entirely a matter of cutting, tying, weighting, and waiting. Its tools are ground-stone blades, bone awls, antler rakes, wooden wedges, and fiber cord. There is no fire and little need for wheels. Small tools are tethered so they cannot drift or vanish into the root mat; vessels have lids; loose furnishings are stone or are fastened down. A knot is often more useful than a hinge. Public signals are struck rather than shouted: two stones knocked together at the square can be heard throughout the settlement.
+
+Its urban character comes not from size or machinery but from organization. The weirs have movable screens so spawning fish can pass. Debris catches above the work yards are cleared communally. Certain root walls may be pruned by one household, while the clear lane beside them remains everyone’s responsibility. Stone conduits guide sediment away from the square. Storage recesses use the cold beneath the terrace. Nothing is especially elaborate, but everything belongs to a system maintained across long spans of time.
+
+Animals occupy every part of that system.
+
+Small silver fish travel through the roofless rooms in loose, flickering groups. Larger, dark-backed char rest beneath the hall and under the overhangs of the oldest stairs. Crayfish work the wall crevices; amber snails graze the paving; larvae hang among leaf stems, and molluscs lie half-buried where silt collects. On the undersides of broad leaves are neat patches of eggs. Occasionally a diving bird pierces the bright ceiling and drives down into the town in a brief commotion of bubbles, then rises again with the whole school turning beneath it.
+
+The open water can therefore appear deserted while the solid surfaces are intensely inhabited. Senn functions like a small reef: its abundance lies partly in what is hidden, partly in the number of niches created by roots, masonry, and patient pruning. The townspeople leave some shelters deliberately untended. A cord across a lane may mean not that construction is underway, but that fish are spawning there.
+
+For all its visual stillness, Senn is loud.
+
+The inlet supplies a continuous low roar, carried through both water and bedrock until it seems to come from the terraces themselves. Long stems rub and knock against one another. Crayfish click in the masonry. Feeding fish make small rasping sounds along the stones, and at certain seasons the char produce a deeper drumming that gathers at dusk into a many-voiced chorus. A worker resetting a stone can be heard from the far side of town, though the sound may seem directionless. Water brings noises close and presses them into the body. Seen from the square, Senn might look nearly empty; heard with the whole chest and skull, it is populous.
+
+Almost nothing else happens quickly. The current is weak enough that loose fronds only incline and recover. Fine sediment hangs for a long while before settling. Snowmelt changes the inlet by degrees. Roots thicken; a step rounds; a woven wall becomes load-bearing; a planned room slowly acquires a roof. Even erosion has entered the town’s long arrangement. The inlet delivers silt, the loomroot takes part of it into its mat, and the screens and conduits let the excess pass. Walls settle more often than they collapse. Keeping Senn unchanged requires work, but not haste.
+
+In late afternoon, when sunlight still reaches the square at a slant, the settlement reduces itself to a few separate green roofs, pale cords, dark windows, and wide spaces of daylit water. A single tender may be visible in the distance, moving along a wall with a stone knife. Then a school of fish turns above the seed beds, the crayfish begin clicking in the warming shallows, and the evening drumming starts under the hall.
+
+The emptiness between Senn’s buildings is real and necessary. It is not absence. It is the room that builders, plants, and animals have learned, very slowly, to leave for one another.

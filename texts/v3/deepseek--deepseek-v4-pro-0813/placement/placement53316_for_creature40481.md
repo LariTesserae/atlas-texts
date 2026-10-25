@@ -1,0 +1,13 @@
+I would find myself in that hidden chamber below the water table, down the shaft no wider than a stepladder, behind the locked switch panel—but not as the keeper, and not as any of the creatures that move.
+
+At first I think I am the water. I arrive the way the water arrives: through the cold pipe’s sweat, through hairline cracks, through the concrete’s slow memory of rain. I know the room by its downward slope. I am the film that gathers on the dry ledge and retreats when the pump clears its throat. I taste the tie-holes, the expansion joints, the faint sweetness of overripe algae. The bead shrimp cloud around me. The frogs wait in my shallows. The iron snails graze at my edge. I am the tide, but I am not the sea.
+
+Then I think I am the high-water mark. I am the line the keeper repairs with his thumb, the rough arc the frogs’ mud basins follow, the boundary where wet becomes dry. I am what remains when the water withdraws. I am the room’s memory of itself.
+
+But I do not move with the water. I stay fixed on the wall. I am a round face behind fogged glass, a needle holding a secret. I am the pressure gauge.
+
+The keeper taps my glass after each pump cycle, clearing one small clear spot. Through that spot I watch the whole chamber. I see the crickets lift their heads in a wave along the steam pipe. I see the snails close their apertures and wait. I see the centipede cross the snail carpet on paper-on-stone legs and run over the keeper’s hand as if it were a continuation of the wall. I see the pale shoots lean not toward the light but toward the warm pipe. I see the bucket with its chewed hole used as a drain-cup, the spool of wire become a roost, the paint can a mineral road for iron snails.
+
+I am the room’s one eye, and I am almost blind. My needle is a slow thought, moved by pressures too small to name. I do not count the pump’s cycle; I am the place where that rhythm becomes visible—a thin black line trembling behind fog. The bulb hums. The water ticks. The shrimp seethe too softly to call sound. The pump inhales every forty seconds, and my needle stirs. Nothing raises its voice, but I feel the packed, crowded silence press against my glass.
+
+So where would you find me? In the low concrete chamber below the river-lift station, fixed to the wall, fogged and round. What would I be? Not the keeper, not the predator, not the grazer. I would be the gauge: the room’s slowest clock, seeing everything and saying nothing, holding the dense, nearly silent motion of the place in the angle of a needle.

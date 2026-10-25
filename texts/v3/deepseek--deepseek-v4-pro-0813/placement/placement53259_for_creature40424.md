@@ -1,0 +1,11 @@
+I would find myself in the Throat-House, below the dry plain, on the patchwork floor near the blue-glazed channel where the water slows. I would be **Silt**—the one who listens to the channel.
+
+At first I would not know it. I would only be a child crouching with a broken sherd of pottery, scraping green algae away in small patient arcs. My knees would be wide, my bare feet flat on the tile, my hair stuck to my damp forehead. The algae would come up in thin ropes, and I would drop each rope into a wooden bowl without looking. I wouldn’t hurry. I would be learning to read the water by the thickness of the algae, by the way the silver fish scatter, by the faint vibration that travels up through the clay pipe from the east wall.
+
+But as I crouched there, I would become more than the child. I would feel the room through my skin and the soles of my feet. The water drum at the center would beat not as a sound but as a second pulse, its rhythm entering the bones of my wrists. The old man near the western wall would be pressing clay into a crack, and I would know by the soft resistance of the floor when the wall was satisfied. The woman at the hearth would settle a coal, and the whole room would exhale. The girl Nestling would climb the notched ladder, and the grey birds would change their alarm into a rough cooing.
+
+I would become the one who listens to the channel, but also to the whole throat of the house. Not the Ear yet—not the woman who sits so still that geckos cross her feet—but a smaller, newer ear, still damp with algae and clay. I would hear the pipes moan when the weather above changed. I would know when the cistern was low by the sound the water made as it disappeared under the north wall. I would feel the Under-Throat moving below the floor, cool and pale, as a slight shift in the tiles under my folded legs.
+
+At night I would not sleep deeply. I would half-dream to the chirr of crickets and the click of geckos, and wake when the drumbeat changed. In the dark, the room would be loud: the water, the embers, the slip-ribbons running along the rope over the cistern. I would listen with my mouth slightly open, tasting the mineral damp. I would know that I was not separate from the house.
+
+I would be a small, wet sense organ growing inside it—Silt, not yet the Ear, but already part of the house’s hearing.

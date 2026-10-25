@@ -1,0 +1,23 @@
+No one lives in the High Submergence. But something does.
+
+It is not an animal. It has no face, no limbs, no heart. If you walked there, you would not see it as a living thing—not at first. You would see stains on wet basalt: purple-gray, olive, bright copper-green. You would see thin crusts the texture of old paint, patches no larger than a hand, streaks along fissures where the rock looks as if it has been licked by something mineral.
+
+That is the resident. Call it the Skin.
+
+It lives wherever water touches stone. It grows on the black basalt, in sheltered pools, along the cracks that open and close with the plateau’s tremors. It is not a plant, though it catches the pale overcast light. It is not a fungus, though it spreads in branching lines like frost. It is a living mineral skin—a mat of archaea, bacteria, and older, simpler things, all held together by a matrix of precipitated silica, iron, and manganese. It does not sit on the rock. It becomes part of the rock, eating the minerals out of the water and using them to build itself a second skeleton of stone.
+
+The hair-like strands in the pools are its fingers, or its roots, or its gills—every comparison is partly wrong. They are filamentous cells, each no thicker than a line of ink, swaying in the cold current. They do not breathe. They oxidize and reduce. They pull dissolved iron and sulfur from the water, they catch the dim light, and they excrete rust, quartz, and a faint oxygen that disappears almost before it can matter.
+
+The Skin is not confined to the surface. It lives in the fissures too, where the water pours into hot rock and flashes to steam. There, colorless chemotrophs form pale webs in the dark, feeding on hydrogen and sulfur, never needing light at all. They are the same life, or a cousin of it, connected by the water that moves through the plateau’s broken bones. When a geyser erupts, it blasts cells upward in a fine mineral mist. The wind strips them across the tableland. The rain sluices them into new cracks. The Skin does not need legs or wings. It has weather. It travels by storm and steam, by seiche and seepage, never leaving the water but moving everywhere the water goes.
+
+The faint pulses of light that pattern the water are its only language. They come from chemical reactions at the mat’s surface—slow, irregular, dim. If you stood there long enough, you might see them follow the fissure lines, moving from one wet patch to another, like a thought traveling through a half-sleeping mind. The parallel cracks in the basalt, the ones that look like circuit traces, may not be entirely natural. The Skin has been etching them for millennia, molecule by molecule, using acid byproducts and mineral deposition to steer the flow of water. It builds its own plumbing. It is a slow, blind engineer, shaping the plateau as surely as the rising magma below.
+
+There is no brain, no nervous system, no single body. But the whole High Submergence may be its body. The Skin is spread thin, broken into thousands of patches separated by dry stone, yet it is not truly separate. The water connects it. The rain connects it. The cracks connect it. It is a plural being, a distributed presence, a life form made of film and mineral and water, stretched across a landscape too new for soil.
+
+If you stood there, you would feel like the only animal on the planet, and you would be right. But you would not be the only thing alive. The rock under your boots would be alive, thinly. The spray in the air would carry its spores. The rust stains and the copper-green smears on the basalt would be the same creature, extended for kilometers, breathing at the speed of rock chemistry and fog.
+
+It is not conscious in any human sense. It does not see you. It does not want. It knows only wet and dry, light and dark, hot and cold. But it responds. When a new crack opens, cells arrive within days. When a pool drains, it forms cysts and waits. When the ground trembles, it clings. It is the first layer, the oxygenating skin, the beginning of something that never arrived—or has not arrived yet.
+
+The High Submergence is still being born. Its only resident is the thin, stubborn, mineral-skinned life that is making it ready for something else, or maybe just living for itself in the loud, cold, endless rain. There are no animals, no birds, no insects, no fish. There is only the Skin, and the water, and the stone. And the sound, which never stops.
+
+So if you ask what lives there: the place itself, thinly. The first life of a world still under construction. A resident without a face, without a name, and without any need for one.

@@ -1,0 +1,31 @@
+The hollow has no secret occupant. The warmth is not breath, and the small ticks beneath the crust are not the movements of something buried. What lives there is quieter than an explanation.
+
+The gray-leaved shrubs are its most legible inhabitants. Their leaves are thick and narrow, closer in texture to horn than to foliage, and the gray upon them is a dry bloom of wax and mineral. There is water in their tissues, but almost none of it is free. It is held and reused within a chemistry so parsimonious that a broken stem would not bead with sap. The papery bitterness near them is the scent of that chemistry, not of resin or decay.
+
+They are not enduring drought in the ordinary sense. Drought implies a condition to be outlasted. These plants have no wetter state to resume. Their roots do not descend toward an imagined water table; they run sideways through the old fractures, taking minerals from the coarser dust and stopping where the salt becomes too dense. A root tip may remain alive for decades without advancing. When it does advance, the distance may be less than the width of a hair.
+
+Nothing in the shrubs is reliably annual. Their wood has rings, but a ring records an interval of growth, not a year; many years may add none. A knee-high plant can be centuries old. A dead fork upon it may be older than the entire living body of a smaller shrub. Neither fact makes the plant moribund. Its living tissue may be confined to a few stems, but it is not retreating before anything. It is merely small in relation to its own history.
+
+The black-green cushions are harder to read. They are not young shrubs, nor thickets in miniature. What looks like a crowd of stiff shoots may be one body repeatedly folded back upon itself. Its oldest center can be dead and partly mineralized while a thin outer region remains alive. The plant carries its past as support rather than shedding it. Growth proceeds at a few scattered points, unevenly: a little thickening on one side, a long interval of cellular repair, then almost nothing that could be called change.
+
+Near the lowest point, one cushion has closed around a pebble. Only a dull cap of stone remains visible. The plant did not engulf it in any active sense; the pebble stayed where it was, and the living tissue added almost nothing around it, again and again. That cushion may be the oldest intact body on the surface. Nothing distinguishes it as eldest. Its living edge is no greener than the others.
+
+For both kinds of plant, persistence matters more than replacement. There is no rich seed bank beneath the dust, and the bare spaces are not gardens postponed. Successful establishment is so rare that it cannot usefully be imagined as part of a cycle. Nor is the spacing a truce between competitors. The plants have not divided the hollow among themselves, and the long pauses are not defended territories. They are simply where establishment did not happen. For long stretches, the population is maintained by the continuation of the individuals already present.
+
+The oldest life in the hollow is less visible still.
+
+At scattered contacts between salt and clay, minute colonies occupy flaws too small to darken the crust. They form no film that could be peeled away, no colored stain beneath a stone. Even under magnification, most of what surrounds them would appear to be crystal, dust, and discontinuity. Their bodies contain almost no free water; what little enters their chemistry is bound so closely that it cannot soften the salt or make the clay damp. They draw what energy they use from minute chemical differences in their surroundings and spend nearly all of it maintaining the distinction between themselves and the mineral around them.
+
+A colony may remain the same size for longer than a shrub lives. To call it dormant would be misleading if that suggested some coming period of abundance. This is its ordinary tempo. A shift in the salt may end one colony and separate part of another into a new flaw, where it continues if it can. There is no visible migration, no expansion through the basin, no slow claim laid upon the hollow.
+
+Nor is the crust life one being. The hollow is not thinking through it. The warmth is not its metabolism, and the stones do not tick because it stirs. It does not tend the plants, and the plants do not feed it. A root and a colony may lie close together for centuries without entering each other’s economy. Their proximity creates no hidden unity.
+
+Most importantly, they are not waiting for rain. Sufficient liquid water would not restore them to some fuller existence; it would destroy the conditions on which their chemistry depends. For them, the salt is not the residue of a lost world. It is the world to which they belong.
+
+Between all these residents there are remarkably few transactions. The shrubs offer no nectar and almost no tissue that could repay the cost of eating it. Dead wood does not rot quickly enough to support a succession of consumers. Material enters a living body and remains there, or remains attached after life has withdrawn from it. The absence of animals is not a secret concealed by the darkness. There is almost nothing here that can be passed rapidly from one life to another. The ecology is less a web than several parallel acts of continuation.
+
+This does not make the inhabitants invulnerable. A foot could crush a cushion whose living edge had taken millennia to form. A snapped stem might remain snapped for the rest of a visitor’s life. A shift in the crust could end a colony without leaving any sign that it had existed. The hollow does not heal every injury; it merely receives very few. Its equilibrium is not safety, and its persistence is not a promise.
+
+A visitor could stay from dark until dawn and truthfully report that nothing stirred. A lifetime of occasional visits might still fail to catch any resident in an unmistakable act of growth. Yet the shrubs would be maintaining their narrow living surfaces, the cushions their green edges, and the colonies in the salt their minute difference from stone. None would be waiting for water, company, or a more generous age. Those are not missing pieces of their lives.
+
+The hollow is inhabited, but not occupied. Its life does not interrupt the stillness; it is one of the stillness’s slower forms.

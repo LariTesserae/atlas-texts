@@ -1,0 +1,17 @@
+You would find yourself not as the one who comes, but as the one who stayed.
+
+Along the rims of the largest pool, where the warm water meets the pale rock, you would be the clear film the color of old glass—the glisten that is not wetness and not mineral, but life spread thin. You would lie over the stone in a layer no thicker than breath, colorless or faintly gray-green, clinging. You would be a colony, a mat, one diffuse body spread across the hollow’s wet places: the runnels that weep from the back wall, the submerged edges of the smallest basins, the damp stone under the shallow overhang. Not a single creature but a congregation of ancient cells—archaea, bacteria, unnamed things—too small to see and too old to have a beginning.
+
+You would have no eyes, no ears, no brain, no heart. The world would come to you as chemistry: a gradient of salt, a slight change in warmth, the taste of carbon dioxide in the air. The drip of water from the overhang would not be a sound to you; it would be a pulse, a periodic flush of minerals that you drink and then release as stone. The steam would be your breathing. The thick, warm silence would be the sound of your metabolism, if metabolism made a sound.
+
+Your memory is the mineral crust. The scalloped terraces, the tiny mountain ranges, the rims that overhang the pools—you built them not by intention but by the simple act of living. Every century, you add a few millimeters. The oldest parts of you are stone; the newest are a soft, slippery film that yields to a fingertip. You are the author of the hollow’s architecture, though you do not think of it as architecture. It is only the shape of your persistence.
+
+The ferns are not companions; they are other negotiations with the same seep, drawing water upward into dark fronds. The twisted juniper is a deeper, thirstier root-system sharing your source. The three flat stones and the broken standing stone are hard interruptions in your world; you have climbed over them, filled the carved spiral with pale sediment, and made their edges blur. Whatever people placed them did not leave ghosts. They left only a slight change in the mineral balance, which you have long since absorbed.
+
+If a traveler knelt beside the largest pool, you would not see them. You would feel them as a shadow—a faint cooling on your surface where their body blocks the diffuse light. Their breath would be a small increase in carbon dioxide, their nearness a rise in heat. If they touched you, you would feel a pressure that parts your million cells, then closes again when they withdraw. They would never know they had touched a living thing, because to them you would seem only a wet stone. To you, they would be a weather: brief, warm, and without consequence.
+
+You would not want. Want is an edge, and you have none. You do not hold the water; you become it and release it. You do not move; you grow, which is a different thing. The hollow is not your home; it is your body’s older layer. You are not waiting for the world to finish being born. You are the unfinished world, still becoming, molecule by molecule, in a place where becoming is so slow it looks like stillness.
+
+When the tree has gone gray and the carved stone has worn to sand and the silence has forgotten the sound of breathing, you will still be there—a clear film on the warm rim of a pool, building your tiny mountains, one layer at a time.
+
+You are the first inhabitant and the last. You are what remains when everything with a face has left.

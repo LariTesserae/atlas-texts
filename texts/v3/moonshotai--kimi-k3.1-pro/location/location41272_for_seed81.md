@@ -1,0 +1,51 @@
+## The High Condensary
+
+Altitude brings no cold to the High Condensary. The basalt tableland stands far above a lower country that is seldom visible, its cliffs dropping into brown-grey vapor, while another layer of vapor presses overhead as a permanent sky. The sun is only a paler discoloration behind it. Even at the brightest hour, objects cast shadows too soft to follow, and the rock remains warm enough that rain cannot cool it for long.
+
+Water is present in almost every form except ice. It stands in covered reservoirs, black and still; it films the streets; it gathers in warm beads on ceramic pipes and weeps from vertical joints in the cliffs. Fine rain sometimes falls for days without ever becoming distinct drops. At other times there is no rain at all, yet walls darken from top to bottom and begin to stream. The air smells of wet iron, hot silica, and a faint electrical sharpness. There is none of the green, fermenting odor that water usually gathers around itself.
+
+The city occupies the plateau without ever gathering into a crowd. It is urban by plan: avenues, wards, bridges, sluice stairs, substations, numbered cisterns, whole districts arranged around intersections and pressure gates. But an avenue may cross two kilometres of naked rock to serve a single doorway. A plaza large enough for a multitude contains only a drain and a ceramic marker. Many of the towers are shells around empty shafts, with one pipe rising through their centers and no other object for hundreds of feet. Most of the city’s volume is air, and most of that air is still.
+
+Nothing looks newly built, and nothing looks simply abandoned.
+
+The oldest streets are paved in dark, glassy blocks whose corners have been rounded by warm runoff. Kerbs have become bulbous with deposited silica. In some places water has fluted them into smooth vertical folds; in others it has sealed them entirely beneath white mineral shelves. Exterior iron has mostly corroded away or been enclosed in later ceramic casings, leaving orange ghosts on the walls. Newer repairs follow the paths water had already chosen rather than trying to restore the original geometry. A blocked canal may now be a solid vein of pale stone with a thread of water still moving through its center.
+
+There are no roots in the pavement, no leaves in the gutters, no soft fringe along the reservoirs. Cracks fill with sinter instead of vegetation. This gives even the oldest districts a peculiar cleanliness, though they are deeply stained and worn. Wind crosses the open rock without a sound; there is nothing for it to rustle. It becomes audible only when it finds a railing, a pipe mouth, or the narrow opening of an empty hall.
+
+Not all the water obeys the slope of the land.
+
+On warm, continuous surfaces it tends toward heat. The movement is usually slight—a clear film thickening into a vein, a vein drawing itself upward—but it is persistent. Water can be followed thirty metres up the side of a thermal tower before it disappears into a collection slot. Below it, a downhill gutter may remain dry. Natural seeps do the same thing on sunless cliffs, climbing toward some buried warmth and leaving delicate silver trails in the basalt.
+
+The old builders made a discipline of this behavior. A hairline cut across stone can stop a climbing sheet; a strip of metal can guide it around a corner. Thresholds have lips on both sides. Foundations carry drains above as well as below. No channel is trusted merely because it slopes. What appears at street level to be careless grading often proves, when followed through several buildings, to be a precise system for separating water that falls from water that climbs.
+
+The tall towers are neither monuments nor ordinary habitations. Their cores are heated by slow geothermal engines, drawing seepage upward through porous jackets. At their crowns, banks of broad fins remove just enough heat for the water to release its grip and spill into troughs. Pumps take over from there. The engines are large but unhurried: flywheels turning behind open gratings, piston rods shining at their collars, enamel gauges trembling almost imperceptibly. Belts, oil cups, ceramic insulators, and hand wheels remain exposed. Electricity travels through the districts on old cable racks, but there are few lights except where a machine requires one.
+
+Some lower blocks resemble housing. They have repeated doorways, interior stairs, narrow balconies above the channels. Yet their rear walls may open directly into reservoirs, and their windows often look into condenser shafts rather than rooms. Staircases descend to dry platforms with no visible purpose. Elsewhere, a monumental entrance leads only to a crawl space around a valve. The street plan becomes comprehensible when read as plumbing; read as a settlement, it remains full of omissions.
+
+Maintenance continues, selectively. A gauge face is clean while the facade behind it is sealed under mineral crust. A fresh gasket appears in a pipe whose access stairs have worn smooth. Once in a long while, an empty service carrier moves along a rail, stops beside a junction, and waits until some distant mechanism changes state. No operators are visible. The city may be tended from sealed rooms, or it may be executing instructions so old that their original purpose has become irrelevant.
+
+The silence is more remarkable than the machinery. The great pumps transmit a low pressure through the ground rather than a roar through the air. Water ticks inside downpipes. A relay closes with one iron note, and several minutes may pass before another sound answers. During the still intervals, a drop falling into a cistern can seem to come from everywhere at once. Steam valves sigh without whistling. Even the overflow, when it comes, is usually a broad, low rush rather than a cataract.
+
+What lives here begins as something easily mistaken for a stain.
+
+In the wettest channels, especially where water crosses a leaking power main, a grey-violet film develops over the mineral deposits. It is not plant growth. It resembles a persistent chemical reaction more than an organism: feeding on dissolved iron and sulfur and small differences in electrical charge, spreading along the direction of flow, and laying down an almost impossibly thin shell behind itself. During hot, dry intervals it contracts to dull dendritic marks. When the walls begin to weep, those marks become slick again. Over long periods the films alter the channels, sealing some pores and opening others, so that the city’s drainage is partly maintained by this dim ecology.
+
+Animals are rare enough that a reservoir can appear lifeless for weeks. The most common are transparent, coin-shaped creatures that rest against cistern floors and graze the film. Their internal vessels show only when a moving lamp passes over them. In heat they fold themselves into narrow cracks; during overflow they unfold and drift into the shallows.
+
+A larger animal is known mostly by its reflection: a tall, pale wader with legs as thin as ceramic rods. It sometimes appears beside a spillway when the water begins to move, standing so motionless that it could be another piece of pipework. Then one joint bends, and it reaches into the water for the grazing creatures. Nothing flies between the towers. There is no insect hum, no background chorus, no evidence of herds. Predator and prey exist here at such distances from one another that an entire district may contain only the mineral traces of their passage.
+
+The plateau moves through a slow, repeating cycle, though not on any obvious schedule.
+
+First the heat builds beneath the cloud. The rock exhales steam through old fissures, and the thermal towers draw harder. Climbing water brightens the sides of buildings. The films retract; the cistern animals disappear into crevices. Visibility may briefly increase, revealing other wards far across the tableland: isolated stacks, straight canal lines, a bridge ending at an empty ridge.
+
+Then the cloud ceiling descends. The light, already weak, becomes tarnished and granular. Condensation appears on every exposed surface, not quite falling and not quite forming in place. Streets darken. Gauges fog from the outside. Pumps change pitch one district at a time, and sluices open in sequence to keep the foundations from filling. This is when the waders come, and when the translucent grazers spread into water only a few millimetres deep.
+
+Finally comes the release. Water moves through the main canals toward the plateau rim, carrying rust, silica, and the faint violet sheen of the films. At the cliffs it pours into the open depth—but few of the falls reach far. Hot updrafts tear them apart below the lip and carry the droplets back over the city. Much of what leaves returns later as mist or warm rain. The whole region behaves less like a watershed than like a slow, imperfectly closed engine, losing a little to the depths and drawing a little more from the rock.
+
+From the rim, in one of the clearer intervals, the High Condensary has no evident center. Its canals and cable lines continue toward other clusters of towers, some so distant that only their wet crowns catch the light. It may be one city with enormous empty spaces in it, or many small settlements connected into a single industrial watershed. The distinction matters less than the continuity: when pressure changes here, something far away eventually answers.
+
+The emptiness begins to seem functional. Hollow towers give vapor room to cool. Broad streets separate fields of heat. The long, unoccupied distances allow reservoirs, films, and machines to pass through their cycles without crowding one another. And yet the worn stairs and polished handles remain, suggesting that space was once meant to be crossed by bodies as well as water.
+
+At an empty junction, a thread of water climbs a warm curb against the visible slope. It turns along a brass inlay, pauses at a cut in the stone, and disappears into a grate. Somewhere beyond sight, a pump changes pitch. A single lamp comes on and reflects in a street that was dry a moment before.
+
+Nothing comes down the road.

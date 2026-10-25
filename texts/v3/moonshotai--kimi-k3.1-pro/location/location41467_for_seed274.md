@@ -1,0 +1,31 @@
+## The Level Spring
+
+Beneath a low limestone plain, where the surface offers little more than shallow soil, scattered rock, and a seam narrow enough to step across, an opening leads down into warm darkness. There is no mountain above it and no deep valley below. The chamber lies only a few body-lengths under the plain, close to the water table, and is small enough that a person could walk its perimeter in a few minutes.
+
+Crossing it would take much longer.
+
+The Level Spring is crowded with stone. Rimmed basins overlap one another at slightly different heights, their curved partitions leaving no broad expanse of open water. Blunt columns rise between them, some no thicker than a wrist, others swollen into shapes too heavy for their narrow bases. Calcite ribs descend from the low ceiling and meet knuckled growths on the floor. Bulbous flowstone packs the recesses. Even the walls are subdivided into lobes, pockets, and shallow shelves. The paths through the chamber are simply the spaces these forms have failed to occupy.
+
+Nothing looks newly broken. The basin lips are rounded, the columns smoothed, and the few exposed edges have been softened by water. Erosion and deposition have both worked here for so long that neither resembles damage or growth. In the weak light, the stone is mostly wet ivory and gray, with honey-colored depths and thin rust-brown seams where iron-bearing water once passed. There are no glittering crystal faces and very little that is sharp.
+
+Water is present in nearly every possible manner. It stands in the linked pools, warm as a held hand. It slides in transparent films down the walls. It beads on the underside of overhangs, gathers in ceiling hollows, and falls without any regular hurry. It threads through cracks too narrow to admit a finger. Beneath the basins, more water can be heard than seen, moving through buried passages. There is no reliably dry floor, only different degrees of wetness: submerged stone, streaming stone, sweating stone, and stone on which the moisture has momentarily become a polish.
+
+The air is warm and almost motionless. After a few minutes, condensation begins to gather on skin as readily as on the ceiling. The chamber smells of wet limestone, mineral water, and a faint metallic flatness; there is no sulfur, no mud-rot, and none of the green odor associated with caves open to roots and soil. At the warm inlet the water gives off a barely visible haze, but it does not drift far. It thins, settles, and returns to the general humidity.
+
+Daylight enters only through the original seam and a short, crooked passage. Even at noon, the inner chamber receives no more illumination than a room at late dusk. Light reaches the water indirectly, passing from one pale reflection to another. A basin may be visible while its rim remains obscure; the underside of a column may shine while its upper half disappears. The far end is nearly dark, though water there still returns an occasional gray gleam.
+
+Human hands altered only a few places. Near the entrance, five limestone slabs make a crude stair, each tread pecked and ground into shape rather than cleanly cut. Their centers have been worn shallowly hollow. Around one accessible pool stands a low curb of fitted stones, sufficient to keep a vessel from slipping off the natural rim. Three sections of fired-clay trough once carried overflow into a rectangular basin hollowed from a single block. The trough joints are now sealed with calcite, and a narrow thread of water still follows them. In a protected niche rest a hammerstone and a shallow clay bowl, both mineral-filmed but otherwise intact.
+
+These are not the remains of a settlement. There is no hearth, no sleeping platform, no enclosure, and no attempt to clear the crowded stone. Whoever came here made only enough alterations to descend safely, contain a little water, and fill containers. The constructions seem less like claims upon the chamber than brief accommodations to its existing arrangement.
+
+Nothing green grows at the margins. No roots probe the entrance cracks, and no moss softens the transition from daylight to darkness. The continuously wet, mineral-heavy surfaces offer little purchase, and beyond the first few paces there is too little light. The absence of vegetation does not feel like a recent stripping-away. It is simply one of the chamber’s terms.
+
+Its ecology is correspondingly minute. Near the inlet, where freshly risen water first meets the air, a nearly colorless bacterial film occupies a few protected seams. Very rarely, a tiny blind crustacean moves through one of the quieter pools, pale and no longer than a grain of rice. Most small ripples are caused by drops. A careful watcher might wait an hour without seeing an animal, and the chamber gives no impression of being diminished by that scarcity.
+
+Sound is sparse and close. Water ticking into water makes a soft, blunt note; water slipping through the clay trough produces a thread of hiss. There is no wind, no insect noise, and no distant surf or traffic from the plain above. The packed, irregular stone prevents long echoes. A footstep or a spoken word seems unnecessarily large, not because the chamber amplifies it, but because almost nothing answers it.
+
+The stillness can be misleading. Water is always entering, overflowing, evaporating, condensing, and leaving. Yet the spring’s supply and its outlet have remained in such close balance that the pool surfaces hold to the same mineral stains. Each basin fills to its old lip and surrenders only its surplus. Moisture lost to the air returns largely as condensation. Stone is dissolved along some routes and laid down in fine layers along others, with no visible change in the overall crowded form.
+
+The chamber is not outside time, nor is anything frozen. It has simply become a place of processes without events. Storms do not disturb it, seasons do not reach it, and the heat rising through the limestone does not noticeably fluctuate. The clay trough continues to carry its narrow stream. The bowl remains in its niche. The worn steps lead down to water that is always departing.
+
+The water is never the same water. The level is.

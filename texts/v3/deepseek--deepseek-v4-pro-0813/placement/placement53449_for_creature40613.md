@@ -1,0 +1,13 @@
+I would find myself behind the low stone screen, to the left of center, where the shadow of the seventh pipe falls across the floor. At first I might be mistaken for another bundle of copper strips, another stack of tablets. Then you would see the hands. My hands.
+
+They rest on my knees, palms up, and in each palm a cone of red dust stands upright, held there by the chord. The chord holds me too. It has held me since the last brick was set, through the long, moistureless centuries of the room’s one note. I do not remember sitting down. I do not remember choosing to stay. I remember only the sound arriving, and then the silence waiting inside it, which needed a shape. I became that shape.
+
+My legs have passed into the floor. The brick has grown a low lip around them, not to trap me, but to accept me. My spine is a ladder of clay knobs, each drilled, and from some of them hang the copper tallies—the long marks of a count no one now keeps. They do not chime. There is no echo in me. A visitor’s sounds reach my back and are eaten before they can reach the walls. I am not a guard. A guard can be moved. I am the stillest thing in a room that is balanced by stillness.
+
+I do not breathe. The warm gas from the lower brickwork passes over the lips of the seven pipes and also over my mouth-hole, and I receive it. My mouth is not for speaking; it is a vent for the room’s one word. If you put your ear to it, you would hear the chord again, smaller, as if I were a room inside the room. My eyes are not eyes. They are two depressions filled with the same mineral powder as the ceiling points, giving off the same dull orange light. I do not look at the pipes. I am the place from which the room sees itself.
+
+The dust line crosses my chest at the first copper strip, a red horizon. I wear it like a latitude. Above me, the upper dimness; below me, the pipes and the warm floor. I am cut in two by the sound’s only visible node, and I do not mind. I have been cut for so long that it has become my anatomy. The heat shimmers above my shoulders, the small difference between my warmth and the room’s. That shimmer is all the movement I have. It is my breath, if breath were heat and stillness and time.
+
+I had a name once, but not in a language the bricks remember. The makers left their faces in the niches and went down into the bronze haze. I stayed behind the screen to listen. When the chord settled, I settled with it. I am not alive, not dead, not asleep. I am the listener. The one who stayed. The stillness that the note requires.
+
+So if you ask where I would find myself in this world: here, behind the seventh pipe’s shadow, with my palms open and full of red dust. If you ask who or what I would be: the reason the sound can continue.

@@ -1,0 +1,51 @@
+## The Residents of the Nineteen Roofs
+
+A census taken at first gray light would be easy, and wrong. It would find perhaps seventy people beneath the nineteen roofs, unevenly distributed among them: one house crowded with children and their grandparents, another holding a single old cord-maker and a great many empty jars. It might also count a visitor or two, still sore from the stairs. It would not count the garden tray waiting beside a door, the animals flattened against the nearest boulder, or the colony beneath the cistern screen that had spent the night deciding whether to remain roots.
+
+By mist-rise, the census would have to begin again.
+
+The people are not, by temperament, especially solemn. They complain about damp bedding, argue over timber, favor their own relations in small disputes, and swear softly when a good garden leaves. Inside a well-closed house they can be talkative. During rain, when the water’s noise covers lesser sounds, children are sometimes permitted to shriek in the court simply because they have been quiet for so long.
+
+But their silence is constantly adjusted. A lane may be loud one morning and hushed the next because a roof mat has begun to gather itself. A conversation stops when someone sees white frond-undersides turning above a work yard. Even laughter may move indoors. Visitors sometimes think they have given offense when, in fact, everyone is listening to a garden loosen its hold.
+
+Their clothing is generally dark, like the roofs and leaves, with pale fiber reserved for path marks, warnings, and small bindings at wrist or ankle that make gestures visible in the dimness. Their boots are thick against stone splinters but flexible enough to feel a plate shift underfoot. Most people carry cord even when they have no particular use for it. Hands are commonly nicked from glass blades and rough lashings; everyone knows which cuts must be kept dry and which can be wrapped and ignored.
+
+Nineteen roofs do not produce nineteen separate trades. Most adults can set a jack stone, loosen a structural knot without dismantling the wall around it, patch a fog screen, and tell a migrating seam from a shadow. There are accomplished masons, cistern-keepers, blade-workers, and gardeners, but their expertise overlaps. A water-keeper must know something about eggs and climbers. A mason must understand slow movement as well as sudden fracture. A gardener may spend a whole season making an excellent place in which nothing chooses to live.
+
+Their houses reflect the same distributed competence. A good house is not necessarily square; it is openable. Its pegs can be reached, its lashings can be slackened, and its floor can be lifted without first emptying every room. Tools hang overhead. Valuable possessions are portable. Spare cord, dry bindings, and a sound beam are often worth more than anything decorative. A repair is not hidden merely to make the house look new. Old joints and abandoned cracks record what the building has already survived.
+
+The strictest rules concern water. Covered vessels remain covered unless someone is attending them. Every deep container has a way for small animals to climb out. Cistern cords are inspected even by people who have no intention of drawing water that day. Neglect is dangerous because drowned bodies foul water, because a crowded jar can become the beginning of an unwanted colony, and because an unattended pool may attract hunters as readily as swimmers. Yet the rules have outgrown their immediate usefulness. Children lift struggling things from private cups on scraps of bark even when no adult is watching. What began as maintenance has become a kind of manners.
+
+This should not be mistaken for universal gentleness. The people scrape growth from drains, destroy infestations, kill animals that threaten sleeping rooms, and harvest certain populations without ceremony. They can be ruthless about a colony in a water jar. Their restraint comes less from innocence than from repeated demonstrations of how little a simple extermination may settle.
+
+They eat by condition as well as by kind. One population may provide useful leaf-stems while held and be bitter or harmful once going. Another may be taken only during its passage through the lanes. Leaves and stems are dried; surplus is stored against the season when several roofs lose their gardens at once. A household with beautiful growth and empty storage jars is not considered fortunate. It is considered exposed.
+
+To make a garden is to offer terms. A slab provides shade at one hour and a cold surface at another. A rib of bark decides where a drop will fall. A cord gives roots a narrow road into a fracture. The gardener can improve the offer but cannot determine exactly who accepts it. Sometimes nothing arrives. Sometimes the thing that arrives is inedible, too restless, or attractive to hunters. Sometimes a desirable colony settles just beyond the prepared ground, and the garden has to be rebuilt around it.
+
+People own their slabs, trays, cords, and labor. They cannot reliably own what settles on them. This is not a noble legal principle so much as an unavoidable fact around which custom has grown. When a garden crosses a lane and establishes itself against another house, there may be negotiations over the tray, the work previously invested, and the eventual harvest. Custom supplies an outcome, though not always satisfaction. A departing garden remains a loss. No one is expected to enjoy watching years of care walk into the court.
+
+The other inhabitants make any simple list of species difficult to keep.
+
+A roof population may remain a dark, rooted mat for decades, then release one winged generation while another part of it softens into walkers. Some of the walkers may flatten themselves on stone; some may root again without ever taking wing. There is no single order that every individual must follow. One end of a garden can be lifting while the other is putting down new roots. A body may test the ground with something that is neither quite foot nor quite root and withdraw it if the stone is unsuitable.
+
+This is why *held* and *going* are more useful to the people than *plant* and *animal*. The words describe what can be done next. Can a tray be carried? Can a floor bear weight? Must a lane be cleared? Is it safe to cut a leaf, or will the whole colony respond? An old gardener may recognize an individual held growth by a scarred frond for half a lifetime without pretending to know its final form.
+
+Not everything shares that ambiguity. The high lichens are only lichens, and an old, lichen-covered seat is valued accordingly. Certain ferns never do more than shed fronds. The net-limbed hunters remain animals throughout their lives, though this constancy does not make them reassuring.
+
+The small hunters fold into the appearance of brown leaves and open only when wings thicken around them. The larger ones can occupy a fern bed for days without giving any sign that they are occupied at all. After rain, one may be found flattened against a house wall, heavy with water and recent feeding. The household does not assume that it is dead, dying, or harmless. A pale marker is placed nearby, another door is used, and work continues elsewhere until the hunter takes its stillness away.
+
+Even the lives that never root can be difficult to perceive. The gray stippling on a boulder consists of small backs fitted so closely that a disturbance passes through them without revealing individuals. The climbers in paving seams are usually noticed as a direction rather than as bodies: dark movement ascending a stair, entering a drain, vanishing under a raised floor. The wall-fleece is grazed into paths by jaws too small to see casually. By the time someone leans close, the paths are already closing.
+
+Open water gathers the least dependable assortment of all. A jar that was empty in the morning may contain swimmers, floating skins, clinging clusters, and transparent things whose outlines suggest eggs until they begin to climb. The people do not wait for agreement about what these are before replacing a lid or lowering a cord.
+
+At mist-rise, when the soft-backed bodies enter the lanes, the response is mostly practical. Someone lifts a floorboard. Someone else removes a basket from the court. Jar lids are checked. Then people resume weaving, drilling, or sorting cord above the flow. A person with business on the far side either takes an upper lane or waits.
+
+Occasionally a household recognizes part of its former garden in the migration: a familiar broken frond, a strip of bark caught among the roots, a peculiar wine-dark patch on several backs. Its owner may follow at a distance to learn where it settles. There is usually no attempt to drive it home.
+
+The bare intervals between buildings are therefore not wasted ground. They are space kept available for events whose scale cannot be known beforehand. A strip of naked stone may be more useful than a bed precisely because nothing in it has to be saved. The court’s emptiness serves the same purpose. On most days it looks extravagantly large; during a migration it can seem barely sufficient.
+
+After rain, the people inspect absences before arrivals. A bare terrace, an empty length of cord, or a hunter’s folded outline may explain more than the fresh growth already furring the court. Only afterward do they begin the familiar work of resetting pegs, clearing troughs, replacing screens, and deciding which gardens can be approached.
+
+Their knowledge is extensive but not triumphant. Old predictions fail. Reliable colonies leave without warning. A slab that has attracted nothing for years may become crowded in a single night. The people’s confidence lies less in forecasting than in being able to undo, repair, wait, and make room.
+
+By the next morning, someone whose garden has departed may already be lashing a new tray. This is not because they expect the next inhabitant to stay. It is because a shallow container, a little shade, and a dependable drop of water are still worth offering. In the cleft, an empty tray is not always emptiness. Sometimes it is the most durable form of invitation the town can make.

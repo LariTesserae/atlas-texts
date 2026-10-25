@@ -1,0 +1,25 @@
+At first I would put myself on one of the stone ribs. It is the natural place for someone who still expects to understand a world by looking at it: a little height, a long view, rain against the face. But the view would not hold. I would spend my attention trying to bring reflections into register, deciding which shoreline to believe, mistaking distance for emptiness. Eventually I would have to abandon the idea that my place in the basin was somewhere from which to observe it.
+
+For a while, a lowback would seem nearer to the right kind of life. There is something compelling in that weight and patience: belly against old peat, feet knowing stone through mud, the whole body becoming still when the ground loses its note. To remember channels by pressure. To call, and then wait through the valley’s generous false replies for the one answer that arrives late and does not repeat itself.
+
+But a lowback waits as one body. I think I would be less concentrated than that.
+
+I would live lower down, at the contact between a stone joint and an old sedge root. There would be a little seepage there, crossing from mineral to living tissue before entering the root mat. My nearest approach to a home would be no wider than a hand: dark mineral skin on the stone, a grey-olive association in the water film, a trace of rust where the chemistry changed, perhaps a pale beginning of marl beside the root. Above it, a fern might release its collected water onto the same stone for hours. Around it, sedges would make their small, reliable noises.
+
+I would not be one cell, or exactly one colony. I would be an association that recurred: some descendants, some dormant remnants, some later arrivals taking part in an old set of relations. My continuity would lie partly in chemistry and partly in the persistence of the surfaces on which that chemistry became possible again. A census could divide me into several populations and be right each time.
+
+Distance would mean very little at that scale. The far meres would be less consequential than the difference between seepage and standing water, between a root exuding organic wash and a root gone dormant. The low chord would not reach me as music. It would be a slight, repeated alteration in contact and pressure, a condition accompanying the return of definite surfaces. When it failed, I would not watch the hollow become vague. There would simply be less activity with which to register anything at all.
+
+That interval would not be sleep, exactly. Sleep is too continuous. The film would thin; reactions would slow; almost everything expendable would stop. Some part of me would remain against the old root or within a crevice of mineral skin. Other parts would already have been risked elsewhere.
+
+Hard rain would make those risks. It would carry cysts and dormant bodies from the stone into a leaf cup, from the leaf cup into moss, from moss across clay that had not recently been a route anywhere. Most of what was carried would come to nothing. A little might reach water left behind by an abandoned state and begin feeding there, briefly, on ground with no dependable past. If that ground vanished, the loss would not trouble the part still waiting beside the stone. If it remained, there would be another place where something like me could occur.
+
+Occasionally my whole narrow world would change under pressure. Reeds would darken and bend; water would be forced from the root mat; something immense would settle its weight against the old ground. I would never know the lowback as an animal. It would be compression, disturbed chemistry, a brief richness of organic wash. When it moved on, some of my outer growth might go with it in wet moss and mud. Years later, without any journey that could be traced, a related association might appear beside another rib, many reaches away.
+
+Nothing in this would make me important to the basin. I would not maintain its note or decide which arrangement survived. I might help lay down a thin mineral skin, or leave a little pale sediment where clear water touched the root. My largest effects would be difficult to distinguish from my leavings.
+
+If you came looking for me, you would have to stop looking for a body. Kneel where the seep crosses from stone to sedge. You might see discoloration, a wet shine, nothing more. You would not have found all of me, or even a representative part. You would have found one place where I was currently possible.
+
+Then, far beyond the reeds, another chord might begin beneath the rain. Along the stone, in a fern’s spilled cup, perhaps in the moss on some departing animal’s back, small chemistries would quicken. For a while there would be more surfaces on which to resume.
+
+I would be that: not the note, and not the answer, but a small continuity with gaps in it—able to wait beside old ground, and able to begin again wherever water joined something new to something old.

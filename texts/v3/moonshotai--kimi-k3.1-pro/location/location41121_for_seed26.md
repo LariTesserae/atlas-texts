@@ -1,0 +1,41 @@
+## The Ninth Cold Basin
+
+Four hundred metres below the lowest street, beyond a sequence of pressure doors and freight locks, the Ninth Cold Basin is still becoming a landscape.
+
+It is not a cavern. Nothing here was excavated. Cut through any wall or floor and you would find wearing plate, cast slag, foam-glass insulation, cable beds, pressure hull—layer upon layer of specification, all the way down. There is no earth beneath it and no untouched stone in its walls. Even the dust is manufactured: metal scale, ceramic flour, dried salts, paint. The basin was built to cool the fabrication levels above and recover water from their exhaust. It still performs both tasks, though no longer quite in the proportions intended.
+
+The open portion runs twelve kilometres from the intake terraces to the construction face. In the middle it widens into three connected pans, each broad enough that a pump house on the opposite side is only a lamp and an intermittent vibration. The ceiling, eighty or a hundred metres overhead, is usually invisible. It is inferred from echoes, falling droplets, and the occasional descent of a maintenance cage on cables.
+
+The terrain has the grammar of a valley without any of a valley’s causes. Terraces descend toward black sumps; exchanger fins stand in long, sheer ridges; narrow cuts connect one pressure zone to the next. Every incline is a designed grade. Every cliff has a section number. Yet water has found slopes the surveyors missed, and the broad pans now hold marshes of a kind: shallow, reedless expanses where brine and condensate move over membrane, broken here and there by the sharp backs of submerged panels.
+
+Much of the basin is too new for wear. Cast edges can cut a glove. Broken insulation lies in angular, glittering fans rather than rounded scree. Serial numbers remain legible beneath rime, and the newest floors still carry the colored layout marks of the assembly engines. Water has not had time to round anything. It has only found the seams. On the oldest fin walls, condensate has drawn white salt maps and cut narrow grooves through bolts and coatings. Elsewhere, ice has begun levering tiles from their beds. Erosion is slight, recent, and almost always in the wrong place.
+
+Illumination is sparse and practical. Lamps occur at valves, doors, and ladders, not at regular intervals. Their small pools of green-white or sodium light are separated by long reaches in which the floor is known chiefly by reflection. A few pump houses burn more brightly, islands of windows and vibrating walls. At the distant construction face, welding arcs flash behind screens, briefly giving the mist a hard white horizon. Between these presences is a great deal of unlit, unoccupied floor.
+
+The cold is uneven. It pours from the fin walls, collects in the lower pans, and rises through boot soles before it is felt on the face. Around motor casings there are small zones of damp, oily warmth; a few steps away, clear condensate skins with ice. Brine remains dark and mobile in the open channels. Fresh water freezes in transparent collars around pipes and in thin panes over puddles, fracturing when the levels change. The air smells of cold oil, ozone, wet cement, and brine. A trace of ammonia means a leak, and maintenance crews notice it immediately.
+
+The basin is wet even where nothing appears to be dripping. Guardrails sweat. Expansion joints glisten. Water ticks inside hollow beams and falls from the ceiling in slow, widely separated drops that ring on the plate below. Along certain fin walls, beads gather at the base and then climb upward in hair-fine silver lines. Capillary mats are drawing the condensate toward recovery headers, but from a distance the black ridges seem to be drinking the mist.
+
+Three operating phases give the basin something like weather.
+
+During the **Draw**, the great return pumps pull down the sumps and chilled air is driven across the exposed floors. The pump note deepens until it is felt in the teeth. Mist retreats into low rectangles over the remaining water.
+
+Then comes the **Weep**. Wet exhaust from the fabrication halls enters the high ducts, fog gathers around the cold fins, and moisture begins to fall. It is not gentle rain. The drops are large and irregular, often mixed with grains of thawing frost, and each surface answers differently: a tick on ceramic, a dull strike on insulation, a bright metallic report from bare decking. For twenty minutes, whole ridges can appear to dissolve behind falling water.
+
+The **Flush** begins with a horn. Gates open in sequence, and shallow sheets of water cross the pans, carrying ceramic dust, salt flakes, oil feathers, and rafts of broken ice toward the catch screens. Channels that were nearly invisible suddenly reveal their connections. Some pools empty; others rise against walls with no visible inlet. Afterward, before the pumps have finished their work, the leaks and capillary returns begin refilling the low places.
+
+No phase is quiet. Beneath everything lies the fundamental pump drone, overlaid by compressor beats, gear whine, relay cracks, duct hiss, and the ticking contraction of cold metal. During Flush, water becomes a roar with no single location. The emptiness carries sound surprising distances: a dropped tool can be heard across a pan, though fog may make its source impossible to find. In the lee of an insulated housing, the noise abruptly diminishes, and individual drops become preternaturally distinct.
+
+The crews’ rules reveal the basin’s logic. Clear ice does not mean fresh water. A warm, dry patch of floor may indicate a failed thermal break. Never cross a pan after the first Flush horn. And a sudden silence is not peace; it means one of the great pumps has stopped and pressure is going somewhere else.
+
+Life is present, but so thinly distributed that it does not at first register as ecology. Vegetation is confined largely to light. Around certain service lamps, an engineered gray-green moss forms brittle patches on insulation and in the dust of expansion joints. It was introduced to bind metallic particles and discolor in the presence of particular salts. It has spread beyond its original beds, but only from lamp to lamp. Between them may be hundreds of metres with nothing growing at all.
+
+At sheltered waterlines, olive-black films collect in threads and thin, velvety margins. These support the basin’s rare animals: transparent crustaceans, most no larger than a grain of rice, visible mainly when their shadows pass across a submerged lamp. They graze in stagnant pipe branches and appear in open sumps only after water has moved through some connection absent from the plans. One can walk for hours without seeing an animal, then find several gathered beneath a single loose tile.
+
+The scrubber-crawlers are more consequential than any creature. They follow slow routes across the pans, stripping biofilm, moss, salt, and loose scale. Their missed corners contain the oldest growth. When a crawler’s route changes, the distribution of life changes with it. They are cleaning machines, but they also serve as weather, disturbance, and grazer.
+
+At the eastern end, the landscape is still being assembled. Bridge-sized construction engines set new floor sections and raise raw fin walls behind welding screens. Quench water steams briefly, then freezes along unused channels. Fresh ground ticks as it cools. Stairs terminate in open air; canals end against gates that have not yet been installed. Beyond the last solid lip, red lamps continue into darkness, marking grades and foundations that do not yet exist.
+
+From the central gantry, the Ninth Cold Basin can look almost empty: scattered lamps, dark water, widely separated ridges, and the suggestion of a ceiling. Then the phase changes. Pumps load, fog leans through the fins, water climbs the recovery walls and falls elsewhere as rain, and the whole region answers in sound.
+
+It is a machine behaving like a watershed, and a watershed still being assembled. Its first ecology has arrived before its final form. Nothing in it is natural, but not everything that happens in it is controlled.

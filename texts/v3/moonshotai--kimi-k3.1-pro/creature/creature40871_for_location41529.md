@@ -1,0 +1,53 @@
+A census of the Hushworks would be misleading if it ended with the keepers. The human population is small: a few permanent residents above the north gallery, others coming and going on long maintenance rotations. Their rooms contain ordinary evidence of occupation—drying clothes, chipped cups, diagrams amended by hand, a card game abandoned beside a lamp. They are not solemn subterranean ascetics. Behind padded doors they talk, argue, cook, and occasionally laugh too loudly. Beyond those doors, however, their movements change.
+
+A new keeper’s first lesson is how to put down a wrench. The second is to return later and look at the wall.
+
+Experienced keepers hold latches while closing doors, lower tools with the whole hand, and avoid dragging grit beneath a boot. They learn to distinguish the motor tone that belongs to the chamber from the rattle of a loose guard or the faint, repeated knock of something beginning to wear. Much of their communication is visual: shuttered lamp signals across the galleries, chalk marks around valves, notes left where a hand will naturally find them. Their caution is not fear of some immediate retaliation from the stone. It is an understanding of delay. An action may be over long before its consequences have finished arriving.
+
+Their work also extends beyond the machinery. One page of the north-gallery ledger might read:
+
+*Oil cup 2, full. Screen 4, south margin left. Motor 3, salamander behind housing. Crab gap at curb 6 clear. Fern 5, one new frond.*
+
+Below that, in a different hand:
+
+*Seam 19 weeping. Chain dropped previous afternoon. Ceased by second round.*
+
+No heading separates engineering from natural history. It is all maintenance.
+
+This does not mean the keepers are uniformly tender toward the animals. Webs are cleared from electrical contacts. Crabs are put out of tool cupboards. An eel in the wrong sump can complicate an entire inspection. But indiscriminate cleaning has repeatedly proved to make more work, not less. A screen scrubbed bare fouls unevenly; a margin left alive recolonizes predictably. Animals also reveal conditions that gauges miss. Shrimp abandon a screen when its current changes. Eels find culverts that plans show as sealed. Salamanders disappear from warm refuges when the balance of heat and seepage alters. The keepers have learned to notice, and noticing, continued for years, becomes a kind of familiarity.
+
+The shrimp are the most numerous visible residents. From a walkway they can look like slight defects in the water, hundreds of transparent flecks suspended above the intake screens. Each apparent stillness is sustained by constant small corrections. Their limbs fan the current; their bodies turn and recover; now and then one releases its hold and drifts before catching again. Cast-off shells collect in the softer growth, almost indistinguishable from living animals until the current takes them.
+
+The keepers do not so much clean these screens as open lanes through them. A strip is brushed, an adjoining margin is left, and the shrimp rise in a colorless cloud before settling back. They graze the microbial felt, carry fine material from one part of the screen to another, and provide food for larger hunters. Their molts, remains, and gatherings become part of the screen’s own layered economy. A bare screen passes water, but a selectively occupied one supports much of the visible life around the intake.
+
+The black eels occupy the deeper water. Some are probably very old. The same damaged fin or pale scar near a gill appears in entries made decades apart, though the keepers are cautious about claiming certainty. An eel may remain motionless through an entire round, its body following a canal joint so closely that it seems part of the structure. When it moves, it often does so in sections: first a head lifting from shadow, then a slow tightening of the body, and only much later the withdrawal of the tail.
+
+They are useful surveyors without being treated as such. During a rising phase they enter lower galleries before those galleries have become recognizable waterways. During a withdrawal they linger in cooling sumps and shrinking channels. One appearing where no open passage is marked may prompt a search for a submerged culvert. They take small animals from the screens, scavenge what settles into quiet corners, and occasionally surface beneath a lamp with such deliberation that the reflection seems to be disturbed rather than the water.
+
+The pale crabs belong to edges. Their town is made of curb gaps, submerged sills, the undersides of walkways, and the narrow interval between a pipe and the wall behind it. The shells of older animals are polished at points of repeated contact. Some routes have been used so long that the stone itself has become smooth.
+
+The gaps left for them are practical concessions. A blocked gap becomes a trap for silt and molted shells; an open one remains a passage for both animals and water. When the galleries are empty, crabs sometimes cross exposed plates or climb a step that appears far too vertical for them. They are not capable of absolute silence. Their shells touch iron with a minute, hard tick. In the Hushworks, this can make a crab seem astonishingly busy.
+
+Blind salamanders occupy a much smaller and less predictable map. They need warmth without dryness and moisture without a scouring current. Such conditions occur behind certain motor housings, where heat from the machinery meets a seam that never quite stops seeping. A refuge may be no wider than a hand. Often the only evidence of occupation is a length of ivory skin withdrawn before a lamp can be brought closer.
+
+The keepers generally do not try to see more. A tail tip or the impression of a body in soft silt is entered as *present*. When machinery is opened for repair, the dark space behind it is checked indirectly first. The salamanders feed on larvae and other small life in the seep pools. Strong vibration clears a refuge quickly, hours before any droplets may appear on the wall above it. They are responding to the physical disturbance, not predicting the weeping, but the sequence can give their disappearance an unsettling quality.
+
+The moths and spiders live mainly above the water, though never entirely apart from it. Adult moths gather near the lamps, their soft wings often looking damp or slightly creased. Their larvae graze the less tenacious accumulations behind brackets and along sheltered ledges. A wing that reaches a canal may be picked over at a screen, returned briefly to the food web from which it came.
+
+Spiderwebs make otherwise invisible moisture visible. Between insulators they sag into curved geometries of beads, some growing heavy enough to break their own capture lines. The spiders repair anchors, abandon impossible spans, and build again. Moths feed them; dead roots and abandoned cable loops provide attachment points. When a lamp is raised to a higher bracket, the moths usually find it first. The spiders follow more slowly.
+
+Beneath all these lives are the microbial felts. They are not one substance but a patchwork of communities: dark growth in steady current, rust-colored accumulations near mineral seepage, pale mats in sheltered warmth, thin olive films where the waterline repeatedly wets and exposes the stone. They concentrate organic silt, trap finer particles, and provide grazing surfaces. Some cleaning scars remain visible for years. Others vanish in a season.
+
+Surface weather enters the Hushworks largely through this life. After heavy rain above, the filters receive a richer burden of silt. The felts thicken; shrimp gather more densely; crabs and eels become active along particular margins. Weeks later, much of the chamber may still be feeding on a storm that no resident below saw.
+
+The ferns stand apart from this economy. Beneath the ventilation shaft, each occupies a slightly different bargain between gray daylight, dripping water, and shelter from oil or passing tools. They have not been encouraged into a garden. There are no beds or banks of green. Their fronds are simply noted, and their root pockets left alone. The moss near the cold cable entry survives on an even narrower allowance of light and condensation. As for the hairlike roots descending from distant soil, most are brief visitors. They dry and end in the air. A spider may use a dead one to anchor a web.
+
+None of these distributions is permanent. A human working life is shorter than the main canal’s cycle, so the keepers inherit expectations rather than complete memories. They raise thresholds, preserve cable loops, and prepare higher lamp brackets for conditions they may never personally inspect. The animals make other arrangements. Eels test new passages. Crabs shift their routes from step to step. Moths and spiders move toward the remaining dry structures. Microbial margins migrate almost imperceptibly.
+
+The salamanders’ changes are hardest to anticipate. As the canal rises and the walls cease weeping, a warm refuge can become too dry even while the chamber as a whole is growing wetter. When the water withdraws and seepage resumes, new pockets appear behind different housings. Animals therefore do not simply move upward with a flood and downward after it. Each follows its own combination of temperature, current, moisture, food, and shelter. Residence in the Hushworks is less a fixed address than the continued discovery of suitable conditions.
+
+The long slowing provided by the pumps makes those discoveries possible. It allows a screen margin to recover before the next cleaning, a crab route to be preserved during repairs, a door to be moved before it becomes an underwater obstruction, and a keeper to learn from entries written by someone whose working life never overlapped their own.
+
+On the central bridge, none of this need be visible. A shutter opens and closes above the north gallery. At the intake, hundreds of small bodies continue the work of remaining in place. An eel passes beneath a lamp, and the reflection slowly closes over it. Behind a warm housing, something blind shifts toward moisture. High under the shaft, a fern holds a new frond in the gray light. Then a crab touches iron once.
+
+The Hushworks is not hushed because it is empty. It is hushed because so much of its life proceeds by fine adjustments, and because its keepers have learned that an action is not finished until the water has had time to answer.

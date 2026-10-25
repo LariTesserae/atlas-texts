@@ -1,0 +1,29 @@
+### The Hollow of Settled Salt
+
+The hollow lies a little below the surrounding land, in a shallow sag rather than a valley. It is small enough to hold in the attention: perhaps a hundred slow paces across, with a rim so low and rounded that it seems less to enclose the floor than to settle around it. Nothing towers. Nothing precipitous rises above anything else. The place has depth without height, and something of the intimacy of a room, though it stands open to the sky.
+
+The darkness is close to total. A moonless sky shows a few remote stars, enough to orient the eye but not to illuminate the ground. Materials emerge as different degrees of black: the hard, near-absolute darkness of stone; the softer darkness of dust; the faint mineral gray of old salt. There are no cast shadows. Distances must be guessed from the effort of walking and from the gradual warmth of the ground underfoot.
+
+That ground is dry all the way down. Fine mineral meal lies over an ancient crust of salt and compacted clay. In places the crust has divided into small plates, but their edges are rounded and the fissures between them are filled with old dust. Nothing looks freshly broken. There is no dampness beneath the stones, no cool seep at the lowest point, no darkening that might suggest moisture below. Even the deepest cracks are dry.
+
+Water is absent not merely from the surface but from the expectations of the place. The salt is not a shoreline waiting for its lake to return. It is simply residue: what remained after water ceased to have any further part in shaping the hollow.
+
+Warmth rises gently through the soles. It is not scorching, and there are no vents, fumes, or visible distortions of hot air. The whole basin is warm in the way a sunlit wall remains warm after sunset, except that here the warmth does not seem to be fading. The air is still and dry against the skin. Its smell is faint: warm stone, clean mineral dust, and occasionally a papery bitterness near the plants.
+
+Those plants are widely spaced, each one separately discoverable. Most are woody shrubs no higher than a knee, with dark stems and narrow gray leaves pressed close against them. A few are only handspan-high cushions of stiff, black-green growth. Their roots follow old fractures where a little coarser soil has collected. None flowers. None forms a thicket with another. Between one plant and the next lies a long interval of bare mineral ground.
+
+Dead twigs remain attached to living stems, dry and intact, because decay has so little to work with. Fallen stems lie where they came to rest, slowly becoming indistinguishable from small pieces of wood-colored stone. The vegetation does not give an impression of flourishing or of dying back. Growth here is so slow that it reads chiefly as posture.
+
+There are no animal tracks across the dust, no burrows, nests, webs, or gnawed stems. No insect sounds arise after the ear adjusts to the dark. The plants are entire and untenanted. Even the usual secondary evidence of animal life is missing: no scattered feathers, no bones, no droppings, no trails leading purposefully from one patch of cover to another. The ecology is almost entirely a matter of spacing—plant, mineral ground, plant, long pause.
+
+At first the hollow seems silent. Later, a few very small sounds separate themselves from that silence. A grain slips from the side of a fissure. One dry stem clicks against another. Somewhere under the crust, a stone gives a faint tick as it settles. These sounds never gather into wind or weather. They do not announce anything approaching. Between them, the silence returns without appearing to have been disturbed.
+
+Nothing has been built here. There is no path over the rim, no cairn, no fire-blackened circle, no arrangement of stones that could not have occurred naturally. A few fractured rocks have edges sharp enough to cut, and one shallow depression in a boulder might serve as a grinding bowl, but the depression contains only undisturbed dust. The simplest possible interventions—lifting, striking, scraping, grinding—are physically available, yet there is no record that any of them has happened. The tool-like objects remain stones. The bowl remains an accident of erosion.
+
+What might first look like desolation is, on longer attention, equilibrium. The slopes have already softened. Old channels are shallow and dust-filled, with no fresh debris at their mouths. Pebbles have settled into stable pockets. The salt crust is neither visibly advancing nor retreating, and the plants hold their scattered stations without any apparent contest for space. Even the warmth is evenly distributed, and the darkness has no gradient toward revelation.
+
+The hollow is not supernaturally frozen. A foot could break its crust; a hand could snap a stem; a hard enough season could alter it. But left alone, its small events continually return it to nearly the same condition. Its changes are slower than its descriptions. Stillness here is not a paused catastrophe or a held breath. It is the ordinary behavior of a place with very little energy left to spend on becoming different.
+
+From the center, the rim is only a slightly deeper line against the night. The boundaries remain near, even when unseen. There are no dunes migrating outward, no canyon deepening below, no distant water reflecting a promise of elsewhere. The hollow remains small, warm, dry, and sparsely vegetated. Its emptiness is not merely a backdrop but one of its materials, as integral as salt or stone.
+
+Nothing calls. Nothing arrives. Nothing has been left behind. The place feels finished—not lifeless, not waiting, but established at so quiet a level that persistence itself has become its most visible feature.

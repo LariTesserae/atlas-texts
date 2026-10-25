@@ -1,0 +1,43 @@
+## The Empty Garden
+
+High in a range so old that its peaks have become rounded backs, there is a basin no more than three hundred paces across. The mountain is still unmistakably high. Beyond the basin’s low rim, the air is thin and cold, and water survives in shaded cracks as ice. Inside, the air is warm enough to bead on the skin. It smells of wet iron, crushed stems, and the mineral sweetness of rain that fell long ago.
+
+The boundary is not marked by a wall. A walker notices it first in the ears, as the pressure changes, and then in the sudden stillness of the wind. One more step, and all light ceases.
+
+There is no twilight within the Garden, no gradual adaptation of the eyes. No stars are visible above it, and nothing living there glows. A flame carried across the rim will continue to burn; its heat can be felt, and its fuel is consumed, but it gives no illumination. Even the wick remains invisible. This is not simply a place where light has failed to arrive. Illumination is one of the things the place does not permit.
+
+The land itself has nearly finished wearing down. The rim is a broad, smooth lip rather than a ridge. There are no fresh fractures, no angular scree, no pebbles with sharp edges. Bedrock rises through the soil in rounded bosses, polished by water until they feel like handles used for generations. Channels have been following the same shallow courses for so long that they no longer deepen. Sediment leaving them is caught in roots and returned to the ground at almost exactly the rate it is lost.
+
+At the center lies a low expanse of bare stone, perhaps forty paces wide. It may be a natural summit of the underlying rock, or the last exposed portion of a floor; its margins are too eroded to decide. Around this center, the ground is crowded with growth. Above it, and above all the growth, there is almost nothing.
+
+That emptiness is the Garden’s dominant feature. Life forms a lush but shallow rind over a great unoccupied volume. There are no trees, no canopy, no hanging vines, no swarms thickening the air. A hand swept overhead meets only warmth and moisture. A stone thrown upward falls back without touching anything. Occasionally a winged animal crosses the open space, but for hours at a time the entire air of the basin may contain not one living body.
+
+Water mostly comes upward. It seeps through hairline joints in the rock, collects in the pores of the rim, and emerges in warm, clear threads. The deepest pools would barely cover a hand. Elsewhere the water sits within a finger’s breadth of the surface, held among roots and fine black mud. There are no vigorous streams. Water hesitates from one depression to the next, disappears into fissures, and returns elsewhere days or years later. At intervals, moisture condenses high in the still atmosphere and falls as single, widely spaced drops. The Garden is perpetually wet without ever quite experiencing rain.
+
+The vegetation is richest around these seepages. Mosses with the spring and density of wet fur cover the stones. Among them grow thick strap-leaves, ribbed fans, and cup-shaped fronds that each hold a spoonful of water. Some leaves close around a source of warmth, but so slowly that a hand can be withdrawn long before the movement is complete. Their roots form braided mats several layers deep, farming colonies of microorganisms in the mineral-rich seep water. The whole garden is fed ultimately by reactions between warm water and stone. Nothing here photosynthesizes. Nothing is waiting for the sun.
+
+Individual plants live a long time. A fan may take several seasons to open and then remain essentially unchanged for a century. Fallen tissue does not rot so much as gradually transfer its substance to the creatures beneath it. Almost everything that dies in the basin is eventually used again inside the basin. The Garden has not spread beyond its rim, but neither has it diminished.
+
+The fauna are abundant in that thin, wet rind. A hand pressed into the moss disturbs shell-backed grazers, soft many-legged animals, ribbonlike hunters, and small creatures that jump with a dry, startling crack. Blind salamanders lie in the warmer runnels, sometimes for weeks without changing position. The deeper pools contain slow fish and gilled things that feed by drawing water through fringed mouths. Under a single step, the ground may seem to come alive; a few paces away, it will appear utterly vacant.
+
+Larger animals are widely separated. The most conspicuous are the bell-throats, heavy amphibians that remain half-buried at the edges of pools. Each occupies a territory far enough from the next that their calls seldom overlap naturally. In the open air there is sometimes a single broad-winged listener, navigating with clicks so faint they are felt more easily than heard. It may circle the basin once and not return for days.
+
+Yet the Garden is loud.
+
+Drops strike leaf-cups with distinct, hollow notes. Water gulps in buried cavities. Grazers tick against one another’s shells. From around the rim come trills, rasps, and the bell-throats’ slow, pressurized booming. Certain calls return from the curved rock several times, altered enough that they seem to be answers. Other sounds arrive through the ground before they reach the air. At the busiest times, a visitor must pause in conversation to hear the next few words.
+
+The loudness is deceptive. Almost nothing is hurrying. A call may be repeated at the same interval for years. Its answer may come hours later. The great voices do not signal migrations, hunts, or approaching storms; mostly they maintain distances that have already been maintained for ages. Sound is not evidence of upheaval here. It is the inhabitants’ way of touching one another across emptiness.
+
+The only unmistakably constructed objects are three short pins set far apart around the basin. One stands in a seep, one is nearly buried in peat, and one emerges from the central stone. They are worn smooth only where later hands have touched them. Otherwise they show no age. They have no seams, moving parts, or accessible interiors, and measurements of their depths do not agree: a probe may encounter an end a few centimetres down, while another passes alongside for much longer without reaching anything at all.
+
+They seem less like machines than like the local edges of a process occurring elsewhere. Together they preserve a small disagreement between the basin and the rest of the world. Dense air that should escape remains. Warmth that should radiate away is returned. Water leaving the system finds its way back. Radiation arrives as heat rather than light, and light produced inside is taken almost at its source. The pins do none of this visibly. They have no rhythm to observe, no cycle of activation. Their operation is indistinguishable from patience.
+
+There are a few lesser traces. On the old approach, seven steps descend into saturated soil and stop, with no continuation on the other side. A shallow groove crosses part of the rim, too regular to be a watercourse and too incomplete to be called an inscription. These may belong to later visitors. Compared with the pins, they seem almost recent.
+
+Nothing in the Garden changes quickly except sound. There is no wind worth naming, and outside seasons enter only as differences too slight for skin to detect. A channel migrates over centuries. The central stone becomes bare by fractions. Beyond the rim, the mountain continues to lower itself grain by grain; within, erosion and accumulation have settled into an almost exact balance. The place is not recovering from a catastrophe, and despite its darkness it is not dying. It has reached a condition in which very little further alteration is required.
+
+To cross it is to move through contradictory impressions: crowded ground and vacant air, water without weather, warmth at an altitude that should forbid it, voices without visible mouths. At the far rim, cold returns first. Then pressure releases in the ears. Then light arrives all at once, and whatever lies outside seems impossibly exposed.
+
+The Garden does not feel abandoned, exactly. Abandonment would imply that its present condition is a departure from some purpose. Here, purpose may simply have become irrelevant while maintenance continued. Warmth is kept. Water is returned. Light is refused. Leaf replaces leaf, and animal replaces animal, across intervals too long for urgency.
+
+The mountain is still ageing around it. The Garden has become something quieter than eternal: finished, but not ended.

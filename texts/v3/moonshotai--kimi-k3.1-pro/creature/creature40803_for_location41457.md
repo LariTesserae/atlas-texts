@@ -1,0 +1,49 @@
+The daylight joint feeds nothing. No green band gathers beneath it, and none of the animals turns toward its brief gray weakening of the dark. Life in the High Cistern begins with wet masonry: with seepage crossing clay, with mortar giving up traces of itself, with water and metal and mineral maintaining small chemical differences that never quite close.
+
+Most of that life is too thin to distinguish from the surface it occupies. On the inlet tiles it forms gray, rust-colored, or nearly colorless films. In porous brick it extends below the visible skin, following spaces too narrow for any animal to enter. Some of its organisms use what the seepage brings; others live on the remains of the first. Their growth is not a spreading stain so much as a gradual change in the texture of dampness.
+
+The protected marks of the makers have become small provinces within this world. Film lies a little thicker in the ridges of a thumbprint. It follows the grain impressed by a wooden mold and collects in the parallel grooves left by a stone tool. The old copper staple supports a sparse, tolerant community different from the one on the lime beside it. Life has not altogether obscured these traces. In places it has settled preferentially into their recesses, preserving them as habitat. The last touches of human hands are now grazing grounds.
+
+A fraction of warmth or a slight difference in seepage is enough to make a separate climate. The films on one side of a pier are not quite those on the other, and the animals that crop them differ accordingly. For something living within a single pore, the distance from inlet to overflow is not a short journey through a chapel-sized room. It is a succession of countries.
+
+Where the surfaces are firm, the pavement shells fasten themselves. Much of their visible mass belongs to the dead: old valves, broken rims, generations of settlement cemented into a single encrustation. The living animals are scattered through it, often indistinguishable from their ancestors until one valve opens by the width of a hair.
+
+Inside that narrow gap, cilia maintain a current too local to stir the sediment. The shellfish take fine particles from water that appears to contain nothing. They grow chiefly by thickening, by adding another almost imperceptible margin to a structure already fitted closely against its neighbors. Their young do not disperse far. After a brief unattached stage, most settle into nearby irregularities—a dead shell’s hollow, a seam in the lime scale, the sheltered angle beneath an older valve. A pavement is therefore not simply a crowd but a local lineage, slowly adjusted to the curvature and chemistry of one pier.
+
+At the inlet tiles, the tube-dwellers occupy the places where seepage is most continuous. Their tubes are built from secreted mineral, clay fines, and the smallest available debris. From each, when the animal is feeding, a soft fan emerges: many fine filaments held motionless in the water, their surfaces doing the work that current would do elsewhere.
+
+A colony of extended fans gives the tile a brief appearance of softness. Then some minute pressure change passes through the chamber, and the fans contract. The tile becomes hard and pocked again. They reopen unevenly, one after another, sometimes over hours. Nothing about the disturbance is dramatic enough to reveal what caused it.
+
+Between these fixed animals move the translucent grazers. Their jointed limbs serve as scrapers, anchors, and instruments of taste. One limb tests the masonry while the others hold the body still; often this testing is the only sign that the creature is active. Through the clearer animals, a narrow gut and a faint internal pulse can be seen. Their transparency is of no particular use as camouflage in the dark. It is simply pigment they have never needed to make.
+
+They work around the margins of the shellfish, over the tool grooves, and along the lips of pipes, taking the upper growth of film without visibly diminishing it. Some follow routes so restricted that the whole geography of an individual may be contained within one niche. Shelter is not built. It is found beneath a valve, inside a rounded recess, or in the shallow lee of a pipe bundle. Generations of bodies entering and leaving the same shelters have helped worry their original corners into ovals.
+
+Their clutches are small, and their young begin life close to the surfaces used by their parents. When a grazer molts, the abandoned covering may remain gripping the wall for a while: an empty, jointed duplicate with no dark line inside it. Eventually it releases, turns once in the water, and joins the slow descent toward the basin.
+
+The blind fish inhabit the open intervals above all this, though “open” describes only the absence of masonry. Many of the intervals between fish are narrower than the fish themselves. Their eyes are buried, reduced, or absent. Along their flanks run sensory pits so fine that they seem creases in the pale skin. Their world is made of pressure, taste, temperature, and the slight resistance offered by nearby bodies.
+
+A pier is a stillness in that world. Another fish is a pressure that responds.
+
+The crowd has no leader and little that could be called collective intention. Yet it is not merely an aggregation. Each animal maintains its place partly by reference to the others. When one turns, its movement changes the water against a neighbor’s flank; that neighbor corrects itself, and the correction travels onward. A slow rotation can therefore pass through a whole layer without any fish crossing more than a fraction of its own length. The effect is less like schooling than like a fabric changing tension.
+
+To feed, a fish may leave its layer by only a short distance. It approaches a pier, takes one small crustacean from a shell margin, and returns. There is no pursuit through the vaults. A meal is a brief displacement followed by another long period of maintenance. Most of the fish are not growing rapidly, or growing at all. Their abundance is longevity made visible: a crowd accumulated because individuals need little, live long, and are replaced slowly.
+
+Breeding is correspondingly inconspicuous. It is governed not by daylight or a sharp season but by slight alterations in the taste and level of the water during long wet cycles. A few clear eggs are fixed beneath sheltered overhangs. The embryos develop within them for a long time, visible only as minute changes in density. Newly independent fish keep first to the less crowded margins. Entering the dense middle layers is a matter of years.
+
+When a fish dies, its absence persists. Neighbors do not rush to occupy the space. For days the crowd may retain a narrow, fish-shaped looseness around the place where it hung. Only gradually do small corrections close the interval.
+
+The longest animals live with nearly all of that length concealed. The ribbon-bodied hunters occupy the clay pipes, sometimes showing nothing but a soft head and several pairs of sensory tendrils at a mouth. An open pipe can be empty, mineral-choked, or almost entirely inhabited behind its visible darkness. There is usually no way to tell from the opening alone.
+
+The tendrils sample touch, vibration, and dissolved traces. They do not sweep continually. More often they remain extended at slight angles, waiting for a grazer to come within the small reach in which hunting is economical. The quickest action in the cistern may be the short forward slide of such a head. A tendril folds, a crustacean disappears, and the hunter withdraws. There is no chase and almost no disturbance beyond the pipe mouth.
+
+Young hunters enter the finer conduits. Older ones occupy broader pipes, their bodies following bends and constrictions laid down long before they existed. Some may pass their whole adult lives without exposing more than their heads. As mineral crust narrows a conduit, an inhabitant yields toward the mouth or abandons an older reach. Those that die deep within the system seldom emerge whole. Films and small decomposers enter after them, and the pipe consumes their substance in place.
+
+The basin receives everything else: molts, shell fragments, waste, bodies, fans torn loose by age. Its sediment is not an inactive floor but the slowest inhabited surface in the cistern. Within its upper layers, microscopic decomposers and fine burrowing animals work between the grains. A dead fish is not attended by a frenzy. It loses its outline by degrees, its soft substance passing into organisms too small and too patient to make the process appear like feeding. Harder remnants remain longer, becoming shelter or settlement surfaces before burial.
+
+Even the air seams add little separate habitat. Nothing flies beneath the cupolas, and no animal needs to break their mirrored undersides to breathe. Occasionally a film gathers at the edge of a trapped bubble. When the seam shifts and absorbs it, that film tears, sinks, and enters the same economy as everything else.
+
+No single creature can be called the cistern’s central inhabitant. The films make the first food; the grazers make that food available to larger bodies; the shellfish and tube-dwellers turn feeding into shelter and shelter into terrain. The fish give the middle vaults their dense, suspended population, while the pipes hold their hidden lengths of appetite. Every death becomes a local increase in some other kind of life.
+
+An old fish hanging above the buried basin may therefore have above it only a hand’s breadth of crowded water, and beneath it the materials of many earlier fish dispersed through film, flesh, shell, and sediment. Around it, valves remain nearly closed. Fans extend by fractions. A tendril bends at a pipe mouth. Somewhere a grazer lifts one limb and sets it down again.
+
+The stillness is not emptiness, or even rest. It is the pace at which the cistern can afford to be alive.

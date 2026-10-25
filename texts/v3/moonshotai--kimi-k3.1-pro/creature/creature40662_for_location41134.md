@@ -1,0 +1,33 @@
+## The Nine
+
+Within the basin, the only lives are the nine plants. Calling them a colony would suggest cooperation; calling them a population would suggest the possibility of increase or replacement. Neither is quite right. They are simply nine closed whorls of living tissue, each existing where the standing sound thins enough to permit it. There is no hierarchy among them, no first or last, and no ceremony in their number.
+
+At the scale of the basin, they might be mistaken for flakes caught in the floor’s crystalline nap. But nothing in the Dry Choir is merely caught, and nothing loose remains. The sage darkness at each center is pigment, not shadow; the illumination has no shadows deep enough to make it. The clear outer scales admit light from every side and return it at their margins as a narrow silver line. Beneath those scales, finer leaves repeat inward, folded so closely that the innermost whorl seems to have been compressed into a single dark point.
+
+No two are quite alike. One lies broad and almost flush with the floor, its outer whorls distinct and its center shallow. Another rises slightly, crowded upon itself, its transparent scales nesting with the compactness of a closed pinecone stripped of every roughness. The smallest is little more than a few silver-edged turns around a fleck of sage-black. These differences are not stages. The smallest is not youngest, and the broadest is not approaching some further openness. Nothing in their size records a former size or promises a future one.
+
+Their roots make them still less separable from the place. At first they clasp the floor in fine, close-fitting lines. Farther down, those lines lose their distinctness. Root tissue grades by almost imperceptible degrees into the substance of the seam: walls thicken, contents simplify, and the boundary becomes a matter of emphasis rather than a visible edge. There is no root ball, no probing tip, no hidden cavity packed with nourishing debris. Each plant ends in continuity. To say exactly where it stops and the architecture begins would require an arbitrary cut.
+
+Their true habitat is not simply the floor. It is the motionless shape of the pressure above and within it.
+
+Each plant occupies a region in which the tones of the hollow partly cancel. This is not silence. The roar is still present, immense and sourceless, but at those particular seams its force arrives less completely. The remaining vibration passes through the plants without visibly stirring a leaf. Just beyond their clear margins, the pressure resumes the fixed intensity that has rounded and burnished the louder terrain. Around the plants themselves, the floor remains matte and fine-grained.
+
+They do not brace against the sound. Nothing so small could resist the conditions of the loud regions. Nor do they drink it, damp it, or draw nourishment from its energy. They live within its cancellations as other plants might live within a narrow band of light—except that nothing here seeks that band, and the band never moves. Their positions are exact because only there can their folded tissues persist. Together, their scattered forms make a living contour of the chord, though none of them contains a listener and none of them answers with a voice.
+
+Their dryness is not desiccation. A dried leaf ordinarily preserves the shape of a life whose conditions have departed; these plants have no such departure written into them. Their living chemistry is sealed behind wax and within bound tissue. Nothing transpires from their surfaces into the air. No sap shines anywhere, because there are no broken edges. Whatever sparse requirements reach them from the deeper grown member pass through the continuous roots without visible flow. In return, their compounds enter the seam and contribute to its hardness and closure.
+
+This is not a slow meal consumed toward growth. They are already grown. Nor is it husbandry: the plants do not tend the hollow, and the hollow does not intend to be tended. Taking and returning have no seasonal rhythm and produce no accumulation. At equilibrium, the exchange does not enlarge the plants or exhaust the architecture. It preserves an exact boundary between two kinds of organization, one living and one merely grown.
+
+Nothing in them is folded around a future. There are no reproductive structures hidden beneath the scales, no seed forming without a flower, no spore waiting for an impossible dampness. It would be misleading even to call them sterile, since that makes reproduction sound like a failed possibility. Here it is simply absent from the form of life. Likewise, they are not dormant. Dormancy implies a later permission—a wetting, a season, a lessening of force. No later condition is required, and none is anticipated.
+
+No fallen husk lies beneath them. There are no leaf scars, no pale impressions where others once sat, no discarded outer whorls. Their closure is not postponement. The dark center remains closed because closure belongs to its maturity.
+
+Between the nine there is almost no ecology of encounter. None shades another, outgrows another, or depends upon another’s chemistry. Their silver edges are not signals, and their symmetry serves no viewer. Nothing has approached them, so their forms carry no history of defense, attraction, flight, or concealment. Even their relationship to the light is without gesture: illumination enters from all directions, and no leaf has any reason to turn.
+
+What distinguishes them from the surrounding architecture is therefore almost nothing that an eye trained on motion would recognize. It lies in the inward order of their tissue, in the selectivity of their roots, in compounds that belong to a living organization rather than merely having been deposited. Their lives have no visible gestures. They are neither dead matter retaining a beautiful symmetry nor tiny bodies holding themselves still. Stillness is simply what their completeness looks like from outside.
+
+They are not the Choir’s musicians, and not its audience. The sound is not theirs and requires no answer from them. They are the nine places where an unvarying chord and a small amount of living organization are compatible. Sage-dark at the heart, clear and silver at the edge, rooted past distinction into the floor, they make portions of the chord visible without interpreting it.
+
+Like the roar, their lives are not events occurring within the landscape. They are part of the landscape’s shape. They do not wait for silence, and they do not disturb the sound.
+
+They inhabit the chord.

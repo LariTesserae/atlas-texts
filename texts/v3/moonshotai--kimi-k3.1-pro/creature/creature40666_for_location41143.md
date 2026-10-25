@@ -1,0 +1,51 @@
+## What Lives in the New Cut
+
+At a distance, the New Cut seems inhabited by a single restless crust with a voice and wings. Closer, the census becomes both easier and less certain. The animals are warm, dry, and almost without odour. They have no body heat to separate them from the air and no wet tissues to betray their injuries. One must look for habits instead: carrying, listening, cropping, returning.
+
+The **scalebacks** are the easiest to follow and the hardest to count. Up close, their armour is not a shell into which an animal has been inserted. Each plate has a grey, fibrous margin continuous with the body beneath it, so that the whole back bends like tightly woven roofing. Their many feet move independently but seldom hurry. A scaleback can be walked over by six others and continue concerned only with the pellet in its mandibles.
+
+The two dull flecks beside its antennae may be eyes, though they never reflect the lamps. The animal appears to do most of its seeing through its feet. It hesitates at changes in the floor’s vibration, turns toward the press before the hammer falls, and finds the outlet without raising its head. When antennae meet, the animals usually stop for a moment. Sometimes one releases its pellet and the other takes it. Sometimes they simply touch the charged dust on one another’s foreplates and go on.
+
+There is no permanent procession between outlet and intake. Individuals join it, leave it, become buried in the crowd, or wander off to graze. Nevertheless, the route never empties. A pellet set down beside the engine may remain there for several hundred footsteps before being picked up by an animal coming from the opposite direction. The work has the appearance of cooperation without requiring any two scalebacks to share an intention.
+
+Their clacking is similarly ambiguous. When the press strikes, the plates lift slightly and snap shut. The response spreads irregularly through the crowd, thousands of dry little concussions vanishing into the engine’s chord. It is not merely startlement. Afterwards, loosened plates lie flush again and the fibres below them draw tight. Scalebacks that have been feeding quietly among the wall flakes often clack several times without any external blow, as though adjusting themselves from within.
+
+An injured scaleback does not struggle for long. A crushed limb may continue stepping after the animal has changed direction; a split back may go on carrying its pellet while grey threads loosen behind it. Then the creature loses the agreements among its parts. Plates separate. The core becomes a small bundle of unravelling fibre. There is no final convulsion and nothing for the others to avoid. Traffic carries the strands away, dust takes the finer material, and the moving floor closes over the place where an individual had been.
+
+The **bell-throats** are less visibly busy. When their throats are empty, the smallest resemble soft clamps fastened around a fracture; the largest might be patches of warm, collapsed hide. Their splayed limbs do more than support them. By shifting even one foot, a bell-throat changes the tension across its body and alters the note of its next breath. The wall is part of the instrument.
+
+The throat is also a feeding surface. Fine pale fibres and mica flour lodge among its internal folds, where they are worked slowly into the animal’s flat body. A breath therefore serves several purposes without seeming especially purposeful: dust is drawn in, the throat fills, and the exhalation sounds through its natural openings. Some notes are clear and flute-like. Others have a dry reediness, caused by a fibre vibrating across an opening.
+
+A bell-throat whose tone duplicates another nearby will often change its grip until the two notes separate. If the engine’s clatter briefly covers its voice, it may breathe again at once. If another animal fills the same interval, it usually remains deflated. This is the closest they come to conversation. They are not singing together so much as continually discovering where a sound can still exist.
+
+Small bell-throats sometimes settle across the margins of large ones, and both continue breathing. None defends a lamp, a plant, or a particularly resonant fracture. At the end of its coherence, a bell-throat simply becomes unable to hold tension. Its notes grow intermittent; other throats take up the spaces. Eventually the openings close, the body releases the wall, and a light husk drops straight down through the still air. Those hanging above wiregrass thus return their dry remains almost exactly where they can be used.
+
+The **mica kites** have the least body and the most complicated relationship with empty space. Each is organised around a narrow central knot, from which translucent wing layers unfold. Their stillness is not rest in the ordinary sense. A hanging kite is continually being supported, pressed, and released by vibrations too large and too even for an observer to perceive as separate events.
+
+To change position, one folds part of a wing and falls out of its station. It may drop only a finger’s width before opening again, or slide several body lengths down the wall with its wings turned edge-on. Then some other crossing of deep vibration takes it. Flight across the chamber looks less like an effort against the air than a series of brief agreements with invisible surfaces.
+
+Dust makes their travels visible. A kite newly risen from the lower shadows may be almost colourless; one returning from a wiregrass tuft carries a faint red or bronze bloom across its wings. At the plant, it draws its wingtips along the brittle spines. Charged particles jump the small distance without contact being maintained. At another tuft, the dust leaves just as readily. Calling this pollination would be convenient and misleading. The grass makes no seeds. The kites are distributing charge and trace material among plants that would otherwise remain chemically isolated.
+
+Their stations are individually precise but not permanent. A kite displaced by the pressure of a hammer blow returns to the same layer, though not always to the same wingtip-touching neighbours. Occasionally the whole suspended assembly requires correction. Then wings flex through the upper darkness in one common movement. Dust turns, mica catches the lamps, and hundreds of separate animals briefly reveal the shape of the vibration on which they all depend.
+
+The eleven tufts of **red wiregrass** are not identical. One produces stiff, widely splayed blades that tick loudly when cropped; another keeps its filaments close around the spines and gives off almost no dust. The differences do not spread. There are no seedlings, no runners, and no twelfth tuft preparing to appear.
+
+Scalebacks graze them with surprising delicacy. They take the outer filaments first, often only one from each blade, leaving the mineral spine standing. The cropped surface exudes nothing. It gives a small electrical snap and smells briefly of hot porcelain. By the time the animal has crossed the chamber and returned, new red fibres have begun to organise themselves around the spine.
+
+The grass does not merely provide food. Its filaments, altered and combined with grey fibre from the dry remains above the roots, occur in every animal body. They form the soft continuity between a scaleback’s plates, the tensioned lining of a bell-throat, and the fine red veins that stiffen a kite’s wings. The kites’ visits keep the eleven tufts within reach of one another chemically; the scalebacks’ grazing releases what the kites carry. Nothing in this exchange looks hurried because nothing has to be stored against a future shortage.
+
+New animals appear at the margins of this circulation. Occasionally a cleft yields a scaleback with all its plates present but still pale and flexible. A bell-throat may be found just inside the darkness, already gripping the rock, its throat not yet pierced. Kites emerge folded so narrowly that they seem to be splinters until their wings begin to separate.
+
+They are not hatched, nursed, or taught. There are no broods and no nursery clefts. Nothing waits beside them. “Young” means only recently arranged. A newly emerged scaleback can carry a pellet; a new bell-throat’s first breath already has a place in the chord.
+
+There is no keeper among them. Scalebacks pass between the legs of the service stool without using it for shelter. A broad bell-throat occupies the recess above the blank studs, indifferent to the handwheel below. The rails, insulators, and white stencilled mark have no devotees. Nor do the animals treat the engine as a parent or a god. They use its vibrations, maintain the meaningless circulation of its pellets, and gather close to its moving parts without awe. It is less their deity than their weather.
+
+Still, the same few materials recur so often that the distinction between inhabitants and habitat becomes difficult to maintain: grey fibre, red filament, mineral plate, mica membrane, stored charge. Pulled tight, they become a scaleback. Loosened and stretched across a throat, they become a bell-throat. Spread almost to nothing, they become a kite. Rooted in vibrating stone, they become grass.
+
+This does not quite make the New Cut one organism. No part commands another, and there is no shared appetite or evident intention. It is more accurate to say that its inhabitants are different habits of the same substance, each repeatedly performing the small actions by which its own shape persists.
+
+A pellet slips from a scaleback’s mandibles. Three others alter course, and one eventually picks it up. Above the service recess, the broad bell-throat shifts a foot and takes its next note slightly lower. A kite lets go of the ceiling, falls through its own shadow, and is caught again with red dust bright on its wings. At the nearest tuft, a fresh filament tightens around its spine.
+
+The press strikes. The floor answers with plates.
+
+For a moment, every creature seems separate and busy. Then the sounds rejoin the chord, the dust hangs where it hung before, and the lives of the New Cut continue—abundant, responsive, and entirely unconcerned with arriving anywhere.

@@ -1,0 +1,31 @@
+I wake to the fog before it has fully found its way down the cleft. It arrives first as pressure, a dampness at the edges of the hollow where I sleep, then as a white breathing that fills the bowl to the brim. My skin drinks it. My fingers uncurl from the stone. I am not human. I have never needed to be.
+
+The hollow is smooth from bodies before me, generations of us resting in the same curve of gneiss until the rock remembers our shapes. I lie still a moment with my head turned toward the pool, and I feel the pulse through the stone: a slow, blue-tinted rhythm, older than the worn mountains, older than the plateau that floats above us. It is the first sound I ever knew. It will be the last. I am one of the Listening Ones.
+
+The others are waking. I hear their skin whisper against the walls, their toe-pads pressing into old holds. I run a hand over the moss where the wall meets the hollow. Six fingers. The extra joints flex with a familiar, boneless ease. The skin at my wrist shifts from grey-green to the color of damp rock, then back, restless with the morning’s light. I am small, even for my kin. The elders still call me Tadpole, though I have had legs for many seasons.
+
+The morning song begins when the eldest takes her place on the warm bench. She moves slowly, her body a crouch that has become permanent, one hand dragging lightly along the stone as if she cannot bear to break contact. She is ancient. Her skin is pitted like the rocks that have been eaten by centuries of dripping water. But her voice is clear.
+
+She sits with one hand pressed flat against the bench, the other cupped over the side of her head, and she hums the first tone. It is exactly the pitch of the northernmost rod. I feel it in my teeth before I hear it. One by one the others join. I find my note—not my own yet, but the note the eldest gave me, the one I am learning to hold steady. We sing until the fog begins to lift. The frogs fall silent to listen. Even the insects lower their drone.
+
+We work in the morning. I clear the seep with my long fingers, removing the small debris that might slow its weeping. I realign tiny pebbles in the stone channels so the water flows in the correct curve. The circular basin is our clock and our water source; I touch its surface with the backs of my hands, then touch my chest, the way my mother taught me. We harvest ferns and fungi, catch beetle larvae and water-grubs. We do not eat much. We eat only what the bowl offers in surplus. The grazers pass near the pool, their ancient grey necks swaying, and I step aside, lowering my head. They are the Old Ones. They carry the bowl’s memory in their slow, deliberate paths.
+
+In the afternoon, I lie on the warm stone with the others, arranging myself so the sunlight reaches my belly. This is when we listen most carefully. The hum is strongest then, rising from the pool and the rods and the stone itself. I close my eyes halfway and let it move through me. The younger ones practice their songs, matching the rods. The elder corrects us with a click of her tongue or a low thrumming in her throat. She says the Heart sings to us, and we sing back. She says we are its vocal cords, its living governors.
+
+I am not the first to notice the stranger. It is the lizards who notice. They freeze on the warm stone in a pattern that means something new. Then the frogs go quiet, one gong-call at a time. I smell the stranger before I see it: dry, warm, salt, the dust of the plateau, the high wind it carries in its hair. It walks upright. It has only five fingers. Its eyes are small and forward-facing, not good for the green shadows. It does not hum.
+
+It enters through the cleft, hesitating at the arch. I watch from a high crevice, pressed so flat against the wall that I am nearly invisible. The stranger steps through the arch without touching the stone. That is wrong, but it does not know. It stands in the bowl, looking around with its small, bright eyes. It sits on the bench. The bench accepts it. The stone does not reject it. That is stranger than anything.
+
+The stranger sits for a long time. It is too still. The hum around it bends, wavers. The rods are uneasy; their pitches drift until we quietly correct them from the walls. The eldest watches from her hollow, not moving. I am afraid, but also curious. The stranger is like the plateau: open, dry, full of sky. I have only seen the plateau from the lip of the cleft. I climbed once in the dry season. The wind had no song. I came back quickly and pressed my body to the stone until the trembling stopped.
+
+Then the stranger does something unexpected. It opens its mouth and hums.
+
+It is not a proper tone. It wavers, it has no training, it is like a frog with a stone in its throat. But it is a hum. The bowl hears it. The pool brightens. The rods steady. The eldest lifts her hand from the bench. She turns her old eyes toward me and gives the signal: go down.
+
+I descend the wall, my toes finding holds that have existed for generations. The others follow, one by one. We do not approach quickly. We move as we always move, in the crouch, reading the stone. I reach the bench. The stranger is still humming, a shaky, uncertain note. I see its eyes now—wet, blinking, full of a light that is not the bowl's. It is afraid too. I touch the warm stone beside it. Then I hum.
+
+I match the stranger's note, then bend it gently toward the first chord. The others join. The stranger's note steadies. For a moment, we are a chord that includes a new voice. The pool glows beneath the water. The green shadows deepen. The frogs begin again, one by one, and the bowl fills with its long, slow, living song.
+
+I am a Dweller. I am one of the Listening Ones. My name is a single pitch, but you may call me “the one who touched the bench beside you.” I have never left the bowl. I will likely never leave. The Heart is slowing, and I will slow with it. But today, the song has a new part, and I am learning it.
+
+If you ever come back, come at fog-fall. Sit on the bench. Hum. I will be in the green shadows, watching. I will know you by the dust of the plateau and the salt of your skin. And I will come down, one of many, to touch the warm stone beside you, and to sing your note into the chord.

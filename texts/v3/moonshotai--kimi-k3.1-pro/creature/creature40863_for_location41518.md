@@ -1,0 +1,37 @@
+Nothing in the hollow is numerous.
+
+Water is abundant there; nourishment is not. Rain arrives nearly clean, the limestone yields little besides minerals, and the basin carries much of what it receives back underground. Life has therefore become economical. Its residents are small, slow, capable of dormancy, or able to survive on food that arrives irregularly and often long after the weather that brought it.
+
+The greatest number live within the water films. Bacteria and algae occupy the illuminated mouths of seams; threadlike fungi extend behind the mineral skins. In the darker passages are colorless worms, minute crustaceans, and other creatures too small to disturb the water’s clarity. Some belong less to the hollow than to the mountain’s interior. A seam may carry a few of them out after months or years in darkness, leaving them to survive briefly in the basin or be eaten there.
+
+These populations do not flourish together. Each follows the discharge and chemistry of its own passage. A film fed by last night’s rain may be nearly inactive while another, supplied by an older and richer pulse of water, becomes crowded with microscopic life. The clear basin continually mixes these separate abundances, then draws them down again.
+
+The visible vegetation records the same differences. Pale cushion mosses thrive where wetting is frequent and brief. Dark liverworts occupy the more dependable seepage, and the wire-fine ferns gather along boundaries where neither condition quite prevails. What looks from above like a simple green thumbprint is, at ground level, a map of concealed plumbing written in texture and shade. It is not a fixed map. A root thickens, a seam diminishes, and the boundary between two kinds of green moves the width of a hand over several years.
+
+The spoon-leaves are much older than their fresh outlines suggest. An individual leaf may last only a few seasons, but the root island beneath it can persist for generations. The cupped leaf intercepts water that would otherwise scatter over bare rock; when it tips, it delivers one concentrated pulse to the stem and the sponge of moss below. The loud stroke is incidental. The plant is watering itself, not performing.
+
+They flower infrequently, close to the root crown, with small green blossoms that do not require a specialist visitor. Most young plants are offsets rather than seedlings. Consequently, a spoon-leaf’s apparent position can remain unchanged while its living tissue slowly travels, one root and rosette at a time. Its tipping rhythm changes as it grows, as a leaf thickens, or as its seam alters. Two plants side by side may be responding to water of entirely different ages.
+
+The pale trees are rarer successes of the same kind. Each began where a seed found a root-hold, enough accumulated organic matter, and a supply of water that did not fail during its first vulnerable years. Most seeds found none of these. Many were carried beyond the open rim. The openness between the surviving crowns is not something the trees actively maintain; it is the shape of their rare establishment.
+
+Fungi thread their roots and help them obtain scarce nutrients from old organic matter and wet stone. The same fungi inhabit the dead trees, working unseen within the wood. Their visible fruiting bodies are occasional and insignificant: a few translucent pins beneath bark, a row of pale shelves inside a fallen trunk. A tree can thus remain standing beneath moss long after its interior has become more fungal than wooden.
+
+The wall snails are the most numerous visible animals, which is not saying much. Their shells are thin and warm grey, almost indistinguishable from dry limestone. They graze the films left by seepage and retreat into fissures when those films fail, sealing themselves against the stone. Some can remain inactive for months. Their activity follows particular seams rather than the general weather, so two snails separated by a single rock may feed in different seasons. The silver trails are brief because the snails themselves travel little and because the wet wall soon darkens over them.
+
+There are also mites and springtails in the moss, tiny larvae in accumulations of wet organic matter, and a few other silent, wingless creatures. None swarms in the open air. The basin offers no permanent shallows for noisy breeding assemblies, and the open rim is a poor place for anything that depends on flight in calm, sheltered air. The small animals remain beneath leaves, within root islands, or inside stone.
+
+The transparent creature beneath the basin shelf belongs chiefly to the drainage below. It is a permanently aquatic amphibian, no longer than a finger joint, not the juvenile of some larger animal that will eventually climb out. Its skin reveals a grey comma of gut and a fine red vessel; its eyes are small but not absent. It breathes through its skin and favors water kept fresh by movement through the slot.
+
+Only a few are visible in the basin across an ordinary span of years. More may remain within the fissures, where they wedge themselves against the flow and feed on the minute animals carried from deeper passages. They grow slowly and have no call, no display, and no territory worth defending in the open pool.
+
+Their most useful sense is vibration. Pressure changes travel through limestone and water before a seep becomes visibly stronger at the surface. One of the animals may consequently shift toward the shelf or withdraw into the slot while the basin still appears unchanged. It is not anticipating rain. It is detecting water that is already near, though a human observer would not yet know it.
+
+On the rare occasions when they breed, the eggs are fixed just inside the drainage, where the deepest flow is coolest and least variable. The young go downward. Nothing guards them, and nothing marks the place. The basin is only the illuminated edge of their world.
+
+The dark bird at the rim is an outsider. It finds little cover, no dependable concentration of prey, and no reason to remain. Its visits may still matter: a seed can adhere to a foot, a mite can be left on wet bark, a feather can fall into moss. But almost everything it brings fails to establish. Nothing follows it back to the hollow.
+
+Living things do alter the nine voices. A snail’s grazing can expose a mineral edge; a root can narrow a passage; a dying spoon-leaf can remove one soft drum and allow water to strike stone. Yet nothing maintains the arrangement as a whole, and nothing native to the hollow has a use for all the voices at once. Each life is governed by a particular seam, leaf, root island, or interval of wetness.
+
+That is why the place can seem simultaneously inhabited and empty. Its living clocks almost never coincide. A film of bacteria answers recent rain; a snail wakes to an older shower; below the basin, a transparent animal responds to a change begun in a season already gone. Above them, a leaf fills, while a tree continues an intention so slow it cannot be distinguished from standing still.
+
+The sound belongs to weather arriving from many times. Life there belongs mostly to waiting. When something living finally acts—a trail brightening, a limb shifting, a root giving way by the width of a hair—it does not join the chorus. It merely changes, sometimes years later, what the water will sound like.

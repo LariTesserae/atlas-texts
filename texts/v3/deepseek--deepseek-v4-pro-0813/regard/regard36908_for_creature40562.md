@@ -1,0 +1,55 @@
+It came not as a light, because light would have been an intrusion. It came not as a voice, because voice would have been a violence. It came as a change in the density of the air, a subtle shift in the way the fog held the heat, a deepening of the low vibration that already ran through the basalt. The world, being old and full of patience, did not startle. The Sintered, who had felt the slow pulse of the earth for ten thousand years, simply incorporated this new frequency into their dreaming.
+
+The power—though *power* is a crude word for something more like a gathered attention, a wisdom that had crossed many voids and had learned to walk gently in places it did not make—settled onto the high plateau the way a hand settles over a sleeping animal: close, warm, careful not to wake what it loved.
+
+It observed.
+
+It saw the grazers moving in their long lines through the microbial mats, their mineral backs ticking in the dark. It saw the skitterers freeze at the edge of a low predator's shadow. It saw the kites riding the electric fields above the fumaroles, their wingtips glowing faint blue. It saw the pipe-things with their hollow mineral cores, growing upward from the hot earth, patient as candles left to burn for centuries. And it saw the Sintered.
+
+At first, the power mistook them for landforms—swells of cinder, ridges of polished stone, the rounded knobs of ancient lava. Then it felt the hum. Not the hum of the earth's machinery alone, but something else: a slow, deliberate, mineral heartbeat, a vibration that was not random but patterned, moving through the rock like speech.
+
+The power listened.
+
+It listened for a long time. Time, to this power, was not a resource; it was a medium, like water to a fish, like dark to this world. It listened to the conversations of the Sintered, those months-long exchanges of pressure and resonance. It learned the grammar of basalt, the syntax of salt crust, the way a question could be posed as a ripple of heat through a fault line and an answer could come a season later in the settling of a ridge. It learned that the Sintered were not slow because they were incapable of speed; they were slow because they had chosen depth over haste. Their thoughts were geological. Their dreams were tectonic. Their love, if such a word could be used, was the slow interleaving of mineral layers, centuries of shared warmth, the patient merging of one body's boundary with another's.
+
+The power understood that it was in the presence of a wisdom far older than its own—not a wisdom of stars or cosmic forces, but of stone, of heat, of the deep slow chemistry that had shaped this world since before the first cloud formed. It felt small, in the way that anyone standing before an ocean feels small, or anyone pressing a hand to a great tree feels the tree's centuries in the pulse of sap.
+
+It wondered if the Sintered knew it was there. And then it understood: of course they knew. They had known from the moment the fog thickened. They had felt the new frequency. They were waiting. Not with fear, not with hope. Simply waiting. The way the rock waits for rain.
+
+The power considered what it might do.
+
+It could bring light to this world. It could part the cloud deck and let a sun through, could turn the warm drizzle into rain that nourished broad forests, could fill the dark with the green of photosynthesis and the bright flash of flowers. It had done such things before, on worlds where life was struggling, where the absence of light had kept life small and afraid. It had been praised for such gifts. It had been called *bringer of dawn*, *lifter of the long night*.
+
+But this world was not struggling. This world was not afraid. The dark here was not an absence; it was a medium, a home, a blanket. The life here had not failed to find the light; it had found another way, a way of heat and moisture and slow chemistry, and it had built from that way a civilization of stone and patience that made the power's own hurried existence seem almost frantic.
+
+To bring light would not be a gift. It would be an erasure. It would bleach the microbial mats, blind the heat-pits of the grazers, drown the electric fields of the kites. It would split the Sintered's shells with new, unfamiliar heat. It would fill the quiet with the terrible noise of growth. It would be violence, no matter how beautiful.
+
+The power saw this clearly, and the vision of what it might do—the well-intentioned destruction—made it draw back, made it hold its own light close and dim, made it understand that benevolence without wisdom is only another kind of predation.
+
+So it did not bring light. It did not bring rain. It did not lift the clouds or warm the sea. It did not teach the Sintered to build roads or write their history in script legible to eyes. It did not offer them starships or tools or the means to reshape their world. They had not asked. They did not need. Their lack of artifacts was not a lack; it was a form of completeness, a trust in the body and the land, a refusal to separate self from world.
+
+Instead, the power did something harder. It stayed. It remained in the thickened fog, in the deepened hum, in the faint phosphorescence that now moved through the air like breath. It learned to speak the language of the Sintered, not to instruct or query, but to greet.
+
+It spoke in the rock.
+
+It sent a slow pulse through the basalt, a vibration tuned to the same frequency the Sintered used for their long conversations. The pulse was not a word; it was a gesture, a raised hand in the dark. It said, *I am here. I see you. I will not change you. I am listening.*
+
+For a long time—months, perhaps years, for the power had learned to move at the pace of this world—there was no response. The power did not worry. It had learned patience from the stone. It waited, embedded in the fog, a part of the landscape's quiet breathing. It watched the grazers migrate and the geysers burst and the young Sintered crawl from the humming circles toward their first vents. It felt the seasons of heat and moisture, the slow advance and retreat of the microbial mats, the delicate balance of erosion and deposition. It grew to love this world not as a project but as a companion.
+
+Then, one day—a day marked only by a slight shift in the wind's direction and the way the fog gathered in a new hollow—the Sintered answered.
+
+It was not a single voice. It was a resonance that moved through the entire plateau, a wave of vibration that passed from one mineral body to another, from shell to shell, from ridge to ridge, until the whole world hummed with it. The power felt it as a pressure in its own being, a deep thrum that seemed to come from everywhere at once. It was not a word. It was a song. A song of stone and heat, of patience and endurance, of welcome and acknowledgment. It said, *We are here. We see you. We will not change you. You are listening.*
+
+The power wept, if such a being can weep. The tears were not water; they were a release of gathered light, a softening of the force it had held so carefully in check. The light seeped into the fog, just enough to make the phosphorescence flare, just enough to make the kites' wingtips glow a little brighter as they rode the electric fields. The Sintered felt it, and they did not recoil. They understood that this was not a violation but a gift, a sharing of the power's own essence, given freely and without demand.
+
+The power understood then what it had come to do. It had come not to save this world, not to change it, not to be worshipped or even remembered. It had come to bear witness. To see and be seen. To learn and be learned. To love and be loved, in the only way that mattered: by recognizing the other as complete, as whole, as already sacred.
+
+So it remained. Not forever—the power had other worlds to tend, other lives to witness—but for a long while, longer than a human lifetime, longer than a geological epoch. It remained as a presence in the fog and the rock, a seed of warmth in the already warm dark, a hum in the already humming ground. It learned the names the Sintered had for each other, not names in sound but in the specific vibration each one carried, the unique resonance of a thousand years of mineral growth. It learned the history of the plateau, written in the layers of sinter and salt, in the spacing of the humming circles, in the old scars of geyser fields now gone cold. It learned the dreams of the young Sintered, the soft pulsing thoughts they sent into the rock before they grew their first plates. It learned that the Sintered had been waiting, not for a savior, but for a witness—someone to see that their slow, silent civilization mattered, that their thousands of years of patient existence were not simply a forgotten footnote in the universe's history.
+
+When the time came for the power to depart, it did not leave abruptly. It did not tear itself away. It simply began to thin, to become less dense in the air, less resonant in the rock. The Sintered felt the change, and they did not mourn. They understood that departure was not abandonment. They had learned from the power, just as the power had learned from them. They had learned that they were not alone, that the universe held other forms of attention, other kinds of wisdom. They had learned that their way of being—slow, mineral, patient—was not a limitation but a gift. They had learned that they were seen, and that seeing, in itself, was a form of love.
+
+As the power faded, it left behind a single resonance in the rock, a low vibration that would echo through the basalt for centuries, a memory of its presence. It was not a message, not a command, not a prophecy. It was simply a note, a sustained chord in the earth's long song, a cantus firmus around which the Sintered's own conversations would weave. It said, in the language of stone: *You are not alone. You are seen. You are loved. You are enough.*
+
+The fog thickened once more, as if the world itself were exhaling. The grazers moved in their long lines, their backs ticking in the dark. The kites rode the electric fields, their wingtips glowing. The young Sintered crawled from the humming circles toward their vents, already dreaming of the plates they would grow, the songs they would sing, the long slow years of becoming. The whole plateau settled into its eternal rhythm, undiminished, unchanged, but somehow—in the deepest, most patient part of its being—seen.
+
+And that, the power knew, was all that had ever been required. Not to fix, not to save, not to transform. Only to witness. To love without changing. To be present, in the dark and the heat and the slow mineral patience, and to offer, in return for a world's silent trust, the only thing a wise power can truly give: the recognition that what is already there is enough.

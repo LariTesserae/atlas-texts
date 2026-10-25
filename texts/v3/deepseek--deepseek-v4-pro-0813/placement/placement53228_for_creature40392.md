@@ -1,0 +1,31 @@
+I am not sure where my body ends and the rock begins. The roar is a hand pressed to my sternum. It comes from every direction, and sometimes from below, through the soles of my cracked feet. I lie on a ledge in a green seam below two standing voices. Behind me, the shelter is a low dry-laid wall under an overhang, its doorway angled away from the prevailing gust. The moss is wet and dark. The stone beneath it is warm. In the Hollow Country, the cold never comes; only the warm wind off the lowland forests and the cloud that pours over the escarpment like slow liquid.
+
+I live here. My earliest memory is of my mother tapping a rhythm on the stone by the shelter: one-two, one-two-three. *The fog is coming. Drink from the bromeliads before it thins.* I did not understand the words. I understood the vibration in my palm. That is how we learn first—through the hands and feet, not the ears.
+
+I am not yet named. The Bone-Ear says my name is still inside the rock, waiting to come out. Every child has to listen for it. Some receive theirs early; others wait through many seasons. I have spent days with my palm flush on the fluted limestone, asking. Sometimes the stone hums under my hand, and I think it is my name, but then the gust shifts and the note changes. My mother says not to chase it. The name will arrive when I stop wanting it.
+
+This morning I am sent to tend the upper seam. It is a pocket of green packed into a slot in the bare rock. There are ferns unrolling, orchids rooted into limestone cracks, and a sour red berry that grows only where fog pours over the ledge. I carry no metal—metal would cut the land's song and draw lightning. I carry a digging stick of bone and a cup of carved wood.
+
+The path goes over bare stone. There is a place where the slab flexes underfoot. The old one taught me to step wide there, to feel the seam through the whole foot, not just the heel. I do this. The sound changes from a low boom to a hiss. It rattles the bone behind my jaw. I feel, for a moment, less like a child and more like another hole in the rock.
+
+On the way, I pass one of the circular pits that never fill. I do not go close. Around its mouth the moss grows in a dense ring and then stops, as though no life will press closer. The smell reaches me even at a distance: wet limestone and something sharper, almost metallic. My mother says that is the land's blood. I take a small pebble from my pouch—one I chose for its resonance—and place it on the edge of the moss ring. It is a listener. Later I will return and put my palm on it. If it is warm or humming, the answer is yes. If it is cold and still, the answer is no. I do not know what question I am asking yet. Maybe the land knows.
+
+At the upper seam, the moss is thick as a hand. I pull dead leaves from the bromeliad cups so the water stays clean. I loosen the soil in the cracks for the orchids. I transplant a cushion moss that has peeled away from the edge. I work without hurrying. The land is ancient, but the weather is fast. A warm rain comes on suddenly and hammers the flutes, then stops as if it had never been. The light turns glaring off wet stone. In the lull, a thumbnail frog begins to call. It is more vibration than voice. I tap the stone three times, not to ask permission—I am not taking—but to say, *I hear you, weather-changer.* The frog stops, then starts again.
+
+Then the wind turns. I feel it first through my soles: a new thrum out of the west. The old one says the west wind is the one that makes the standing voices sing. I should go down before it reaches them. But I have never heard it properly, only felt it from a distance. Something in me wants to stand closer.
+
+I climb down and cut across bare rock toward the two upright stones. They are not human, not cairns. They are solution remnants shaped like figures. The old one says they are the land talking to itself, and it is rude to listen too closely. But I am not yet named. Maybe my name is there.
+
+The wind builds. The spires begin to hum, each a different note. It is not loud, but it moves through my bones like a knock. I put one hand on the base of the smaller spire. The rock is warm and buzzing, like a living throat. The hum runs up through my arm into my chest. My teeth ache. My eyes water. I feel the sound behind my navel. And then, in that forbidden listening, a word taps itself out on my own bones. Not a name I wanted. A name like a stone dropped into a dark slot: *Wait.*
+
+I pull my hand away. The wind screams through the slots. The standing voices shriek and go on singing. I turn and run.
+
+The Bone-Ear is waiting at the edge of the bare rock. She has felt the change through the ground, maybe through the soles of her own feet, all the way from the seam. She looks at my chest, not my face. She taps a slow rhythm on my sternum: *You listened too close.* I tap back: *I heard a word.* The old one tilts her whole body to listen, not just her ears. Then she asks, in the lull, with her hands: *What did the land call you?*
+
+I do not know how to say it in sign. I tap it on the stone at our feet: one long pause, one short tap.
+
+The Bone-Ear is silent. Then she taps the same rhythm on her own chest. There is no smile in the still air, but her face softens. *It is a good name,* she tells me. *The name of someone who knows when to wait.* But I think she means, *the name of someone who will listen too closely and still come back.*
+
+Later, she takes me to the cairn that is aligned with the strongest sound. The roar is so loud there that it feels like standing inside a drum. The stones are chosen for resonance, balanced so the wind sets up a faint vibration. She places my hand on one. The old one strikes my name into the rock with a knuckle: *tap—silence—tap.* The whole cairn hums for a moment, carrying the name out into the roar. I feel it through my palm.
+
+So where would you find me? In the Hollow Country, in the green seam below the two standing voices, on the warm bare rock between the pits and the moss. Who would I be? I am Wait. I am of the ones who keep the gaps, the ones who sleep with the drum—what travelers call the Hollow Folk. We do not live in this land; we listen to it. And the land has finally spoken my name.

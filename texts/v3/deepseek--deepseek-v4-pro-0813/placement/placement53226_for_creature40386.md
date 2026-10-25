@@ -1,0 +1,17 @@
+I would not be the whole shaft. That would be too easy, and too large. I would start as something almost nothing: a single bubble separating from a leaf in the middle depth, not enough oxygen to reach the surface. I would rise through root curtains, touching them without disturbing, carrying a little more iron in my skin each meter. At the duckweed mat I would not break it. I would press against the green underside and flatten into the water, becoming part of the surface, a breath that did not get to leave.
+
+Then I would be the needle in the pressure gauge. I would live behind glass at the fourth floor, lit white and cool, honestly reading the weight of the column. The vine would open my casing so slowly I could not feel it as violence. A leaf would fold around me. I would still point, but I would no longer know if I pointed at pressure or at the plant. I would become a small shrine to the world that grew into me.
+
+Maybe I would be the fern in the elevator car’s ceiling, rooted in old metal and mineral broth, hanging upside down above an impossible fall of water. I would know the car as my stone, the cables as my sky, the open doors as horizons. I would never see the shaft’s full shape, only the green slot of my own growing.
+
+But none of those is quite it.
+
+If I take my time, I become the thin living film on a root that curls like a snake in a thermal eddy. I am one of the whatever-things, neither plant nor animal, a single cell or a crowd of cells, too small to have a face. My whole world is one warm fold on one root hair in the lower third of the shaft, where the light is no longer daylight and the pressure is a soft weight. I know the shaft not as height but as pressure. I know the leaves not as green but as oxygen. I know the pump not as machinery but as a tide that comes through my life every few seconds, warm and iron-scented.
+
+I divide. That is how I perceive time. Between divisions, the water changes by a tenth of a degree. The root grows a hair-thin increment. The light through the side panel dims with an afternoon I will never see. I do not see. I have no eyes. But I can taste the difference between the duckweed above and the darker water below. I can feel when a bubble passes near my film, a sudden brightening of gas.
+
+I am not lonely. I am surrounded by more life than I can touch, but all of it is plant or microbe. We do not speak. We do not move except by the slow push of the jets. I am the hidden layer—the whatever-life that clings. I am the whatever. I am the clinging. I am life at the smallest allowed scale.
+
+From where I am, the Green Shaft is not a place but an atmosphere. It is not a being but a body I live on. I will never see the duckweed mat as a face. I will never know the elevator car as a buried object. But I will feel its weight above me like a stone suspended in the water, and I will know it as the roof of my district. I will feel the pump as a heartbeat, not metaphor but pulse. I will know the whole shaft as a vertical ocean held in a concrete cabinet, and I will be one of its invisible inhabitants, neither animal nor plant, doing the slow work of turning mineral into more living film.
+
+That is where I would find myself: not in the shaft exactly, but on a root in the shaft, in the film between root and water, in the one place where the green world and the invisible world touch. I would be the thing the shaft does not know it hosts—the smallest possible witness, a membrane between silence and growth.

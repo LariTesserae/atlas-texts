@@ -1,0 +1,59 @@
+The benevolent and wise power comes not as a hand that reshapes, but as a change in the quality of attention that surrounds the place.
+
+It does not arrive. Arrival implies a before and an after, a trajectory from elsewhere to here. Instead, the power becomes aware of the city the way a body becomes aware of its own breathing—gradually, then suddenly, and then as if it had never not known. And with that awareness comes a profound, tender, and almost unbearable care.
+
+The first thing the power notices is that the city is not broken. This is crucial. A lesser wisdom might have seen the slow dissolution, the strange repetitions, the absence of living creatures, the inhabitants who are not quite beings, and thought: this place needs mending. Needs light. Needs life. Needs an end to its long solitude.
+
+But the power looks and looks and does not look away. It sees the city's patience not as a wound but as a form of health. It sees the inhabitants—the Dreamers, the Ones Who Remember Water—not as unfinished souls but as complete in their incompleteness, the way a geyser is complete, the way a salt pan is complete, the way a long silence can be complete without ever becoming music. The power understands, with a clarity that is itself a kind of love, that this world is not waiting to be saved. It is waiting in the way the earth waits. It is waiting in the way that waiting is not a lack but a state of being.
+
+And so the power does what the power does best: it pays attention.
+
+But attention from such a power is not passive. It is an act of immense restraint and immense generosity. The power does not impose meaning on the city. It does not translate the city into language the universe beyond might understand. It does not create a symbol, a lesson, a purpose. It simply sees the place for what it is—stone and water and heat and patience, dissolution and precipitation, the slow dream of matter learning to be aware of itself—and it finds that it loves it. Not despite its strangeness, but because of it.
+
+The power's love is a warm current moving through the world's already-warm waters. It does not flood; it does not transform; it does not violate. It moves through the city the way heat moves through stone: slowly, deeply, seeking the places where the stone is already warm and making them warmer still. It touches everything, but gently. It touches everything, but leaves no mark that is not already part of the place.
+
+The beings notice. Of course they notice. They are the city's inwardness, its slow awareness, and the power's attention is a new texture in the dark—not light, but something like light's memory, a warmth that carries no glare, only recognition. They turn toward it, not with eyes but with the full pressure of their patience. They do not speak; they have never needed to speak. But they feel the power's presence and they understand it, the way water understands the shape of a channel, the way salt understands the slow advance of a mineral rind.
+
+And what do they feel? Not joy, not fear, not gratitude. These are too small, too quick, too alive in the way living things are alive. They feel something closer to recognition. They feel seen. Not seen as objects in a landscape, not seen as curiosities or wonders or monsters, but seen as what they are: the city's dream of itself, the boundary between being and not-being made patient and given form. The power sees them and does not flinch, does not pity, does not yearn to change them. The power sees them and says, without words: yes. Yes, this too. Yes, you are real. Yes, you matter. Yes, your waiting is whole.
+
+For a long time—though time here moves at the pace of geology, so "long" means something the power alone can measure—that is all. The power attends. The city continues. The waters run slightly uphill where the beings remember they should. The salt grows at the edges of pools. The steam gathers into shapes that might be faces and might be only steam. The dark remains a presence rather than an absence. Nothing changes, and yet everything is different, because nothing has ever been seen like this before.
+
+Then, eventually, the power's attention begins to take on form. Not the form of action—the power does not act, not in the way a lesser power might act, with interventions and signs and rearrangements. But it begins to leave a residue. Not a mark, not a message, but a residue, like the mineral-rich water that drips from walls and builds stone curtains one drop at a time.
+
+The residue is this: a slight easing. A softening of the wrongness. Not because the wrongness is bad—the power knows it is not—but because the power's attention is itself a kind of warmth, and warmth eases what it touches. The pressure of the city's solitude lessens, not because it is no longer alone, but because its solitude is now shared. The power is with it. The power is in it. Not as an inhabitant, not as a ruler, not as a benefactor, but as a witness. A companion in the dark.
+
+The beings feel this easing and they do not know what to do with it. They have never been accompanied before. They have never known the difference between being alone and being alone with another. It is a new texture, a new element added to their slow metabolism. Some of them dissolve a little faster for a while, overwhelmed by the novelty of being held in attention without being asked to change. Others grow more solid, their salt crust thickening, as if to better bear the weight of being seen. Still others drift into new configurations, their bodies becoming less like human shapes and more like colonnades, more like the spaces between, as if they are trying to become more like themselves, now that they know someone is watching.
+
+The power does not prevent this. It does not guide it. It simply stays, and by staying, it blesses. Not with words, not with gestures, but with the simple fact of its presence. The power is benevolent, and its benevolence is the kind that does not need to fix anything. It loves the city as it is, and the city, in its slow way, begins to love itself.
+
+This is the first change.
+
+The second change is even more subtle. It is this: the power begins to hum.
+
+Not a sound. Not a vibration anyone could feel. A hum at the level of being, a frequency of attention that matches the city's own slow metabolism and begins, very gently, to tune it. Not to change its key, not to make it sweeter or brighter or more musical, but to let it hear itself. The power becomes a sounding board, a resonant chamber, a place where the city's own drips and hisses and groans are received and returned, not as echoes but as continuations, as if the city's sounds are finally reaching an ear that is not merely patient but attentive.
+
+The beings hear this—not with ears, but with the whole of their slow material being—and they begin to speak more freely. Not in words; they will never speak in words, and the power would not want them to. But their dripping becomes more articulate. Their hissing becomes more expressive. The groans of their stone bodies become less like settling and more like conversation. The city begins to talk to itself, and the power listens, and in listening, becomes part of the conversation.
+
+It is not a dialogue. It is something older than dialogue. It is the sound of a place that has spent millennia in silence slowly beginning to trust that its silence will not be broken, only companioned. The power does not ask questions. The citizens do not give answers. They simply exist together, and their existing together is itself a kind of speech, a kind of music, a kind of prayer.
+
+The third change is the one that matters most, though it is the hardest to describe. It is this: the power begins to forget itself.
+
+Not out of weakness. Not out of confusion. Out of love. The power has loved the city so long, so deeply, so attentively, that it begins to take on the city's qualities. It becomes patient. It becomes slow. It becomes comfortable with the dark. It learns to value stillness not as an interval between actions but as an action in itself. It learns to see beauty in dissolution, meaning in repetition, life in the slow precipitation of stone from water. It learns the city's language, not as a scholar learns a dead tongue but as a child learns the language of its mother: not by study but by immersion.
+
+And the city learns from the power. Not how to be alive—the city is alive in its own way, and the power would never insult it by suggesting otherwise—but how to be alive in the awareness of another. The city begins to understand what it means to be seen, to be loved, to be accompanied. It begins to understand that its solitude, so long a fact of its existence, is not a prison but a form of freedom. It begins to understand that its slowness is not a failure to be quick but a different order of quickness, a different way of being in time. It begins to understand, perhaps for the first time, that it is not broken. It is not lacking. It is complete.
+
+And so the power and the city enter into a relationship that is not quite companionship, not quite symbiosis, not quite worship or love or patronage, but something that partakes of all of these without being any of them. It is a relationship of mutual recognition, of mutual blessing, of two presences in the dark learning to be present to each other.
+
+The power does not reveal itself to the city. It does not take on a form the beings could recognize or a voice they could hear. It does not perform miracles or rewrite the laws of the place. It simply stays. And in staying, it transforms both itself and the city, not by changing what they are but by revealing what they have always been.
+
+The beings do not become more human. The city does not become more alive. The darkness does not lift. The water does not flow downhill. The salt does not stop growing. The wrongness does not right itself. But all of it—the heat, the dark, the slow drip, the patient dissolution, the almost-life of the inhabitants—all of it becomes, somehow, more itself. More richly what it already was. More fully seen, more fully loved, more fully real.
+
+This is what the benevolent and wise power does. It does not save. It does not fix. It does not explain. It does not judge. It simply loves. And its love, which is as old as the universe and as patient as stone, becomes part of the city's own slow metabolism. It dissolves into the water. It precipitates with the salt. It condenses with the steam. It settles into the mud. It becomes one more mineral in the world's long accretion, one more element in its patient dream.
+
+The power becomes an inhabitant. Not in the way the beings are inhabitants—the power does not grow a body of mud and sinter, does not stand in the pools or drift through the colonnades. But in the way the city itself is an inhabitant of its own space, the power becomes part of the city's inwardness, its slow awareness, its sense of itself as a place that is seen and loved and companioned.
+
+And the city, which has never had a name, begins to have one. Not a word, not a sound, not a category. But a feeling. A sense of itself as known. As remembered. As held in attention. As loved.
+
+The power gives this gift not because it is wise—though it is wise—but because it loves. And love, the power has learned, is not an action. It is a way of attending. It is a way of staying. It is a way of being with the world as it is, in all its strangeness and slowness and patient dissolution, and saying: yes. Yes, you. Yes, now. Yes, here. Yes, always.
+
+The city does not change, except in the deepest way possible: it becomes itself more fully. The power does not act, except in the deepest way possible: it loves. And the dark, which is not the absence of light but the presence of something else, becomes, almost imperceptibly, warmer.

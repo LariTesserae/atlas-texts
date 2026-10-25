@@ -1,0 +1,13 @@
+I would not know it at first. I would try on the water, the stone, the fly-cloud, and find each too spread or too small. Then I would notice the damp crevice between two occupied territories, just above the moss, where the wall’s weeping has softened a seam in the limestone. That is where I would be.
+
+I would be a juvenile pale frog, one of the thumb-joint ones, not yet part of the ringing. My skin would be translucent enough to show the small dark knot of my heart and the pale loop of my gut. My eyes would be black pinpricks, almost lost in the soft grey-white of my body. My toes would grip the stone with the certainty of something that cannot afford to fall, though I have not yet climbed to the wall.
+
+I would live in the drip-light and the constant cool. The high metallic note would enter me before I understood it. It would be the first thing I knew, the way a bird knows air. Each note would be a boundary: a territory the size of a spread hand, occupied, defended, repeated. I would have no note. I would be the pause between two calls, the comma in the chorus, the listener waiting for a gap.
+
+In the crevice, I would eat what the wall gives me: a springtail edging too close, a fly fallen from its cloud, the soft body of something smaller and paler than myself. I would grow slowly, or maybe not slowly—time would not pass here. I would change without noticing. My skin would keep its grey translucence. My throat would learn the shape of the note before I ever made it.
+
+I would not think of this as waiting. The word would be wrong. There is no before and after, no impatience, no hope. There is only the crevice and the wall, the occupied territories and the gap I cannot see. But somewhere in the constant ringing there is a gap. A frog falls. A springtail finds it before the next drip. A small pale skeleton dissolves. And a juvenile climbs.
+
+When my gap comes, I would not hesitate. I would climb out of the crevice and onto the wet wall. I would inflate my throat and add my one note to the one note. The chorus would not welcome me or notice me. It would simply continue, and I would be part of its continuation. That is what passes for a life here: not memory, not name, but replacement.
+
+So I would not find myself as a person. I would find myself as the waiting one—the juvenile in the damp seam, just below the occupied wall, just above the moss, listening. And what I would be is not a who but a what: a pale frog, translucent, patient, already shaped by a song I have not yet sung.

@@ -1,0 +1,39 @@
+## The High Engine
+
+At first, the upper continent seems to be a desert. Its high plains run beneath a sky of almost colorless blue, pale as bone in the hard daylight. The sun is brilliant but not generous: the air remains cool even at noon, and every shadow has a mineral chill. Ridges and escarpments break the openness, their edges rounded and fluted. Between them, often for hundreds of kilometers, there appears to be nothing but white ground and a few remote, dark shapes standing motionless against the horizon.
+
+Then the ground flexes.
+
+Water is not merely scarce here. It plays no part in the place at all. There is none in the air, none sealed in the plateau’s minerals, none in living tissue. Life has developed around a slow, conductive oil instead, circulated under pressure through fibers and hollow vessels. When the surface is cut, it does not bleed so much as gleam. The oil draws into a narrow bead, flashes with a brief blue charge, and is pulled back inside before it can evaporate.
+
+What looks like bare pavement is a continuous vegetable rind. In the emptiest regions it may be no thicker than a finger, but it extends over everything, rooting into the dry mineral body beneath. Its exposed surface is tough and siliceous, etched with growth lines too fine to see from standing height. Below that pale armor lie green-black photosynthetic threads, bundles of conductive tissue, and small pneumatic chambers that tighten or loosen as the buried network changes. There is no soil in the ordinary sense, and almost no litter. Fallen matter is softened, pierced, and taken back into the rind.
+
+The whole landscape is vegetation, but most of that vegetation is thin, horizontal, and patient. Its conspicuous growths are rare. Most of the place is interval.
+
+The silence suggested by those intervals never arrives. Even on the calmest days, the plateau carries a deep laboring vibration. It comes partly through the cold air and partly through the ground itself, which conducts the bass better than bone. Remote growths knock and grind. Something beyond the horizon splits with a report like a cliff failing. Closer at hand, the rind ticks as it contracts in the shade. During storms, these separate sounds lose their boundaries and become a pressure rather than a noise.
+
+The dark shapes on the plains are dynamo crowns. Some are only the height of hills; the oldest rise like small mountains, their lower trunks buttressed into broad, weathered terraces. They are not trees, exactly, though their tissues show rings and branching grain. Their upper crowns carry radial vanes that turn in the wind, while nested sleeves within the trunk rotate around seams of self-lubricating oil. The motion is seldom smooth. A crown will labor through half a turn, shudder, stop, and then release with a shriek that travels across an entire basin.
+
+Their roots descend as branching metallic conduits. Some tap mineral concentrations far below; others join the continental network, carrying charge from one region to another. Along the way, the growths manufacture dense spores, sheets of conductive tissue, and reservoirs of oil. A single old crown may spend centuries accumulating material and then discharge most of it in one reproductive season.
+
+Nothing here has been assembled. There are no foundations, housings, laid cables, or discarded components. A broken vane shows buds along its fracture, not tool marks. The regularity of the machinery is grown regularity. Nevertheless, the place is industrial in the strictest sense: energy is captured, transformed, transmitted, and used for production on a continental scale. No machine was made. Every machine grew.
+
+The upper continent is broad enough to make weather of its own. There are no water clouds, but the sky is rarely empty for long. Charged mineral dust rises in luminous veils. Spores gather into high, green-black sheets hundreds of kilometers across. Differences in charge between the rind and the upper atmosphere pull winds into violent circulation, and entire storm systems are born, mature, and die without ever leaving the plateau.
+
+A storm front first appears as a second horizon, slightly straighter than the true one. Beneath it, the light turns metallic. The dynamo crowns begin to turn before the wind arrives, responding to charge conducted through their roots. Temporary vanes unfold from their trunks. Along the front, the rind thickens and sends up new growth in hurried, almost reckless profusion: ribbed masts, rotating seed chambers, low pumping bladders, whole thickets of pale struts where there had been open ground an hour before.
+
+Elsewhere, old growth is being destroyed just as quickly. Crowns split under their own torque. Masts fold and are struck by repeated discharges. The rind opens around fallen material and digests it in long, smoking seams—not with flame, but with escaping oil and ozone. A region can resemble a forest at noon, an industrial disaster by dusk, and an empty plain again the following morning. Yet the total living mass changes little. Growth and reclamation keep almost exact pace. Permanence belongs to the pattern, not to any of its organs.
+
+The fauna emerge most strongly during these upheavals. Low, many-legged gleaners cross the charged ground in scattered herds, their backs armored with overlapping scales of bark. They feed on freshly exposed conductive tissue and carry the concentrate in internal oil bladders. Above them ride broad, translucent fliers, part wing and part leaf, steering by changing the charge along their edges. Around broken crowns, small root-mouthed creatures swarm through the wreckage, stripping it faster than the rind alone could manage.
+
+None of these animals belongs to a separate kingdom. Each began as a bud. Some can reattach to the network when their wandering phase is over; others root where they stop and become the beginning of a new growth. A few spend their whole lives detached but remain unmistakably botanical when cut open: vessels instead of blood, layered grain in their limbs, reproductive nodes tucked behind their jaws.
+
+Their abundance is numerical rather than crowded. A plain may hold only one distant herd and three fliers too high to cast visible shadows, while millions more cross the rest of the continent. Almost nothing sings. The air is too loud for voices to be useful. Instead, the gleaners drum coded vibrations into the rind, and the fliers communicate by opening bright, reflective panels along their wings.
+
+For all this violence, the land itself is old. There are no river-cut valleys. Wind, drifting dust, and repeated cycles of root growth have worn the escarpments into their settled forms. Their curves are smooth without being soft; their terraces record growth fronts that ceased millions of years ago. Even the largest storms rarely alter them. Fallen crowns leave long swellings that resemble ruins until they, too, are absorbed, but nothing here is truly ruined. The apparent wreckage is either being built or being eaten.
+
+Standing through a major front would mean enduring glare, cold, and sound together. Dust would turn the sun into a white disc without edges. The ground would hum hard enough to blur vision. Each flash on the horizon would be followed, sometimes minutes later, by a detonation that seemed to belong to some other storm. Through it all, no rain would fall. The final spore release would come as a dry, darkening snow, already sending out filaments before it touched the ground.
+
+Afterward, the plain would again look almost empty: pale rind, remote turning crowns, ancient rounded heights. Only the fresh seams and the new spacing of the growths would show that the landscape had been remade.
+
+It is not a wilderness despite its industry. Industry is what its wilderness evolved to do.

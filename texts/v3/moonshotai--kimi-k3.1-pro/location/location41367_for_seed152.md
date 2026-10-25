@@ -1,0 +1,37 @@
+## The Town That Is Still Becoming Ground
+
+On a warm, nearly level lowland, a hollow lies beneath the buttress roots of an old fig. It is only three paces across, and from outside it appears to be nothing more than a deep patch of shade. Ferns lean over its rim. Their fronds touch, concealing a small oval court of pale clay.
+
+The lowland air never becomes truly cool, but within the hollow the warmth changes quality. It loses its dryness. The shade smells of wet mineral dust, green stems, and the faint sweetness of fungus. Beyond the roots, leaves curl and insects tick in dry litter; inside, a film of moisture persists on the shaded faces of stones.
+
+There is no stream. Rain arrives irregularly, sometimes as a brief afternoon shower, sometimes as several days of dripping cloud. Much of it is intercepted by the fig and reaches the hollow one drop at a time. Before dawn, condensation gathers on the root bark and on the undersides of fern leaves. Water collects in a few shallow cups, darkens a seam of clay, and disappears. The nearest thing to a spring is a place where the ground remains damp after everything around it has dried.
+
+The ground itself is conspicuously young. Its fragments are angular, its layers loose, its colors uncomplicated: buff silt, reddish clay, charcoal from some small old fire farther up the plain. No pebble has been rounded. No rain channel has had time to become a gully. Each shower lays another thin fan of sediment against the roots, and the floor of the hollow is rising rather than deepening. Even the plants seem tentative in their hold on it. Fine new roots spread just beneath the surface, still pale, still easily torn.
+
+The place is not being worn into shape. It is being deposited.
+
+At the center of the court stand six low mud turrets, widely separated, none taller than a hand. Two lean against one another without touching. Another has collapsed at its base and been repaired with darker clay. Their surfaces carry the fine pellet texture of material placed grain by grain. Around them are smaller works: a roofed runway no wider than a stem, a low embankment, a cluster of ventilation openings, the beginnings of a seventh tower that is presently only a damp circular wall.
+
+Most of the settlement lies below. The turrets are its visible roofs and chimneys; beneath them, covered passages descend into nurseries, storage chambers, refuse rooms, and gardens of pale fungus cultivated on chewed plant fiber. Some galleries follow the fig roots. Others avoid them. Shafts at different heights draw air through the nest as the outside temperature changes, and small alterations—a plugged opening, a lengthened chimney, a fresh arch—adjust that movement.
+
+There are no tools, no fire, no cut stone, no object made for a purpose separate from the body that made it. The builders are termites. Their materials are clay, saliva, excrement, shredded wood, and their own repeated labor. Yet the hollow has the essential organization of a town: shelter and food production, roads and barriers, nurseries and waste spaces, warm upper chambers and cooler depths. Its infrastructure is mostly hidden, and much of its open ground is deliberately unused.
+
+The emptiness makes the settlement easy to overlook. A single ant may cross the entire court, and for several minutes afterward nothing else moves on the surface. Then a termite appears at a broken gallery, quickly followed by two more with mud. They seal the opening and vanish. The towers remain still. Underfoot, thousands of small journeys continue without producing a crowd.
+
+Dimness reaches even the exposed parts of the hollow. At noon the light is a muted green-gray; by evening the court is almost black, with only the freshest mud retaining a little reflected brightness. Warmth gathers differently in each structure. A vent may release a barely perceptible stream of air after sunset, while the deepest chambers hold their temperature through the night. Fresh construction stays dark and damp longer than the older walls, so the town carries a visible record of its most recent decisions.
+
+Vegetation crowds the margins but does not cover the whole floor. The ferns are luxuriant, widely spaced, each with a clear pool of bare ground around its stem. Moss makes several intense green cushions where root drips fall regularly. Seedlings rise from cracks and are repeatedly cut back, uprooted, or carried below. Along one damp wall grows a film so fine that it appears only as a change in the clay’s sheen. Below ground, the fungus gardens form another kind of lushness: folded, moist, pallid, constantly pruned and replenished.
+
+Animal life is abundant in the same dispersed way. Springtails gather in a piece of rotting bark. A velvet mite appears after rain, brilliant and solitary. A spider occupies an abandoned ventilation shaft and repairs its silk across the opening. Beetles investigate the outer refuse chambers; a centipede waits beneath the fern roots. Occasionally a small frog sits just inside the rim, motionless enough to be mistaken for a wet clod. Ant scouts test the covered runways, and termites respond by thickening walls or abandoning a route. Now and then a lizard’s head enters the light at the edge of the hollow, and every exposed presence disappears.
+
+Rain reorganizes everything.
+
+The first drops strike the fig leaves above, often several seconds before any water reaches the court. Then the clay darkens in separate coin-sized spots. Termites close vulnerable openings. Ant activity shifts toward the higher rim. Water beads on the fern fronds, grows too heavy, and falls. For a short while there may be three or four reflective pools, none deep enough to cover a finger. Displaced insects struggle at their margins; the spider takes what comes within reach; the frog changes its position by the width of one leaf.
+
+Within hours the pools have sunk into the young sediment. The hollow does not flood, because it has not yet developed the channels and hard layers that would keep water at the surface. Instead, moisture spreads downward and outward, and building resumes. New pellets appear around the turrets. Collapsed material is collected and used again. A thin skin of silt softens the tracks in the court without erasing the larger forms.
+
+It is quiet enough to hear individual materials. A drop falling from root bark into a leaf cup. The dry knock of one fern stem against another. A faint granular tick inside a wall. When a gallery is opened, there may be a papery stir, almost immediately muffled. Often the loudest sound is rain beginning elsewhere in the fig canopy. Between these events, the town seems silent rather than merely inactive.
+
+Nothing here has had time to become ancient. The oldest visible walls bear only a few cycles of wetting and drying, and the youngest roots are still finding their way around them. But the settlement is not fragile in the sense of being accidental. Damage is information; collapse is material; waste is incorporated elsewhere. The court’s bareness, the spacing of the towers, and the hidden depth below are all parts of its design.
+
+In time the sediment may close the hollow. The fig roots may split the turrets, or the turrets may grow around them. For now, geology and construction are still difficult to distinguish. Every shower adds a little ground. Every night adds a little town. The place remains warm, dim, and mostly empty to the eye, with its busiest streets underfoot and its newest landscape still wet.

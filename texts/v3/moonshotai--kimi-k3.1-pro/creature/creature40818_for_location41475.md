@@ -1,0 +1,71 @@
+## Inhabitants of the Upper Sea
+
+Life in the Upper Sea is sparse until it is suddenly overwhelming. Its animals are distributed less by depth than by work: oxygenation, sap flow, current shear, electrical leakage, the release of organic films from roots. Their clocks are local. With no dawn or seasonal change, they keep time by the concussion of pressure bulbs, the approach of a valve stroke, the return of a call through a basin. Some rhythms are quicker than a heartbeat. Others are so extended that they can scarcely be distinguished from stillness.
+
+At an oxygen upwelling, the transparent crustaceans gather in such numbers that the water appears to glitter before individual bodies can be resolved. Each animal is only a few millimeters long. A green thread of gut and the dim point of a heart are nearly all that interrupt the water inside it. The shine comes from joints, filtering fans, and the curved surfaces of its eyes.
+
+These **glass shoals** are not quite schools. They have no leader and no common direction of travel. Each crustacean holds station in the rising water, spreading its fans against the current and drawing off the thin organic film released below. When a pressure bulb fires, the entire cloud contracts. Thousands of animals fold their fans at once and allow themselves to be displaced; then the water steadies, the fans open, and the cloud resumes its former shape. It looks less like a crowd reacting than like a single tissue flexing.
+
+Pale **combmouths** hang among them. The smallest are no longer than a hand; others exceed the length of a person. They swim only enough to remain fixed in the flow, their mouths open and their jaws divided into rows of flexible, closely spaced combs. Some take the crustaceans. Others strain material too fine to see. There is no general panic when one feeds. A few transparent bodies flick aside, water passes through the fish’s mouth, and the shoal closes around the space.
+
+Because the light and shadows never move, illumination becomes a kind of address. Combmouths hold along particular edges of crown shade. Glass shoals glitter in the same vertical shafts of white light. Farther down, where everything is green but still clearly visible, animals orient by isolated stems and remote columns whose apparent positions never change. A shadow does not indicate an hour. It indicates a place.
+
+On the basin floors live the **turf ribbons**. They are flat, muscular animals, olive above and almost translucent beneath, ranging from less than a meter to several meters in length. They rest in loosely spaced ranks with their ventral mouths against the filament turf. Hundreds of fine scraping plates pass over the filaments in sequence, producing the dry clicks that carry across the rind.
+
+A ribbon does not leave a cropped track. The turf bends beneath its mouth, releases exactly the material the animal can take, and rises behind its tail at the same height and density as before. Its waste is not a cloud of debris but a clear, denser fluid that settles between the filaments and is absorbed by the roots beneath. Feeding and fertilization are so closely fitted that there is no visible interval between them.
+
+The ribbons are not packed together, but neither are their positions random. Their clicks return faintly from the floor and from neighboring bodies. Each animal adjusts its spacing until the echoes settle into a stable pattern. The ranks can therefore extend for kilometers without becoming herds. They have no obvious leaders, no defended patches, and no assembled young. They are an arrangement maintained by appetite, sound, and the springiness of the turf.
+
+Around the working stands, life fits more closely into the machinery without becoming part of it.
+
+The grooves around valves and rotors are occupied by **cuff crabs**, hand-sized crustaceans with smoky, flexible shells and copper-green joints. Their legs flatten into shapes that match the living channels around them. They feed on loose cellular films, drawing delicate mouthparts across surfaces that would be damaged by harder scraping. The dense working rind remains polished because their mouthparts can detach the film but cannot scar the tissue beneath it.
+
+Their behavior is timed with extraordinary precision. A cuff crab will fold into a recess just before a pressure bulb empties, remain flattened through the concussion, and extend its legs again as the valve closes. It is responding to small preliminary changes in tension and flow, not merely enduring the stroke. To an observer, the crabs seem to disappear and reappear with the stand’s breathing.
+
+They are not maintenance animals in any deliberate sense. They do not inspect, repair, or cooperate toward a task. Yet the stand’s equilibrium includes their feeding, just as their bodies include recesses suited to valve grooves and senses suited to its pressure changes. Neither wildness nor domestication describes the relationship. The crabs simply live where the plant’s physiology makes a crab-shaped life possible.
+
+The **copperlines** inhabit another kind of stand geography.
+
+These long eels hold themselves beside the great electrical vessels, sometimes singly and sometimes at regular intervals along many kilometers of insulated root. Their bodies are nearly colorless except for the conductive lines running from head to tail. When one signals, copper light travels along those lines in successive segments. Another eel answers. Under favorable conditions, a pulse passes from animal to animal until an entire branching vessel seems briefly outlined in fire.
+
+They do not appear to draw nourishment from the current. They feed on organic exudates and on the small animals concentrated near electrical nodes. The vessels matter to them primarily as structure and sensation. A copperline’s skin detects fields too weak to affect an ordinary muscle. Where an unaided animal would perceive only open water, the eel occupies a second topography of gradients, ridges, junctions, and approaching boundaries.
+
+Its signals regulate distance and alignment, but they may do more. Individual eels have distinguishable pulses, and an answer often reproduces some feature of the signal received. Nothing follows that resembles negotiation or the transmission of a new idea. The exchange leaves no altered behavior behind it. Still, for a few seconds, animals separated by hundreds of meters are unmistakably responding to one another rather than merely shining in the same field.
+
+Between the trunks move the great six-finned **lace-fins**.
+
+A large lace-fin may measure forty meters across, though much of that span is almost impossibly thin. The central body is silver and muscular. The forward fins provide the broad surfaces by which it holds itself in moving water; the middle pair turn and brake it; the rear pair are narrow, sensitive vanes that trail along shear boundaries. Beneath the body, the gills open into vast sheets of black lace. Their color comes from dense living pigments and blood vessels, not from accumulated residue.
+
+A lace-fin can pass through a glass shoal without appearing to accelerate. Its gills spread, the fins make a slight correction, and an enormous volume of water begins moving through it. When the gills close, there is no discharge of debris. Everything retained has already become part of the animal’s internal circulation; everything rejected remains dissolved and is carried toward roots and membranes elsewhere.
+
+They do not form compact schools. Instead, they occupy loose rings or extended arcs around stands, sometimes with kilometers between individuals. Their low calls maintain the arrangement. Elastic chambers within the body produce pulses that seem to rise from beneath the plateau, and each animal’s call has a distinct roughness or tone. One sounds; another answers after a long interval; a third adjusts its position before calling in turn.
+
+Different stands have different cadences. A ring around one circulation center may exchange widely separated pulses, while another maintains a rapid, overlapping sequence. These are as stable as accents, but they do not develop. No cadence spreads to another province, becomes more elaborate, or supersedes an older one. The social life of the lace-fins is complex without being cumulative. Its purpose is not to bring something about, but to keep the animals related across distance.
+
+Even the floating leaves have inhabitants. **Leaf scales** live within the water films on their upper and lower surfaces: flattened, transparent arthropods with legs distributed around the rim of the body. Some are no larger than a fingernail; others resemble broad, wet coins. They feed on leaf exudate and on microscopic films too sparse to cloud the water.
+
+In the province of permanent rain, their upper surfaces are almost perfectly smooth. Each impact spreads over them and runs away along the leaf veins. They flatten rather than resist, and the same stream that might sweep another animal away presses them more securely against the living surface. They have no dry stage. A leaf scale can spend its entire existence in water less than a millimeter deep, surrounded by thin air, without ever entering the open volume of the sea.
+
+Far from the stands, where the water appears deserted, the **basin giants** move.
+
+They are several hundred meters long, with blunt heads, small dark eyes, and low fins repeated at such wide intervals that a distant observer may mistake one animal for several. Their flanks are soft silver. Along the underside runs a flexible feeding seam that can open in sections when the giant crosses water heavy with dissolved sap.
+
+Their whole lateral surface is sensitive to pressure. A current-front is not an invisible boundary to them but a substantial corridor, with walls and slopes that can be followed. They move through the clear basins by these fixed features, often so slowly that days pass without any obvious change in position. The fin strokes are too widely separated to suggest effort. Their great bodies seem to be carried by a decision made long before any visible motion occurred.
+
+Their routes are not migrations in the ordinary sense. They do not lead toward a breeding season, a feeding abundance that will soon end, or a home different from the present water. The routes close around basins and circulation provinces. A giant’s passage is simply part of how those provinces remain connected. Its skin carries no old scars, attached crust, or trail of followers. Anything shed from it enters the same fine filtration that keeps the basins clear.
+
+For all the visibility of these larger animals, most individual lives in the Upper Sea may never enter open water at all. The sap vessels contain dense populations of enclosed cells and threadlike organisms. Others live within root membranes, pressure sacs, animal guts, and the thin conducting layers beneath rind. The clarity of the sea is not sterility. It is the clarity of a body whose smallest inhabitants are almost entirely compartmentalized. A free cell in open water is quickly filtered, consumed, or absorbed; inside a vessel, a drop of sap may be crowded with life.
+
+Nowhere is there an obvious archive of individual lives. There are no nursery grounds crowded with young, no shelters accumulated around breeding sites, no graveyards of shells beneath the feeding clouds. Molts and dead tissue are taken into circulation before they can become a layer on the floor. Small and large bodies exist, but the sea does not arrange them into an easily readable sequence of age.
+
+It is therefore difficult to say whether particular animals endure for immense periods or whether replacement is continuous and perfectly matched. The Upper Sea preserves forms and relations beyond question. It does not necessarily preserve identifiable flesh. The cloud at an upwelling remains the same cloud, though that may say nothing about whether any crustacean within it has been there before.
+
+None of this makes the inhabitants simple automata. Cuff crabs anticipate. Copperlines recognize and answer. Lace-fins adjust to one another across immense distances. Basin giants choose among slightly different positions within a current-front. There are preferences, avoidances, approaches, and moments of coordination. What is absent is not responsiveness, but accumulation outside the body: no tools, no stored shelters, no markings, no technique spreading from one population to another. Memory, if it is present, has no archive.
+
+The vegetation itself must also be counted among the inhabitants. The stands pump, conduct, respond to pressure, and compensate for changes in their own circulation. Many are continuous with one another through roots and arched tissue, and none has a simple boundary that would make it easy to count as one plant. The plateau may be the largest organism in the sea, with the visible stands serving as local organs and the animals moving through its physiology without being reducible to cells within it.
+
+Whether that immense body senses anything as a whole cannot be inferred from its appearance. Perfect compensation conceals response. A disturbance answered by an exactly equal adjustment leaves no record that it was ever detected. The Upper Sea could be exquisitely sensitive throughout and still present the same unchanging face.
+
+At any moment, then, its lives are proceeding at several scales at once. A glass shoal folds and opens around a pressure stroke. A combmouth holds itself in white light. Turf rises behind a ribbon’s clicking mouth. Copper light runs beside a root cable, and a lace-fin’s answering pulse enters the basin’s chord. Somewhere beyond the stands, a giant moves one fin while rain roars onto the same wet leaves forever.
+
+None of these lives is building toward a later condition of the sea. But none is superfluous. They are not passengers in a finished world, nor workers assembling an unfinished one. They are the distinct, sensing, feeding forms within its equilibrium: the many ways in which the Upper Sea continues, without remainder, to be alive.

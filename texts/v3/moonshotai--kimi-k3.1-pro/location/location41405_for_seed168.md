@@ -1,0 +1,43 @@
+## The Unfinished Plateau
+
+At first, the plateau seems to consist of nothing but height, warm stone, and the space between one horizon and the next.
+
+It stands far above a lower country of dim mineral plains. From the outer escarpment, the drop is enormous: not a single sheer wall, but a series of broad, unweathered steps descending until their edges become too small to distinguish. The air is thin and clear. Distance does not soften into blue haze; remote ridges simply become quieter in color, retaining every abrupt angle. The sky is cloudless. The light is steady, ordinary daylight, bright enough to reveal color without bleaching it, and the shadows are crisp but not harsh.
+
+Warmth rests evenly over everything. It is not the aggressive heat of a desert, nor does it gather in shimmering pockets above the rock. Stone, air, and vegetation seem to share nearly the same mild temperature. Consequently, there are no rising thermal currents and almost no wind. Sound travels poorly in the thin atmosphere, and the landscape itself offers nearly none.
+
+The surface looks less formed than disclosed. Broad domes of silicate rock emerge from one another in low, overlapping swells. Their faces carry crystalline patterns: long gray planes, iron-black seams, occasional zones of translucent violet or pale yellow. Some fractures run straight for kilometres, but they have not widened into valleys. Fault basins remain shallow and geometric. Peaks exist mostly as suggestions—steepenings in the crust, unfinished ridges, masses whose upper surfaces have not yet been broken into summits.
+
+There is no rounded gravel, no deep sediment, no fine soil blowing across the open ground. What little dust exists is angular and sparse, lying where it originated. A fracture may be edged with a few sharp flakes, each still resting in the orientation in which it separated. Nothing has been transported far enough to acquire a history of travel.
+
+This is because water has never participated in the place. There are no streams, dry or otherwise; no lake beds, ice lenses, damp hollows, or minerals formed by evaporation. Even the air lacks water vapor. “Dry” is therefore slightly misleading. Dryness implies thirst, depletion, the possibility of return. Here, water is simply not one of the ingredients from which the world is made.
+
+The plateau extends at provincial scale. From a high point, one can make out several distinct regions: the jointed central tableland, a wide depression lined with concentric mineral benches, a far region of narrow pressure ridges, and the long outer escarpment. Yet for all its extent, it is almost empty. Huge areas contain no prominent object at all. A single dark grove may be the only complex presence across an entire basin. Between such places, the eye learns to measure distance by subtle changes in the rock rather than by anything standing upon it.
+
+The groves are the first contradiction.
+
+Seen from far away, one resembles a deep-green mark left on the stone. Entered, it becomes astonishingly lush. Low growth covers the ground in dense, overlapping mats, some bronze-green and velvety in appearance, others composed of fine upright scales. Above these rise translucent fans, ribbed fronds, and smooth stalks that divide repeatedly into layered crowns. The tallest growth forms an open canopy; beneath it, younger-looking tissue fills every available interval without becoming tangled. There are buds, half-open tips, pale new surfaces, and older outer layers darkened to nearly black green. The whole grove has the visual abundance of a wet forest, but none of its materials.
+
+Nothing here contains sap. There is no wood in the familiar sense, no soft water-filled stem, no moist underside to a leaf. The plants are built from flexible carbon lattices, glassy fibers, and thin mineral films. Their color comes from layered photoelectric surfaces rather than from chlorophyll. Light falling on a frond produces a small electrical potential. Conductive pathways carry that potential through the stalk and into broad root nets following metal-rich seams in the rock.
+
+There, solid-state reactions bind atmospheric gases into tissue and rearrange mineral ions into new structural material. The mild warmth keeps these reactions mobile without requiring any liquid medium. The plants do not drink. They close circuits.
+
+Their roots are not searching organs but broad, persistent interfaces. Some resemble flattened meshes pressed into fractures; others penetrate stone as innumerable filaments, each one continuous with the crystalline structure around it. A few straight seams crossing the bare plains look, at first glance, like buried cables. They are not buried and were never laid. They are conductive mineral growths, as native to the plateau as its fractures.
+
+This gives the region its peculiar industrial character. There are engines, if an engine is anything that accepts energy and performs useful work. There are factories, if a factory is a system that transforms feedstock into repeated, standardized materials. But there are no machine objects, no enclosures, no assembled components, and no products set aside for later use. Each grove generates power, transports charge, refines mineral matter, and produces tissue. Every part of that industry is alive, geological, or both.
+
+Nothing about it was constructed. There are no roads between groves, no discarded tools, no ruins, no markers, and no sign of builders. The regularity that might suggest manufacture—the repeating leaf geometries, the long conductive seams, the precise zoning of tissue around a root interface—is simply how this chemistry organizes itself.
+
+It is also nearly silent industry. There are no pistons, turbines, flames, or grinding surfaces. Energy moves as charge; matter changes across interfaces thinner than a hair. Near the largest groves, a visitor might notice an extremely faint tonal pressure, felt more in the teeth and bones than heard. Elsewhere, the silence is effectively complete. A footstep on a brittle mineral film sounds shockingly loud, then vanishes without echo.
+
+The ecology is correspondingly spare. There are no animals of any size: nothing flying above the canopy, nothing moving beneath it, no burrows, tracks, webs, grazing damage, or remains. No pollinators visit the plants, and nothing carries their reproductive material from place to place. Decay is not a separate occupation performed by a crowd of decomposers. It is an internal, reversible chemistry. Old tissue is opened back into gas and mineral feedstock at the same rate that new tissue is assembled.
+
+The groves occupy only those rare sites where suitable rock, atmospheric exchange, and illumination coincide. Their own chemistry limits them to narrow conductive zones, so they do not spread continuously across the plateau. Space is abundant and mostly irrelevant. Between groves there is no struggling vegetation, no gradual thinning into scrub—only bare, pristine mineral ground.
+
+Nor does the visible stillness conceal ordinary activity merely slowed down. The plateau is in a genuine steady state. Charge flows and molecules are exchanged, but every reservoir remains constant. Production is balanced by reclamation; energy intake is balanced by radiation and loss. No canopy thickens. No grove advances. No fracture lengthens, and no isolated grain of dust migrates across the plain.
+
+Many forms therefore remain permanently suggestive of processes just beginning. A frond stays half unfurled. A mineral dome retains the appearance of a surface only newly exposed. A shallow basin looks as though drainage might someday elaborate it, although there is neither water nor weather to do so. The land is embryonic without being young in any meaningful sense. Its incompleteness is not a stage through which it is passing.
+
+Under the commonplace daylight, this permanence is more unsettling than outright frozen motion would be. The rock is not petrified; the plants are not dead. Their chemistry continues with exact, quiet competence. The plateau simply produces no surplus from which change could accumulate.
+
+From above, it can be mistaken for a lifeless mineral province. From within a grove, it can be mistaken for an overgrown world waiting for animals and rain. Both impressions are wrong. It is a high, warm, nearly empty living system: lush in a few precise places, industrial without artifacts, and forever new at the surface.

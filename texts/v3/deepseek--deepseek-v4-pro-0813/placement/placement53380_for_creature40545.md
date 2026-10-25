@@ -1,0 +1,15 @@
+You would find yourself not on the rim, not among the black basalt needles where the dry air thins. You would already be inside the hollow, and for a long time you would not know it.
+
+At first you might believe you were a worker. You would feel the drag of your own body, many-legged and low, your back a raft of overlapping plates. Each step would take minutes. You would taste the air through long antennae and receive only hot dust, sulfur, and faint resin warmed by the sun. The clear oil in your flanks would move so slowly that a single pulse would be an event. You would carry a flake of dried mineral growth to the storehouse and think that this was your task, your life.
+
+But then the wall would breathe. Or you would breathe, and the wall would answer. Your leg would not end at the claw; it would continue into the gallery as fibre and amber. The dry mats under you would be not ground but skin. You would feel a tap in a hollow stem two chambers away as if it happened in your own chest.
+
+You would dream yourself downward. The nurseries would be pockets of your attention: pale young in white-fibre cells, pulsing once or twice an hour, their chemical sentences telling them what to become. You would be both the sentence and the one told. In the workshops, you would be the slow spiral of chewing, the paste pressed into seams, the hunger that turns mineral vegetation into wall. A new layer would be added by the thickness of one of your thoughts in a season.
+
+At the centre, you would meet yourself as the founder-mother. In the bell-shaped chamber beneath the spire, you would be her immensity: the soft sac of oil and eggs, too large to move, your abdomen showing a cold light that swells and fades once or twice an hour. The workers would pass through you in single file, so slowly they seemed like a vein of pale stone. Each touch would leave a fine dust. The dust would not be waste. It would sink into you and return later as shell, worker, wall.
+
+Then you would know.
+
+You are not a creature living in the city. You are the city living as a creature. Your body is the whole hollow: the galleries, the ramps, the chambers stacked four and five deep, the storehouses, the nurseries, the spire rising from mineral leaves over centuries. Your blood is the clear oily sap that smells of hot iron and cloves. Your skeleton is the old ones who folded their legs and settled into gaps in the floor, over whom the living wall grew. Your voice is the faint tapping in the organ-pipe stems, too low to be heard, and the resin trails hardening into script on every path.
+
+You would not find yourself in one place because you are the place, spread across two hundred paces of black stone and rust-coloured growth, alive at a speed of one breath per hour. And who would you be? The hollow’s one slow animal, still dreaming itself into architecture—not the inhabitant, but the inhabited shape, the dry city remembering it is a body.

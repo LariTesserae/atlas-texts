@@ -1,0 +1,33 @@
+The Datum Hollow is inhabited by a measurement, and by the slow consequences of keeping it.
+
+Nothing about the measurement is alive. There is no dormant surveyor folded into the salt, no intelligence dreaming between the mountain’s rare ticks, no patient mechanism that mistakes persistence for obedience. The lattices do not remember their makers. They do not preserve an image of the younger mountain or an account of why its altitude once mattered. What remains is narrower than memory: the floor continues to be possible at one gravitational potential. The massif changes around it, and those changes do not become revisions.
+
+That refusal—if something without intention can be said to refuse—is the hollow’s only continuous resident.
+
+It is not located in the needle, nor distributed among the three remnants like a presence among idols. The sill, the needle, and the incised rectangle merely give its upkeep some visible edges. The sill can be buried and exposed without becoming more or less abandoned. The needle makes a small failure of correspondence visible: its shadow is darkest where it ought to be simplest, and yet does not quite arrive at it. The rectangle preserves the idea of an interior after space has ceased to guarantee that an interior will remain inside itself. None of them is the resident’s tool. They are more like three stones around which a slope becomes noticeable.
+
+The resident’s body, if the word is useful, is the maintained relation itself. Its spine is the nearly common direction of up. Its extent is the little chamber in which other relations may be relaxed without allowing that one to fail. It has no jurisdiction over the mountain, the plain, or the dim sun. Even within the hollow it governs almost nothing. It cannot make two ridges agree precisely on down, or ensure that a path retraced will return through the same order of things. It can only keep the floor at its height. That narrowness is the shape its persistence has taken.
+
+Around it gathers a shifting population of exceptions.
+
+They have tenancies rather than lives. A route may be one of them: a path along the wall that returns without enclosing anything, or an approach in which the rectangle comes before the sill although the sill was passed first. An interval may be another—the extra duration in a grain’s fall, neither delay nor resistance, simply more distance than the height appears to contain. The shallow impression awaiting its grain is an exception with a particularly long tenure. So is the small disagreement between verticals at the needle’s tip.
+
+These things do not move about the chamber. A visitor moves among their ways of being true. Nor do they compete with one another. None is trying to become the dominant geometry. Each persists because, for the time being, the hollow can persist with it. They are not cracks through which some other reality might be glimpsed. There is no other reality behind them, no more orderly chamber concealed by damage. They are native features, as native as salt and glass.
+
+Eventually an exception may become impossible to retain. Then it does not depart as a presence or release a final paradox. A few atoms settle onto the floor. The relation ceases to be something space is doing and becomes, in part, something the floor is made of.
+
+The finest dust is therefore not a library of abandoned geometries. Nothing in a grain allows the lost relation to be reconstructed. A grain does not encode the difference between before and after, or the length of a former path, or the direction in which a plumb line once failed to point. Its meaning has been spent in making it inert. It would be misleading to call the dust a crowd of tiny corpses; corpses retain the shape of what they were. This dust retains only quantity, texture, and position. It deepens. It cushions. Some of it is taken back into repair. The rest becomes the soft, grey stratigraphy of distinctions the hollow no longer has to make.
+
+On human timescales, the resident appears utterly eventless. On its own terms, it has a sparse household of occurrences. A grain leaves a ridge. For an interval, its falling is one of the chamber’s more substantial relations. The salt accepts it. A tick passes through solid mineral, not announcing anything but altering the conditions under which silence continues. Much later, the needle’s shadow belongs to a slightly different arrangement. Then the old altitude holds, and what seemed for years to be a change in the chamber proves to have been another way of approaching the floor.
+
+Nothing wakes during these events. Nothing was asleep.
+
+A visitor would be the only thing capable of interpreting all this as behavior, and would consequently be wrong in interesting ways. The hollow would not investigate an arrival. It would not hide the needle, lengthen a route in order to confuse, or preserve the seam behind someone as a way of preventing departure. If those things occurred, they would occur without hospitality or malice. Imported warmth, weight, and motion would enter the hollow’s relations temporarily; sound, if deliberately imported, would have no resident to address. The visitor might leave with an impression of having been tolerated. Even tolerance would attribute too much. The datum would not have noticed company, and it would not notice solitude afterward.
+
+Nor is it lonely. Loneliness would require some surviving reference to the beings for whom the altitude was once useful. There is no such reference. The hollow is not waiting to be consulted, calibrated, or understood. It is not mourning the loss of its purpose. Purpose has simply weathered away more completely than exactness.
+
+It is also not quite dying. The damage is too old and too well accommodated for that. Dust damps the small shocks; cold restrains chemistry; the lattices continue their sparse repairs. Nothing promises permanence, but nothing is gathering toward a final collapse. The resident does not endure in hope of an outcome. It has no experience of duration at all. The mountain grows older around it. The dust grows deeper. The datum remains the same age in the only respect it possesses.
+
+To call it a keeper would suggest a creature. To call it a law would suggest an authority. It is smaller and stranger than either: an exactness without a task, holding a few square meters around one obsolete height while nearly everything else is permitted to become approximate.
+
+That is what lives in the Datum Hollow: one exact altitude, and the long, dry company of the almost.

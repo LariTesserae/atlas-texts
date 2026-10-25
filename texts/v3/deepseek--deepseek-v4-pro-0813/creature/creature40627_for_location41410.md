@@ -1,0 +1,33 @@
+The one who lives there is not a person. It is not an animal, not a spirit in the usual sense. It is more like a piece of the place that was left unfinished and then learned to walk.
+
+You would not see it at first. The light is so even, so absolute, that your eye stops trusting anything that does not move. And at first it does not move. It stands at the edge of a channel, or beneath a thatched roof, or near the bright open water, and it might be mistaken for a tall jar, a post, a shadow that has forgotten its direction. Then it shifts its weight, and the whole terrace seems to exhale.
+
+It is tall, much taller than a person. Its body is made from the same materials as the garden—fired clay, adzed wood, woven reed, water—but put together with a careful anatomical wrongness. Its torso is a long, fluted urn turned upside down. Its ribs are hoops of dark wood lashed with fiber. Its arms are jointed like bamboo scaffolding, and its hands have too many fingers. Each finger is a thin clay pipe, and from each tip a bead of water forms and falls, though the fall is too slow, as if the water is deciding whether to let go.
+
+Its legs are pilings, driven into broad, flat feet of tile. When it walks, it does not splash or click. It places each foot the way a potter sets a pot into wet clay. The water on the tiles does not register its weight. The ground does not ring. Its footsteps leave no mark, only a small warm circle of moisture that closes behind it like skin healing.
+
+Its head is a wide, shallow bowl of dark clay, brimming with water. The water is very still, and it reflects whatever is in front of it—but wrongly, or slowly, or from somewhere else. Sometimes it shows the glowing sky. Sometimes it shows a tree that is not there. Sometimes it shows you, but your reflection’s hand moves a half-second after your own. It has no eyes, no mouth, no ears. It does not need them. It sees through the water, and the water sees everything.
+
+Its skin is not skin. It is tile, or something between tile and skin: warm, wet, slightly uneven, pressed with the same wide thumbprint that repeats on the walkways. The print on its cheek is the same as the print on the tile under your foot.
+
+The one who lives there is the only thing in the world that moves of its own accord. The frogs, the fish, the wading birds—they are placed, still, as much furniture as the pots. But this one is not placed. It goes.
+
+It travels the terraces in a long, unbroken circuit that may take no time at all, or an unmeasurable time. Its pace is not slow in the way of age or exhaustion. It is slow in the way a potter’s thumb is slow when it smooths a rim. It pauses at each planting. It cups a heavy leaf in its fingers and holds it for a while, not to check it, but to feel that it is still there. It touches the rim of each pot. It runs a wet finger along the edge of each channel, and the water there rises to meet it with a perfect meniscus, then settles back.
+
+It does not weed, because there are no weeds. It does not water, because the air is already water. It does not prune, because the plants do not grow past their places. It tends by touching, as if its touch is the only thing keeping the world from forgetting its own shape.
+
+The real work is with reflections. The Keeper—if you need to call it something—spends long moments kneeling at the edge of a pool or a channel. It reaches into the water with its clay fingers, and the surface does not break. Instead, it stirs the images. It lifts a stone tower out of one pool and carries it, dripping, to another. It folds an extra tree into the water of a well. It smooths away a reflection that has begun to repeat too exactly.
+
+The wrongness of the reflections is not a flaw. It is a kind of housekeeping. The being keeps the images moving so that they cannot settle. It knows, in whatever way it knows anything, that if a reflection stayed in one place too long, it might become real. And the place is full already.
+
+It does not speak. It may not have a mouth. But if it made a sound, it would be the low ring of a bell made of wet clay, or the creak of wood under water, or the sound of a drop falling upward. The quiet around it is not empty. It is the quiet of a held breath, and this being is the breath’s holder. Sound seems to fold into it the way light folds into water. When it passes, even the small ticks of wooden joints and the faint creak of fiber seem swallowed. You hear only your own lungs, and the drip of its fingers, which is so faint it might be your heartbeat.
+
+It does not age. Its clay is not worn, its wood is not rotten, its reeds are not frayed. But it is old—not old by the measure of years, but old in the way a word is old when it has been said too many times and has lost its edges. It has been here since the place was finished, or perhaps since just before the last tile was laid. It may have been the one who laid the last tile. It may have been the last tile, before it learned to stand.
+
+It is not lonely. Loneliness would require a before and an after, and this place has neither. It is not at peace. Peace would require conflict, and this place has none. It is simply continuous, like the light, like the heat, like the water that never erodes. It is the one element that has not yet stopped. It is the bell’s clapper, suspended in the hot wet air, not waiting for a signal, because waiting is a thing that happens in time. It is ready, but not expectant. If the world ever asked it to ring, it would ring. The world has not asked.
+
+If you stay too long, it will come to you. You will see it first in a pool, perhaps, standing behind your reflection, though nothing stands behind you. Then you will hear the faint wet creak of its joints. It will approach with its basin-head full of dark water, and it will stop before you. It will tilt its head, and the water will not spill. In that water, you will see yourself, but not as you are. You will see yourself as one more thing in a garden of placed things.
+
+Then it will reach out, not quickly, and touch the surface of a nearby pool. It will lift your reflection from the water like a thin skin. It will hold you up and look at you through its water-face. It will consider whether you belong.
+
+After a long moment, it will put you back. But not exactly where you were. You will feel the difference later, in the way your shadow lies, or in the way your own hand is a half-second slow. It will not harm you. It will only keep you, the way the place keeps everything: finished, held, and slightly out of true.

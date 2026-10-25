@@ -1,0 +1,31 @@
+The one who lives here is not seen at first, because it has learned to be indistinguishable from the mineral quiet. If you stand at the fourth side, where the blue air falls away, the basin looks empty. Then the shadow at the base of the west wall moves—not a shadow, but a figure folded into the flutes of the rock.
+
+It is not exactly a person, though it may have been once. It is taller than a person by the length of one of its own ribs, but it keeps itself folded so it fits the low shelters. Its body is the same dark, wet-black stone as the walls, or has become that stone over centuries. The long muscles are vertical flutes; the shoulders are two slabs of west-wall rock; the spine is a column of joined blocks. Its skin is a fine mineral grit, the same glacial flour underfoot, and where the light strikes it, tiny garnets gleam. In the morning, a pelt of needle ice grows from its scalp and shoulders, so that it looks like a piece of the frozen floor that has stood upright.
+
+Its face is difficult to read. The eyes are two cupmarks in the skull—not empty, but filled with water that does not spill. One eye is the colour of the first cup at dawn; the other is the darker, older sky that lives in the seventh cup. Its mouth is a horizontal fissure, and when it exhales, its breath comes out as a fine frost that does not dissipate but drifts down to join the needle ice at its feet. It has no teeth. Instead, black manganese dendrites spread fernlike from the corners of its mouth, as if the rock has been thinking in branchings.
+
+It does not eat. It does not sleep in any way you would recognize. It moves around the basin with a slow, jointed patience, each step placed only on stones or already-collapsed ice so the living needles are not crushed. When it walks, it makes the sound of a thousand thin glass tubes settling.
+
+It tends the seven cupmarks.
+
+It did not carve them—or if it did, the memory has been worn smooth. It may have been one of the people who built the shelters, before the cold replaced its blood with seepwater and its bones with basalt. Now it stays because the cups need tending, and because it has no other reason to be.
+
+Each morning, before the sun clears the east wall, it kneels at the central slab. Its knees leave no impression in the needle ice. From the first cup, full of condensation, it takes a single drop on the tip of its finger. It does not drink. It places the drop on its tongue, or on the place where a tongue would be, and the drop freezes there, a tiny clear stone. It carries that stone in its mouth until evening, then crushes it and lets the pieces fall into the second cup, which overflows.
+
+The second cup it empties into a shallow stone bowl, the one from the shelter. It carries the water to the third cup, where moisture beads from the air, and pours until the third cup is exactly full. If a drop spills, it catches it on the back of its hand and returns it to the second cup. It does not hurry.
+
+The fourth cup is always dry. The keeper touches it once, with the same finger, and presses until the warmth of the slab would register on living skin. It never tries to fill the fourth cup. It leaves the dryness exactly as it is, as though the dryness is a kind of emptiness that must be kept empty.
+
+At midday, when the needle ice collapses into wet mush, it goes to the fifth cup, which holds a coin of ice through the warmest hour. It lifts the coin out whole and holds it up to the sun. The shadow the coin casts on the slab is not the shape of a coin but the shape of a doorway. Then it places the ice in the sixth cup, which is warm to the touch, and waits while it melts. It does not drink the meltwater. It lets it run off the slab and refreeze in the shade.
+
+The sixth cup is the only one the keeper touches with its whole palm, not just its fingertips. It leans forward and presses its hand against the warm stone, and for a moment its body becomes less jagged. The flutes in its back loosen. The frost on its shoulders turns to dew and runs down its arms. It closes its two cup-eyes, and the water inside them trembles. That is the closest it comes to having a heartbeat.
+
+The seventh cup it visits rarely. Some days it does not look at it at all. But when it does, it kneels on both knees, lowers its head until its forehead almost touches the water, and stares into the reflected sky that is not the same sky above. It is looking for something in that older, darker blue. Once, perhaps, a face looked back. Once, perhaps, its own face was there, before the stone took it. It never tells what it sees.
+
+The keeper also cares for the rest of the basin. With the hammerstone, it resharpens the basalt flakes, not because it needs them but because the sound belongs to the place. It mends the windbreaks, lifting flat stones back into position after the frost shifts them. It sorts pebbles into windrows with its left hand; the right hand is kept for the cups. Each afternoon it climbs the steps chipped into the east wall and sits on the ledge where the fourth shelter collapsed, looking down at the central slab. Its shadow falls across the low wall like a finger pointing to something only it can read.
+
+It does not speak. The only voice it has is the low note the wind makes over the flutes, but it can harmonize with it. At dusk it opens its mouth, and the note comes out not as sound but as a vibration in the sternum of the mountain. The ice needles crack. The drip becomes a metronome. The whole basin rings, briefly, like a bell.
+
+It is not alone. The place is full of processes—freeze, thaw, drip, settle, polish—but they are not alive. The keeper is the only thing there with a will, though it may no longer remember what a will is for. In bad weather it folds itself into one of the shelters and stands there, bent to the size of a sitting person, while snow falls through the open roof.
+
+If you came upon it, it would not hide. It would simply go still, and you would take it for a pillar of stone, or a shadow, or a trick of the bright altitude light. And if you looked into the seventh cup, you might see it standing behind you, reflected in that other, older sky, watching you with its cupmark eyes, patient as the wind that fluted the walls.

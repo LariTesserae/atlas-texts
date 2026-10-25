@@ -1,0 +1,53 @@
+## The High Vacancy
+
+At the highest reach of the highlands, the mountain begins to repeat itself in rectangles. A fracture straightens into a curb. A seam of resistant stone lengthens into an avenue. Terraces gather above it, pierced by windows and joined by stairs, until an entire escarpment has the solemn organization of a city.
+
+Nothing has been laid upon anything else. There are no mortar joints, no tool marks, no foundations distinct from the bedrock. A stair can be followed down until its steps become ripples in a natural stratum; a tower, examined closely, is one continuous piece of mineral. The High Vacancy is not a ruin. It is a mature landform.
+
+The altitude is difficult to comprehend because there is so little below it by which to measure. The outer cliffs descend through clear, thin air into a darkness that is not haze. No lower plain becomes visible, however long one watches. Often the horizon seems to lie beneath one’s feet. At night, faint points of light appear in that depth as well as overhead, though the lower lights move more slowly and sometimes go out in straight lines, as if passed behind an unseen colonnade.
+
+The city occupies several flat-topped heights separated by dry gulfs. Natural bridges join some of them; elsewhere, arcades run out from the cliffs and stop in open air. From the central terraces, the view extends far beyond the last streets, across empty saltfields, black glass fins, and solitary mineral pillars weathered into the approximate shapes of gates. It is a regional landscape, wide and varied, but almost nothing occupies its volume. A single court may be large enough to hold a settlement and contain only one tilted slab, three grains of dark dust, and a cold rectangle of shade.
+
+The upper stone is pale and fine-grained, the color of bone seen through smoke. Fractures expose plum-black glass and occasional seams of dull yellow salt. Everything is dry beyond the ordinary meaning of desert. There is no frost in the shadows, no dampness at the bottom of the deepest shafts, no hidden seep sustaining a separate chemistry. Dust adheres through crystal fracture and static charge. The air is cool, with little difference between one cycle and the next, and so thin that breathing feels like a private action performed inside the chest rather than something shared with the world.
+
+Light arrives from unlikely directions. A small, pewter-colored sun circles the highlands without ever rising far above them. For much of the cycle it is visible below the western cliffs, and its weak illumination climbs upward along the rock. The undersides of arches become pale while their upper surfaces remain dark. Streets are lit in long, shallow bands; towers seem brighter at their roots than at their summits. Even at its strongest, the light never becomes much more than a clear twilight. It gives almost no warmth.
+
+For a short part of each cycle, the city casts the shadow of more city than it contains.
+
+Across the outer saltfield appear the shadows of rooflines, narrow lanes, stairs, and crowded towers, though no corresponding structures stand anywhere in the light. Dust moving across the field goes around these shapes. A shadow-wall deflects it; a shadow-door permits a thin stream to pass. When the sun shifts, the additional district does not shift quite in sympathy. Sometimes it lingers after the other shadows have gone, grey on grey, until the salt slowly forgets its outline.
+
+Within the solid wards, the urban grammar is remarkably persistent. There are avenues, stepped courts, retaining walls, covered passages, ventilation shafts, elevated channels, and bridges whose ends meet on different levels. Yet there are no furnishings, vehicles, lamps, vessels, inscriptions, or tools. Nothing suggests that objects were ever made or carried here. The city is dense in organization and vacant in substance. Most of what it encloses is simply height.
+
+Its surfaces bear the patience of great age. Dust abrasion has rounded the edges of steps and scalloped the faces of parapets. Thermal contraction has opened fine cracks that are themselves polished smooth. Some walls have thinned until they stand as translucent mineral membranes, dimly showing the courts beyond. Talus lies in stable, carefully sorted fans, with no raw rubble and little that looks freshly broken. Collapse is not a catastrophe here. It is one of the slower ways the landscape settles.
+
+But erosion is not confined to stone.
+
+Length also wears away. Routes repeatedly followed by the dust become shorter, although their pavements do not change. An old court may be crossed in nine steps along one side and require an hour along the other. Eventually its far corners may touch while its center remains broad and open. The most ancient avenues are often tiny distances enclosed by enormous perspectives.
+
+Openings outlast solids. A wall becomes uncertain first at its edges, then through its thickness, until only a doorway remains: a rectangular interruption standing unsupported on a terrace. Passing through such an opening usually changes elevation rather than location. One may emerge on the same terrace a little higher than before, with no stair in sight, or step onto a bridge spanning a gulf that was behind one a moment earlier. The opening remains stable for as long as it continues to lead somewhere. When it ceases to do so, it fills quietly with pale stone.
+
+These failures are not sudden or chaotic. They have the deliberateness of weathering. An arch does not ordinarily vanish; it spends centuries becoming difficult to approach. A tower does not simply exchange places with another tower. First their shadows become interchangeable, then their upper windows admit the same view, and only afterward do the structures themselves begin to share an altitude.
+
+The city also renews itself, though never by construction. A blank wall develops a seam. The seam deepens into a recess; the recess acquires a lintel and becomes a door. Rooms are later found behind it, already ancient, their floors dusted and their corners worn. New districts are always discovered old.
+
+At longer intervals, the whole region undergoes a settling. Loose dust lifts from every street at once, hanging in straight, motionless filaments. Weight becomes slightly uncertain. Pebbles lean toward the edges of cliffs without rolling. The outlines of distant terraces draw closer together or separate by the width of a entire ward. Then the dust descends, not necessarily where it originated, and the skyline has been modestly revised. No thunder accompanies this. Usually there is only one dry tick, felt through the soles of the feet.
+
+Weather otherwise consists of pressure, charge, and the movement of dust. Thin fronts cross the highlands without visible boundaries. Before them, black mineral grains rise in slow columns from the deep shafts; behind them, pale dust streams through the elevated channels and pours over cliff edges without falling, extending outward as perfectly level banners. During weight tides, dust may settle on vertical surfaces in narrow horizontal lines. During still periods, it remains suspended for days, each grain isolated from the next by more space than its size would seem to require.
+
+Life, or something near enough to life to complicate the distinction, persists in this movement.
+
+On cold, unlit stone there sometimes appear angular patches whose reflectance differs slightly from the mineral beneath them. They are lattices of charged dust, self-maintaining for a time along crystal defects. They neither root nor grow upward. They have no stems, fibers, foliage, or pigment, and they do not use the weak sunlight. Instead, they persist by organizing the electrical difference between two faces of a wall. When that difference fades, the lattice relaxes back into unremarkable dust. Under favorable pressure tides, the patches spread in stepped geometric outlines, divide, and vanish, all within a single cycle.
+
+The small animals resemble cracks until they move.
+
+Most are no larger than a hand: extremely thin, flexible bodies of dark silicate tissue, containing no liquid and very little that could be called an organ. At rest they lie within actual fractures. When feeding, they slide across the stone against the grain of its cracks, unfolding briefly into three dimensions to gather the charged lattices. Seen edge-on, they disappear. Seen from above, they look like a fault reconsidering its direction. They are rare enough that an entire terrace may seem sterile, while a single shaded stair contains several hundred motionless occupants.
+
+Something larger occasionally crosses between the mesas. It is visible only at night, as a sequence of narrow interruptions among the lights below. Each interruption appears higher than the last, though nothing can be seen rising. The crack-animals vanish from the open wards for several cycles afterward. Whether the crossing thing hunts them, frightens them, or merely alters some condition they require is not apparent.
+
+All these processes take place in near-total silence. The dust streams make no hiss. The great settlings produce no rumble. Stone contracting in the cool air gives an isolated tick, sometimes separated from the next by hours. A collapse beyond the cliffs may arrive much later as a single soft tap beneath an interior floor.
+
+Footsteps are unreliable. Some remain behind their maker, so that after turning a corner one may hear the last three approaching faintly from the empty passage. Enclosed rooms occasionally return sounds that were never made in them, always at very low volume: one footstep, one grain striking stone, one breath drawn with unnecessary care.
+
+Toward the dimmest part of the cycle, the High Vacancy becomes difficult to distinguish from the sky. Its pale surfaces withdraw first, leaving black openings and the faint upward illumination of the cliffs. The extra shadow-city fades from the saltfield. Dust begins to rise in the outer channels. Somewhere a blank wall divides into two rooms; somewhere an old road becomes shorter by the width of a grain.
+
+Nothing about the place feels abandoned. Abandonment would imply an occupant-shaped past. This is an urbanism performed by altitude, mineral, and erosion, maintained without builders and almost without inhabitants. Below the rim, the dull sun continues its circuit, lighting from underneath a city that has never needed to be built.

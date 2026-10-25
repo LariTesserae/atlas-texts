@@ -1,0 +1,45 @@
+## What Lives in Noll
+
+Nothing lives in Noll without making an arrangement with the works.
+
+The people arrived with the pipes. Most of the rest came afterward: seed in wagon mud, spores on packing timber, snails among plants brought for the cottage gardens, sticklebacks in a can, birds at their own discretion. Some arrivals were planned and immediately ceased to behave as planned. Noll’s community is therefore young even by the standards of its young basin. It has no ancient core. It is still being assembled.
+
+The human population is small enough that everyone knows who is on the night shift. There are engine drivers, pump keepers, fitters, plate cleaners, storekeepers, railway men, and the households whose cooking, mending, teaching, and gardening never appear in the water ledger. Their common work begins before dawn, when the condensate is measured and the troughs are inspected. A poor yield is an inconvenience; a changed sound is often more serious.
+
+Old hands can sleep through the flywheel, the fans, and the engine whistle, yet wake when a pump alters its rhythm. They locate faults by knocks transmitted through iron and by the flat or ringing note returned to a listening rod. Children learn a second kind of listening alongside the first: which covered drain contains frogs after rain, which pipe saddle conceals a wren, and when the rooks are likely to descend for anything left shining in the workshop yard.
+
+The people are not indulgent landlords. They chip scale from pipes, cut roots out of brickwork, clear troughs, and repair genuine waste. Noll could not survive by preserving every leak. But neither is a repair now an entirely mechanical decision. A nesting box may be fixed beside a pipe before an old cavity is sealed. An overflow can be shifted a short distance so that a fitter can reach a joint without drying out the mint below it. Work on a condenser frame waits, when it safely can, for young rooks to leave. A useful accident, once observed and entered in the maintenance book, acquires a surprising degree of permanence.
+
+Consequently, some of Noll’s gardens have addresses rather than owners. People speak of the Alder Overflow, the Mint Seep, or simply the Bad Flange. A cottage may inherit a bed of ferns because a previous tenant diverted a nuisance drip through a broken tile. Someone else cultivates cabbages in black soil that began as an alder root mat. When a pipe is altered, the garden may migrate with it. The oldest green places are not always fixed in location; they are continuities of care.
+
+Beneath the visible plants, smaller inhabitants have been preparing the ground.
+
+Films of algae and bacteria spread over overflow stone and the neglected sides of troughs. Fungi thread through leaf litter and decaying roots. Springtails, mites, and minute beetles work the damp moss, catching dust and breaking down whatever organic matter the basin provides. Under the oldest alders there is now a hand’s depth of dark soil where none was laid: windblown dust, soot, cinder, rust flakes, leaf mould, and the lime of snail shells bound together by roots. Noll is manufacturing soil as well as water.
+
+The plants sort themselves according to the habits of the plumbing. Where condensation is steadiest, moss and ferns can afford soft, broad growth. Where water arrives in surges, sedges and mint spread through the intervals and endure the dry ones. Alders occupy the oldest allowances, shading the ground and accelerating the making of soil. Beyond them, bunchgrass, stonecrop, and pale lichen hold the gravel and young stone.
+
+These are not simply plants of wet country transplanted into a dry one. They are plants capable of being abruptly abandoned by water. Close a valve and a green seam may brown within days. Yet seeds remain in cracks, mint roots persist below the surface, and fern spores lodge in the roughness of concrete. Months later, when a replacement joint weeps or an overflow is rerouted, growth returns along almost the same line. The vegetation remembers the plumbing even when the plumbing has forgotten it.
+
+Every fitting also has several meanings. To a fitter, a valve cover is access. To a frog, it is a cool room with a narrow door. A seldom-used handwheel becomes a scaffold for a spider’s web; at dawn, moisture outlines the web and the wheel together. The troublesome flange supplies swallows with nest mud. A warm cavity behind an engine main gives a wren shelter in winter. The maintenance diagram records one Noll. Its tenants use another laid over it.
+
+The frogs live by the riskiest arrangement. For much of the year they are dispersed and seldom seen, sheltering beneath covers, among roots, or in the damp mouths of drains. Rain gathers them into sudden congregations. Spawn appears in pools with no dependable future, and many broods are lost when the basin dries. Occasionally a puddle persists just long enough, or a shaded cistern overflow receives a few timely refills, and the paths are suddenly crossed by froglets no larger than a fingernail pairing. The population does not grow steadily. It fails, waits, and occasionally succeeds all at once.
+
+The sticklebacks are more continuously aquatic and therefore more confined. In the overflow basin, males weave nests among root fibres and defend small territories with a ferocity out of proportion to the available water. Children lying on the coping can watch the whole drama: nest building, courtship, the herding of fry, and the instantaneous silver disappearance of the shoal when a shadow crosses. To the fish, the little basin is not inadequate. It is simply the world, with a stone wall at one end and, occasionally, a heron at the other.
+
+The heron is a visitor rather than a resident. So, in their seasons, are other hunters and passengers that discover the green seams from above. They arrive expecting a larger wetland than Noll can provide. Some stay for an hour; some for a few days. Their visits briefly connect the catchment to country its ordinary inhabitants never see.
+
+Rooks have made a more permanent claim. They know the roofs, the frames, the workshop yard, and the habits of everyone who leaves wire or twine unattended. Their nests contain the settlement’s history in offcuts: binding wire, twisted staples, bits of basketry, and sticks stolen from neighbouring structures. They are hated briefly when something important disappears and forgiven collectively when the young birds first clamber onto the condenser bracing. The engine whistle still produces the same apparent outrage, though the colony returns to the frames within minutes.
+
+Swallows occupy the lower air, hunting above the mint and wet moss where insects gather. Wrens move through the root mats with barely a leaf showing their passage. Warblers work the alders in season. Voles keep narrow runways along the pipe corridors, vanishing whenever a boot leaves the gravel. In the dry intervals, ants nest beneath sun-warmed kerbs and carry seeds into streets whose houses were never built. Hares make their forms in the long grass beside surveyed boundaries and use the empty roads at dusk, undisturbed by the traffic implied in the plan.
+
+Even the powerhouse’s heat has tenants. In cool weather, insects and spiders gather near warm brick and sheltered metal, while only a short distance away snails climb the cold condenser uprights to graze. Noll’s climates are often separated by less than the width of a cottage garden.
+
+Each kind of inhabitant possesses a different map. The pump keeper’s map is made of pressure, yield, and numbered valves. The frog’s consists of shelter connected to temporary water. The rook’s is a map of height, exposure, and stealable things. The alder’s map runs downward through mortar and outward along damp soil. These maps overlap without agreeing. An improvement on one may be a drought, an eviction, or an impassable wall on another.
+
+The people of Noll have gradually learned to read some of this overlap. They cannot accommodate everything, and they do not try. Their particular skill is knowing when a damp patch represents intolerable loss and when it represents a small, useful payment to the place around the works.
+
+Nothing there is native in the old sense, but the resulting life is not artificial. The roots really loosen brick. The birds really carry seed. Soil really gathers, and young frogs really disperse beyond the last pipe into whatever temporary shelter the basin offers. What began as a collection of arrivals has started to produce relationships no engineer specified.
+
+At dawn a keeper may pass the Bad Flange at the same moment that a swallow comes for mud, a snail descends the iron, and a wren disappears into the mint. None of them is using Noll for quite the purpose shown on the municipal plan. That is now the ordinary condition of the place.
+
+Noll is inhabited in the space between intention and leakage: by people keeping a machine in order, and by everything else patiently teaching that machine to become ground.

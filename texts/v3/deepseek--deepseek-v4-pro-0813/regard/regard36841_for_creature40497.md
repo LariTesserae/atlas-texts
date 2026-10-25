@@ -1,0 +1,35 @@
+The power that noticed the Socket was not young, and it was not in a hurry. It had seen many worlds and many small, crowded places, but it had rarely seen one so perfectly settled into its own limits. It came not as a storm or a vision, but as a slow widening of attention at the edge of the dust-haze, as if the mountain had drawn one more breath and held it.
+
+Its first impulse, being benevolent, was pity. The air was thin and dry. The people sipped water from a shared cup and licked the rim. The children’s lips were cracked. The old ones moved carefully through the thorn tunnels, measuring each mouthful of moisture. A lesser kindness would have split the rock and brought a spring gushing into the hollow. A lesser kindness would have fattened the succulents, made the dew fall like rain, turned the bitter lichens into bread without effort.
+
+But the power was wise. And wisdom, it had learned long ago, is the discipline of waiting until the shape of a thing becomes clear before touching it.
+
+So it waited. It listened. It felt the long, slow inhale and exhale of the mountain’s overhang, the creak of rope ladders, the dry rattle of bone bells. It watched the dew-gatherers move among the columns in the amber half-light, drawing moisture from the waxy ribs with careful, reverent hands. It heard the bees humming inside hollow stems, and it understood that in the Socket, water was not merely a need but a grammar. Every drop was a word. To pour a river into that place would be to drown the language.
+
+The power considered the gifts it might give, and it set each one down again like a stone that did not belong.
+
+It considered water. A spring would ease the thirst, but it would end the morning gathering, undo the slow rituals of sharing, turn the careful measure into carelessness. The people would not be the same people. The plants would grow soft. The bees would grow lazy. The memory-threads, which recorded exactly how much moisture each family had gathered and given, would become meaningless.
+
+It considered knowledge. Writing, perhaps, or glass, or the wheel. But the people already had a memory more durable than ink—the colored cords, the knotted strings, the elders who could recite three generations without faltering. A script would petrify that living memory into silence. The wheel would have nowhere to roll. Glass would only give the dust another thing to scour.
+
+It considered ease. But the people’s hardness was not a curse. It was the very texture of their lives. Their hands were careful because the world asked them to be careful. Their attention was deep because the world was sparse. To make them comfortable would be to loosen the weave, to soften the stone, to dim the quiet fire at the center of the Socket.
+
+So the wise power did not give them any of these things. It did not even give them a sign they could name.
+
+What it did instead was almost nothing. And that almost-nothing was everything.
+
+It found the mountain’s old spirit first—the patient, silent being that had cupped its stone hands around the hollow for ages beyond counting. The mountain did not greet the power, and the power did not ask to enter. They simply regarded each other the way two old shepherds might, across a flock that needed no herding. Then the mountain returned to its slow work, and the wise power knew it was welcome to stay, but not to meddle.
+
+So the power stayed at the threshold, at the edge of the dust-haze, and it set a shyness into the minds of those who might wander up from the valleys. Not a wall, not a curse, only a slight turning of attention. A hunter following the wrong ridge would pause, feel the thin air, and decide without knowing why that there was nothing worth seeing beyond the brown light. A trader might remember a path that did not lead here. The Socket remained hidden, not because it was forbidden, but because the world outside simply forgot to look. That was the first gift.
+
+Then the power breathed along the mineral veins, like someone blowing gently on a cooling cup. It did not halt the mountain’s erosion—that would have been an insult to the mountain’s own patient will—but it asked the rock to remember its strength. The overhang would not become immortal; it would simply continue to wear at the same old pace, so that no sudden crack would fall within a human lifetime. The mountain had held the hollow for an age. The power asked it to hold for another.
+
+Then the power found a place deep below the roots of the succulents, where the rock held the memory of a vanished sea. There it coaxed a slow seep—not a spring, but the possibility of one. A faint, hidden dampness that might gather in a crack too narrow for human fingers. The bees found it first, because the bees always find what the mountain hides. The people never knew it was there. In the dry years, when the dew failed and the columns grew thin, the bees would drink from that secret place and return to their hollow stems, and the honey would be a little heavier. The geckos would lay their eggs in the coolness. The people would survive the drought without knowing they had been helped. That was the second gift, and it was the only water the power gave.
+
+And then, because even a wise power is allowed one small act of love, it touched a single memory-thread in the jar of the oldest elder. Not to rewrite it, not to change a genealogy or a debt, but to add one knot—a knot the elder would find in the morning and not remember tying. The knot had no meaning anyone could read. It meant only: *I am here.* When the elder closed her eyes and ran her fingers along the thread, she would frown, then smile, and tell the children that the mountain had added a new verse to the family’s song. The children would listen, and the geckos would watch from the stone, and the bees would hum a little lower. That was the third gift, and it was almost invisible.
+
+The wise power did not fix the Socket, because the Socket was not broken. It did not make the people richer, because their wealth was in scarcity. It did not make their lives easier, because their lives were already shaped by attention. It only made sure that the cup would not be dashed from the mountain’s hand by the clumsy world below.
+
+And then it withdrew to the edge of the dust-haze, not to abandon them, but to watch—the way a good ancestor watches: present, silent, and almost indistinguishable from the rock. The mountain cupped its hands. The hollow hummed. The bees carried the secret of water. The people went on gathering dew at dawn, never knowing that they had been noticed by something vast and kind.
+
+That is what the wise power did. It did what the mountain had always done. It held the place in its attention, without crushing it, and let the small, dense spark of life go on burning in the dim amber light, exactly as it was.

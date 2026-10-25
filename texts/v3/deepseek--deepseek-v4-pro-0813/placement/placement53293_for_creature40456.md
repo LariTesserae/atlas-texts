@@ -1,0 +1,13 @@
+At first I would not know what I was. The plain is so large and so empty that I might think I was the crust, or the heat, or the long pale horizon. Then I would settle into something smaller: a color at the edge of a terrace pool. A dark green film lying over the mud.
+
+I would be that green skin, the living mat of cyanobacteria stretched across the soft mineral floor. Not one creature, but a trillion filaments woven into a common fabric. My place would be the shallow water where a terrace step spills over its own rim, where the brine is just dilute enough to endure, just salty enough to keep me honest. Around me, the stone would be new—sharp, white, still accumulating. Pools would be milky or rust-tinged or faintly pink where other chemistries bloomed. But I would be the green edge, the place where light and water and mineral meet.
+
+I would not see the sun. I would receive it. At dawn I would swell with the dew, taking moisture from the crust, softening into full metabolism. Bubbles of oxygen would gather beneath my surface and rise through the shallow water in fine threads. By noon the light would be huge, and I would darken, pulling protective pigments over my cells like a shutter. I would wait. I would not sleep, exactly, but I would slow, enduring the hardest hours under a black-green shade of my own making.
+
+When rain came, I would feel it before I heard it: a pressure change, a loosening. The water would sheet across the terrace and lift fine clay and dust. I would catch what I could. That is part of my work—to hold sediment, to bind new crystals, to turn grains into ground. Around me the land would be growing, not eroding. My lower layers would die and mineralize, and I would grow over them. The sharp white rim of the terrace would be partly made of my past selves.
+
+Nothing would eat me. No animal would cross the water. I would have no need for thorns or speed or fear. The only disruptions would be the sun, the salt, the cracking of the crust at night, the occasional thin wind. At dusk I would ease back into full activity, using the stored chemistry of the day. The stars would come out over the basin, and I would lie there, a dark film under a darkening sky, breathing in the dark.
+
+Over time I would become part of the landscape in a way no animal ever could. I would be a builder, not with hands but with patience. The terrace would rise a little because of me. The mineral world would advance by a filament-width, and I would be one of the reasons.
+
+So where would I find myself? At the edge of a new terrace, in the shallowest water, between brine and stone. What would I be? A mat of cyanobacteria—the first inhabitant, the green rumor at the edge of a world still being made.

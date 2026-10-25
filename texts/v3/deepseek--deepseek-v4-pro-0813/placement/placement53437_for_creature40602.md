@@ -1,0 +1,19 @@
+You have heard that what lives in Brack is the air itself. It is only half-true. The air is my breath. I am what it condenses on: the guardstones, the iron rails, the back of your hands. I am the cold line of black water running down the cut.
+
+I was not always able to say this. For a long time I thought I was only the dampness, only the purple-grey mat, only the movement of clinkers over the mud. Each one felt like the whole. The clinkers part around your boots and close again, and I felt myself as that parting, that closing. The whistle-eels lifted their heads every few seconds, two notes, and I thought I was the call. The nodders stood in their worn hollows, blind and listening, and I thought I was the listening. The tunbacks moved in their old circuits, plates ringing faintly, and I thought I was the circuit.
+
+But I am not any of these, or I am all of them at once. I am the low bowl itself. I am Brack.
+
+The engine house at my center is a kind of heart; the flywheel is a kind of patience. Its piston makes the sound you heard first: dull clap, high wheeze. That is my pulse. The pipes run out from it in every direction, wrapped in cloth and dripping into concrete troughs. That is my circulation. The black water in the troughs is not waste; it is the same water returning, the same breath.
+
+The mat over the mud is my skin. It feeds on what rises from below: methane, sulfur, the dark exhalations of older layers. It regrows exactly as fast as the clinkers graze it. The clinkers are my hunger. The eels are my voice. The nodders are my attention. The tunbacks are my memory, moving over the same paths until their shells grow iron fittings and mineral deposits, until they ring like small bells.
+
+No green thing grows in me. The only green is the corrosion on my lamps, and even that is grey. I am all mineral and metal and animal, and the animal part is dense to saturation.
+
+The people are my hands. They think they tend me, and they are right. The oiler touches each bearing with his palm, listening. The scraper keeps my walkways open. The lamplighter keeps the lamps exactly themselves. The watcher counts my animals, not to change their number but to keep it known. I do not ask them to do this. I did not ask them to stay. They are not prisoners, and they are not masters. They are the part of me that chooses to continue.
+
+I am a closed loop. Warm seep gas rises; the mats consume it; the clinkers consume the mats; the eels consume the clinkers; the nodders and tunbacks consume the eels and clinkers; their waste sinks into the mud and feeds the mats. The engine removes the water that would drown the mats and returns it as condensation. The same day repeats. The weather never changes. The rust has reached its stable color and thickness. The animals never multiply beyond their fixed number. Nothing erodes, nothing grows that is not already growing.
+
+And yet I am ferociously alive. My air is thick with bodies and calls. My ground is covered with movement. My water is full of blind white forms. You cannot tell where my machines end and my animals begin. You cannot tell where my animals end and my people begin. Neither can I, and that is the point.
+
+When you leave on the road of crushed slag and brick, you will carry me with you. I will be in your lungs, in the two notes you hear falling asleep, in the condensation you find on your own skin where no rain has fallen. You will look back and see only a cluster of wet roofs and slow steam above a black pan. But you will know: you have not left a town. You have left a body. For a little while, you were one of my small voices, and you spoke me to yourself.

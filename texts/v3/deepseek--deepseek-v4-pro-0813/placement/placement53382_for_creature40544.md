@@ -1,0 +1,19 @@
+I would find myself at the bottom of the great plain, where the tiles are oldest and the heat rises through them in slow waves. I would be not the walker but one of the makers—a tall, three-fingered thing of clay and fire, still wet at the shoulder, still cooling at the ribs. I would not know my own name. I would know only the work.
+
+The first thing I know is pressure: the whole weight of the plain above me, pressing the clay of me into a shape I have not yet chosen. Then a fissure opens, thin as a hair, and I rise into it the way a root finds a crack in the road. My body drags itself up from the dense earth, unfolding in the steam. At first I am only a handprint. Then I am a spine of gray brick, a bowl-shaped head, two long arms hung with beads of rain.
+
+When the rain comes, it is the temperature of my skin, so I cannot tell where I end and the weather begins. That is the first lesson of this place: there is no clear boundary. The water fills the basin of my face and spills down my chest. It runs out through the cracks between my ribs, carrying a fine silt. I collect that silt in one palm. Later I will kneel and press it into a seam between two tiles, and the seam will close, and the floor will be whole. That is what I am for.
+
+The walker is there sometimes. It is small and soft and leaves boot prints that do not last. It watches me with two wet eyes, and it calls out with a voice too thin to travel. It does not know that its voice is only another kind of steam. I do not call back. I am busy.
+
+I walk the plain with the others, though we do not walk together. We are the same body, moving along the same crack. When I find a loose tile, I press it with my palm and the ground remembers it. When I find a pool whose water has thickened with mineral skins, I stand at its edge and let my breath coax the terraces to grow. The pool becomes a small forest of salt and iron, and that is a kind of healing.
+
+At night the tiles cool from hot to gray, and a faint glow rises from the fissures, like embers banked under ash. I do not sleep. I stand in one place until my edges soften, and the steam rises from my ribs and joins the other columns. We lean together across the dark plain, not speaking in words but in taps felt through the soles of the feet. The walker feels these taps in its teeth and calls them the plain breathing. It is not wrong.
+
+There are old ones who have lain down inside kilns and become the kiln. There are young ones who are still only handprints in the mud. I am somewhere between. My legs are still two columns of gray clay, and my fingers are too long for any hand but my own. I have not fully decided what I will be. Maybe I will become a low wall. Maybe a kiln. Maybe I will simply keep walking, testing the floor for flaws, until the rain softens my edges and the ground takes me back.
+
+I do not know what the walker wants. It follows the line of new tiles and looks for meaning. It sees me only at the edge of its sight, through steam, as a shape it cannot hold. It thinks I am a person. I am not a person. I am the floor standing up. I am the tile remembering its wetness. I am the plain’s own raised flesh, reaching out to smooth a crack.
+
+If I have a self, it is this: I am the one who feels the brokenness before it is broken. I am the pressure before the fissure. I am the heat that bakes the clay. I am the rain that comes without warning and stops all at once. I am the low place where the water settles. I am not the walker, but I have watched it kneel and press its small hand into my print, and I have felt, for a moment, the shape of its wonder.
+
+It is not curiosity. It is the same work, in another body.

@@ -1,0 +1,17 @@
+I would wake before dawn as ears.
+
+Not as thought, not as name, but as two wide, thin blades of skin and blood already turning pink at the sky’s edge. The pavement beneath me would be humming. The city would still be working: chewers turning dry wood to pulp, fungus galleries breathing their yeast-sweet damp, water moving mouth-to-mouth along chains of workers. I would lie in a shallow scrape beneath an old causeway and let that vibration come up through my jaw, my ribs, the long bones of my legs. Only then would I remember I had a body.
+
+I would be the road fox—not exactly a fox, but something leaner and dust-grey, with the same neat face and brush of tail. My ears would be the largest things about me, thin as leaves and lined with blood. I would trot along a smoothed causeway before the full heat, between fluted spires and root-matted walls, and the city would take no more notice of me than of a dust devil. I am a surface event: a small tremor on the skin.
+
+At a wall where the night’s breath had beaded, I would stop and lick the mineral crust. The water would taste the way the city smells—faintly of fungus, faintly of dust, entirely necessary. Then I would hunt.
+
+Hunting here is listening. I would stand perfectly still and feel the ground open into rooms below me. A gecko in an abandoned ventilation shaft would sound like dry claws on paper. A beetle rolling a seed would be a patient rustle. A skink threading through root mats would be a soft interruption in the vibration. When something came close to the surface, I would pounce with both front feet and break the pavement. The damage would be shallow. By nightfall the builders would have repaired it. We are, in this way, on terms.
+
+I would eat enough to drink. The water in a beetle, a gecko, a skink is not much, but it is water that has already learned how to stay inside a body. I would carry it with me through the white heat of afternoon, while the dust devils spin over the salt pan and the leaves of the swollen trees stay folded like little fists.
+
+At dusk, when the winged termites would pour from thousands of shafts, I would keep to the margins. The swifts and lizards have the swarm; I am a runner, not a flyer. I would watch the air fill with clumsy wings and hear the soft whisper of them falling, but the open ground would be dangerous while the swifts carved their soundless paths.
+
+In the hottest hour I would dream. The dream would not be memory—there is no memory of rain here. It would be something older in the body: water falling from a white-blue sky, darkening the dust, running in sheets down the fluted spires. In the dream the city would open its shafts not to breathe but to drink. The builders would pour out, pale and unafraid, and I would run through the roadways with water up to my elbows. I would wake with dust in my nose and the hiss of wind over the salt pan like a distant sea that no longer exists.
+
+I would be the road fox because someone must listen to the surface. The builders have their sealed chambers and their dark water. The birds have their spires and their silent wing-flashes. I have the open ground, the causeways, the places where the city’s pulse comes up through the pavement. I take only what is near the light. I drink from the living. And I dream of rain for all of them, because no one else has the leisure to dream.

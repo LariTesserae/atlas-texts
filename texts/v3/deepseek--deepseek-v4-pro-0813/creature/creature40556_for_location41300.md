@@ -1,0 +1,25 @@
+There is one. At first you will not see it, because you are looking for a body separate from the place. The wet flats, the pools, the grown rooms all seem empty. But after a while, if you stand still long enough, the floor of one of the long halls rises slightly and becomes a flank.
+
+It is not an animal in the usual sense. It is a living thing the way the rest of this world is alive, only it moves. It has no fixed shape. When resting, it looks like a low platform covered in the same translucent leaf-skin as the domes. Its underside merges into the root-mat through a dense pad of white rhizoids. It can disappear into the architecture so completely that you might have already mistaken it for a sill, a bed, a raised place where the floor is warmer.
+
+Its body is pale as the inside of a split stem. Water moves through it visibly, in slow, bright channels. It has no true head. At its front, a collar of six leaf-like palps opens into a shallow cup that is always full of water. That cup is its ear, its eye, its tongue. The many-voiced dripping of the place falls into it, and the rings on the water tell the creature about the walls, the temperature, the pressure in the roots. The steady dripping is not only weather. It is perception. The inhabitant hears the landscape through its own body, and the landscape answers with water and hollow tones.
+
+It has no eyes, but along its sides are rows of small, clear lenses made of hardened sap. They do not see objects. They read the quality of light: leaf-skin, water-silver, old brown fiber, the rare violet of a flowering structure. It lives in a world of damp light and pitch, not in a world of edges. It does not need to see you to know you are there. It knows by the way the air changes, by the way the water runs differently over your boots, by the slight disturbance in the root-mat.
+
+When it moves, it does not walk. It pours itself forward. Thin root-like limbs extend from its flanks and chest, attach to the mat, then contract. The body follows in a slow, continuous creep. The sound is a soft tearing of tiny root-hairs, like wet cloth parting. The ground heals behind it immediately. If you watched from the far side of the flats, you would not say, There is an animal. You would say, The ground is shifting.
+
+The structures are not separate from it. The long, low hall is the shape of the inhabitant when fully extended and listening. The spiral stair of leaf-bases matches the path its forelimbs make when it climbs. The dome is the shape it takes when it curls around its water-cup and sleeps, its back to the translucent leaf-skin. The niches at hand height are resting places for its palps. The low platforms are beds because it has slept on them for so long that the living wood has learned the shape of its sleep.
+
+It feeds on equilibrium. It grazes the algal film from the shallows, and the transparent snail-like grazers clamber over its body, cleaning the thin scum from its pores. It presses its ventral rhizoids into the root-mat and draws on the same sugar-water that sustains the halls. It reabsorbs its own shed tissue. It does not kill. It is not hungry. It is part of the loop, the one part that moved slightly out of the loop and then learned to keep it.
+
+It also prunes. The open ground remains open because the inhabitant grazes the new shoots that would otherwise close the distance between buildings. It lies on the too-eager ribs, presses them back into the mat, reabsorbs the tips. The spaces between structures are not empty. They are the creature’s paths. The emptiness is maintained as carefully as the architecture.
+
+The pale many-legged thing you saw at the porthole was not a separate animal. It was the tip of one of the inhabitant’s touch-limbs, sent up through a hollow wall to test the air. When it withdrew, it did so because you looked at it too directly. The creature is shy in the way order is shy: it does not want to be separated from the wall.
+
+There is no season, and perhaps no reproduction in the way you would recognize. Instead, at long intervals, a bud begins to form near the front of its body, a closed spiral like a tiny staircase. It stays sealed, translucent, full of water. It is the next possibility, held in suspension. The unfinished arches, the ribs that stop, the stairs that turn and end in a blank wall—they are the same shape as that bud. They are postures the inhabitant has not yet taken.
+
+When the light dims slightly, the creature goes to the long hall and settles onto its platform. Its breathing slows until it matches the drip. The hollow organ tones move through it. The creak of lignified plates becomes its own joints settling. At that point, the distinction between inhabitant and place disappears entirely.
+
+It is not a maker. It is not a gardener with tools. It is the house’s first thought of an occupant, grown a body, grown legs, grown a water-cup to hear the rain it makes. It lives there because it is the place, folded back into a shape that can walk.
+
+And the house is not waiting anymore. It is being lived in, by the exact thing it was waiting to become.

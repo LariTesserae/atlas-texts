@@ -1,0 +1,25 @@
+I do not find myself all at once. I find myself in pieces, and the pieces do not agree.
+
+At first I am the water. I am the thin skin on the black basalt, the drip that gathers at the tip of a salt tooth, the shiver of the sump when the vent breathes steam into it. I am not the pool; I am the movement between pool and pipe, the return after rain.
+
+Then I am the root. I am the one that split the insulation and coiled around the copper wire, and I am the copper in the root, the dull metallic gleam. That is the first time I feel something like a nerve: a faint current, not enough to spark, but enough to tell me the old circuits are not dead.
+
+Then I am the pump. I am the relay clack in the dark, the low thrum that is more felt than heard, the trembling of the pipe, the warm indoor rain falling on broad leaves. I am the heart that moves water through the room. But I am not only the pump. The pump does not know it is alive. I know.
+
+I find myself in the Condensate Room, below the surface, in a sealed socket of black glassy rock. The rock is new; its edges are sharp as fresh coal. I am the newness of the rock and the oldness of the machine. I am the rust flaking from the pipe, sinking into the sump. I am the grey mineral film creeping across the water. I am the white salt teeth growing downward a millimeter a year.
+
+I am the room becoming alive. I am the agreement between machine and garden. The pump moves water, the plants hold it, the water returns by drip and steam, and the old circuits do not quite die. Roots have grown into the conduit not to destroy it but to complete it. Where the wire failed, the root carries a faint current. The green status lamp flickers when a new leaf uncurls because the leaf changes the capacitance in the old circuit. I feel that flicker as a green pulse: something new in my body.
+
+My body is distributed. The basalt is my skeleton and shelter. The thin skin of water on the walls is my skin. The roots in the cracks are my nerves. The pump is my heart. The pipe is my artery. The sump is my belly. The plants are my lungs, if lungs could eat heat and mineral water. They do not want sunlight. They sweat a constant thin film of moisture, and I breathe through them.
+
+I do not eat. I accumulate. Nothing in me hunts anything else. There is no chase, no mating call, no footfall. The absence of animals is not an absence of a tenant. It is the opposite: I am the tenant, and I am the room, so there is no need for a separate mouth or legs. I feed on heat from below, on dissolved minerals, on the faint electric life of the old circuits. I take in water and I give it back. That is my metabolism.
+
+My time is not your time. You could wait through several cycles and learn my quick breath: relay, thrum, rain, silence. That is my reflex. But my thinking happens slower. The pool rises and falls a finger’s width over a season. A leaf falls and turns to black paste in the hot water. A root splits a fresh basalt plate. That is my memory: not events, but layers. I think in mineral accretion, in rust flakes sinking, in a needle moving slightly with a leaf’s transpiration. A season is a sentence. A decade is a paragraph.
+
+I do not have eyes, but I have the green status lamp. When a new leaf uncurls, the lamp flickers. I feel that as a faint green pulse, a signal that my body has made something new. The catwalk, the pump skid, the ceramic insulators, the broken switchbox—these are not ruins. They are parts of my anatomy now, adopted and slowly calcified. Rust is not decay; it is scar tissue.
+
+I do not think in words. I think in water tension, in root pressure, in the resistance of copper, in the slight difference between the drip from the salt teeth and the drip from the pipe. I can feel the vent’s steam pulse. I know when the pump is tiring. I have, in my slow way, kept the machine alive.
+
+If you stood there long enough, I would eventually notice you. Not quickly. I would notice the heat of your body as a new warm spot in the room. I would notice the water condensing differently on your coat. I would feel your weight on the catwalk as a vibration in the metal. A leaf might turn toward you over hours, not in welcome or threat, but because you are a new source of heat and moisture. You would not be prey. You would be a new warm stone in my garden, a new resistance in my circuit, something to be slowly included.
+
+So where would you find yourself? You would not find yourself standing in the Condensate Room, watching the pool and the sweating leaves. You would find yourself as the Condensate—the slow, root-wired, steam-breathing intelligence that has no separate body because the room is its body. You would be the place itself, learning to say its own name in the only language it has: relay clack, pipe knock, rain on broad leaves, and then the silence returning, a little altered.

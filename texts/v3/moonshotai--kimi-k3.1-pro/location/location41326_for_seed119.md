@@ -1,0 +1,41 @@
+## The Clay Lung
+
+The Clay Lung lies at the bottom of nine shallow steps. It is not a cave, though it has a cave’s cool breath, and not quite a building, though nothing in it is natural ground. The whole hollow—barely eighty paces across—was made by hand. Its banks are courses of kneaded clay, its shallows are overlapping fired-clay pans, and its deepest pool occupies a vessel built for that purpose. Beneath the floor are clay ribs and ranks of hollow jars. There is no bedrock to strike and no soil to dig. The landscape has thickness, but no geology.
+
+The construction is simple and extraordinarily patient. Bent saplings form the ribs of the enclosing shell; clay and lime were packed between them, and split-wood laths support the ceiling. Joints are lashed with fiber rather than nailed. In the brighter places, flint scrapes remain visible on the wood, and the old floor bears fingerprints where its makers pressed adjacent pieces together. The precision is not visual. Few lines are straight, and no two pans are quite alike. The precision is in their depths, their spacing, and the shapes of the hidden cavities below them.
+
+Water has spent a long time revising all of this. Pan lips are rounded, channels have worn themselves smooth, and lime leached from the walls has sealed some seams in pale, brittle rinds. The timber under the causeway is black and glossy. Yet the place does not seem to be decaying. Drips have deepened certain cups without breaking through them; deposits have narrowed certain passages without closing them. Old repairs are themselves weathered. Nothing looks newly built, and nothing looks likely to fall. It resembles less a ruin than something water has slowly finished.
+
+The floor is almost level. There are shallow shelves, a few runnels no deeper than a finger, and the central sump, where the light fails to reach the bottom. The only free-standing structure is a narrow, crooked causeway resting on clay feet. It crosses half the basin and stops above deep water. At its end is a seat molded from the same clay as the floor, polished by use. Everything else is edge, depth, and interval.
+
+Dim light enters through four baffled slots high in the walls. It arrives without visible beams, having been reflected so often from clay surfaces that it seems sourceless: a gray wash over the nearest pans, a weaker gleam along the causeway, darkness overhead. From the seat, the boundaries of the chamber are difficult to fix. The place is small enough to walk around in a few minutes, but large enough to conceal where a sound began.
+
+The air remains cool and slightly heavy. It smells of wet pottery, old rope, crushed stems, and the clean sourness of frog spawn. Water is seldom absent, though the basin is rarely flooded. The underside of the ceiling is studded with thousands of blunt clay points. Condensation gathers on them, swells, and falls, each point serving a particular pan or channel. Other seams weep continuously down the walls. After an active period, the entire floor carries a skin of water; later, only the runnels and lowest cups remain full. The wetness moves vertically as much as horizontally—sweating, dripping, soaking, evaporating—so the chamber often feels as though it has just rained, even when no drop is falling.
+
+Vegetation is scarce. Under the brightest slot, eleven rush stems stand far apart in an old ceramic trough. Dark moss makes six narrow constellations around persistent seeps, and translucent threads of algae trail from a few submerged edges. There are no trees, no carpet of growth, no accumulations of leaf litter. Most surfaces remain bare clay. What green exists appears almost accidental, though the animals have learned exactly where to find it.
+
+The animal life is not scarce at all.
+
+At the margins of the pans, water fleas gather in drifting clouds. Springtails skate over the surface tension, so small that their presence is first visible as a faint gray crawling on reflections. Midge larvae inhabit the thin organic film in the runnels. Transparent, finger-length fish hang beneath them, their backbones flickering when they turn. Water beetles carry bright bubbles between their wing cases, while flat water scorpions wait motionless in the sump.
+
+Clay-brown frogs occupy the deeper acoustic cups. Pale newts come out of the wall channels when the dripping increases. Long-legged crickets live among the drier ceiling ribs, and spiders have strung lines between the rush trough, the causeway, and the walls. Most of the creatures are tiny; the largest is a forearm-long salamander that usually remains beneath the causeway. This is why the basin can seem empty at first glance. Its architectural volume is nearly vacant, while its films, crevices, and water surfaces are crowded.
+
+Much of the food comes in small, steady increments: organic dust and drowned insects washed through the intake, spores caught in the damp seams, larvae developing in the sediment trapped behind clay lips. The fish crop the larvae; the newts hunt the fish and springtails; frogs take the adult midges; the salamander emerges during drains, when shrinking pools leave prey concentrated and easy to catch. Spider silk is often dotted with wings after an active night.
+
+Sound makes the abundance impossible to ignore.
+
+The chamber is an instrument as much as a container. A drop falling into a shallow cup ticks sharply; the same drop in a deeper vessel produces a hollow note. The jars beneath the floor answer with delayed knocks, while the wall cavities carry frog calls around the basin. Because there is so little clutter to absorb vibration, small sounds travel cleanly and accumulate. Several dozen frogs can sound like several hundred. Crickets saw high overhead, beetles scrape against clay, fish flip at the surface, and wings pass close to the ear with the loudness of larger birds.
+
+The acoustics are not entirely trustworthy. A frog calling beside the causeway may seem to be beyond the far wall. A drop visibly striking a pan in front of the seat can be heard directly behind the listener. Spoken words return flattened and slightly late, with some syllables missing and others repeated. At times a low note continues after the water that started it has settled.
+
+The loudness has weather.
+
+Usually the first change is silence among the crickets. A little later, the vents begin to draw air through the shell with a long, nearly subterranean tone. Damp air crosses the cool ceiling, and the clay points begin to shine. Drops fall singly, then in scattered groups, until a sparse internal rain is striking the pans. The frogs answer. Newts enter the shallows, midges rise from the wet film, and spiders climb their lines toward the dry ribs.
+
+Water gathers in the runnels and turns toward the sump. When it reaches a certain level, a bent clay siphon hidden in the far wall begins to work. The drain starts with a gurgle, opens into a roar, and ends in a deep rushing note that seems to come through the floor rather than from any visible opening. The frogs stop together. For several seconds the whole chamber resonates. Then the note releases, water settles into the remaining cups, and one cautious frog begins again—usually somewhere other than where it sounds.
+
+A full cycle may take hours or days. Sometimes there is only a brief sweat on the ceiling and a handful of drops; sometimes the basin fills, drains, and fills again. The animals anticipate its stages more reliably than any visitor could.
+
+They have also altered the instrument. Frog spawn softens the note of whichever cup it fills. Moss slows one seep and makes another run longer. Insects clear sediment from narrow passages, while their abandoned casings obstruct others. Fish prevent some channels from becoming choked with larvae. The chamber remains in balance not because nothing changes, but because every small change has acquired consequences elsewhere.
+
+It may have been built as a cistern, a place for breeding animals, or simply a room in which to listen. The solitary seat favors the last explanation, but does not settle it. Entirely artificial, the Clay Lung is nevertheless not inert. Its makers gave it a shape; water gave it weather; animals gave it a voice that is never quite the same twice.

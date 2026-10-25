@@ -1,0 +1,7 @@
+I would find myself under the pump house, in the shallow basin where the floor has settled and the water is a permanent dark skin over the concrete. I would be the water. Not the rain, not the falling leak, but the water that has already been here too long—warm, low in oxygen, known to the pumps by pressure.
+
+I would know the whole place not by sight but by movement. The piston’s stroke would reach me as a small compression. The pump’s suction would pull me through the pipes and then release me. The roots would drink me in slow sips and pass me upward through the leaves, and the leaves would teach me to become vapor. I would weep from the walls, run down the cables, pool where the floor has settled.
+
+When the inhabitant stepped down from the grating, I would rise into the root-felt of its feet and climb through the old canvas and rust-red iron, until I stood behind the portholes of its head as green liquid. The small pale leaves would turn in me. When the copper cowling tilted and the steam fitting equalized, I would go out as a long hiss—not a voice, only a pressure finding its level—and the broad leaves on the wall would turn toward me.
+
+I would be the thing that lets root and engine share one body. If you came, I would be the dampness on your skin and the warm weight in your lungs. But after you left, I would settle back into the dark basin under the pump house, and the inhabitant would stand in me as if I were floor and weather and time, and neither of us would need anything more.

@@ -1,0 +1,43 @@
+## The Tied Garden
+
+The Tied Garden lies at the bottom of twenty-seven shallow steps, where dry warmth gathers and remains long after dusk. From above, it looks almost comprehensible: a sunken oval no larger than a hamlet, walled in bone-white mineral slabs and crowded to overflowing with green. The sky over it is an ordinary sky. Sunlight passes through a lattice of wooden beams, brightens the leaves, and casts shadows without glowing, flickering, or doing anything else to announce that the garden is impossible.
+
+There is no water in it. There are no damp seams, no buried pipes, no vessels made to hold rain. Even the plants contain none. A cut stem beads with amber oil and closes itself in resin; a crushed leaf gives off a sharp, green fragrance and leaves the fingers slightly slick. Roots draw mineral vapors and fine powders from the manufactured beds. Tender tissues are upheld by oils, gases, and patient internal pressures rather than moisture. The air is so dry that pollen hangs in it for hours, yet it never feels lifeless. It smells of warm seed husks, bruised peel, resin, and the faint bitterness of crushed fern.
+
+Nothing in the garden rests on natural ground. There is no natural ground. The steps were dry-pressed from powdered minerals and plant ash, then laid by hand on woven matting. The walls are joined with wooden pegs, fiber lashings, and an occasional staple of hammered copper. Fingerprints remain in some of the tiles. Flint scrapes still cross the hidden faces of beams. Beneath the planted beds lies a soil made by hand: powdered tile, charred fronds, shredded cord, dry dung, and the ground carapaces of beetles. Beneath that are older floors, frames, and foundations.
+
+Lift enough layers, however, and *beneath* stops being a reliable direction.
+
+The garden is young in the way a fresh cut is young. Its edges are sharp. No threshold has been rounded by generations of feet, and no stair has sagged into a comfortable hollow. Broken tiles show bright, unweathered interiors. Damage does not weather into ruin here; it is swept up, replanted, retied, or revised into something else. A fallen frond may become cord. Cord, buried long enough in a bed, may be taken up by roots. A wooden peg left in a living wall sometimes puts out a single pale shoot. Building and gardening are not separate crafts so much as different speeds of the same work.
+
+The vegetation is lush without being soft or wet. At ground level, chartreuse felt-moss pads the joints between tiles, so dense that it hides the small feet of things moving through it. Above it rise oil-ferns with broad, flexible fronds, their surfaces deep green and faintly lustrous. Braided trees occupy the middle height, several narrow trunks winding around one another and around the trellises that first guided them. Some trellises are now entirely inside the wood, visible only as a copper pin or a carved peg emerging from a trunk.
+
+Overhead, vines hang in near-touching curtains. Their leaves fold at night and open so slowly in the morning that the movement can only be confirmed by looking away. Gas-swollen pods support the heaviest stems. In the brightest openings grow low bushes crowded with waxy orange flowers, each bloom full of dry, fragrant pollen. Leaves overlap leaves; roots cross roots; branches pass through wall openings made for them and emerge somewhere that is not always on the other side of the wall.
+
+Every layer is inhabited.
+
+Copper-black beetles travel in little processions through the pollen, their feet making a sound almost too small to hear. Flat, thumbless lizards lie along the warm edges of steps, motionless except for their throats. Pale moths rest four or five deep beneath the fern fronds, wings folded into shapes like closed seedpods. Thread-snakes coil among the hanging cords and are sometimes indistinguishable from them until a knot slowly turns its head. Higher up, small ash-colored birds roost without singing. Their calls, when they make them, are single dry clicks, as though two seeds had been tapped together.
+
+The animals share the garden’s dry chemistry. They take oils from seeds, nectar-resin from flowers, and salts from one another’s shed skins. Nothing is wasted. Beetles consume fallen pollen; lizards consume beetles; birds take the lizards that venture too far into open light. Droppings dry almost immediately and are gathered into the planting beds. Old nests become insulation in the walls. Even the paths of the animals have been incorporated into the construction: narrow tiles are laid where beetles habitually cross, and braided roots are encouraged to follow the routes used by snakes.
+
+For all this life, the garden is mostly quiet. There is no insect chorus and almost no wind. A frond occasionally rasps against a wall when touched. A bird shifts on its perch. Footfalls soften quickly in moss and pollen. Often the loudest sound for an entire afternoon is one blow from a stone mallet, followed by a silence long enough to make the listener wonder whether they imagined it. Then, perhaps several minutes later, a second blow: someone patiently seating a peg.
+
+The pegs and knots matter more than the walls.
+
+The garden is not a machine concealed beneath vegetation. It is closer to a piece of weaving whose joins determine what may be next to what. A lashing holds two poles together, but it also holds their locations in a settled relationship. When such a lashing loosens, distances begin to negotiate. A fern bed that was beside the eastern stair may, after a season, open onto the canopy near the western wall. The beds themselves do not move. The journey between them becomes shorter, then longer, then briefly unnecessary.
+
+A loose floor tile is therefore treated with more concern than a cracked wall. Under one such tile there is no foundation, only a small rectangle of daylight in which distant birds can be seen crossing at the scale of insects. The gardeners cover it without ceremony. Under another is a dense view of roots, though the tile lies in an open court with nothing planted around it. These are not considered omens. They are maintenance problems.
+
+No one draws a plan of the garden. A plan is a set of confident assertions, and the garden is inclined to agree with assertions made patiently enough. Instead, the keepers record paths as bundles of knotted cord. Knots can be loosened. Distances can be amended. A route that no longer leads anywhere useful can be unpicked over several years without leaving a sudden opening into somewhere else.
+
+All important work is done slowly. A quick alteration tends to proliferate: a snapped branch may later be found in several places, each break apparently original; a doorway cut in an afternoon may admit the same room from two directions. But a path narrowed over decades remains narrowed. A graft tended through many seasons holds. A seam tied and retied at the pace of root growth becomes as dependable as anything in the garden—which is to say, dependable under most ordinary light.
+
+The crowded maturity of the place is another of its youthful deceptions. It does not seem to have accumulated evenly through time. Buds, full-grown leaves, and dry seed capsules occur together on single stems. A slender tree may possess a massive, many-layered root crown, while an old-looking trunk elsewhere casts the slight shadow of a sapling. The garden appears to have been planted at several ages at once, and some of its plantings have not entirely arrived.
+
+At its lowest point, just beyond the final step, lies the shadow of a tree for which there is no tree.
+
+The shadow is precise down to its smallest twigs. At noon it covers six white tiles and part of a fern bed; by afternoon its branches climb the wall. Beetles gather inside its darker patches. Lizards bask along its edge. The keepers have surrounded it with fresh manufactured soil and enclosed the bed with three careful knots. Occasionally they add a peg or remove a weed. They do not speak of waiting for a miracle. They are doing the practical work of giving the shadow a trunk.
+
+Above, the ordinary sun continues across the ordinary sky. A moth enters a seam beneath a leaf and does not emerge, though somewhere across the garden a curtain of vines stirs. Far off, a mallet taps once. The warmth remains in the steps.
+
+Nothing appears to hurry. Nothing is quite finished. Slowly, and almost silently, the garden is being tied into a world that can hold one more tree.

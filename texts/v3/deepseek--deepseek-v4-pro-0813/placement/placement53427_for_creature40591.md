@@ -1,0 +1,31 @@
+I wake as a sound, or inside a sound. It is a low chuffing, like a valve seating itself, and for a long time I think it is the world. Then I feel the echo of it in my own chest, and I understand: the sound is mine. But I do not yet know what I am.
+
+There is heat on one side of me, a deep mineral heat that rises through my flank and turns the air to steam. On the other side, cold pours down like water. Where the two meet, along a seam I cannot see, fog blooms. I am a boundary. I am the place where winter and engine touch.
+
+I try to move. The movement is slow, hydraulic, as if I am being poured rather than walking. My legs—four of them, short and thick—press into mud that gives way and then holds. My tail drags behind me, carving a channel. I hear a faint cracking, like frozen slush, and I realize it is my own back, splitting along lines I did not know were there.
+
+I do not see the way a bird sees. I feel the world as heat. The warm pools are bright stains, almost too bright to look at. The cold pools are dark holes, rimmed with a thin white fire that must be ice. The ground between is a gray murmur, neither hot nor cold, and the fog is a texture on my skin, a wet breath that moves.
+
+I lower my head to a hot pool and drink. The water is sharp with minerals, almost metallic, and it goes down warm. Then I walk three steps—each step a small earthquake in the mud—and drink from a cold pool. The cold water meets the hot inside me, and for a moment I am two rivers braiding. My breath comes out as fog.
+
+There are others here. I feel them as small bright scribbles: a vole running across the mud, too quick to follow; a cloud of midges above a warm pool, a shifting haze of tiny heat. A bird lands on my back. I feel its weight, its claws, the quick flick of its head as it picks something from the moss that grows in my cracks. It does not fear me. It rides me for a while, bobbing, then darts off into the steam. I do not mind. I am a landscape to it, a warm island in a cold sea.
+
+I feed. I scrape the orange mats from warm stones with a tongue that rasps like stone. I open my mouth in a cloud of midges and let them pour in. I nose through the wet mineral crust for springtails, thousands of them, like spilled pepper. Sometimes a vole crosses my path, and I take it without malice, the way a landslide takes a tree. I am not a hunter. I am a browser of small abundances, a grazer of heat and cold.
+
+The vents speak to me through the ground. I feel the big fissure building toward its knock through the soles of my feet, through the mineral plates on my back, through the water that runs everywhere. I know the rhythm before it sounds. When the knock comes, it rolls around the rim of the basin, and I answer not with a sound but with a long release of steam. For a moment, the whole basin breathes with me.
+
+I am old. I can feel the layers on my back, each one a season of hot water and cold air, thin as a breath. Yellow at the edges, rust red along the spine, copper-green near the tail. They are not dead. They are deposited, layer by layer, from the same mineral water that builds the terraces. In my plates you could read the years the way you read tree rings: a thick green layer for a year of warm, mineral-rich springs; a thin dark line for a year when the cold came early and stayed. I do not know how many layers there are. I only know that I have been here long enough to become the place itself.
+
+The basin is young. The glacier only left a few decades ago, and the land has not yet softened. But I was here before the ice, or I came with the melt, or I was stranded as a clutch of eggs in the wet till. I have no way to tell. The water seeps from every cut, darkening the stones, braiding through the gravel in cold threads. The vents hiss and chuff and sometimes roar. The mud pots bloop and spit. The whole place is a factory built by no one, running on buried heat and groundwater. And I am part of the factory. My wallows deepen pools. My walking channels direct water. My mineral plates, when they crack, leave fragments that become new terraces. My breath adds moisture to the fog. I am a small engine inside the larger engine, and we run together.
+
+The voles have built a nest in the moss on my left flank. It is lined with sedge leaves and fur. When I move, they stay still. When I rest, they come and go, carrying seeds and grubs. My warmth keeps the nest above freezing, and their droppings feed the moss. Pale spiders run across my back, hunting springtails. The dipper always comes back. I am a moving ecosystem, a small green island that rearranges itself daily among the other green islands.
+
+I do not have a name, because I have never needed one. The pipits have a call for me—a short, sharp note that means, roughly, *the warm stone that moves*. The voles know me as a low hill that sometimes gets up and walks. The midges know me as weather. The basin knows me as part of the basin.
+
+By late afternoon, the dimness deepens. The steam glows faintly where the clouds thin, not with daylight exactly, but with a silver-gray brightness. The cold creeps up from the wet ground, and the warm pools steam harder against it. I settle into a hot pool with only my back above the surface, so that I look like a low island of moss and mineral. Steam rises from my nostrils in two steady columns. My sides move slowly, in a rhythm not quite the same as the vents, but close. The dipper lands, preens, and leaves. The midges cloud above me. The big fissure knocks once. I answer with a long release of steam, and for a moment the whole basin seems to breathe with me.
+
+Then the fog closes over me, and I cannot see myself anymore. But I can hear myself: a deep, slow chuffing under the hiss of the earth, like a valve seating itself, like a heart made of stone.
+
+I am the warm stone that moves. I am the low hill that gets up and walks. I am the one the dipper follows, the one the voles nest in. I am the earth’s engine idling in a raw gray hollow, still being invented.
+
+I am whatever lives here. And I have been here long enough to have become the place itself.

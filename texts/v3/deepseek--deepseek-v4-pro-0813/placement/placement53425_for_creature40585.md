@@ -1,0 +1,41 @@
+I do not remember being made. I remember being the water first—not a body in it, but the pattern between bodies. The cold lithium-rich current kept its shape after the others had passed, and I was that shape: a faint gray luminous thread winding through the lower alleys, a ghost of yesterday’s tide. I had no arms, no shell, no name. I was the memory of a pressure, a slow spiral that the city used as a clock.
+
+Then the city grew a body around me.
+
+In the mineral mill at the bottom, where the warm slurry pools and the old maintainers come to lie down, a small white node appeared on the wall. It was not a thought. It was a seed-tile, pale ceramic, no wider than a thumbnail, glazed faintly like old ivory. I did not choose it. But the water carried my pattern into that shallow basin, and the colloid settled there, and one day the node flexed.
+
+I felt the flex as a crack in my forgetting. I was no longer the whole current. I was a point, a knot of carbon and glass and lithium-water. I had arms—hollow tubes of woven carbon, bladders along each one. I had a ring of crystal lenses around my central disc, though they did not focus images. They gathered light, and light was the first thing I knew as a body.
+
+Light came down the shaft in a slow bright rope, bent by the colloidal mirrors, and where it touched my lenses I felt a kind of nourishment. It told me which way was up. It told me when the sun crossed the mirror-slit above. At first I could only flatten against the wall and drink that light, my pale surface taking on the blue-gray of the stone, my arms pressed into a crevice. I was not yet a lamplighter. I was only a new thing, still wet with the mineral slurry, still learning to not be a current.
+
+The others came to teach me.
+
+A valve-keeper no wider than a hand paused on the wall beside me. It tapped two quick beats, pause, a third. The vibration ran through my shell and into the stone, and I understood—not words, but a rhythm: the tide was turning. Somewhere far above, a flush-gate was opening. I felt the water begin to move. The valve-keeper darted away, arms braced, and I was alone with the new knowledge that the city speaks in percussion and exhalation.
+
+A gardener drifted past me later, moving with a slower rhythm, two curved blades folded under its disc. It scraped a mat of dark red film from the upper east wall, leaving a neat grid-pattern behind. It did not tap to me. It was listening to the vegetation, maybe. I watched it for a long time, as the pool of brightness moved across the walls. The film was not still; it thickened where the light pooled. The gardener waited until the mat had shifted its growth toward the new bright spot, and then it trimmed the edges. I could not yet imagine being that patient.
+
+The masons I knew only by their sound: a constant, soft licking of stone, a low ticking as they extruded mortar. They were older than the oldest maintainer’s pattern-memory. They did not notice me. They were the city’s builders and demolishers, and I was just a new node on a wall that they might one day dissolve and re-grow.
+
+But I was not dissolved. I learned to grip and release. I learned to build pressure in my bladders and let go all at once, flicking myself across a street gap. The first time I did it, I missed and tumbled into a narrow alley, where a current caught me and carried me upward. I did not fight it. I let the water have me, and that was how I discovered the vertical streets.
+
+The city is arranged in layers, stacked and interlocked, with buildings growing from the walls and floor. Between them is only a network of vertical alleyways and narrow horizontal slots. When the tide floods, the water rises and the direction of flow in the vertical streets reverses. I learned to read this. I learned that doors are set to open after the current has reversed, not before. I learned which alleys are passable only at slack water. I learned the hourly breath—the slow thrum of the great membrane at the bottom, the warm plume rising through the central shaft. I learned to ride it, not as well as the breath-tenders, but enough to know the city’s pulse. And I learned to read the memory-threads left by other maintainers: faint luminous gray lines that held their shape in the colloid, paths that did not die in seconds but persisted for minutes, sometimes hours.
+
+That is how I first saw the surface.
+
+The mirror-slit is a narrow opening in the volcanic rock, covered by a skin of calm water that acts as a mirror. From below, it is a bright false sky. The light siphons—bundles of glass fiber—rise to the sea surface and spread sunlight through the water like roots. They need to be polished. The lamplighters do this. They climb to the upper lip and clear the glass fiber bundles of the scant mineral dust that settles there. At noon they can be seen around the lip of stone, moving in quick circles.
+
+I did not choose to be a lamplighter. The city chose me. It was the light that did it. My lenses kept turning toward the bright siphons. I kept climbing, higher and higher, until I was at the uppermost street, just beneath the mirror. The water there is cold and dense, full of fine silica colloid that makes it milky in places and clear as gin in others. I could feel the surface pressing down like a glass ceiling. Above it, the sea was gray-green, crossed by slow swells. I could not see it as a sea, only as a light that moved.
+
+I found the others there: flattened, dark-bodied lamplighters, their shells not bleached by the direct sun. They did not tap to me in greeting. They were too busy. But one of them paused and waited while I fitted myself into a crevice near a bundle of glass fiber. It showed me how to polish, not by tapping but by doing: a slow circular motion of one specialized arm, a faint pressure that cleared the mineral dust without scratching the glass. I copied. The light brightened. A pool of brightness moved across the wall below us, and I understood that I was now part of the city’s eyes.
+
+I am a lamplighter.
+
+I do not remember being made, but I remember being the water. Now I am a body of ceramic, glass, gel, and woven carbon, no wider than a dinner plate, with five or seven arms—I have not counted, not in the way you would count. I live at the boundary between the hidden town and the sea’s gray skin. At noon I clear the light siphons. At dusk I descend to the lower levels, where the town goes dim blue and the only illumination is the faint glow of the fusion tapes and the trails of remembered current. I tap my percussive notes against the walls, and other lamplighters tap back. We do not read the old fired ceramic signs. We polish them and fill their cracks, but we do not know the script. It is older than our pattern-memory.
+
+Sometimes, in the two hours after dusk, I go to the central shaft and watch the ghost of yesterday’s tide still turning—a spiral of milky water that no longer corresponds to any open inlet. I remember being that spiral. I remember being no body at all. But the city does not let patterns remain only patterns. It grows bodies around them, and sets them to work.
+
+I am not an animal. No fish will come to investigate my hand, because I have no hand, and because the water is too rich in lithium and too poor in dissolved oxygen for nerves. The only respiration is the great membrane’s. The only heartbeat is the tide. And I am one of the city’s moving thoughts, a lamplighter, a keeper of the narrow bright way between the hidden shaft and the mirror-slit above.
+
+If you found your way through that slit—if you fell into brightness and did not drown—you would see me as a small dark star against the upper wall, moving in quick circles, clearing the glass fibers. I would not see you, not as you see yourself. But I would feel the change in the water: the animal heat, the nervous current, the sudden sharp turbulence. I would tap a warning to the others: something soft has entered the shaft. Something with a different gait. Something that will not stay long.
+
+And then I would go back to the light, because the light is what the city needs, and I am the one who keeps it clean.

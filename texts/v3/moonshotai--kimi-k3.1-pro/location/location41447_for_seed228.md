@@ -1,0 +1,45 @@
+## The Breathing Cistern
+
+Far enough below the surface that neither roots nor weather reach it, a narrow passage opens into the Breathing Cistern. The first impression is not of entering a cave, but of stepping out of the rock and into violent weather. White light fills the chamber. Warm spray touches the face. Sound arrives almost as pressure.
+
+There is no sky, and the place is not large. It is an irregular, high room perhaps sixty metres long and half that across, with every wall visible from the entrance when the mist thins. Yet the brightness gives it an exposure that its dimensions do not. There are no dark receding aisles, no suggestion of further caverns beyond the range of sight. The chamber presents itself all at once: wet stone, open water, a few pale structures, and the empty, glaring space between them.
+
+The floor descends in three broad, worn steps toward a central basin. On the upper levels the water is usually ankle-deep, moving in transparent threads around islands of bare rock. Below, it gathers in pools whose depths change from minute to minute. The stone is honey-grey where dry and almost black where submerged, though almost nothing remains dry for long. Its surfaces have been softened by age. Walls are scalloped into nested hollows; projections have blunt, polished ends; the rims between pools are rounded like the edges of old stairs. Flowstone hangs in thick, abbreviated curtains. Anything more delicate has long since been scoured away.
+
+There is very little rubble. What the water removes, it reduces and sorts. Fine pale sand lies in the lee of the basin walls, and coarse grains collect in a few deep crevices. Even the sand looks handled, washed and rewashed until each grain has lost its corners.
+
+The only immediately recognizable machine lies in the central pool: a flush ring of charcoal-coloured material, five metres across, with no seam, fastener, or visible thickness. It resembles metal until touched. Then it feels more like dense glass, neither warm nor cold, while the water around it may be uncomfortably hot. Pale grit surrounds it in a clean circle. At quiet moments, thin veins of light can be seen beneath that grit, branching into the bedrock and continuing up the walls.
+
+The ring does not pump water in any ordinary sense.
+
+Several times an hour, the Cistern drains. The current first strengthens around the basin rims, then gathers into spinning cords above the ring. A low tone rises through the roar of moving water. The light in the walls intensifies, spreading from narrow veins into broad luminous patches. Finally, water begins entering solid stone.
+
+It does not disappear into concealed cracks. A stream striking the lower wall simply ends there, its last few centimetres flattening against unbroken rock. Pools sink through floors that show no openings. Falling drops vanish on contact with the ceiling, leaving brief dark circles that are immediately washed away. For a few seconds the lowest basin may contain nothing but exposed sand, while water continues to pour toward it from every side and fails to accumulate.
+
+The simplest explanation is that the machine temporarily changes what the rock permits. Solid and permeable cease to be fixed properties.
+
+Then the room fills again.
+
+Water returns first as sweating beads across the ceiling, then as vertical threads, then as whole silver sheets. They strike the basin with a noise too continuous to be called crashing. Around the central ring, the pale sand rises into low, comb-shaped fins. They assemble rapidly, grain by grain, sometimes in orderly curves and sometimes in crowded, intersecting thickets. The fins divide the incoming torrent, turn jets aside, and hold brief terraces of water in the air before collapsing under their own weight. New ones form elsewhere. Some last less than a second; others survive long enough to become translucent with flowing water before slumping back into sand.
+
+During this return, the whole chamber becomes unstable without becoming formless. Jets open along one wall and close along another. Whirlpools meet and flatten each other. Pressure gusts tear steam sideways. Water runs across the ceiling in branching veins before dropping. Temporary basins appear behind mineral fins, overflow, and vanish. The bright walls flash through spray until the room seems to be constructed less from stone than from reflections.
+
+And then, quite quickly, the turmoil is gathered back into the old pools. The fins subside. The last sheets break into ropes, the ropes into drops. Water settles at precisely the same dark line on the basin walls.
+
+Even the lulls are not quiet. The machine’s lowest tone remains in the teeth and breastbone, more felt than heard. Water falls from the ceiling in heavy, separated drops that strike the pools like thrown stones. Hidden channels knock and swallow. At the height of a cycle, the sound has several scales at once: the sub-audible pressure of the ring, the broad roar of the sheets, the hard cracking of collapsing cavities in the water, and a high ringing that seems to come from the illuminated stone. The chamber is small enough that its echoes return almost immediately, pressing against the sounds that made them. Speech becomes a private act, possible only mouth to ear.
+
+The air stays warm throughout, close to the heat of a sheltered summer afternoon but saturated with moisture. The water in the outer pools is blood-warm; currents near the ring are hotter. Steam does not hang evenly. It appears in bright, torn veils where hot and cooler flows meet, then is pulled apart by pressure changes. The chamber smells of wet chalk, clean mineral salt, and a faint metallic sharpness after each surge. There is little smell of decay. The water is too frequently overturned, and too poor in organic material, for a rich brown ecology to establish itself.
+
+Life survives mainly above the principal scour line. Isolated mats of dark green growth occupy sheltered wall cavities, each no larger than a hand. Here and there a waxy rosette of translucent leaves grips a crack with white roots. Its foliage is tough and sparse, more like thick threads than fronds. These plants use the machine’s light, folding slightly during the most violent spray and opening again in the lull. Between them lie metres of bare, polished rock. There are no hanging gardens, no mats of roots from the world above, no soft banks of moss.
+
+Animals are rarer still. Occasionally, after a drainage, a few transparent, flattened creatures the length of a fingernail can be found grazing in a protected pool beneath the old causeway. They leave nearly invisible trails in the silt and disappear into crevices before the next return. Most of the time there is no visible movement that belongs to an animal at all. Nothing calls. Nothing nests. The room’s abundant light, warmth, and water have not made it generous.
+
+The other made things are slight enough to be overlooked. At the entrance are three worn steps and the stump of a lintel, its upper portion sealed into the wall by mineral deposition. Six slabs of a causeway cross part of the middle terrace and then stop, not broken so much as abandoned. A short length of rail projects from one wall at knee height, rounded by water but made of the same seam-free material as the central ring. On a high shelf rests an open, bowl-shaped shell, always full despite the drainage. Three shallow notches beside the entrance are too regular to be damage and too simple to read confidently as a message.
+
+There are no banks of controls, no doors leading to machine halls, no extensive ruins. Whatever was built here concentrated nearly everything into the ring and the altered rock around it.
+
+A few rules hold through all the variation. Water carried away is replaced. Water added raises the pools only until the next drainage. Blocking a visible channel merely diverts the flow through another surface. The returning flood never passes the old stain at the entrance passage. The light reaches its greatest intensity just before the stone becomes permeable, and the sand always settles back around the ring. Beyond those regularities, the Cistern allows itself considerable freedom: no two surges produce the same fins, the same temporary waterfalls, or the same paths through the mist.
+
+Its age is therefore easy to misread. Nothing is peacefully crumbling, but neither is anything newly made in the ordinary sense. The turbulence is maintenance. Each cycle rounds what has become sharp, sorts what has become mixed, and clears the few surfaces the machine requires. The chamber has not been preserved by being kept still. It has endured because its violence has worn both stone and water into forms capable of repeating it.
+
+The Breathing Cistern is not waiting for a storm to pass. The storm is its ordinary, patient way of remaining itself.

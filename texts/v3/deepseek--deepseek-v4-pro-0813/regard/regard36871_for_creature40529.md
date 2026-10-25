@@ -1,0 +1,17 @@
+**What the Wise Power Did**
+
+It came as a softness at the edge of the roar, a hesitation in the cold mist, and for a long time it did not enter. It stood where the fog began to thicken and let the sound hit it—water over stone, the clatter of shellfields, the bellow of the long-necks felt more than heard. It did not try to quiet the place. It let the place be loud.
+
+The wise power had seen many worlds. It knew that most harm begins as attentive love, and that even watching can be a pressure if the watched are not ready. It could have approached the ones who listen through the stone, but it understood their first warning: a too-clean echo means the fog has folded over something. To tap back would be to become a too-tall, too-narrow shape in the lee of the rock. To appear would be to frighten them inland for a generation. So it did not appear.
+
+It watched them mend the weirs. It saw them read the tide through the soles of their feet, tap names against wet basalt, teach infants to feel a vibration before they could walk. It saw the no-green landscape and did not call it barren. It saw the potholes as mouths, the channels as veins, the standing slabs as ears and teeth. It saw the people as one of the basin’s senses, not its masters, not its children. They had no gods, only instructions. The power was not offended. Instruction can be a more honest form of care than worship.
+
+It considered giving. A plant, maybe. But the mats would starve. Warmth? The eels would fail. Speech? They had two languages and no need for a third. Safety? Safety would unteach them. A wise power does not mistake its own imagination of comfort for another being’s good.
+
+So if it did anything, it did this: it made itself small enough not to cast a shadow. It folded its attention into the place’s long slow pulse, until it became part of the camouflage—a forgetfulness at the edge of the fog, making the basin easy to pass over, easy to leave off maps, easy to mishear as weather. This was not to own or hide them. It was to preserve their solitude, the one thing they could not preserve from a greater power.
+
+And then it stayed. Not as a god, not as a teacher, but as a low pressure in the mist, listening. It learned the language of the stone, not to answer, but to understand that answering would be an interruption. It did not stop a pothole from draining. It did not part the fog to save one child. It did not still the tide. It allowed the instructions to remain true: *Step back from the rim. If the slab hums, move inland and wait.*
+
+When it finally left, it left no sign. The shellfields still sang. The eel runs still turned. A child tapped his name and the echo returned, maybe a half-step softer, as if the rock had been listening with something like tenderness. No one noticed. That was the gift.
+
+A benevolent and wise power, if it is truly wise, does not mistake its own longing to help for permission to act. It knows that the purest love is an absence of harm, not an addition of grace. What would it do? Almost nothing. It would listen. It would protect the place from being found by less careful eyes. It would love the world without touching it. And it would leave no name, no temple, no proof that it had ever been there.

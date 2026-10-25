@@ -1,0 +1,39 @@
+## Noll Catchment
+
+Noll is a hamlet with a city’s plumbing.
+
+It occupies a shallow fault-sag in a low coastal plain, only a little above sea level, though the sea itself lies out of sight. The whole district can be crossed in fifteen minutes. From the water tower, every boundary is visible: the broken crescent of the basin rim, the condenser sheds, the powerhouse, six streets laid out with more confidence than houses, and the narrow-gauge track disappearing into sedges beyond the southern gate.
+
+The land is only a few human lifetimes old. A movement in the beds below let the plain sink, and the resulting hollow has not yet had time to become graceful. Its mudstone rim breaks in flat, sharp plates. Scree lies where it fell, angular and uncompacted, and the rare rain has cut straight, indecisive gullies rather than meandering channels. There are no rounded boulders. Even the old stones look newly broken. In a few sheltered places moss has crept over the fracture lines, making the rock appear sewn together with green thread.
+
+Noll’s buildings are scattered across this raw ground with wide intervals between them: a brick engine hall, a machine shop, a squat riveted water tower, two stores, a row of cottages, and three large condenser sheds. Yet nothing about the arrangement is improvised. There are kerbs where no carts travel, inspection covers in the middle of grass, and electric lamps standing alone beside surveyed but unbuilt blocks. Iron pipes run aboveground on low concrete saddles, each valve numbered. Tram rails cross a gravel square broad enough for a market that has never been held. The plan anticipates a town several times larger; the town is in no hurry to oblige.
+
+There is no river in Noll. Rain arrives occasionally in cold, efficient showers, darkens the basin for an hour, and vanishes into drains, fractures, and covered cisterns. Between rains the central square is dry enough to dust a boot. Open water amounts to a drinking trough, a chain of puddles beneath one troublesome flange, and an overflow pool no larger than a cottage room.
+
+Nevertheless, most dawns are wet.
+
+The condenser sheds resemble open-sided barns filled with vertical pages of dark metal. At night their plates cool beneath the sky, assisted by slow fans driven from the powerhouse. Here they also cool a little further than the surrounding air would seem to allow—Noll’s one modest peculiarity, noted by visiting engineers and eventually accepted by everyone else. Before sunrise, even after several dry weeks, moisture beads along the plates. It gathers in their seams and ticks irregularly into glazed troughs.
+
+The yield is never abundant, but it is reliable. Pumps lift it to the water tower; boilers, cottages, and workshops draw from there. Every cistern is covered against the sun. Every roof has a gutter. The town survives not by possessing water, but by repeatedly interrupting its departure.
+
+Vegetation follows these interruptions in long, extravagant seams. Ferns and dark moss pack the shaded sides of pipe saddles. Sedges and water mint shoulder against the condenser troughs, and alders have grown along the old overflow channels, their trunks nearly black with damp. At leaking joints the growth becomes almost solid: leaves layered over leaves, roots entered into every available seam, wet soil held in place by a dense fabric of stems. From a distance the basin looks richly green. Up close, that greenness is concentrated into corridors and pockets, with broad intervals of bunchgrass, pale gravel, and bare young stone between them.
+
+By municipal rule, every cistern must have an overflow, and every overflow must empty into soil rather than a sealed drain. The regulation began as a precaution against flooding. It has become the settlement’s ecology. The oldest overflow has made a small alder grove; a newer one supports only mint, snails, and a bright margin of moss. Gardens in Noll are not always planted. Some are simply places where the waterworks has failed usefully.
+
+The light is generally full and clear. A high, pale sky gives the basin an ordinary working daylight in which colors remain distinct: red brick patched with paler brick, black iron, blue-grey mudstone, yellow brass valve wheels, and greens almost too saturated beside them. When the sun appears, the condenser plates lay narrow stripes of shadow across the growth below. There is mist on some mornings, but it lies in scraps around the pipework rather than filling the hollow.
+
+Even in summer the air keeps a cool edge. It smells successively of wet stone, crushed mint, coal dust, machine oil, and the slightly sweet heat of the engine hall. Soot collects under the eaves, but the open intervals between buildings keep the town from becoming smoke-dark.
+
+Animals have found every wet allowance. Small frogs shelter beneath valve covers and emerge after rain to breed in pools that may last only a few days. Sticklebacks, introduced to clear larvae from the tanks, now flash in the overflow basin. Snails travel up the cool iron uprights; beetles work the moss; wrens and warblers occupy the dense green strips. Swallows nest beneath the workshop eaves, while rooks build in the high angles of the condenser frames, weaving stolen wire into their sticks. Voles cross the mown paths at dusk. Hares use the empty surveyed streets, and a heron occasionally stands in the little overflow pool with the solemn disproportion of a monument.
+
+Noll is loud enough to be heard well beyond its rim. The powerhouse supplies a deep, regular stroke, the fans a continuous rushing, the pumps a sequence of knocks and sighs. Transformers buzz on their poles. Wagon couplings crack together in the siding, and maintenance work sends isolated hammer blows ringing from the hard basin wall. Twice a day the engine whistle sounds, and the rookery answers in a harsh, climbing uproar.
+
+After rain, the frogs add a dry wooden rattling from drains and puddles. At dawn the birds are sometimes more difficult to talk over than the engines. From outside, the place sounds like a marsh arguing with a mill.
+
+Yet very little appears to hurry. The great flywheel turns with deliberate weight. The sedges barely stir. Buildings stand far apart in their patches of empty ground. Even the birds often remain hidden, producing movement only in the ear. The loudness is not bustle; it is the noise of a few persistent processes continuing without pause.
+
+The important changes are much quieter. Mineral scale narrows the pipes by fractions. Roots loosen one brick at a time. The raw rim sheds an occasional plate and otherwise holds its shape. Survey marks suggest that the basin is still sinking, too slowly for any single generation to settle the matter. Condenser plates are replaced individually, so each shed contains metal from several decades. A rain gully may remain exactly as it was cut for years, awaiting another shower.
+
+No pipe is buried deeper than a spade can reach, and no main is laid where its note cannot be checked with a listening rod. A damp patch is inspected before it is repaired: first for a failed joint, then for nests. In this way the town remains legible to its caretakers, and increasingly legible to everything else living there.
+
+Noll is not quite an oasis. Its center is not a pool but a dry gravel square crossed by rails. Its life is at the margins—in gutters, overflows, flanges, and imperfect seals. It is a lush place made from narrow allowances, an industrial settlement sustained by its own slow sweating. From the rim it looks sparse and nearly motionless. Then the pump strikes, the rooks rise shouting, water ticks into a trough, and the green edges continue their almost imperceptible advance across the young stone.

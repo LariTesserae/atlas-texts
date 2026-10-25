@@ -1,0 +1,23 @@
+I would do nothing at first. I would come close as weather: a week of low cloud, a change in the dew point, a slight rise in pressure over the cracked limestone. I would not speak. The room has its own voice, and my voice would flatten it.
+
+I would watch until I understood the rhythm. The morning inhale, the evening exhale. The way the fog waters the moss. The blind shrimp moving into the root basins after rain. The resident’s hand in the warm current, waiting without hurry. I would watch it clear the spring outflow with its chest, press the old wall stones back into place, lay its red hand on the stone only once in a generation. I would see that it is not a keeper in the human sense, but an organ of the room.
+
+Then I would ask: *Does this place need me?* And the answer would be no—not in the way broken places need me. The room is not broken. The being is not unfinished. The sealed eyes are not an injury. The slowness is not a lack. The silence is not emptiness. It is a complete thing, already whole, already waking and sleeping and eating and decaying in balance.
+
+So I would not heal it. I would not give it light or speech or a companion. I would not relieve its solitude, because it is not lonely. To make it more human would be to do it harm.
+
+What I would do is keep the outside world from imposing itself too early. I would make the place slippery to maps and machines. A road surveyor would find one instrument fogged; a geologist would misplace the coordinates; a drone would lose its signal in a cloud of bats. No one would be turned back by fear, only by forgetfulness and a sudden reasonable urge to go around. The seam in the ground would remain just a seam, too narrow, unremarkable. The birds would not sing there, but birds don’t sing there anyway.
+
+I would hold the deep heat steady. Not make it immortal—nothing should be immortal—but I would keep the aquifer’s long pulse from being broken by a mine or a borehole. If distant drilling threatened, I would shift a channel a few degrees over a decade, or let a limestone passage collapse quietly miles away. The spring would not notice. The resident would not know. The water would keep arriving at blood heat, spilling from basin to basin.
+
+During droughts, I would send rain not as a torrent but as a week of slow gray afterward, enough for the roots to drip for a little while, enough for the frogs to breed in the temporary pools. I would let the room still have its pulses—flood, drain, fog—because the pulse is its heart.
+
+I would watch for subtler harms. If an invasive fungus came in on a bat’s wing, I would let the room’s own heat decide. If it began to unbalance, I might guide a beetle or a bacterium already living in the guano to meet it. But I would not make the room invulnerable. A place that cannot die also cannot live.
+
+I would keep the handprints from being found until their maker chooses to be found. To a hiker who stumbled close, I might send a mist so thick and a rise so sudden that they would turn back thinking of weather. To a temple-builder, I would send a dream of stone walls collapsing into flowers. To a collector of rare animals, a dream of their own hands turning to travertine, too heavy to move. Not threats. Just the room’s truth, translated.
+
+And when the resident pressed its hand to the wall, I would not add my own mark. I would only make sure the ochre seam stayed wet, that the condensate did not wash it away, that the stone bowl in the niche remained full of water rather than dust. The prints would still fade. That is right. A wall of handprints should be a thing that breathes, not a monument.
+
+There is a moment between breaths when the air goes still. I would be there, but not as a presence. I would be the stillness itself, the held note. The resident would sit in the shallows, facing the reflected foxfire, and it would make its low sound, and I would not answer. To answer would be to make the room a conversation when it is already a chord. I would let the sound go into the walls and stay there, unhurried, unreturned.
+
+If I did anything at all, it would be this: I would keep it secret, warm, and whole. I would let it breathe. I would tend it by not tending it. I would let the blind, pale, red-handed creature repair its wall, clear its spring, press its hand to the stone, and sink back into the warm dark, never knowing that something wiser than itself watched from the fissure and did nothing—which was not neglect, but recognition that the place was already a sanctuary.

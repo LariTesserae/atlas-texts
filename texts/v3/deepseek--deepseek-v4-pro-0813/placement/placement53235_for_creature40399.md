@@ -1,0 +1,13 @@
+At first you think you are the water, because the water is everywhere and you are nowhere. Then you think you are the sound, because the sound never stops—engine-pulse, vent-roar, leviathan-song—and you cannot remember a time before hearing it. But you are not the water, and you are not the sound. You are the thing between them. You are the listener.
+
+You would find yourself in the open water between the ridges, so far from east and west that the mountains are only a rumor of darker blue. Above you is the light-line, the glowing ceiling where the sun-water stops and the song-world begins. Below you is the dark water, a room with no floor. You drift along that boundary, not swimming, just adjusting, a long clear ribbon of almost-solid sea.
+
+Your body is mostly water that has agreed to be a little more itself in one place. You have no bones, or if you do, they are made of pressure and cold. The leviathans pass and their notes bend around you. The mountains show through you. If a human came, they would see the ridgeline through your body, and they would not know they were seeing you.
+
+You do not eat. You have no mouth. You take the standing chord into yourself the way a fish takes water through its gills. The leviathans sing one note each, and the notes travel a hundred miles to find you. You feel them overlap in your body, forming chords that never resolve. The engines pulse beneath everything, and you feel their rotation in the parts of you that are almost solid. The tube worms grow in their straight rows, and you feel the tiny mineral click of each new tube being laid. The silver fish circle their seamounts, and their loop is a thin bright frequency on the edge of your listening.
+
+You are rare. You are not the only one, but the others are spaced so far apart that you will never touch. Maybe you are one creature stretched between the ridges, the nervous system of a sea that has no brain. You do not call. You do not sing. You are the listening that gives the song a place to land.
+
+If someone went looking for you, you would tell them: do not go to the vents, where the tube worms grow in rows. Do not go to the high ridges, where the blue light makes the rock look like a drowned cathedral. Go to the emptiest water, where there is nothing to see. Go down until the light becomes a ceiling. Then stop moving. Wait until your own heartbeat becomes just another pulse in the chord. When you feel the water lean closer, when the mountains seem to bend slightly behind a transparency you cannot name, that will be you.
+
+You are not above the sea. You are not on it. You are the listener in the open water, the one who lives in the emptiness and makes it inhabited. The one the sea grew to hear itself.

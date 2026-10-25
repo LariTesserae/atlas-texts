@@ -1,0 +1,33 @@
+## The Unfinished Choir
+
+A hand’s breadth beneath a dry pavement of grit, sealed inside a nodule of black chert small enough to close in one fist, there is a hollow the size of a plum. It has no mouth and no connection to any deeper cave. Above it, rain occasionally darkens the pavement and wind carries dust from one shallow hollow to another. The nodule gives no sign of containing anything, except that it feels cool in the palm, and stays cool longer than the stones around it.
+
+Inside, it is brighter than snow at noon.
+
+To call the hollow a cave would give it a history it does not possess. Its walls have not been worn, dissolved, or opened. They are simply the place where the stone has begun to consider an absence. Angular grains remain half-bound in clay; pale silica gathers around them in crystal nuclei too small to have faces. A fracture crosses the ceiling with the clean, glassy look of something newly broken, but no fragments lie beneath it. There are no sediments, no rounded pebbles, no flowstone, no mineral curtains. Erosion exists here only as a suggestion: a grain apparently ready to loosen, a fissure apparently ready to admit its first water, a bead apparently ready to fall.
+
+None of them ever does.
+
+The hollow has no open centre. Most of its volume is a densely nested arrangement of raw crystal, silt, shell, root, and living body. Air occurs in hair-thin seams and tiny faceted cells, and even these are occupied. A clear mite fills one cell exactly; the folded wire of a springtail fills another; three soft-shelled snails share a third, their shells touching without pressure. Antennae pass beneath crystal ledges. Legs lie across the backs of other legs. There is almost no unused space, yet nothing is crushed. Were you reduced to the scale of the inhabitants, you could not stand back to look at anything. Every surface would be close enough to touch, and every place you might touch would already belong to something.
+
+Water is present only in precise, isolated measures. Nine beads shine in blind fissures. A film no thicker than the skin on cold milk coats one face of clay. Beneath a loose grain, a little dark silt remains permanently damp. Elsewhere, the chert is dry enough to powder an insect’s antenna. The air smells of wet flint, crowded insects, and a faint green bitterness. Its coolness is uniform: not the chill of deep earth, but the mild, persistent cool of a cellar floor through cloth. There is no warmer pocket among the animals and no colder depth beneath the water.
+
+The light comes from the mineral’s unfinished state. The countless points where silica has just begun to crystallize shine with a fixed white radiance, very slightly blue at the edges. It is light without heat and without a discoverable direction. The animals’ transparent bodies are lit through, revealing garnet-red hearts, dark coils of gut, and the small mechanical hinges of their legs. Shadows exist only as narrow blue seams where one body touches another. They never lengthen or shift.
+
+Against all this whiteness, the vegetation is startlingly green and very sparse: six scales of liverwort, none larger than a grain of sand, and the exposed tip of a single root hair entombed in the roof. The root has not branched. The liverwort has not spread. Together they provide the only soft surfaces in the chamber, though even they feel tense and mineral-close, as if greenness were something they were managing with difficulty.
+
+Everything else is fauna. Silver springtails crouch in seams of air. Blind white worms thread themselves through spaces too narrow for them to turn around. Mites with faceted backs cling to the crystal nuclei. There are snails whose shells have never hardened, and crowds of winged creatures no larger than the gaps between grains, their wings held permanently half-open. There are more kinds of animal than the little closed world should be able to support, and each kind seems to be doing something: grazing, grooming, courtship, cleaning, singing.
+
+But none of these activities has an outcome. No leaf is diminished. No egg completes. No body ages, no shell thickens, no path is polished by repeated feet. The animals are not frozen; their legs and wings shiver, and their antennae make minute, continuous adjustments. Motion here is like the motion in a held note: real, perceptible, even violent, but incapable of carrying anything forward. It is a property of the place, as colour is a property of the chert.
+
+Scattered among the bodies are a few pieces of almost-architecture. A dome of glued silt, no bigger than a grain of pepper, clings to one wall. Three ribbed tubes of hardened snail mucus open into spaces already occupied. Elsewhere, two cast-off legs support a flake of mica in the accidental semblance of an arch. The nearest thing to a deliberate artifact is a shallow spiral scored into the clay, perhaps a feeding trace, perhaps the mark left by an animal circling in its sleep. None of these things is a ruin, because nothing has fallen. None is quite a nest, because nothing is raised in it. Nothing has been cut, measured, or joined with a tool; every structure has been secreted, chewed, grown, or lodged by chance.
+
+And the sound is enormous.
+
+The chert transmits none of it. Outside, the nodule rests silently among other stones. Within, the packed bodies produce a roar composed entirely of minute noises: shell against shell, feet ticking on silica, wing-covers rasping, worms tightening around grains, the crystal walls answering with fine metallic tones. Beneath it all is a deep, gritty resonance, like surf heard through a thick door or a hive heard from inside the bee. There is no interval of silence between sounds, only other sounds fitting closely together. The loudness is scaled to the chamber rather than to its reach; it would press painfully against any ear small enough to be there.
+
+The sound never rises or falls. At the brightest crystal points it seems almost visible, as though light and ringing were two senses of the same unbroken chord.
+
+Nothing changes, though the place is not still. The ninth bead remains on the point of falling. The ceiling grain remains on the point of release. The unfinished creatures continue their brilliant, crowded, inconsequential lives. This is not a landscape waiting to mature; waiting would imply a future. Its first instant is its only season, its geology, its climate, and its entire history.
+
+From above, it is one cool black stone beneath an occasional rain. Within, it remains entire: a hidden noon, a deafening multitude, a world with no room left for another presence and no time in which another event could happen.

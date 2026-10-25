@@ -1,0 +1,35 @@
+## The Shelf That Weeps Upward
+
+High on the shoulder of an old mountain there is a shelf small enough to be mistaken for a single hollow in the rock. Three sides are closed by a low, rounded rim; the fourth opens over a long descent of hazy slopes. The height is evident in the depth of air beyond that lip, but the shelf itself feels intimate. It could be crossed in a few minutes if the walking were easy. It is not. Shallow pools, soft clay, and islands of vegetation divide the ground into slow detours.
+
+The height brings no cold. The air is warm and close, almost at the temperature of skin, and the dark bedrock holds heat long after cloud covers the sun. There is no vent, no sulphurous breath, no dramatic source for the warmth. It is simply present, diffused through stone and water. Even the mist that sometimes gathers against the upper rim is mild. It beads on leaves without making them drip for hours.
+
+The rock is mostly green-black and fine-grained, crossed by seams of iron-red clay. Its exposed edges have lost their sharpness. Channels are shallow and rounded; overflow lips have been worn smooth; even old fractures feel settled rather than broken. Water has been following the same routes for so long that its work no longer looks violent or especially purposeful. During the heaviest rain, a thin sheet escapes through a notch at the open rim. The notch is stained and polished, but not deepened into a gash. Elsewhere, sediment collects in pockets nearly as fast as the water could remove it. The shelf is old without being inert, worn without approaching ruin.
+
+Scattered through the dark matrix are ribs and knobs of paler stone. Some rise no higher than a knee; a few stand above the low trees. Their surfaces are dry-looking near the base and damp at the crown. Often a single clear bead occupies the highest pore.
+
+The wetness rises through them.
+
+Within the pale stone are hair-fine passages, too branching and irregular to be called tubes, too persistent to be ordinary cracks. After rain, water enters where the stone is buried or stands in a pool. Over the following days, sometimes weeks, the damp stain ascends. A crown that had paled in the warmth darkens again. Eventually a drop forms at the top, swells, and falls back toward the basin from which the water came.
+
+Nothing in this is fast enough to watch. The rest of the shelf drains normally, which makes the exception more unsettling. Rain runs downhill; pools find their level; clay holds what it can. Only in the pale ribs does water patiently reverse the expected direction. The result is an inverted distribution of moisture: some of the driest-looking feet support the wettest crowns, and plants flourish on high, narrow surfaces while leaving broader, lower ground bare.
+
+Where vegetation takes hold, it is rich. Black-stemmed ferns arch out of saturated moss. Low rosettes produce thick, concave leaves with water standing in their centers. Root mats bind red clay into deep, springy hummocks, layered with older growth below. Four small, many-stemmed trees grow far apart, their smooth copper-brown trunks leaning in different directions. Their roots lie partly exposed, flattened where they cross stone and branching into fine threads wherever they find a seam.
+
+But the shelf never becomes a thicket. Between the green islands are wide intervals of open rock and still water. The trees do not touch. Some fern crowns stand entirely alone, reflected whole in pools several times their width. From the rim, the separate presences can be counted without difficulty. Lushness belongs to particular places, not to the shelf as a whole.
+
+The plants persist without animal assistance. Spores settle in the capillary grooves; small dry seeds are moved by wind and wash; detached shoots root where heavy rain leaves them. Fallen leaves remain intact for a long time before browning and sinking into the fibrous layers beneath the hummocks. There are no chewed margins, no burrows under the roots, no webs between branches. The pools hold silt, drowned fronds, reflections, and nothing that swims. No small movement troubles the water except falling rain or a drop released from stone.
+
+This gives the warmth and greenery an unusual stillness. The silence is not the watchful hush of hidden creatures. There are none to resume their sounds when the air becomes quiet. Most of the time, even the water is inaudible: its connecting threads are too slender to trickle. At long intervals a drop strikes a pool with a small, clear note. Less often, a leaf releases its held water onto another leaf. The sound ends, and nothing answers it. Breezes frequently pass below the open rim without crossing the shelf at all.
+
+Ordinary daylight keeps the place from becoming theatrical. At midday the sun is simply sun. The rising damp does not glow, and the pale stones cast ordinary shadows. Colors remain mineral and botanical: olive-black rock, rust-colored seams, water almost colorless except for the sky, greens ranging from the yellow tips of new fern growth to the near-black depths of wet moss. Moisture softens distant slopes but does not veil the shelf itself. Its strangeness is available in full light.
+
+Here and there, erosion produces shapes that momentarily seem to belong to hands. Root pressure opens a slab into flat, hand-sized flakes. Water keeps a pebble turning within a round pocket until stone and hollow fit closely. A seep polishes a groove whose edges are narrow and smooth. Once, such objects might appear together: a sharp-looking sliver beside a cupped hollow, an oval stone resting within it.
+
+Nothing has been selected or combined. The pebble was never placed in the hollow with intention; the flake lies where it fell. There are no piles, no cleared working floor, no repeated marks, no shelter, no objects carried in from elsewhere. The resemblance comes from a few simple operations—splitting, grinding, polishing—repeated for immense durations. The mountain discovers the shapes accidentally and leaves them undifferentiated from all its other debris.
+
+Change continues on several long clocks. A wet season joins the pools into a temporary, broken sheet; drier weeks separate them again, though the pale crowns remain damp. A fern hummock may spend decades extending across a single slab. The pebble in its pocket becomes smoother by increments no season could reveal. Water darkens an old channel without visibly deepening it. Even the upward seep is less an event than a condition, like warmth or wetness.
+
+Toward evening, the pale ribs hold the light a little longer than the dark floor. The beads at their summits brighten briefly, then become colorless. Heat remains in the rock. The pools cease to reflect and turn black-green beneath the plants.
+
+The shelf is neither abandoned nor waiting to be inhabited; both ideas would require a history it does not have. It is simply a small, high place engaged in its own patient processes: gathering rain, wearing stone, supporting green life in separated portions, and lifting a little of its water upward before letting it fall again.

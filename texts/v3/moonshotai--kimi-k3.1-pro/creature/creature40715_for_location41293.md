@@ -1,0 +1,45 @@
+Most of what lives in the Quiet Works is not visible in a view of the Quiet Works.
+
+It lives in the narrow interval between water and stone. At a spring, the first rust-red stain is often a population before it is a deposit: iron-using microbes spreading in delicate felts where groundwater meets air. Other films occupy the sulfur-rich seepages, the manganese-dark seams, the thin water moving over rock. Rotifers, nematodes, and minute larvae graze among them. Some of these food webs require almost no sunlight. A stone lying in permanent shade beneath a forest may nevertheless support generations of feeding, reproduction, and pursuit along a surface no wider than a hand.
+
+The peat is more densely occupied still. Its living surface is a confusion of moss shoots, cushion plants, root nodules, fungal cords, eggs, and resting spores. Just below, where oxygen still enters along roots and old stems, insect larvae and burrowing worms work through the wet fibers. Deeper down, different communities continue without air. Their gases collect beneath the domes. The nearly silent venting of a basin is, in part, the residue of lives too small and too separated in time to be perceived individually.
+
+Every hummock contains several worlds at different depths. A dry nest may be tucked into its crown while, a few handbreadths lower, salamander larvae move through cold water between the roots.
+
+Small mammals inhabit this layer in astonishing numbers. Most are rarely seen whole. There are root voles with dark, close fur, moss shrews that hunt larvae along seep margins, and lighter, long-toed animals that run across floating vegetation without breaking through. Their passages wind beneath the moss and emerge beside rotten logs or under the overhanging lips of hummocks. In daylight, their presence is often only a trembling seed head, a momentary depression in wet vegetation, or a hummock shivering in places too far apart for one animal to be responsible.
+
+They eat seeds, fungal tissue, soft new roots, carrion, and one another. Some line their nests with fibers shed from the browsers’ coats. Some disperse fungi through the root layer; others concentrate edible seeds in caches that frequently become patches of seedlings after the nest floods. A change in the water table can move an entire population uphill without any animal traveling more than a short distance from its birthplace.
+
+In the cloud forest, life has climbed away from the ground without escaping wetness. Leaf matter gathers in branch forks and among the fluted trunks. Small plants root in it, fungi thread through it, and insects complete their development in water held by cupped leaves and bark hollows. There are tiny suspended communities whose members never touch soil: mites, larvae, slender worms, and winged adults that emerge only during brief openings in the cloud.
+
+Bark-colored birds move through these upper layers with economical flights. Some cling lengthwise along trunks and pick animals from beneath wet moss. Others nest beneath epiphytes, where rain arrives as a slow drip rather than a direct beating. A few follow the browsing herds, taking insects disturbed by their hooves or parasites from their backs. Their calls are usually short—clicks, subdued notes, a sound like two wet stones touched together—but silence should not be mistaken for scarcity. At close range, a branch that appeared empty may resolve into several watching birds.
+
+The largest residents are the broadfoots, the shaggy browsers whose herds darken the mires in poor light. From a distance they can resemble a line of waterlogged boulders. Then one lifts its head, water runs from the long hair below its jaw, and the whole apparent landform begins to move.
+
+Their hooves spread under weight, allowing them to cross ground that would trap a narrower-footed animal. Even so, they do not glide over the mire. They press themselves into it. Each deep footprint becomes a brown pool; each wallow holds water after the herd has gone. Within days, the pools contain larvae, drifting plant fragments, and the first colonizing shoots. Dung feeds fungi and beetles. Seeds caught in the herd’s outer hair are carried between basins, rubbed off against trees, or deposited at mineral seeps.
+
+Broadfoots crop the reed beds and low vegetation unevenly, returning to some places and avoiding others for reasons that may involve forage, footing, predators, or nothing obvious to an observer. A route used too often softens into a chain of wallows and is abandoned. The herd’s passage therefore does not produce a permanent road so much as a moving alteration of the ground.
+
+They are social without being continuously demonstrative. Animals touch flanks, muzzles, and shoulders; calves remain close to particular adults; separated herd members answer low sounds that carry poorly through the moss but may be felt at close range. At mineral-rich seepages they gather to take clay and salts, sometimes standing for long periods with water beading on their coats. Their bodies become temporary shelters for smaller creatures simply by interrupting the rain.
+
+Where the herds gather regularly, predators gather also.
+
+The best known of these is a long-bodied, catlike hunter the color of wet andesite. It spends far more time waiting than chasing. It may lie beside a seep through an entire rain, or watch from a root ridge while broadfoots move clay around their mouths and root voles travel beneath the vegetation at its feet. Much of its diet consists of smaller animals. The herds provide opportunity rather than a reliable supply of prey: the young, the injured, the separated, and occasionally simply the unlucky.
+
+Most hunts end without a kill. The successful ones are quickly dismantled by other lives. Birds and insects arrive; bone is gnawed and dragged into cover; fungi enter the softer remains. If part of the carcass sinks below the water table, decay slows. If it remains on a hummock, the vegetation around it may change within a single growing season. Neither outcome leaves a monument.
+
+Salamanders occupy the finer thermal boundaries. Beneath seep-warmed stones, some are rust-flecked from the water in which they shelter; others are nearly black and difficult to distinguish from a wet root. Their eggs are fixed beneath submerged wood or in root-lined cavities. On mild nights, adults cross the moss between seepages, moving through what looks, by daylight, like continuous vegetation but is to them a network of wet corridors.
+
+The oxbows and peat-stained lakes hold small dark fishes, larvae, and swimming insects. At dusk, rises dimple the open water, each ring briefly making the basin seem larger. Along the margins, fishes follow temporary channels after heavy rain and become concentrated again when the water withdraws. Herons and other wading birds, where they occur, step so slowly through floating vegetation that their movement is often recognized only after their position has changed.
+
+Even the low flowering mats, apparently mere color on the ground, support brief and elaborate events. During a cloud break, midges and small flying insects rise into the sunlight. A mating flight may begin and end while a patch of brightness crosses one hillside. Flowers that looked white in the general overcast reveal yellow centers, violet veins, or dull red stems close to the ground. Then the cloud returns, the insects settle, and the color dims without disappearing.
+
+Rain rearranges occupancy more reliably than season does. Root mammals move their nests upward. Broadfoots leave the softest basins. Salamanders spread onto ground that would otherwise be too exposed. Canopy birds become active when the first heavy dripping has passed. Beneath the peat, gas spaces fill and empty; pressure changes pass through burrows, root channels, and the feet of standing animals.
+
+The resulting quiet is not peace, and it is not an absence of communication. Scent marks are renewed after rain. Animals signal by touch, by footfalls, by vibrations carried along stems and roots. Insects strum leaves too lightly for a human ear to separate the sound from water. The inhabitants are hunted, drowned, displaced, infected, and crushed by falling trees. A flooded nest is simply a disaster to the animals that built it. The richness of the whole does not make any individual life secure.
+
+But nothing remains unvisited for long. A drowned nest softens into the hummock. A fallen tree becomes shelter, then food, then wet ground for seedlings. A herd’s abandoned route turns into pools. The mineral felt at a seep is grazed, buried, and laid down again.
+
+No resident knows the shape of the whole. A microbe occupies a chemical gradient; a salamander, a warm seam beneath stone; a mire cat, the approaches to a clay lick; a broadfoot, the moving company of the herd and the next edible stretch of ground. Their lives were not assigned to complementary tasks. They have simply been lived alongside one another for a very long time.
+
+None of them maintains the Quiet Works. The Quiet Works is what their living looks like from far enough away.

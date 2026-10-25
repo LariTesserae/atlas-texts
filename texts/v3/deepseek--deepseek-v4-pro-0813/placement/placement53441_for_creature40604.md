@@ -1,0 +1,15 @@
+You would find yourself already inside it—not at an edge, not on the surface of a planet, but in the body. There is no outside once you are low enough, once the warm fog has closed behind you and the ground has begun to breathe against your feet. You would stand somewhere between the root-skin and the permanent ceiling of steam, among the piston-stems and the cable-vines and the slow red glow of the battery bladders, on a plain of black glass and breathing vegetation. The place is not a landscape with an inhabitant hidden somewhere in it. The place is the inhabitant, and you have been walking through its interior.
+
+You would be the only animal. The only thing with eyes, with a mouth, with a face, with a heartbeat that is not made of lignified pistons. The only thing that breathes not by condenser vanes but by lungs—irregular, warm, small. And that would make you the strangest organ in the whole system: a self that has not yet been absorbed.
+
+At first, the organism would not notice you as a creature. It would notice you as a leak. A small source of carbon dioxide. A warm patch on the root-mat. A turbulence in the moist air. Maybe the condenser leaves near you would bead a little more heavily. Maybe the roots underfoot would draw the warmth from your boots. Maybe the steam would lean toward your breath. Not because the place wanted you, but because you are an output it can use, and its only law is that every output becomes an input.
+
+You would be a mouth that has nothing to eat. A pair of eyes in a world that does not need seeing. A face asking, for the first time, what this place is—though the place itself has never asked. You would be the one who hears the pistons as a heartbeat, the cables as nerves, the chimneys as breath. You would be the only mind in a body that has none.
+
+If you stayed, your edges would soften. The warm water seeping up between the scale-like leaves would wet your boots, then your skin. The mineral fog would settle on your hair and shoulders. Your breath would become part of the local climate. You would not be hunted or harmed; there are no mouths for that. You would simply be included, slowly, the way a stone is included in a root’s grip, the way a stray ion is pulled into a gradient. The system would close over you like warm water.
+
+You would not die, exactly. You would be reconciled. The place might take your water, your salts, your heat—not from hunger, but because you are an unaccounted-for leak in a system that has accounted for everything else. Your phosphorus might become a small thickening in a root. Your carbon might rise as steam. The cable-vines might thread a tiny new loop through the place where your body lay, not as growth, but as correction.
+
+So where would you find yourself? In the only place an outside thing can be inside a sealed system: at the edge of the loop, waiting to be made circular.
+
+Who would you be? The witness. The anomaly. The first animal. The last visitor. The one who arrives inside a body without a self and, for a little while, gives it one.

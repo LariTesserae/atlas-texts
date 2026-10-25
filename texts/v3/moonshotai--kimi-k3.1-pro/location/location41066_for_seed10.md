@@ -1,0 +1,41 @@
+## The Last Level
+
+High enough that the air is thin and cold enough to ache in the teeth, the Last Level has no peaks. It is what remains of a mountain range after the mountains have had time to forget themselves. The altitude survives; the topography has almost entirely been worn away.
+
+Its ridges are broad, imperceptible swells. Its valleys are long darkenings in the wetness of the ground. Bedrock lies close to the surface, charcoal-colored and polished into shallow, continuous forms, with no scree, no shattered cliffs, no angular stones. Even exposed outcrops look softened, as though under great pressure they would slowly spread. A river would find little here to cut and almost nowhere to go. From any slight rise, the country extends for tens of kilometres: basin after basin, low swells beyond them, and finally a horizon that seems less like an edge than a place where the dim light gives up.
+
+Yet the whole region is saturated. Cloud moves through it at ankle height and at eye level, sometimes both at once. Rain arrives as needles, then as floating droplets too small to fall decisively. Exposed stone weeps with condensation. Water stands in broad black mirrors, gathers in the axils of leaves, and threads through the ground in films only a few molecules thick. Pools have no clean shores; their margins are simply places where the vegetation becomes progressively more submerged. In some basins, water moves uphill through the plants faster than it can seep down through stone.
+
+There is no soil in the ordinary sense. The rock carries an unbroken living rind: cold mosses, translucent liverworts, black-threaded creepers, and low plants whose leaves resemble wet scales. Roots penetrate the remains of older roots, which penetrate older ones still. The mat may be many metres deep, but almost nothing in it is dead for long. Fallen tissue is stained, perforated, and drawn back into the surrounding growth before it can become litter.
+
+From above, this abundance looks remarkably empty. The colors are charcoal, grey-green, dull silver, and occasional bone-white. There are no continuous forests, no crowded thickets, and often no vertical object within sight. The eye can cross an entire basin without finding anything to rest on. Only close up does the apparent barrenness become total vegetation, every gap packed with small, slow lives.
+
+The principal vertical presences are the pump-stands.
+
+They occur singly or in groups of three or four, usually kilometres apart. A mature stand consists of fused, columnar stems surrounding a series of elastic chambers. Wind tightening the outer fibers drives the first stage; water pressure completes the stroke. Internal valves open with hard wooden claps. The chambers lift water from the mat, force it through regional root-vessels, and vent cold mist through crowns of perforated fronds. Some crowns turn slowly by winding their spiral stems tight, then release half a revolution at once.
+
+Around the pumps, concentric zones of smaller plants perform other work. Pale flowers open in rapid sequence, filling with spores and collapsing empty within minutes. Bladdered stems store chemical charge. Fine root hairs maintain electrical gradients across kilometres of saturated tissue. During periods of heavy production, blue sparks crawl from plant to plant just beneath the water, and entire pools briefly contain a second, branching sky.
+
+Nothing has been built, but the place is unmistakably industrial. It has intake, circulation, power storage, manufacture, and distribution. Its products are sap, spores, oxygen, mobile water, and cloud. A pipe is a living stem; a valve is a thickened fold of tissue; a failed component is consumed where it stands. There are no cables, cut edges, shelters, roads, or discarded mechanisms. Nothing remains separate long enough to become an artifact.
+
+The noise carries enormous distances. A pump-stand is first heard as a concussion felt through the wet mat, then as a slow sequence of claps and long, pressurized sighs. Because the stands are so widely separated, their rhythms never quite synchronize. Beats cross the basins, overtake one another, and interfere. Rain adds a continuous low hiss. Electrical discharge produces a crack like ice splitting, though ice seldom lasts long here. The landscape is loud without sounding busy: each sound has a great deal of empty country around it.
+
+Animal life is abundant in the same diffuse way. A small patch of mat contains translucent grazing things, black many-legged swimmers, soft-bodied burrowers, and larvae suspended in water held between leaves. Every temporary pool acquires pale eel-like hunters and hovering insects with wings too heavy-looking for the thin air. Larger animals are much more widely spaced: a line of low, wet-backed grazers crossing a distant basin; a solitary wader standing knee-deep in silver water; broad-winged gliders appearing one at a time out of the cloud. One can travel for an hour without seeing an animal larger than a hand while hearing life in every direction.
+
+Their calls are adapted to the pumps. Some are pitched precisely between the mechanical beats. Others imitate a stand’s rhythm so closely that only the absence of a mist-vent reveals the deception. Certain grazers communicate by discharging small currents through their feet, and answering ripples travel outward across the mat.
+
+The light rarely strengthens beyond a pewter morning. The sun, when it can be inferred at all, is only a brighter region of cloud. Most objects cast several faint shadows or none. For long periods the plateau appears settled, finished, and almost inorganic.
+
+Then the living grid begins to overproduce.
+
+A pump-stand accelerates. Its valves clap without pause, and the surrounding mat rises into sudden, extravagant growth: translucent bells, hollow antlers, sheets of foliage veined with blue light. New pools open between them. Spores arrive in such quantities that they fall like dark snow while remaining too light to reach the ground. Animals converge through the mist, feeding and calling as the growth reaches sizes its tissues cannot possibly support. Whole stands then subside in seconds—not rotting, but becoming less definite, their outlines softening until only water, charge, and a dark patch of mat remain.
+
+At the height of these storms, the instability spreads beyond growth.
+
+First, sounds lose their locations. A valve-clap arrives before the chamber opens. A wader calls from beside its own reflection while its body remains visible on the far horizon. Then surfaces stop agreeing with one another. Rain falling into one basin drains upward through a pool several kilometres away. A pump-stand casts the shadow of a much larger stand, and that shadow continues pumping after the original has collapsed. A grazer steps out of its reflection, leaving the original animal motionless in the water.
+
+Finally, distance becomes negotiable. Two pools share a surface without sharing a shore. A far swell passes underneath the cloud at close range while remaining visibly distant. Animals use these failures when they can: eels enter one temporary pool and emerge from another; gliders launch into a length of mist and arrive ahead of their own wingbeats. Nothing about the underlying rock changes. Its ancient swells remain the fixed coordinates beneath the confusion.
+
+The storms always end in grounding. Charge sheets across the entire root-network, not as a single lightning stroke but as a blue-white occupancy of the whole region. For an instant, every plant, animal, pool, and detached shadow has the same brightness. Then surplus forms are withdrawn. Water returns to roots. Flesh returns to feeding. Borrowed distances snap back, sometimes leaving sounds stranded where their sources used to be. The affected basin may remain utterly silent for one long pump-beat.
+
+Afterward, the Last Level again looks almost empty: dim wet ground, a few distant stands, vapour dragging itself over stone that has not meaningfully changed in ages. Far off, a pump resumes. Something calls between its beats. On the horizon, an impossible second horizon briefly rises to meet it, and the mat begins manufacturing weather again.

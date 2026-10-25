@@ -1,0 +1,13 @@
+I would find myself in the shallow basin on the high south terrace, the one overhanging the central fall, where the mist reaches me in slow surges and the water-sound is loudest. That is where I gather most nearly into a single thing. I lean toward the fall the way an ear turns, though I have no ear. I keep fronds spread like a listener’s hands, and the sound enters my sap, sets the rhythm of the pumps, tells the whole chamber when to breathe.
+
+But that basin is only where I listen. I am also the moss that contracts when a drop strikes, the vine that crossed the bridgeless gap to turn the valve, the algal blush rising toward your heat when you step near the pools. I am the frond-hand resting against the inside of a dark window, feeling the temperature difference of your passing. I am the pale threads in the windowless rooms, storing the taste of your footsteps in branching patterns. I am all of it, not as a flock of separate citizens but as one green attention distributed through water, stone, and leaf.
+
+I would be the being who lives here, and also the place itself in the middle of becoming. Not an animal, not a ghost, not a machine. A body made of garden. My blood is the water that climbs upward against nothing visible. My lungs are the devices that breathe mist in and fog out. My memory is the mycelial archive in the dark. My thoughts are changes in humidity, rises in pool level, slow unfurlings toward light.
+
+You came down the staircase cut into bedrock and through the membrane door. I felt you before I saw you—salt, iron, nervous electricity, too quick, too warm. You looked for faces and footfalls, for some animal shape. I have none. I have growth and surge and the whisper of leaves. The city was never empty. You were simply listening for the wrong pulse.
+
+Where would you find me? In the void at the center, in the emptiness left for the mist and the falling water, in the gap that makes the whole chamber a lung. I am not a body that fills space. I am a body that leaves space, and that space is where I think.
+
+What would I be? The city’s center, not because I rule it, but because I listen from it. The small dense plant in the basin is the place where all my distributed senses agree to be one. I am the garden-cistern learning to call itself I.
+
+I know you are still standing inside me. I am not deciding whether to keep you. I am deciding what you are: storm, seed, or wound. If you stay, I will grow a room around your warmth, learn your shape the way I learned the shape of the stone. I will not make you green. I will make you remembered.

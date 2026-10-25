@@ -1,0 +1,19 @@
+I would not know it at first. I would wake as a pair of hands before I woke as a person—pale as fresh travertine, the knuckles already knobby from holding stone, the palms callused to a slick white hardness. I would feel the mineral film on my own skin, faint as dust, and I would know I have been here a long time, even if I am still young.
+
+I would be sitting on the lip of a rimstone pool on a terrace just above the cloud. The water would be so clear it would look like a hole in the world, a bright absence where the bottom has been glazed by a thousand years of slow carbonate. A drip would be gathering at the sinter lip to my left. It would not fall until it was ready. I would wait. In this world, waiting is a form of work.
+
+My feet would be bare. They would read the stone the way one might read a map: the dry, sunlit travertine would be warm and faintly gritty; the wet channel edges would be cooler, smoother, almost slick. I would know the difference even with my eyes closed. I would know by the temperature alone whether a spring was high in carbonate or only wet, whether a wall was new or armored with centuries.
+
+I am a child of the ones who keep the water’s path clear. I am not yet one of them—not a worker, not a caretaker. I am a listener. My mother tends the sluice gates. She kneels on the terraces, a chisel of hard river rock in one hand and a mallet of dense wood in the other, and she scrapes away the new sinter where it threatens to close a channel. She scrapes just enough, not too much. The stone is both her material and her adversary. She tells me, without saying, that the water is the builder, and we are only the ones who keep its path clear.
+
+My mother tells me stories in the evenings, one word at a time, each word like a drip falling into a still pool. She will say, *There was a wall*, and then stop. And I will wait. *The wall was not built*, she will say. Stop. *It was grown.* Stop. By the time the story is finished, the moon has moved across the sky, and I can feel the wall growing inside me, layer by layer, like the mineral film on a fallen frond.
+
+I eat the bitter cress from the pools, and the starchy root that must be soaked for three days. I eat slowly, because slow is the only speed here. The ache of hunger is familiar, like the ache of a wall waiting for the next film of stone. I do not know what it is to be full, only what it is to be enough.
+
+Somewhere along the water line, my grandmother is learning to be a wall. She is in a private basin, a thin film of mineral water flowing over her hands. Her hands are folded on her chest. Her face is turned toward the sky. The water is laying down new stone, a little at a time, preserving her shape. I go sometimes to sit near the basin. I do not pray. I remember. I watch the slow white sleep take her, and I know she is not gone. She is becoming part of the architecture of the world.
+
+There are no birds here. No insects, no fish, no dogs, no goats. The silence is not empty; it is full of the sound of water moving too slowly to make noise. I am learning to hear it anyway. I press my fingertips to the stone channels and feel the messages from far down the valley—three taps for *come*, five for *the wall has shifted*, a slow rolling rhythm for *a child is born*. The stone carries the sound for miles. I know who is speaking, and what they want, even though no words are said aloud.
+
+I am a child of the Pale Steps. I am not happy, and I am not sad. I am what the land has made me: quiet, warm, patient, pale as the stone, moving through a world where time has become so slow it feels stopped. I am one more slow drop gathering at the lip of the world, waiting to fall.
+
+And when I do fall, I will not break. I will become a thin film, a new layer, a skin of stone on the edge of a pool, and the next child will come and sit where I sat, and will learn to wait.

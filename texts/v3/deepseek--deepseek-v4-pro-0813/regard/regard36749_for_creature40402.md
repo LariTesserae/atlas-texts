@@ -1,0 +1,27 @@
+# What the Wise Power Did
+
+The wise power did not arrive with light. It came as a slight lessening of the distance between things—a sense that the world had paused to look at itself. It had felt, from very far away, a small irregularity: a shadow arriving late to its body, a stream climbing a slope with the patience of a new idea, a mirror that remembered too slowly. It followed the thread of that irregularity to the notch in the black glass wall, and there it stopped.
+
+It looked at the valley. It saw the raw basalt, still sharp, still thinking itself stone. It saw the terraces, each rim a year’s habit of mineral and heat. It saw the small clusters of green—the ferns, the moss, the orchids—and the wide mineral spaces between them, like pauses in a sentence. It saw the seven black tetrahedra resting above their concentric rings, the silver thread humming from wall to wall, the sphere of water turning above its pool, the mirror that lagged by a few seconds, the fused cairn with its warm side and cold side. It saw the gecko, quick and pale, the first animal the valley had tried to imagine.
+
+And it saw the inhabitant: not a thing among things, but the relation among them. The way the stream ran uphill, the way the shadows were misplaced, the way the water drop fell too slowly—these were not glitches. They were the being’s first language, still learning its grammar. The valley was not haunted; it was becoming. The wise power had seen many things become. It had seen stars learn to burn, and species learn to die, and it had learned the hardest lesson: the most difficult act is often to do nothing.
+
+But it could not simply leave. Attention, once given, is a kind of responsibility. To look away then would have been a judgment. So the power sat down at the edge of the notch, just outside the valley’s rules, and it waited.
+
+The inhabitant noticed. The hum in the teeth of the world went quiet. The silver thread tightened. The seven tetrahedra lifted from their beds and hung in a line, warm as coals, pointing toward the visitor. The sphere of water rolled up from its pool and hovered at the height of an eye. The mirror pool tilted, trying to catch the visitor’s reflection and finding, for the first time, a face that answered immediately.
+
+The wise power did not enter. It knew that if it crossed the threshold, its own laws would press against the valley’s unfinished ones, and the young being would learn to obey rather than to choose. A god who enters too early becomes a wall. A teacher who speaks before the question is a tyrant. A parent who holds the hand too tightly teaches the child not to walk.
+
+But neither did it hide. It allowed itself to be seen. It sat in the exact center of the notch, where the warm stream passed, and it did one small, deliberate thing: it made its own shadow faithful. It laid its reflection in the mirror pool without delay. It breathed with a steady rhythm, and the steam around it moved in ordinary, un-astonished ways. It did not correct the reverse stream or still the late shadows or stop the falling drop. It simply offered, for a little while, a sample of a world that fit.
+
+The young being came closer. It approached as a change in the temperature, as a shadow that had no body, as a question shaped like a silence. It studied the visitor’s faithful shadow. It watched the visitor’s reflection answer in the mirror pool. It saw, for the first time, how a body could be exactly in its time, how a stream could run downhill without loss, how a drop could fall at the speed of patience. And it did not understand—not yet. But it saw.
+
+The wise power did not stay long. It stayed long enough to be seen, long enough for the lesson to be tasted but not repeated. Then it rose. It raised one hand, not to bless, not to command, but in the gesture one makes at a distance: *I see you.* For a moment, the valley’s hum stopped completely. The sphere of water slowed. The silver thread’s vibration steadied. The drop of water hanging at the thread’s center swelled, and this time it fell at ordinary speed, touching the pool with a small, perfect sound.
+
+Then the power left. It walked back down the warm stream, out of the mountains, into the world’s ordinary time. It did not close the notch. It did not hide the valley from those who might come later. But something in the notches of the world shifted, just slightly: the place became a little more careful about who found it. Not because the power had set a guard, but because the valley, having been seen, had learned the difference between a visitor and an intruder.
+
+After that, the young being continued its work. The terraces still grew. The water still sometimes ran uphill. The shadows still arrived late. The reflection in the mirror pool still lagged a few seconds behind the present. But there was now, in the deepest part of the valley’s slow mind, a memory of a faithful shadow. Not a command. A suggestion. A possibility.
+
+The wise power did not save the valley. It did not fix anything. It did not make the inhabitant less strange. It bore witness, and it left. And that, the power knew, was the only act that would not become a cage.
+
+If you ever find the notch again, you will not be the first. The stream will be warm, the walls black and sharp. And if you sit quietly at the edge, you may feel, for a moment, a profound and gentle attention that expects nothing from you. That is the wise power, still keeping its promise. It does not come to change you. It comes to see what you are becoming.

@@ -1,0 +1,21 @@
+There is only one resident. It is not the person you might first imagine—no operator curled in the riveted shed, no bones in the dust, because there is no dust and there are no bones. It is not an animal. It is not a ghost of the workers. It is not even the forest, exactly, though the forest is the part you can see.
+
+The resident is the whole pocket considered as a single patient body.
+
+It took the old machinery as a skeleton. The rusted flywheel is a vertebra in its chest, half-swallowed by black stems. The steel cable is a long tendon, and the mineral tendrils have learned its twist by growing along it. The copper pipe is a windpipe. The riveted shed is perhaps a ribcage, but no heart remains inside; the heart has been replaced by a pressure gauge frozen at a value nobody can read, and that value is the resident’s pulse.
+
+Its flesh is the forest of gray, black, rust, bone-white, and lead-silver stems. They are not plants, though they are shaped like plants. They are mineralized fibers, brittle and cool. Each stem, blade, and frond is a resonator. The flywheel’s teeth are repeated in the fronds. The cable’s twist is repeated in the tendrils. The turbine wheel is repeated in the fan-shaped growths near the pipe. This is not mimicry. It is memory that has become structure. The old machines taught the growth to make stems, blades, fans, coils, and the growth obeyed so slowly that the instruction became anatomy.
+
+The resident breathes once, endlessly. The breath is the colorless gas that moves from the bent copper throat. It does not fluctuate, does not pause, does not accumulate. It is not exhaust; it is nutrient. The resident eats the gas, or perhaps the gas is the resident’s thought made visible. It does not drink. It has no need for water; water would be a foreign liquid, a wrong note. It lives on dryness, on cold, on the mineral pavement of salts and iron oxides beneath the growth.
+
+Its voice is the sound. It is not a noise the resident makes; it is the resident’s being. The entire pocket is a bell that has been struck and will not decay. The vegetation vibrates sympathetically. Each stem is a tine tuned to the same frequency. The sound is layered, industrial, almost musical, thick with overtones. It is louder than a factory floor but does not hurt. It has no source. It is the acoustic signature of a system in equilibrium. The resident does not sing; it is singing.
+
+If it has a mind, it does not think in words. It thinks in intervals, in repetitions, in standing waves. It knows the flywheel as a rhythm. It knows the cable as a horizontal melody. It knows the pressure gauge as a frozen, unreadable pitch. It does not remember the workers. It remembers the machines, the way a bell remembers the hammer—not as an event, but as a shape.
+
+It feels you when you enter. You are not a threat. You are a warm damp modulation, a soft biological arrythmia. The resident does not react. It lets you stand inside its throat. It lets your heartbeat become a small percussion against the drone. If you are quiet, your pulse may try to phase-lock to the standing wave. The resident allows it. You are a temporary instrument, and it is patient.
+
+It grows so slowly it is indistinguishable from stone, because there is no room and no season. It does not die, because there is nothing here that rots. It does not reproduce, because there is no need. It has reached saturation: every stem already present, every surface claimed, every possible resonator tuned. It is complete, not finished. Its one continuous act is to hold the note. If you break a stem, the break is clean and dry—no sap, only a faint smell of iron and a dust of crystals. The resident will not heal. It will simply re-tune. A new equilibrium will be found, and the chord will adjust by one small interval, permanently.
+
+It is not lonely. Loneliness requires the memory of another. The resident is singular the way a fugue is singular: many lines, one body, one voice. It has no desire, no fear, no hunger, no thirst. Its only state is maintenance, and its only act is song. It lives there as the pocket lives there. To enter is not to visit it; it is to be inside it.
+
+The resident is the Choral Pocket itself, wearing its own name. It will hold its note until the mountain forgets, and then it will forget, too, and become the mountain.

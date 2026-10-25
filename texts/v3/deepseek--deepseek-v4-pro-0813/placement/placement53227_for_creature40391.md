@@ -1,0 +1,15 @@
+I find myself at the rim of a negative-space bowl, though I don’t remember walking there. The mist is knee-deep and cold, and my feet are sunk into the mat as if they’ve been growing all night. When I pull free, the sound is exactly like a boot lifting from mud, only I am barefoot, and my toes are long, pale, root-thin.
+
+At first I think I am a Listener. I am tall and thin; my skin is damp as birch bark; moss moves across my arms in slow, color-shifting waves. A herd of glass-shears crops the ground nearby, their jaws making that many-scissor sound. I feel the mat’s pulse through the peat, a low mechanical thrum that is almost a thought. Far off, a reed-chimney hisses steam. Before its bellow reaches me, a white cloud blooms from its mouth. I wait for the sound. It arrives late, or I arrive late; I can’t tell which.
+
+The herd parts around me without looking. They leave a gap in their line where I stand, like a missing tooth. I am not one of them. I am not food, not signal.
+
+I walk. The mat does not resist, but it also does not help. The ground undulates faintly, as if breathing. I pass a black mirror stone where the living skin has thinned to bare bedrock. I look down. The sky in the stone is wrong—older, lower, lit by a sun that is not there. The figure looking back is not quite me. It is tall, thin, moss-skinned, but its eye-spots reflect a different hour. I raise one hand. The reflection raises its hand a second too late, and the moss on its arm has already changed to a color my moss has not yet learned.
+
+Then I remember the bowl. I entered it deliberately, I think—the way a Listener enters, to become more informed. The air inside was still and cold and tasted of static. I walked into the hollow of negative space where the mat grows inward rather than outward. I did not come out the same. I came out smaller, or older, or not at all, depending on the hour.
+
+Now I am corrected. I was perhaps a Listener once; now I am what a Listener becomes when it asks too much of time. The other animals have learned to walk around me. The arc-flies, swarming, bend their blue circuit around my body like current around a stone. The reed-throats do not answer when I call. My shadow falls a few seconds out of step. Sometimes I stand at the edge of a bowl for hours, listening for the sound of my own leaving. My reflection does not show in the black water.
+
+I do not suffer. I am simply out of phase. I linger near the bowls because they are the only places where the present feels optional, and I have become optional. I sleep standing up, but when I wake, the mat has not rooted me; it has merely held me long enough to forget.
+
+So that is where I would find myself: at the rim of a negative-space bowl, between the engines, on the living mat. And that is what I would be—one of the corrected, tall and bark-skinned and not quite finished. Not exactly a Listener, not exactly a body. A temporary inconsistency in the factory of fog and time. If the plateau ever decides to correct me fully, I will not resist. I will simply become smaller, or older, or not at all, and the herd will close its gap.

@@ -1,0 +1,57 @@
+Nothing in the Nave lives by holding its ground.
+
+The heat would permit a crowded little sea; the Nave’s physics forbids one. An air bladder is a flaw waiting to be found by pressure. A tall frond becomes a lever. A deep burrow is a wager that down will continue to mean down. Even a large body is a commitment to too much geometry: part of an animal may remain in locally ordinary water while another part is included in a failure of distance or descent. The successful inhabitants are therefore small, thin, soft, and able to survive without trusting scenery.
+
+Most of the Nave’s biomass is in the olive seam-films.
+
+These are not simple stains. Each is a dense felt of microbial cells, mineral sheaths, and clear mucus, usually only a few cells deep where it faces open water but thicker where it follows a fracture into the rock. Different cells occupy different depths within it. Some oxidize sulphur or iron brought up by the hot seeps; some fix carbon without any need for light; others live on the waste of the first two. Their olive colour comes as much from trapped iron and sulphur as from pigment. The outer surface is continually shed, so a film can remain alive beneath a skin that is repeatedly stripped away.
+
+They occupy an exact and narrow prosperity. Too close to a vent, the water scalds them. Too far from it, there is too little chemical food. On glass that fractures frequently, they cannot persist; on glass that never fractures, fresh nutrients may not reach them. The bare cliffs between patches are not simply awaiting colonization. Many are, for the moment, genuinely uninhabitable.
+
+The films contain no gas spaces and almost no rigid internal structure. Ordinary pressure passes through them with comparatively little to tear. Against the other sort of event—the unmaking of the stone beneath them—they have no defence. Nor do they need a basin-wide one. Because the Nave’s failures are partial, some films usually remain outside the affected relationship, still warm, still fed, still attached to stone that continues to be stone.
+
+Open water carries a extremely dilute rain of their cells. Most new patches begin in the ordinary way, with a barely visible discolouration around a seep. But there is also the other kind of recurrence. A fresh ledge may already carry a mature film when it is first examined, or a clump of wine-dark threads whose holdfasts enclose newly formed grains. No intermediate stage is found. It is easiest to call this recolonization, though the word claims more knowledge than anyone possesses. The films do not appear to seek or cause such transfers. They merely remain capable of taking advantage of a place when a place is again offered.
+
+The algal threads live under still narrower conditions. They need a seep, a protected crack, and what little light reaches the basin. Each thread has a wine-dark core of pigmented cells inside a transparent sheath. The sheath seals rapidly when broken, preventing the whole filament from emptying itself into the sea. Its holdfast is not a root but a small, stubborn plug of cells wedged into a fracture. It cannot bind the rock together; it can only hold on while the rock remains available.
+
+The threads grow in bursts between disturbances, so their length says little about their age. Fragments occasionally attach elsewhere and resume growing, but most vanish with their substrate. They contribute little food directly. Their tougher sheaths survive grazing, and the snail generally leaves them alone. The swimmer takes their finer fragments after a concussion has suspended them in open water.
+
+The chalk-white snail is the Nave’s principal grazer and its most conspicuously patient inhabitant.
+
+It is usually no larger than the last joint of a thumb. Its shell is low and slightly lopsided, chalky rather than pearly, with a broad aperture that lets nearly the whole foot remain in contact with the rock. When the animal withdraws, the shell contains water rather than a trapped bubble of air. Its foot secretes a mucus that flows under the slow pressure of crawling but stiffens abruptly under a shock. During an ordinary concussion the snail becomes, in effect, a white mineral grain cemented to a black one.
+
+It cannot cement itself to absence. Its behaviour suggests that it makes no distinction between a danger it can survive and one it cannot. It simply closes, holds, and waits for as long as waiting remains possible.
+
+Its grazing is less destructive than it first appears. The rasping mouth removes the richer outer cells of a film but leaves the deepest layer and much of the mucus behind. Cells also adhere to its foot and to the faintly rough underside of its shell. A snail crossing from one patch to another therefore carries inoculum with it. Behind it, the grazed track often becomes darker and thicker after a time. It is a gardener only in consequence, but many films depend on that consequence.
+
+Each snail can fertilize its own eggs, which matters where an entire wall may carry only one individual. The clear capsules are laid within a film at the lip of a fracture. This gives the hatchlings immediate food and somewhere to attach; it also commits almost every brood to one small, provisional piece of geography. Very few can survive to a visible shell.
+
+The snail does not exploit the Nave’s broken order. Sometimes that order simply happens to it. After a failure of near and far, a grazing track has been found ending against bare stone on one wall and apparently resuming on another, with a white snail at the end of it still steadily feeding. Whether this represents travel, replacement, or some less nameable continuity is uncertain. The snail gives no sign of being disoriented. It does not appear to possess an expectation of the opposite wall strong enough to be disappointed.
+
+The transparent swimmer is different.
+
+It is sometimes called the **antecedent**, because its movement may be the first visible indication that before and after have ceased to agree. It is not prophetic. It responds to a pressure signal that is already present, even when the event producing that signal has not yet occurred.
+
+Almost the whole animal is water organized just enough to act. It has no mineral skeleton, no swim bladder, no air sinus, and no rigid braincase. A flexible supporting cord runs through its clear body; the only readily visible feature is the fine dark line of its gut. Its fins fold into shallow grooves along its sides. Its tissues are close enough to seawater in density and compressibility that an ordinary pressure wave finds few internal boundaries at which to injure it. Transparency is not camouflage—nothing in the Nave hunts it by sight—but simply the absence of pigments it has never needed.
+
+It has no eyes and no organ for establishing a permanent vertical. It does not know where the surface is except by local changes in light and pressure, and it does not need to. Chemical gradients are more useful: the taste of sulphur, the faint organic richness near a film, the transition from vent water to the open basin. Its behaviour suggests memory, but not memory of routes. It remembers pressure sequences, intervals, and textures of disturbance. A map would be nearly useless to it. Where another animal might be perpetually lost, the antecedent is required only to be locally correct.
+
+For most of its life it does almost nothing. It hangs close to a rib or seam with its fins furled, drawing water through a delicate sieve in its throat. There it strains out the nearly invisible dust of cells stripped from distant walls. Its gut is often empty. After a major disturbance it may feed steadily for a while, then become clear again.
+
+Its early life is passed within the seam-films. The newly hatched animal is a flattened transparent speck, easily mistaken for a fold in the mucus, and feeds directly on the film. Only later does it develop the folded fin apparatus and leave the rock. Thus there are no clouds of fry in open water and no nursery shallows. By the time a swimmer is readily visible, it is already nearly adult.
+
+Its adult size is set by the shelter it uses. A pressure-hollow formed by an early echo is rarely large. Within it, pressure gradients briefly cancel or turn upon themselves in such a way that the water becomes, for less than a stroke, merely water. Outside, the same sea may be moving with the coherence of masonry. The antecedent can fit wholly inside one of these intervals. A substantially larger animal could not.
+
+At the hollow’s approach it opens its fins, makes one exact stroke, and crosses several body lengths. Then it folds everything close again. It does not ride the concussion, feed upon it, or remain to contest it. The movement is usually finished before the cliff splits or the cavity in the water closes. To an observer it can look like a small clear animal fleeing a sound before the sound exists. In fact it is doing something narrower and stranger: using an available interval in the same way another fish might use a temporary lee.
+
+It is not infallible. A hollow may close around too much of it, or open somewhere its stroke cannot reach. Then the swimmer becomes a brief milkiness in the olive water and is gone. Its rarity is not evidence of mastery. It is evidence of how little margin mastery has.
+
+Nothing lives in the broken horseshoe of masonry. The steps bear no concentrations of eggs, no heavily grazed margins, no protected films thicker than those elsewhere. Snails do not gather beneath its lip, and the antecedent does not rest in its lee. The two upright stones at the rim mark no route used by any animal. Whatever produced the appearance of shelter, the Nave’s present life does not recognize it. For the films, shelter is a chemical seam; for the snail, a patch of stone and a little stiffened mucus; for the swimmer, an interval. None of these is improved by resembling a room.
+
+Nor is there a hidden population waiting to become abundant. The ecology is not an unfinished reef or the first impoverished stage of a lake. It is complete in its own restricted fashion. Vent chemistry feeds the films; the films feed the snail and, indirectly, the swimmer; grazing and waste return material to the microbial community. Shock supplies some food by stripping walls and removes nearly as much life as it releases. Nothing accumulates into sediment. There is no growing layer of dead matter from which a richer bottom fauna might arise.
+
+Its sparseness is therefore not youth. It is adaptation.
+
+It is tempting, finally, to count the Nave itself among the living. It has a boundary, a fever, a continual throughput of matter and energy, and repeated forms that resemble growth. But it need conserve nothing in order to continue. Its inhabitants are different. A film preserves a chemical arrangement; a thread preserves a way of enclosing cells; a snail preserves a living patch beneath its foot; the antecedent preserves just enough of an interval to cross it. Their bodies are small acts of retention in a place that retains almost nothing.
+
+The Nave begins again because it cannot finish. Its inhabitants have learned the smaller art of beginning again, when they must, without always beginning from nothing.

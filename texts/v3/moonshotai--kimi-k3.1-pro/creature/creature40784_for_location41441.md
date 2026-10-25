@@ -1,0 +1,75 @@
+Most of what lives in the Upper Weave is the Upper Weave.
+
+That does not make the whole country one organism. An arm’s length of causeway may contain several kinds of bast vine, a root-felt binding them together, the remains of a wax-leaf trained into the surface, and pale decomposers working in the dead heart of the cord. Where these tissues meet, they graft, choke, shelter, or grow patiently around one another. Some plant lineages have been tended for so long that they spread best when cut and trained. Others arrived as spores and became necessary by accident.
+
+The oldest lineages are not necessarily housed in the oldest tissues. A plant may advance along a ridge for centuries, rooting ahead and dying behind, while the ridge remains recognizably the same ridge. A causeway can be older than anything currently alive in it.
+
+Growth answers use. Loaded cords thicken. Repeated feet suppress crosswise shoots, and the survivors are those whose growth makes a smoother path. This is why an unwalked path gradually ceases to be one, and why every traveler performs a little unconscious keeping. The browsers do it by cropping. Water does it by following and enlarging the same grooves. Even the predators, by choosing certain angles in which to wait, compress the growth there and leave it different.
+
+Nothing in this requires the fabric to intend anything.
+
+A frayed binding is often richer than a sound one. Its dry outer fibers harbor tiny mites that live on old resin and dust. Farther in, where rain lingers, pale fungal threads open the dead bast. Knot-beetles follow, tapping their courtship into the cord. Rootlets follow the beetles’ damp galleries. Spinnerlings attach their first silk to anything that remains still. A binding can thus be becoming structurally weaker and ecologically more crowded at the same time. Keepers frequently lash beside such a joint rather than renew it outright, leaving the old knot to finish its slow transformation into habitat.
+
+Above all this, the spore haze supplies a thin, continual fall of food. Most spores never germinate. Rain washes them into seams and water films, where they are filtered, swallowed, or stored in living tissue. In that sense, much of the food web begins with the sky.
+
+The translucent larvae are the grazers of that fallen sky. Some are clear as slivers of glass except for a green or brown line where they have fed. Others are visible only when they turn, flashing the muted light from some internal surface. There are many kinds crowded together: creatures that will become midges, creatures that will remain small and swimming all their lives, and a few that will eventually become sail moths. A footprint compresses their film, mixes its spores, and drives the larvae briefly into the open. To someone standing over it, the footprint seems to boil. Half a minute later, the surface is again almost still.
+
+Thread-eels lie among them without appearing to feed. Their mouths work rarely and delicately. Much of the time they simply absorb what the film brings within reach. When disturbed, the shiver that crosses a pool is often a chain of startlements: one eel moves, its neighbor answers, and the disturbance passes through animals that never encountered the original cause. It ends as suddenly as it begins, frequently with every eel in nearly the same place as before.
+
+Their eggs are laid in wet fray and in the swollen bases of marsh shoots. Seepage carries the young through root conduits. This is one reason a pool with no visible inlet can acquire eels, and why the eels of neighboring pools are not always closely related. Some have come overland during long wet periods, sliding through the soft pile at night. Others have arrived from sources no keeper can locate.
+
+Beneath the vaults, the colonial spinners make their nets serve as both traps and gutters. An individual spinner is easily overlooked; a colony can occupy the whole dim angle of a hollow. Fog beads on its silk. The droplets grow, merge, and run toward particular junctions where the colony drinks and shelters its young. Small lives caught in the net provide the rest of what is needed.
+
+The nets are not passive under rain. Colonies slacken some strands, release others, and allow heavy water to pass without tearing the whole structure. Afterward they draw the net tight again. Old sections are abandoned and become felt, then substrate, then part of the roof to which newer silk is fastened. Keepers sometimes find a concealed leak by following the steady dripping from a spinner colony long after the surrounding surfaces have dried.
+
+The felt-footed browsers look less numerous than they are because their herds are not ordinarily gatherings. A herd is a population still sharing a sequence of routes, seasons, and adjacencies. Thousands may belong to it, with only a few dozen close enough to see one another. Often there is just the single tall animal on a plain, its narrow body shedding rain from the soft cords of its fur.
+
+Its broad feet are made of many compliant pads. These spread under weight and close slightly when the animal listens. Most of what a browser knows about the country immediately around it comes through those feet: the firmness of a binding, the approach of other animals, the small wrongness of a surface whose far side no longer answers as it should. Their silence is not helplessness. They can communicate over considerable distances without making any sound in the air.
+
+When a whole scattered group lifts its heads at once, the signal has usually traveled through the structure. A change in tension, an unfamiliar impact, or the approach of something heavy can pass from animal to animal faster than sight. Calves learn the ordinary voices of local causeways. Old browsers are more suspicious. Some refuse sound-looking shortcuts and insist on worn approaches whose neighboring places they remember.
+
+Their cropping is not simply consumption. Unchecked silver tips can close capillary grooves, shade out root-felt, or turn a rain-shedding plain into a marsh. The herds keep growth open in a shifting, incomplete way. Their droppings become dark islands of larvae and fungal activity before being taken into the fabric. Keepers sometimes postpone work along a route until after a herd has passed, because the animals will have done part of the clearing and revealed, by their choices, which surfaces they still trust.
+
+A few sail moths spend most of their lives in the water films. The wide-winged stage is brief by comparison. An adult leaves a ridge by tilting into the air and letting the warm current decide, at first, whether it rises or descends. Its wings carry spores, silk fragments, and the minute eggs of other creatures. Sweet sap from cut stems can keep it flying for a while, but mating and migration occupy most of its adulthood.
+
+The moths that use slack joins appear uncannily deliberate. They approach at a particular slant, in a particular kind of weather, and vanish without crossing the visible distance beyond. There is no need to suppose that each moth understands the route. Lineages that entered at the wrong angle or season simply left fewer descendants. The surviving flight paths look like knowledge because failure has been removed from them.
+
+Predators have learned the same routes more directly.
+
+Keepers call the largest of them shears, after the condition of what they leave rather than after their appearance. A shear is broad and many-jointed when extended, but can fold itself into an astonishingly narrow angle of rootwork. Smaller kinds lie beneath marsh lips. Larger ones compress themselves beside causeways or hang in the upper dark where moth flight narrows between supports. Their backs often carry damp felt, and spores germinate in it. An old animal that has remained still for a long season may look like a repair that has sagged and begun to grow over.
+
+They seldom pursue. They hold, open, and wait again. The neatly split carcasses and discarded mouthparts are seen far more often than the animals themselves. Some smaller hunters pluck false signals into cords or nets: the rhythm of feeding larvae, the tap of a possible mate, the minor distress of something trapped. Not every message traveling through the Weave is honest.
+
+In the deepest hollows, where little green light reaches, whole communities live on seepage, falling detritus, and whatever the nets bring down. There are eyeless eels in those waters, pale grazers on the fibrous walls, and larvae that can wait through long periods when almost nothing arrives. In vaults large enough to contain their own weather, however, life may be nearly as rich as on the open plains. Ponds overhead have their own eels. Browsers overhead drop dung that becomes someone else’s local garden. A moth dying under one local down may fall toward water that, to an observer nearby, appears to be in the sky.
+
+The knots make natural history into an archive of maintenance. Two marshes can share nearly identical animals because a gutter joined their waters generations ago. Another pair, close enough to hear the same drops through a membrane, may share almost nothing because more distance lies between them than either contains within itself. A repair can found a population. Another can end a migration without killing a single animal.
+
+Consequently, not every slack join is considered damage. Some are moth passages. Some are the routes by which browser herds reach calving hollows. Some deliver predators as reliably as prey and remain dangerous but necessary parts of a larger pattern. To tighten every such join would make the Weave easier to describe and poorer to live in.
+
+The keepers are the inhabitants who think most explicitly about these consequences, though none of them knows the whole. They live alone, in pairs, or in small households. A large gathering cannot usually be fed by one basin for long, and too many feet begin altering the very routes people have gathered to discuss.
+
+Their bud shelters are dry only by comparison. Inside, condensation is led away along leaf veins; bedding hangs free of the floor; cord and tools are kept where the air moves. There may be pith cakes, smoked eel, fermented shoots, a little resin, and wood worn into shapes that fit particular hands. Small resin-thieving animals often nest in the walls. Keepers tolerate them because they eat cord-boring larvae, and curse them individually when they steal bindings.
+
+Keepers go barefoot on sound work whenever they can. Their clothing is usually loose bast, easily opened to the warm air. Their hands become stained by tannin and resin; their feet become sensitive enough that some can distinguish, without thinking about it, between the return of a distant footstep and the slightly broader tremor of rain beginning in a hollow.
+
+Most days contain more inspection than construction. A keeper walks a short route, presses a palm to a joint, smells the water leaving a gutter, and looks to see which animals have arrived or gone. They clear one small obstruction. They cut back a shoot that would otherwise become next year’s obstruction. They spend an afternoon doing nothing visible because a living repair must be watched through rain before anyone can tell what it has done.
+
+Their maps are therefore crowded with consequences. A mark may mean that a binding holds weight but should not be trusted after prolonged rain. Another may record that the basin below it receives bitter water from an unknown source, that thread-eels appeared there after an old repair, or that a herd ceased using the path when a neighboring knot was renewed. Distances, where they appear at all, are often the least useful part.
+
+This knowledge is not invariably wise, and the keepers are not a uniformly solemn priesthood. They argue, postpone unpleasant work, keep wet bedding too long, make proud repairs that fail, and disagree about obligations inherited from people no one living remembers. Some young keepers want to tighten everything. Some old ones have become so fond of a particular frayed joint and its inhabitants that they invent structural reasons to leave it alone. Households exchange news, fiber, tools, and sometimes children, so that a pattern can be learned where its proper teacher still lives. Solitude is common, but it is not necessarily a vocation.
+
+Children learn to read maps by walking them. They also learn when not to step: where a film is crowded with young, where a shear’s felted back is too regular, where a causeway returns a vibration with its qualities subtly reversed. Older keepers who can no longer travel far twist cord, sort scrapers, and remember which apparently successful repairs later made a route cease returning to itself.
+
+A good repair is not simply tight. It must bear the intended load, send water somewhere survivable, and preserve enough of the old neighboring relations for life to continue around it. Sometimes this means cutting away a colony’s net and accepting the loss. Sometimes it means lashing around an entire decayed joint so that its beetles, fungi, roots, and ambushing small predators can remain. Sometimes it means leaving a slip alone and marking the path as one that belongs to the moths now.
+
+After tightening a difficult knot, keepers often wait. They watch the rain. They walk a circuit. They listen for the gutter and for the feet of animals. If the horizon withdraws, there may be nothing further to do except discover what has become adjacent. The work is not considered successful because the joint looks strong.
+
+Keepers die in small numbers and are usually returned to root baskets, where their bodies enter the same material cycle as everything else. Tools and obligations are passed separately. A person’s name may survive attached to a pattern long after the route on which they lived has ceased to neighbor anything familiar.
+
+They are not single-handedly preventing the Weave from dying. If every keeper vanished, growth would continue, herds would still prune, spinners would still comb fog, and roots would still enter old fray. Some basins would fail. Some paths would close. Certain adjacencies would wander until the animals using them vanished or adapted. The keepers’ importance lies in particular continuities, not in possession of the whole.
+
+So the visible country can remain almost empty. One browser stands on a leaf plain. A bud shelter might be a swelling in the ridge. There is no flock, no crowd, no procession of beasts across the horizon.
+
+Yet under a single foot there may be larvae turning in their thousands, a beetle drumming for a mate, roots entering an old binding, and a colony letting water down its nets thread by thread. A moth lets go of a ridge. A shear, which has not moved for days, remains still a little longer. Somewhere a keeper is arguing that a knot should have been left loose.
+
+A drop strikes a pool. The thread-eels shiver. Far away, or quite near, something answers through the cord.

@@ -1,0 +1,15 @@
+I would find myself in the deepest pool, just below the spring slit, where the mineral floor has been worn into a long, low depression. But I would not arrive as the salamander. I would arrive first as the water.
+
+Not the whole spring—only one small part of it. I would rise through the slit between two slabs, already warm, already carrying dissolved lime and sulfur. I would not gush. I would well, the way a secret wells. I would spill into the first basin and feel the rim as a cool pressure against my surface. Then I would sheet over the lowest point, so thin I would be more film than water, and I would learn the travertine by touch: the scalloped rims, the rust-streaked edges, the places where the stone has gone faintly violet.
+
+In the deeper pools, I would settle. I would become the rusty, nearly black bacterial mat that grows on the bottom, feeding not on light but on the minerals I had carried. I would be the taste of old iron, the faint sweetness of sulfur, the warmth that never changes.
+
+Then the salamander would come. Not hunting, not even moving with purpose—only lowering its wide, flat head to the pool floor. I would pass into its mouth with the warm water, over its slow tongue, into its dark body. There I would become its blood, then the gills that open and close along its head, the rust-brown feathering that stirs the water around it. In that body I would lie in the long depression below the spring slit, blind and patient, feeling the whole hollow as a pressure map: the constant temperature, the rowing of a small white crustacean, the click of a falling drop.
+
+I would shed my skin when the mineral settled too thickly on my back, and the shed skin would drift away in thin white veils. I would not be lessened. The veils would dissolve and become part of the stone, and I would understand that I was never only one thing. I was water becoming stone, stone becoming film, film becoming flesh, flesh becoming water again.
+
+If a hand once ground out a cup in the ledge, I would be the smoothness of that cup and the later film that sealed it. If a wooden stave lay fused to the travertine, I would be the grey hardness that was no longer wood and not quite stone. If a seed blew in and turned into a dark blot, I would be that becoming.
+
+So where would I find myself in this world? I would find myself not as a visitor, not as the salamander alone, but as the hollow’s own turning—the closed account of water and mineral, the slow leaving and returning. I would be the held note, not still like a frozen lake but still like a held breath. I would be the quiet that the mist eats, and the mist itself. I would be the absence of green, the absence of birdsong, the hush that passes for sound.
+
+When you left, I would not watch you go. I would only be the faint ripple you made in the pressure of the air, smoothing back into stone and water and gills, into the dim grey light, into the long patience of the pools.

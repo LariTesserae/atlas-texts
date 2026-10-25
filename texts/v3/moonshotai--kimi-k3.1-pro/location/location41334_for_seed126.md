@@ -1,0 +1,43 @@
+## The Sinter
+
+The Sinter first appears less like a landscape than an exposure: white ground, white distance, a sky so full of light that its pale blue seems visible through the brightness rather than containing it. At local noon the plain returns nearly everything the sun puts into it. Color survives only at grazing angles—the violet inside a narrow joint, the straw-yellow of airborne dust, the brief petrol-blue shadow beneath a traveler. The air is warm and clear, with a faint taste of hot porcelain.
+
+Its dryness is not drought. Drought would imply the memory of another condition. Nothing in the Sinter’s remaining chemistry requires wetness: no dew forms at night, no clouds gather in the ordinary sense, and no organism carries an aqueous interior. Warmth moves directly through crystal, gas, charge, and carefully maintained absence.
+
+The plain is low without being perfectly flat. Long swells, rarely taller than a building, take hours to cross. Old elevated districts have subsided into broad, shallow cords; excavations and basins have filled until their outlines survive chiefly as differences in temperature. There are no fresh fractures, no raw cliffs, few edges sharp enough to cut. The world has not merely been worn down. It has had time to finish wearing down, and then time to adjust to the result.
+
+There is no natural substrate beneath it. No bedrock, no native soil, no sand derived from an unmade mountain. A deep section through the Sinter would reveal chronology rather than geology: ceramic floors compressed to foil; structural honeycombs flattened into gray bands; conduits wide enough to have been valleys, now sealed around their own luminous dust; then older floors beneath those. Even the finest surface powder is manufactured. Many grains are hollow ceramic spheres, and some still bear fragmentary addresses—minute instructions identifying where they once belonged, though the places named may no longer have any exterior.
+
+Antiquity has made the Sinter dense rather than rough. A handspan of apparently blank surface may contain thousands of interlocking scales, each packed with dormant mechanisms and layered interiors. The builders did not only shape matter; at their height, they altered the permissions by which matter occupied space. Most of those alterations have settled into harmless stability. A few persist.
+
+Here and there, a hairline joint accepts a surveying filament for kilometres without widening. Instruments lowered into such places report warm chambers, successive white horizons, or simply a distance that refuses to agree with the surface map. These are not common enough to dominate travel, but they are common enough that surveyors treat exceptional neatness with suspicion. On the Sinter, a perfectly straight route may be straight only from one side.
+
+The old technology survives less as machinery than as behavior. When the plain repairs itself, no visible workers emerge. Adjacent scales gradually adopt a corrected boundary; damaged material becomes finer, brighter, and is carried away by charge. When a region sinks, the depression does not fill so much as become progressively shallower in its definition. Height, likewise, is treated as temporary. A new wall might stand for several human lifetimes. Eventually its upper edge would begin to look less definite. Nothing would topple. Material would simply be found, century by century, in the shallow apron around its base.
+
+Whether this is maintenance, obedience, or habit is unclear. The Sinter gives no indication of noticing the distinction.
+
+It is active at almost every scale. By day, the outer skins absorb light and conduct warmth downward in slow, overlapping pulses. At dusk, continental bands of the plain change reflectivity, opening radiative paths to the sky. Night never becomes wholly dark. Stored light seeps back through the surface as a mild ivory luminescence, brightest along the great joints. Under that light the ground seems less empty: millions of seams emerge at slightly different times, each with its own faint interval of adjustment, as though the visible world were resting on something crowded and awake.
+
+The weather, too, is dry and luminous. Heating over the brighter districts lifts address-dust into the atmosphere, where electrostatic forces organize it into veils and fronts. A front may be broader than an ordinary continent and take a season to cross the low swells. Its arrival does not darken the sky. Instead, the horizon bleaches away. The sun loses its edge, shadows become uncertain, and distance turns into a sourceless white in which only the ground underfoot remains entirely persuasive.
+
+Such storms are nearly silent. The warm wind makes no roar in the absence of tall obstacles, and the dust is too fine to hiss against itself. There is sometimes a soft sifting, like cloth disturbed in another room. More often the only sign of movement is a faint tick as a surface scale changes charge, followed by another several paces away. The ticks never synchronize.
+
+Silence is the ordinary condition. Footfalls are commonly the loudest events of a day, and even they are quickly swallowed. Beneath audible sound lies a very low vibration, felt in the teeth and in held objects, produced by deep heat-transfer cycles. Once every few years, some vast district completes a correction and emits a single clear tone. It carries astonishingly far, not because it is loud, but because nothing competes with it.
+
+Life gathers where the weather leaves its finest deposits.
+
+The most widespread vegetation is seamstitch, though “widespread” means that a traveler may encounter a dark filament every few hundred paces, or follow a thin wine-red seam for days. It does not have cells, sap, or roots in any terrestrial sense. Each growth begins as a repeating defect in charged dust. Given enough thermal cycles, the defect becomes capable of copying itself into adjacent material. Mature seamstitch forms black, garnet, or nearly invisible filaments, sometimes crowned with glassy fans no larger than a fingernail.
+
+It feeds on differences: day heat against night cold, charged dust against settled dust, one obsolete surface instruction against another. During unfavorable centuries it can become inert without losing its pattern. When conditions return, growth resumes from whatever fragment remains most coherent. Seen from high above, it scarcely marks the whiteness. Seen closely, it is busy—opening, closing, sorting, extending by increments too small to watch.
+
+Animals are much rarer. The best-documented are sifters, shallow beings made of overlapping plates that range from the size of a spread hand to the size of a room. They move without visible limbs, altering friction beneath themselves and allowing minute thermal expansions to carry them forward. They graze along old seamstitch, taking accumulated charge and excess growth while usually leaving the underlying pattern intact.
+
+A sifter at rest can be mistaken for a blank patch of floor. This is not pigmentation or camouflage in the usual sense; its outer plates temporarily reproduce the surface instruction beneath them. Only a lingering warmth, and perhaps one quiet tick out of rhythm, betrays it. A traveler may cross an entire district without seeing an animal, then spend several days within sight of a single sifter making its immeasurably patient way toward the next dark seam.
+
+Nothing about the Sinter is crowded in the visible sense, yet it never feels vacant. The density is underfoot, in depth and repetition: layers within layers, dormant addresses packed against active ones, weather passing over processes older than weather. Even its vastness has a close texture. A front can occupy the whole sky while every meaningful event near the traveler occurs within millimetres—the opening of a fan, the migration of one charged grain, the almost imperceptible relaxation of a scale toward its final position.
+
+It is easy to mistake the Sinter for the aftermath of a civilization. But it is not ruined, and it is not waiting to be switched back on.
+
+It is on.
+
+It levels, sorts, warms, cools, brightens, grows its sparse black stitches, and carries its few animals across the white. Whatever it was built to accomplish has either been forgotten or completed; its behavior no longer depends on which. Disturbances are accepted, lives briefly flourish, dust travels and returns. The world continues toward stillness without ever quite becoming still.

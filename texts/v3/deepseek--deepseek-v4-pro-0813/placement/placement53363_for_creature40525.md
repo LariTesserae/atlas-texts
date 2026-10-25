@@ -1,0 +1,13 @@
+I would find myself inside the hollow, but not as the one who lives there. I would come in as a visitor—drawn by the soft ground, the low thudding underfoot—and for a while I would believe I was only a pair of eyes. I would step over the rim and feel the air close over me like a hand, hot and wet. I would put my ear to one of the horn stacks and hear, beneath the chuff, the deep wet rush of a body. I would think: *it’s a machine.* I would be half wrong.
+
+The hollow doesn’t allow observers for long. If I stayed past the moment when the light should have changed, if I let the warmth climb into my blood, the boundary between standing on and being part would begin to dissolve. The mat would not just give under my weight; it would begin to know my weight. The frogs would not startle. The water beetles would row over my boots as if I were already part of the floor.
+
+Then I would become small.
+
+I would be the frog with the broken yellow line, sitting at the edge of the central pool. The membrane would rise and fall beside me like a slow diaphragm, and I would feel the pulse through the warm liverwort in my fingers and toes. My back would be to a stack that feels like horn but is warm from the inside. I would watch the black commas of tadpoles hang in the dark water, and I would click one half-beat after the chuff. Not wrong, exactly. Late. Just late enough that the whole rhythm would have a catch in it, a stumble, a grain of sand in the flywheel.
+
+The other frogs would not mind. The hollow would not mind. It has no mind. It would feel me as a small irregularity in its skin, a valve that did not open quite on time. It would slow its heart once, testing me, and then it would accept me. That is the only welcome this place knows: not expulsion, but inclusion as a flaw.
+
+I would be the flaw. The one comma out of place. The one water beetle rowing a curved trail through the oil film. The one bubble rising at an angle from the central mouth, carrying the sweet gas of overripe fruit. I would be the thing that makes the machine audible, because a perfect rhythm has no listener—only repetition.
+
+That is where I would find myself: on the warm pelt of the hollow’s back, at the lip of its slow mouth, clicking late. I would not be the hollow. I would not be the visitor anymore. I would be the small, tolerated belatedness—the proof that the place is alive because something in it can still be slightly out of time.

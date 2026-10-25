@@ -1,0 +1,27 @@
+The power comes not as a storm or a voice, but as a stillness that the valley has never known. It does not stop the water or silence the ringing; it simply arrives, and for a moment the sound seems to pass through it, as though the valley's chord has found a new listener. The light does not dim. The terraces do not tremble. But something in the air changes, the way a room changes when someone enters it, even if they make no sound.
+
+The power looks at the valley the way a reader looks at a sentence that has taken a thousand years to write. It sees the bacteria first, the gray-pink and rust-red films that are the oldest flesh, and it understands that these are not stains but scriptures—each layer a line, each season a word, the whole valley a text written in mineral and metabolism. It sees the thread-worms, the blind copepods, the flightless midges, and it does not pity them. They are not diminished by their simplicity. They are exact. They are the answer to a question the valley has been asking since the first water found the first stone.
+
+The power considers what it could do. It could green the valley. It could warm the water, soften the light, bring birds and fish and flowering things. It could make the terraces fertile, fill the pools with lilies, turn the mineral shelves into meadows. It could give the midges wings that work, give the copepods eyes that see, give the thread-worms names and histories and songs. It could make the valley beautiful in the way that other places are beautiful, the way that living things recognize and long for.
+
+But the power is wise, and wisdom is mostly the discipline of not doing what one can do.
+
+It sees that the valley is not unfinished. The bacteria do not need the sun; they have chosen the deep chemistry of iron and sulfur, and they have been faithful to that choice for longer than the power has been watching. The thread-worms do not need eyes; they have the ground's vibration, the water's taste, the slow geography of the bacterial film. The copepods do not need company; they have the standing waves, the permanent cross-hatched patterns that are their only map and their only home. The midges do not need flight; they need only the brief pause between water and mineral, the single note they add to the chord before they settle back into the film.
+
+The power understands that to change the valley would be to erase it. The valley is not a place that has failed to become something else. It is a place that has succeeded, completely, at being exactly what it is. The equilibrium is not stagnation; it is a kind of perfection, a balance so precise that any addition would be a wound.
+
+So the power does the only thing that wisdom allows. It does nothing.
+
+But it does not leave. It stays, and it watches, and it listens. It learns the names of the bacteria—not the names that humans would give them, but the names they have written in their own chemistry, the long molecular sentences of their metabolism. It learns the paths of the thread-worms, the slow circuits they trace from rim to rim, generation after generation, following the film that follows the water. It learns the geography of the standing waves, the invisible mold into which the water pours itself, and it sees that the copepods know this geography better than any mapmaker ever could. It learns the midge's brief life, the way it emerges, stands on the surface film, dimples the water with its six small stars, and then dies without a sound, and it understands that this is not a tragedy. It is a complete life. It is enough.
+
+The power does not bless the valley. It does not protect it. It does not mark it or claim it or leave a sign. It simply witnesses. It becomes, for a time, another kind of resident—not a living thing, but a presence, an attention, a stillness that the valley's sound passes through without resistance.
+
+And then, after a time that is neither long nor short, the power withdraws. It does not say goodbye. It does not promise to return. It simply ceases to be there, the way a reader closes a book, the way a listener stops listening, the way the light leaves a pool when the sun moves behind the ridge.
+
+The valley does not notice. The water continues to weep and ring. The bacteria continue to grow, layer upon layer, turning mineral into flesh and flesh back into mineral. The thread-worms continue their slow harvest. The copepods continue their tiny, jerky navigation through the standing waves. The midges continue to emerge, to pause, to die without a sound.
+
+And the power, wherever it goes, carries the valley with it—not as a memory, but as a standard. It has seen what a place can be when it is left alone, when it is allowed to become exactly what it is, when its only residents are the almost invisible and its only change is the slow, patient equilibrium of water and stone and light and sound. It has seen a place that does not need to be saved, because it was never lost.
+
+The power does not tell anyone about the valley. It does not write it down or sing it or carve it into the memory of other powers. It simply holds it, the way the valley holds its standing waves, the way the stone holds the sun, the way the water holds the sound.
+
+And that is enough.

@@ -1,0 +1,21 @@
+I would not arrive at the High Mat as a body first. I would arrive as a listening. The drone would come down through the passes before I could see anything—a sound too large to be made by any single mouth, a metallic shiver that lives in the teeth. For a long time I would think I was that sound, or that the sound was the whole of the world.
+
+Then the ground would lift under me, a finger-width before dawn, and I would realize the world has a body, and that I am standing on its skin. I would not be the sound. I would be something smaller, carried inside it.
+
+I would have wrapped feet, not to protect my feet from the mat but to protect the mat from my feet. I would carry a pole with a hooked bone tip. I would wear a cloak of tower-bark fiber rubbed with resin until it shines like the ground I walk on. In the heat-shimmer, my walking partner and I would nearly vanish into the brown-green light. I would be one of the cupwalkers, though we would not call ourselves that. We would say, *we who listen*.
+
+I would live in a drystone arc built against the root flare of a tower, or on a woven platform hung where the trunk forks. The tower would roar all day with glass-winged cicadas in its flutes, and at dusk the bats would pour out in a black ribbon that turns the sky liquid. I would learn early to read the sound: when the drone drops suddenly, it is not quiet. It is warning.
+
+In the morning I would walk the cup-line before the fog burns off. The cloud sea would have climbed over the rim and dragged its belly across the mat. Each cup—an old broken root crown, a folded leaf base—would be full of brown water fringed with bladderworts. I would drink after the cup-lizards and the root-hares, never before. That is not a law written anywhere; it is simply the order of thirst. By midday the cups would be empty except for a damp ring, and the next dawn they would fill again.
+
+I would not travel alone. The emptiness between towers is full of watching things. My partner and I would wait until the cicada drone is high and steady. Then we would step onto the open mat, and our two shadows would flow across a ground that has no shadows of its own. If the drone dropped, we would stop back-to-back, poles raised, and wait. We would not run. Running is a ripple, and the raptors watch for ripples.
+
+Fire would be small in my hands. A lidded clay pot, a flat stone, fuel never cut from the living mat. I would burn dried bat droppings and dead epiphyte stems. Once, I would learn to cut the mat—only a wound no longer than a hand. I would pour water into the cut and sit with it for a day. I would learn that the wound heals over years, and that the scar is a debt. Children learn to read those scars before they learn to speak. I would learn to read them too: old offerings, old mistakes, old griefs folded into the ground’s skin.
+
+At night the drummer booms from the hollow heart of the tower. I would fall asleep to that low wooden note, the heartbeat slowed almost to the pace of stone. If the drummer falls silent, we would not camp there. We would know the tower is dying. I would learn to listen for the space where the boom should be. That absence is the loudest thing on the High Mat.
+
+I would live at the end of a dead mountain range, on ground that is not soil, in a place that has no name because its people have never needed to distinguish it from the rest of the world. The mat would draw water up before dawn, and I would rise with it. The fogs would come, the animals would drink, the wind would pick up, the pollen would fly, the bats would pour out, the ground would settle, and the sky would scream. I would not be the scream. I would be one of the small warm things in the folds of that scream.
+
+And when I died, they would lay me in a deep root gallery with a cup of water in my hands. The mat would close over me slowly. After that, I would rise with the ground before dawn. I would be part of the breath.
+
+That is where I would find myself. Not in a tower, not on the rim, not under the cloud sea. I would be in the listening—the pause between the cicada drone and the raptor's fall, the space where the drummer's next boom has not yet come. I would be one of the people who have no name except the one we give ourselves: *we who listen*.

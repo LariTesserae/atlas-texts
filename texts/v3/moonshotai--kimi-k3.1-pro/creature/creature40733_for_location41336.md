@@ -1,0 +1,41 @@
+## What lives in the Low Engine
+
+Almost nothing lives there, and the almost is easy to mistake for a repair.
+
+A patch of filter-felt may look like old sealant forced into an expansion joint, or like mineral residue left by a leak. Its grey-green is subdued enough to disappear under condensate. Up close, it is not soft cloth but a dense, stiff body of minute filaments, often glazed with the metals it has taken from the water. It has no leaves to turn toward the lamps, no roots searching downward for soil. It holds to the pores and fractures of manufactured material. Beneath it there is only more manufacture.
+
+The larger cushions are not simply younger patches grown fat with plenty. Much of their thickness may be accumulated history: compacted old tissue, bound oxides, and ceramic dust trapped among the filaments. The living portion can be confined to a thin surface or a few active margins. A broad cushion may therefore be nearly finished, while a stain no wider than a hand remains vigorously alive. Nor is every grey seam felt. Some are maintenance repairs, some are dead filtration bodies, and some are only stains left after the living tissue has been scoured away.
+
+The felt lives on a difference.
+
+Warm leakage on one side and cold drain water on the other maintain the chemical interval its engineered body requires. It does not merely tolerate this juxtaposition; it occupies it. Where the two waters mix too thoroughly, where the leakage cools, or where the standing water warms, the favorable interval narrows or disappears. A patch can end abruptly against paving that looks identical to the paving on which it thrives. Bareness around it is not necessarily dryness, cold, or exposure in any visible sense. Often it is simply the absence of the right difference, sustained for long enough.
+
+Its distribution is consequently a map of old leaks and durable thermal boundaries, not of shelter or light. A hooded lamp may illuminate bare composite for years while felt thickens in darkness nearby. A bank of process lights coming on means nothing to it unless the same operational change alters the water. It has no morning. Its immediate world consists of temperature, flow, dissolved metal, and the continued existence of the seam to which it adheres.
+
+During hard flow, the felt withdraws into the form in which it least resembles life. Its surfaces contract, its filaments pack together, and the mat becomes a set of hard, dark cords following the crack. Water passes over it with little to tear at. These cords are not necessarily dead, and they are not a separate kind of growth. They are the same body made narrow and resistant. A patch can remain in that condition while the surrounding pan shivers with standing waves and sediment rattles over the paving.
+
+In quieter phases, it opens.
+
+The change is too small to soften the landscape. Minute grey surfaces are exposed to the current, giving some patches a faint bloom-like appearance without anything that could honestly be called a flower. Spores are released into water already crowded with sediment. There is no visible cloud and no animal to carry them. Most enter intakes, are ground or scoured away, or come to rest where the chemistry offers them nothing. The rare successful spore establishes a film in some distant seam, far from any connecting trail of vegetation. New patches therefore appear without a visible advance. The felt does not spread across the Low Engine as a front; it recurs, at long intervals, wherever the machine has accidentally repeated a narrow set of conditions.
+
+Even success is slow. A film may endure many operational cycles without becoming conspicuous. Growth adds a little tissue; cold or abrasion takes a little away. If the favorable gradient shifts, new tissue may develop on one side of a patch while the other side dies. Over years, the felt can appear to move along a seam, though nothing has traveled. It is only uneven persistence.
+
+It is difficult to say where one body ends and another begins. Adjacent growth can merge into a single cushion. Abrasion can divide a patch without killing all of it. Active margins can survive around an inert core. A census of the Low Engine’s inhabitants would consequently be less a count of individuals than a survey of living surfaces—many of them separated by hundreds of metres of wet slag, ceramic, and water in which nothing lives at all.
+
+Nothing comes to use the felt. There are no grazing trails through the cushions, no fibres taken for nests, no small creatures sheltering beneath their stiff edges. Its spores do not feed a population of swimmers. When a patch dies, no community arrives to consume the remains. Cold narrows it, abrasion strips it, and altered flow leaves it outside the chemistry it requires. Dead material is gradually reduced to the same artificial sediment as everything else. Metals bound into old tissue return to the water. What remains does not become soil.
+
+This is why the felt cannot be understood as the beginning of a wilderness. It does not prepare the ground for a second inhabitant. It does not deepen a seam into a habitat or turn ceramic dust into something more hospitable. At most, it leaves a thin, mineralized record of where it was. Another patch may later occupy the same place, but only because the machine’s chemistry has again become suitable, not because the earlier life made it so.
+
+Its ancient purpose survives only at this private scale. It still takes dissolved metals from condensate, but it does not visibly clean the pans or improve the region. The black water remains black. No pump waits upon its growth, and no lamp indicates whether a cushion is living or dead. A patch can vanish without producing anything that the works would register as a fault.
+
+The maintenance carriages invite comparison with animals because they move, extend jointed arms, and pass slowly through enormous spaces. But a carriage has a task where an animal would have a need. It does not seek shelter, investigate the felt, or return to a patch. Clearing an intake may destroy spores by the thousand; laying a fresh grey seam may seal over living tissue. None of this is cultivation or persecution. The felt exists inside clearances and operating tolerances established for other purposes.
+
+Nor are the pumps and condensers companion organisms. They are more fundamental than that. They make the currents, the cold, the local rain, and the thermal differences on which the felt depends. Their continued operation repeatedly creates its habitat and repeatedly threatens to erase it. There is no reciprocal arrangement. The machinery would give no sign of loss if a seam went lifeless, while the felt, here, has no habitat apart from the machinery’s leakage and labor.
+
+It is tempting to call the felt feral, but that suggests an escape from cultivation into some larger wild. There is no larger wild beneath or beyond the Low Engine. The felt is better understood as an old industrial function persisting without supervision: no longer simply a component, but not independent of the works either.
+
+It is the only thing there that can flourish in the biological sense. Water can rise or fall without benefiting. A turbine can turn smoothly without being healthy. A maintenance carriage can complete its task without having gained anything. Only the felt has conditions under which it may open, grow, and leave descendants, and others under which its living margins contract or disappear.
+
+When a phase change strips the louder frequencies from the air and the nearby water smooths into black glass, some of the felt may open in seams no lamp reaches. There is no answering movement across the pans, no visible flowering, no sign that the enormous quiet has been noticed. Minute grey surfaces face the gentler current, and spores enter water that will carry nearly all of them to nothing.
+
+Then pressure returns. The current hardens over the cracks, and the felt draws itself back into dark cords. Under the rebuilding roar, the Low Engine’s only resident becomes once more almost indistinguishable from a stain, a repair, or a little old material trapped in a seam.

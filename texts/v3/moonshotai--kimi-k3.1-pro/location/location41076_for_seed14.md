@@ -1,0 +1,33 @@
+### The Silt Sea Beneath the Ice
+
+Beneath a continental weight of ice lies a basin several hundred kilometres across, filled entirely with water. It is not a cavern, though it has a roof, nor quite an ocean, though it has tides and deep basins and water enough to lose whole coastlines in. The ice is only its upper boundary. Below it, black water descends to a floor so ancient and so thoroughly worn that the solid earth seems to have nearly finished changing.
+
+The water has not.
+
+The floor is a landscape of subtraction. Whatever mountains once stood here are now broad, low swells, their slopes gentler than dunes. Valleys survive as shallow suggestions: a long depression where the current turns slightly, a sinuous band of finer clay, a succession of hollows with no sharp rims. Most of the basin is plain. Bedrock appears only in smooth, discontinuous seams beneath gray silt and old carbonate ooze. Gravel is rare. A stone large enough to notice feels intrusive, as though it has arrived from some less patient world.
+
+Even so, the basin has provinces. Across the central plain, the sediment lies in vast, soft laminae, each layer the record of a different disturbance. Along one side runs the ghost of an ancient drainage system, so broad and subdued that it would be invisible from within it; only its control over the currents reveals its shape. In the lowest depressions, dense brine gathers in cold, wandering lenses. Toward the margins, the floor rises almost imperceptibly for tens of kilometres, the last remnant of a rim that may once have been mountainous.
+
+The openness of the place is not emptiness. The sea is crowded at every scale. Mineral flocs, clay particles, shredded organic threads, and microscopic aggregates drift through nearly all of it. Layers of differently salted water press against one another, separating only to fold together again. Clear water occasionally forms in thin sheets, but those sheets are soon stretched, curled, and contaminated by silt. There is always something suspended nearby, always some fine matter in transit.
+
+The cold is close to freezing and remarkably persistent. Small differences in temperature therefore become important features of the geography. A slightly warmer current can lift sediment from the plain; a colder one can slide beneath it and travel for days. In the brine hollows, the water is colder still, too salty to freeze. Its boundaries are not surfaces so much as regions of resistance, where movement becomes heavy and direction uncertain.
+
+There is almost no light. No distant blue filtering down, no luminous ceiling, no gradation between day and night. The darkness has a mineral quality, as though the suspended earth itself were part of it. On rare occasions an animal produces a weak blue point, illuminating nothing but a few grains and the inside of its own disturbance. The point vanishes almost immediately.
+
+The basin has weather, though there is no air. Internal waves cross it in darkness, breaking against density boundaries rather than shores. Where they shear apart, whole volumes of water roll into turbulence. Silt rises in slow veils, then in dense, billowing masses. Brine spills from one hollow into another. Along the buried drainage channels, sediment currents accelerate without warning, lifting the floor’s thin skin and carrying it away. Small submarine collapses occur often, but there are no cliffs left to fail dramatically. The ancient terrain simply slumps, spreads, and becomes smooth again.
+
+The turbulence has surprisingly little to work on. There are no loose fields of boulders, no steep escarpments, no banks of coarse sand. It can only pick up the same fine material and put it down elsewhere. The great shape of the basin remains stable while its surface is continually remade.
+
+Most of this happens quietly. There is no surf, no rain, no wind against exposed stone. Even a violent current has no foam and little roar; it is known chiefly by pressure, drag, and the sudden thickening of the water. The soft floor muffles sharper sounds. What remains audible is spare: a faint hiss of grains combing past one another, an occasional tick as a particle strikes something solid, the low shudder of sediment settling after a collapse. Far overhead, stress sometimes travels through the ice as a deep groan. It arrives flattened and sourceless, and may seem to come from below.
+
+Life is scarce enough that each organism can seem like an isolated event. There is nothing green and nothing rooted. The basin’s nearest approach to vegetation consists of thin microbial films around mineral seeps: sulfur-colored patches, colorless filaments, and delicate mats that spread only where chemistry permits. Currents strip them away or bury them. Between such places lie enormous stretches of bare clay.
+
+A few transparent crustaceans move through the denser layers. Wormlike scavengers live within the sediment, emerging when organic matter arrives. Larger animals are rare, slow, and usually pale. One soft-bodied hunter sometimes uses an object while feeding, pinning a shell with a stone or holding a fragment against the current. It does not shape the object or keep it. When feeding ends, stone and shell return to the floor. Nothing is joined, piled, inscribed, or saved. Even this faint beginning of craft leaves no archaeology.
+
+The food web depends mostly on arrival and recycling: organic material from distant ice margins, dissolved minerals from below, and the bodies of the dead. A substantial carcass briefly becomes a crowded province. Scavengers gather, microbes bloom, and the surrounding sediment darkens. Then the currents take the softer remains apart, and the basin returns to its usual sparsity.
+
+Age behaves strangely here. The deep structure is immensely old, but everything touchable is young. Tracks vanish under moving silt. A stone may be buried, uncovered, coated, and buried again without ever travelling far. Temporary ridges form overnight in the fine sediment, while the great swells beneath them scarcely change across ages. There are no enduring local landmarks except those too broad to perceive directly. Direction is better inferred from pressure, salinity, and the pull of suspended matter than from anything on the floor.
+
+Nothing here is built, and almost nothing is alive. Yet the basin is full: full of pressure, crowded water, fine matter in motion, and boundaries forming and failing in the dark. Its ancient floor endures because it offers the turbulence almost nothing left to take.
+
+Every storm leaves the same broad landscape behind, but never the same water.

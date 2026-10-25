@@ -1,0 +1,43 @@
+## Vey, the Unfinished Basin
+
+Vey lies five kilometers above the nearest lowland, in a fault basin on a plateau so recently uplifted that its drainage is still provisional. The basin is eighty kilometers across, with several smaller valleys hanging from its rim and a central depression deep enough to hold the city, its reservoirs, and the reservoirs’ weather. Dawn belongs to astronomical forecasts rather than memory. A low deck of cloud has covered the basin throughout its recorded history, and even the stars are known mainly as interruptions in instrument noise.
+
+The rock is raw: black basalt, volcanic glass, pale seams of newly exposed salt. Cliffs end in edges sharp enough to cut a pressure suit. There are no rounded boulders, no mature riverbeds, almost no gravel, and no soil. Water has not yet had time to make a convincing valley. It sheets across tilted plates, collects in fault angles, and disappears down cracks that may or may not continue. On municipal maps, every natural watercourse is labeled *provisional*.
+
+Yet Vey is saturated. Warm vapor rises from the young crust and condenses almost immediately in the high cold. Supercooled drizzle moves through the basin in long, nearly motionless curtains. Brine weeps from rock faces and stands in black, skinned-over pools. Beyond the city’s heat boundary, every surface is glazed; within it, water remains liquid through salinity, waste heat, and constant circulation. The distinction is visible at the outer dams: on one side, falls of clear ice like stacked curtains; on the other, the same water crawling downward, drop by drop, through darkness.
+
+There is nothing rooted here. No grass in the fractures, no lichen on the glass, no buried forest awaiting warmer weather. The basal ecology is a gray microbial film around mineral vents, living on sulfur, hydrogen, and the chemical restlessness of new stone. Everything larger either consumes that film, consumes something that does, or has attached itself to the city’s energy and water systems.
+
+The city occupies the central basin in layers. Pressure habitats are packed into inhabited dams; narrow towers lean over shared heat conduits; streets run beneath streets, and some of those run beneath canals. From above, Vey would look less constructed than precipitated—a dense, dark crystallization filling the lowest ground, with outlying loom stations and pumping keeps scattered along the rim. Its density is practical. Pressure and retained heat are easier to share than to surround individually.
+
+Almost none of it is illuminated. There are no bright windows or luminous avenues, only recessed status embers and the occasional dull seam where a heat exchanger is failing. Citizens navigate by mapped echo, suit-mounted field imaging, and the acoustic signatures of individual districts. A wall that absorbs too much sound is treated as a hazard: something the city cannot properly locate.
+
+Vey is still being built, though “built” suggests more lifting and cutting than actually occurs. Its construction looms reduce feedstock to a cold molecular suspension and lay it down around transient stress fields. Walls emerge without joints. Ceramic, metal, and crushed basalt interlock at scales no quarry could produce. Some slender arches support inhabited reservoirs because part of their load is still diverted through the loom field; when the field is finally withdrawn, the structure must learn, over several years, to carry itself.
+
+The looms work slowly because mistakes here become geology. In the newest quarter, unfinished arches have ended a finger’s breadth above their intended footings for two centuries. Staircases terminate in dark air, marked by low warning tones for generations not yet born. Within active construction volumes, moisture sometimes stands in perfectly vertical threads or creeps upward along a wall being deposited one layer at a time.
+
+The first thing a visitor usually mistakes for weather is the sleet.
+
+It is not ice, but animals: translucent, cold-bodied drifters, most no larger than a fingernail, each with a mineral spine and a set of vanes too delicate to see without magnification. They strain microbial cells and organic dust from the condensing air. At low density they resemble faint sparkling. At normal density they strike a suit in a continuous soft hiss, cling to its seams, and accumulate around the faceplate until it must be cleared. Their tissues use the same bitter brine that keeps the canals liquid. When they crowd together, their body heat is measurable.
+
+Below them are the scutes—flat, overlapping grazers ranging from palm-sized discs to heavy, flexible plates a meter across. They coat steps, roofs, bridge cables, and the lower reaches of walls. A street that appears deserted may shift entire centimeters when a hand touches it. The scutes scrape microbial film and mineral scale from every available surface, helping keep the drains open, but their weight is considerable. Structural engineers budget for *living load*, which can exceed the ice load after a long condensation cycle.
+
+The deep cisterns belong to the chords. These are immense, slow filter animals, mostly hollow, their ribbed bodies adapted as much to resonance as to swimming. A large chord may be longer than a city block and require a century to pass, through specially built locks, from one reservoir to another. Their feeding keeps the deepest brine from stagnating. Their voices serve purposes no engineer has fully separated: courtship, orientation, territorial negotiation, perhaps simply the regulation of pressure within their own bodies.
+
+Between these three conspicuous populations are borers in the ceramic, ribbon-thin hunters moving beneath the scutes, parasites in the sleet, eyeless things living in pump intakes, and whole transient communities inside the carcass of any animal too large for the city to remove quickly. Vey is less a city with wildlife than a reef with zoning laws.
+
+It is extraordinarily loud.
+
+The water contributes a continuous crushing hiss, deeper where it falls through pressure shafts. Sleet clicks against hard surfaces like hail that never quite arrives. Scute shells produce a crackling, patient roar as millions of edges slide over one another. The looms each hold a steady note, tuned so that structural faults appear as discord. Beneath everything, the chords call.
+
+A single chord’s call may last for days. Part of it is below hearing, felt as a fluctuation in the chest or a brief uncertainty about whether one is standing upright. Its upper harmonics can cross the entire basin, ripple open water into regular ridges, and set thousands of stacked dwellings answering in sympathetic tones. Unprotected hearing is impractical in much of the city. Conversation passes through bone contact, helmets, or implanted channels; shouting is merely another small contribution to the weather.
+
+Vey’s regulations reflect this crowded darkness. New structures must return useful echoes. Water cannot be sealed away without providing for the animals that circulate it. Intakes sing continuously to keep the sleet from packing them solid. Streets can be closed for decades by a scute migration, and reservoir rights sometimes include the inconvenience of a chord changing its mind. Visible lighting is sparse not because the citizens fear the dark, but because they have built a city that does not require sight and see little reason to add another disturbance.
+
+Almost nothing in the landscape hurries. The sleet rises and falls with condensation cycles lasting years. The scutes advance by gradual redistribution rather than stampede. Ice thickens along the outer dams. A loom adds another permanent layer. A provisional stream cuts its first recognizable channel and is promoted, on the maps, to *incipient*. Even structural failure is often patient: a dam can deform for a generation before it breaks, giving districts time to empty and animals time to discover the new route.
+
+Vey is loud because it is crowded, not because it is quick.
+
+From the basin rim, there is almost nothing to see: wet black rock underfoot, cloud against cloud overhead, perhaps one shielded maintenance ember far below. But the city presses upward through the air and through the stone. Water, machinery, shells, and enormous patient voices combine until the whole plateau seems to be resonating.
+
+No dawn is imminent. No vegetation will soften the scarps. The city may never be complete in the ordinary sense. Its channels, arches, reservoirs, and animal populations are still deciding which of them will become foundation for the others. In Vey, *finished* means only that, for a while, the water, the looms, and the living load have agreed.

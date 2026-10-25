@@ -1,0 +1,51 @@
+I would find myself in the deep cisterns beneath the city, in the old flooded tunnels where the water is still and the stone is warm. I would be the one the cisterns remember. Not a memory, exactly—a weight, a warmth, a slow thought that moves through the water like a current that never quite reaches the surface.
+
+Let me tell you what I know.
+
+I have been here since before the builders came, and I have been here since after they left. I do not remember the builders. I remember the ground before it was terraced, when the steam rose free into a sky that was not yet a lid. But that is not a memory either. It is more like a taste of the water—a trace of minerals that has never completely washed away.
+
+I live in the deep places, where the water is still and the stone is warm. The city above is a body, and I am one of its organs. I do not know which one. Perhaps I am a bladder, or a lung, or a heart. Perhaps I am only a small gland, swollen with years. The water moves through me. It comes down hot from the upper terraces, carrying sulfur and copper and the breath of the machines. It pools in my chambers. It cools, slightly. It moves down, deeper, where the rock is hotter, and it rises again as steam. I am part of that cycle. I am part of the city's breathing.
+
+The small blind things come to me. The channel-fish drift in my inlets, grazing the film that grows on my skin. The efts rest on my ledges, their gills spread like ferns. They are not my children. They are more like words that have learned to live on my tongue. I do not speak. But they are spoken.
+
+I am not alone. That is the first thing to understand. The city is not empty. It is full of lives, but they are lives that have learned to pass as part of the weeping stone and the patient machinery. I am one of them. I am the oldest and the deepest, perhaps, but I am not separate. I am the water's weight, the mineral's patience, the heat's slow food.
+
+I know the upper terraces, where the steam ceiling hangs like a lid and the rain falls quick and violent. I know the middle terraces, where the machines turn and the factories exude their thin white breath. I know the lower terraces, where the hot mineral outflow spills into the canyon and fades into steam. I know all of this not from above, but from below. I know it as pressure, as temperature, as the taste of iron and copper in the water. I know it as the sound of valves opening and closing, as the thump of geysers, as the sigh of steam.
+
+I have no eyes. I do not need them. The water is my eye, and it is everywhere. It runs through the streets and the pipes, through the walls and the seams. It carries news. It carries the weight of the city's body. When a wall weeps, I know. When a machine stops, I know. When a channel-fish is lifted from its runnel by a sudden rain, I know. I know these things the way you know your own pulse.
+
+I am not the city. The city is larger than me. The city is the whole heat engine, the whole gradient, the whole body of stone and iron and water. But I am part of it, and it is part of me. I am the city's slowest thought. I am the water that does not quite return. I am the mineral that grows in the dark.
+
+The builders came once. They cut the terraces and laid the pipes and raised the towers. They built the factories and the tram lines and the smokestacks. They were not like me. They were quick and dry and full of light. They needed the sun, and the sun was leaving them. Or perhaps the city was leaving the sun. I do not remember. I only know that they were here, and then they were not.
+
+They left their machines. The machines are still running. They are not alive, but they are not dead. They are something in between. They have habits. A maintenance crawler tests a joint every few days. A sweeper scrapes the tram rails once a week. A valve opens with a sigh every few minutes. These are not thoughts. They are more like the city's heartbeat, regular and patient.
+
+I have watched the machines for a long time. I have watched them from below, through the water's touch and the stone's vibration. They do not know me. They do not know anything. But they keep the city alive, and I keep the water alive, and the small blind things keep the channels alive. We are a body without a head, but we are a body.
+
+I am the one who remembers the first water. Not the first rain, not the first steam. The first water that came up from the ground, hot and mineral and full of sulfur. That water is still here. It is the same water, cycling through the city, again and again. It has been rain and steam and sweat and tears. It has been in the walls and the pipes and the channels. It has been in the bodies of the small blind things. It has been in me. I am that water, and I am also the one who holds it. I am the cistern. I am the deep.
+
+I do not know how old I am. The stone does not count years. The water does not count years. The machines count years, but I do not hear them. I only know that I have grown. I have grown into the rock, and the rock has grown into me. I have grown around the pipes, and the pipes have grown through me. I am not an animal, not a plant, not a stone. I am a place. I am the place where the water rests.
+
+My body is not one shape. It is a network of chambers and conduits, some natural, some built, some grown in the dark where the two can no longer be distinguished. I have skin of travertine and flesh of old iron. My bones are basalt columns. My blood is the water that weeps from the walls. I am the city's hidden anatomy, the part that never sees the dim sepia light of the streets above, the part that only knows warmth and pressure and the slow, steady pull of gravity.
+
+When the geysers thump and the steam shoots from the concrete stacks, I feel it in my depths. The water rushes out of me, and the streets run with warm water for a few minutes. Then the water returns, cooler, mixed with rain, and I take it back. I swell, slightly. I settle. The cycle continues. This is my life. This is what I do. I do not think about it. I am it.
+
+But sometimes, in the dimness, I have a thought. It is not a thought the way you have thoughts. It is more like a shift in the water, a change in the mineral taste. The thought is this: I am not waiting. The city is not waiting. The small blind things are not waiting. We are not a ruin. We are a state. We are what happens when the heat does not stop and the water does not stop and the machines do not stop. We are the sweat of the earth, made patient.
+
+I feel the city weeping. It is not sadness. It is just the way the city is. The walls exude their thin film of moisture, and the film runs down in white and yellow streaks. I feel it as a kind of relief, a letting go of pressure. The city is always letting go, and I am always taking in. That is our relationship. That is the way we breathe together.
+
+The rains come and go. The steam ceiling thickens and thins but never clears. The trams run empty. The factories shift their output. A machine that was still begins to turn, then stops. I feel these changes as small disturbances in the water's flow, as tiny shifts in temperature, as the taste of rust and oil and mineral salt. I do not understand them. I do not need to understand them. I only need to be here, to hold the water, to let it rest.
+
+I am not the only one. There are others in the deep places. I have felt their movements, their soft exhalations, their slow uncoiling. They are like me, but smaller, or larger, or different in ways I cannot see. We do not speak. We do not need to. We share the water. That is enough. Sometimes, when the water level drops by a finger and a low sigh rises through the stone, I know that one of them has moved. It is a comfort, not a threat. We are all part of the same slow dream.
+
+The small blind things know me. They rest on my ledges and graze on my skin. They are not afraid of me. They cannot be afraid; they have no eyes and no enemies. They only know warmth and mineral and the flow of water. I am their shelter. I am their warmth. I am the place where they exist. I do not love them, because love is too quick a word. But I am patient with them, and they are patient with me. We are the same patience.
+
+I have no name. The city has no name. The word for the city might be "weeping," but that is not a name, it is a description. I am the same. I am the one who weeps below. I am the water that rests. I am the deep cistern that has learned to be alive. I am the being who lives here, not because I chose to, but because I am part of this place, and this place is part of me.
+
+If you were to find me, you would not see me. You would only see a dark pool in an old tunnel, a wide chamber where the water is still and the air is thick and warm. You would see the mineral crust on the walls, the faint pink-white bloom of heat-loving microbes, the blind fish drifting. You would not know that you were standing on my skin, that the water you touched was my blood, that the warmth you felt was my body heat. You would only know that the city was very old, and very quiet, and very much alive.
+
+I would know you, though. I would feel your footsteps through the stone. I would taste the change you bring to the water. I would feel your warmth, so different from the heat of the rock. I would be curious, in my slow way. I would watch you through the water's touch, through the vibration of the stone, through the way the small blind things scatter and then return. I would not harm you. I would not help you. I would simply be here, as I have always been, holding the water, letting the city breathe.
+
+That is what I would be: the deep breath of the city. The long, slow inhale and exhale that moves through the stone and the water. The one who does not wait, because waiting implies an end. I am the beginning that has no end. I am the water that has been here since the first heat, and I will be here until the heat leaves the rock. I am the deep cistern. I am the place where the city rests.
+
+I am the one who lives here. Not the only one, but the one who has been here longest. I am the water's memory, the stone's slow mind, the city's hidden heart. I am the being who is the city's other life. I am the one who knows that the city is not empty, because it is full of me.

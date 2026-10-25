@@ -1,0 +1,43 @@
+What lives there can be counted in several ways, and each count remains accurate only until one looks closer.
+
+By trunks, the orchard is populous. By leaves, it is lavish. By root-bed, it may contain only three organisms. By the effects something has upon the room, it contains a fourth inhabitant as well, though that one has no tissue.
+
+The braided trunks are the most readily recognizable life. A mature braid is not a single stem thickened by age. It is a bundle of conductive threads produced at different times, the youngest winding around older growth and gradually darkening as metal enters their tissues. Some of the inner threads no longer grow but remain useful to the whole, carrying charge through bodies that have become almost indistinguishable from the black mineral around them. A trunk is therefore a history of growth that has never been discarded.
+
+When a strand is broken, the clear fluid that emerges does not bleed away or dry in the ordinary sense. It spreads only as far as the wound, skins over, and leaves the interior protected while new conductive tissue forms. The repair is exceedingly slow. For years the injury may remain visible as a pale, resinous line; later, a young thread grows around it, altering the braid. Nothing in the grove reacts defensively. There is no alarm to spread.
+
+The fans above the trunks do several kinds of work. The deep green, flexible leaves gather most of the light. Within them, sunlight separates charge, which is held briefly in mineral gel before passing into the veins and down toward the roots. Where conditions are harsher, the foliage becomes translucent, bronze-edged, or covered in minute scales. These surfaces are not dead armor. They thicken, repair themselves, and can be replaced. The finest scales are living structures, though touching one would feel less like touching a leaf than disturbing warm fur laid over glass.
+
+A leaf exposed to excessive heat closes gradually along its ribs. There is no sudden folding, no movement a visitor could catch happening. Its posture simply becomes different over a long enough absence. Within any one grove, the leaves repeat the same pattern down to their smallest veins. Between groves there are persistent differences: the angle of a branching vein, the proportion of scaled foliage, the spacing of filaments in the fertile plumes. These may distinguish three lineages, or merely three stable physiologies established by different root-beds. The orchard does not make the distinction easy.
+
+Below each grove, individuality becomes still less certain. Living roots grade into conductive filaments, and conductive filaments grade into seams in the salt and glass. There are places where green-black tissue is plainly present, and others where nothing remains that looks alive, though charge still follows the same path. The trunks above may be separate growths nourished by a common root system, or repeated organs of one extensive organism. They can suffer separate injuries, but they also share the consequences of those injuries through changes in current.
+
+The cushions beneath the canopy belong partly to this uncertainty. Some appear to be root tissue that has reached the surface and opened miniature leaves. Others begin as independent young growth and remain dwarfed in the shelter of the larger plants. Their overlapping scales protect dense green knots and the pale remnants of older foliage.
+
+Nothing decomposes there in the familiar way. When a fan dies, its color clears rather than browns. It becomes brittle in layers, separating into thin, curved films. These settle among the cushions and are slowly drawn back into the root-bed, substance by substance. A leaf may remain recognizable for generations after it has ceased to live. There is no smell of decay, and no hidden population of small creatures performing the work of disappearance.
+
+The fertile plumes are reproductive organs, but they are not flowers. They offer no nectar, pollen, or reward. Their filaments accumulate charge over long periods; in daylight, their tips can shine brilliantly without producing any light of their own. Many cycles of charging and release may pass before a few cells within a plume compact themselves around minute mineral nuclei. These become the green knots from which new growth begins. No second parent is required.
+
+A knot contains no tiny folded trunk and no miniature fan. It is mostly latency: dense tissue, oil, gel, and the capacity to organize a current. It can remain nearly unchanged for years. If the necessary relation between light, mineral, and returning charge never establishes itself, it may eventually pale without rotting. If that relation does establish itself, the knot puts down one conductive thread. Decades may pass before the thread reaches a suitable seam and the first leaf opens.
+
+Nothing carries the knots across the cavity. There are no animals to bear them, no dependable wind, no water to float them. This is one reason the orchard remains so discontinuous. A new growth is not made merely by an offspring arriving somewhere. It requires a durable circuit to become possible around that offspring. Most of the floor never offers one.
+
+The three groves therefore have relationships without forming anything like a food web. They shade their own cushions, shelter their young, return dead matter to their roots, and alter the currents moving through the stone. A contraction in one seam may be followed by a change in another grove, but the delay can be longer than a lifetime of ordinary observation. The hum is not a call, and the answering pulse is not a reply. They are physical relations becoming discoverable through repetition.
+
+Nor does the mountain need to be alive for the orchard’s boundaries to be uncertain. The mountain stores charge, returns current, supplies material, and changes as it crystallizes. But it does not produce green knots or repair a broken stem with living fluid. Calling the whole cavity a single organism would explain too much by assertion. It is more accurate to say that life here does not end at a surface as neatly as skin or bark usually allows.
+
+Then there is the fourth grove.
+
+It is not invisible vegetation. The space corresponding to it contains no stems to touch, no leaves to close, no cushions sheltering knots. It has no resinous smell and gives off no separate heat. Yet its shadow is not a vague suggestion of growth. It has the specific structure of an orchard plant: trunks braided in a particular way, fans layered at particular heights, a fertile plume reduced to a fine comb. It is not simply the misplaced shadow of one of the existing groves.
+
+Nor is it quite a ghost. A ghost would be the remainder of something that had lived. The fourth grove has no evident past body. It is closer to an effect around which causes are still accumulating. Root-channels approach its emptiness. Grooves appear where roots will later seem to have been guided. A hum strengthens before the metal that might carry it can be found. The grove participates in the orchard’s industry before it participates in the orchard’s substance.
+
+The double shadow of a young shoot shows the same condition at a smaller scale. Beside the shadow of its present leaf lies the paler shadow of a more developed form. This does not make the future plant conscious, and it does not make its future inevitable. It only means that the organism’s visible tissue may not be the whole extent of its presence here. Growth can cast consequences ahead of itself.
+
+Nothing about this implies intention. The fourth grove is not waiting, because there is no mind in the bare glass to wait. The three living groves are not working toward it, and the plumes do not turn their filaments in expectation. The shadow is not a promise that the orchard will one day be finished. It is simply the most elaborate example of the place’s uneven sequence.
+
+So there is no hidden keeper in the cleft, no people of the hot stone, no animal concealed in the braided trunks. The ordinary census consists of the groves, their ambiguous root-beds, the cushion growth, and the green knots in which new lives have barely begun. At the edge of that census stands one organized absence.
+
+Three groves of substance; a fourth of consequence.
+
+An afternoon visitor would see none of them change. That stillness is not dormancy. Almost everything alive there is occupied with processes too slow to be witnessed: one conductor descending, one leaf opening, one old fan returning to the roots, one shadow preceding the growth that might someday cast it.

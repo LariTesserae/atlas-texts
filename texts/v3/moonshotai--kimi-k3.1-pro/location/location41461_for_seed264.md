@@ -1,0 +1,29 @@
+## The Standing Works
+
+The Standing Works occupies a broad, warm basin near sea level, roughly fifty kilometres across but with so little relief that its rim can be mistaken for a change in the colour of the ground. Beyond that low swelling, the floor opens away in pale silica pavements, iron-dark crusts, and shallow swales softened by long weathering. The daylight is ordinary and clear. Distances look honest; colours are muted bone, pewter, rust, and salt-white. There is enough haze at the horizon to close the region in, but not enough to make it mysterious.
+
+Most of the basin is empty.
+
+At intervals of hundreds of metres, sometimes several kilometres, dark outcrops rise from the pavement. Some stand alone; a few form loose groups of three or four. From a distance they resemble industrial equipment left without its buildings: banks of parallel fins, squat drums ribbed with regular discs, thick mineral arches pierced by almost rectangular openings. Close up, the resemblance becomes less certain and more disturbing. There are no bolts, joints, tool marks, or foundations. Each form continues downward into bedrock. Its geometry comes from crystal growth following lines of stress and electrical potential, much as columnar basalt follows cooling, though the rules here are considerably more elaborate.
+
+And the outcrops are working.
+
+In this basin, industry is a phase of matter. Where traces of brine connect the conductive seams, steady currents circulate through the ground. Electromechanical crystal sheets flex by minute distances and rebound, setting heavier slabs into resonance. Falling droplets make and break conductive contacts. Force is transmitted, current is switched, and separate outcrops lock into common rhythms that do not drift. These are real mechanical and electrical operations, not merely shapes suggestive of machines. Yet nothing was assembled, and nothing portable is produced.
+
+The sound is disproportionate to the number of sources. A large outcrop gives off a low hum that can be felt through the soles of the feet before it is clearly heard. Within it, a stone diaphragm knocks at long, exact intervals; smaller joints tick sharply as moisture completes a circuit. Near the biggest groups, speech has to be raised. Far out on the empty pavement, the noise softens to something like a factory beyond a hill, but it never disappears. The warm, nearly windless air carries it cleanly, and the ground carries it farther. There are no leaves, surf, or animal choruses to complicate it. The basin’s loudness has no drama. It is simply the volume at which the place exists.
+
+Water is present mostly as a local condition. Films of dampness darken a few mineral seams; condensation beads beneath certain overhangs; shallow brine lenses occupy hollows no larger than rooms. None of them gives rise to a stream. Rain is occasional only in the experience of someone crossing the region. In the landscape itself, it is permanent and local: a handful of hollows contain narrow veils of warm drizzle, falling from low condensation clouds that neither drift nor thicken. A walker may pass from dry dust into rain and back into dust within a few minutes. The hollow behind them does not become wetter, and the cloud does not move on.
+
+The air smells accordingly mixed—warm mineral dust first, then wet salt near the seeps, with a faint sharpness of ozone around the more active outcrops. The rain is warm. So are the shallow pools, though their surfaces remain remarkably still.
+
+Everything visible has reached an accommodation with everything else. The exposed backs of the outcrops are rounded and patinated, while their working faces remain precise. There are no fresh scars, no fans of scree, no accumulating sediment at the foot of a resonating slab. Solution, percussion, and electrical deposition balance one another almost exactly. Ions worried loose by brine are plated back onto another face; material loosened by vibration is returned to the crust. This continuous maintenance is the nearest thing the Works has to a product. It makes the landscape appear simultaneously immensely weathered and incapable of ageing.
+
+There is no vegetation. Water does not produce a green margin, and fractures do not hold roots or dark fungal growth. Even the damp stone remains visibly bare. Animals exist, but so rarely that they do not at first seem to constitute an ecology. The most likely to be encountered are seepbacks: flat, many-legged creatures with ash-grey mineral shells and soft conductive undersides. Most are no larger than a hand. They spend long periods clamped to the edge of a brine lens, apparently subsisting on chemical energy in the dissolved salts. Several square kilometres may support only one. Nothing flies over the basin, and nothing grazes the pavements. There are no bones, discarded shells, nests, or other slowly accumulating evidence of habitation.
+
+The deepest oddity is not that the natural outcrops behave like engines. It is that nothing they do leads anywhere.
+
+The light does not strengthen or fade. Shadows keep their lengths. The localized rain does not pass. Pool levels do not fall, channels do not lengthen, and the interlocked rhythms never wear their housings away. The Works are not frozen—frozen would be quiet—but every motion belongs to a cycle that restores its starting state. Matter circulates; energy passes through; form remains invariant. The system is open to energy and closed to history.
+
+No observation of the landscape alone would reveal that one moment had succeeded another. There is no coming storm, no approaching failure, no eventual burial under dust. Nothing is waiting to be completed.
+
+The Works are always operating, but nothing is ever in progress.

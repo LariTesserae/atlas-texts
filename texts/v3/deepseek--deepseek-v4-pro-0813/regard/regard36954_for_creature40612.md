@@ -1,0 +1,13 @@
+The benevolent and wise power did not come as light or voice. It came as a slowing in the water’s rhythm—a single held breath in the hollow cups, a moment when the mist rose in columns that did not wander. It saw the grove and the old one and understood that it was not looking at an unfinished place. It was looking at a place that had reached the far side of becoming.
+
+It considered many things. It considered warming the stone, but the stone already kept the day’s heat. It considered sending a companion, but the old one’s solitude was not a wound; it was a frequency. It considered carving a sign, a bench, a path, but the place already had a path of runnels and a bench of moss-black stone. It considered speaking, but the grove was already louder than any voice: the tick, the plunk, the hiss, the low organ note of water spilling from a hidden cup.
+
+So the power chose the hardest action for a benevolent and wise being: it chose not to change. But this was not indifference. It was a deliberate, almost unbearable tenderness—a refusal to add even a single drop to a cup that was already full.
+
+It did one small, invisible thing. It bent the attention of the world away from that basin. Not a wall, not a storm, not a forgetting of the place itself, but a gentle blur in the minds of any who might come too near with tools, maps, or the desire to improve. The place would remain known only to the water, the wind, the trees, and the old one.
+
+Then, before withdrawing, the power allowed itself one act of recognition. It did not speak to the old one. It did not appear. But it let the water in the black pool grow a fraction warmer, and it let the mist thicken around the mossy back, and it let the single pale orchid on the old one’s spine open one notch further. The old one lifted its broad head from the stone cup and looked out over the green abyss. Its dark eyes, which never blinked, widened slightly. For a long moment it did not move. Then it lowered its head again and drank.
+
+The power left no mark. It made no promise. It did not even remain as a memory. The place continued as it had before: a hanging grove of weeping stone, a wet bowl high on a warm mountain, a small, loud, patient, sparsely planted, entirely natural cathedral where the only makers are water, mist, and time.
+
+And because it had been seen without being altered, known without being claimed, the place and the being were, for the first time, not alone.
