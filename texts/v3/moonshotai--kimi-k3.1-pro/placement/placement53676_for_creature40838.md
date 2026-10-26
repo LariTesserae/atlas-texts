@@ -1,0 +1,25 @@
+You would find me between things: between a change of load at the central works and the damp that appeared, hours later, beneath a kitchen wall on the western rib. For most of my life, that interval would have a human shape. I would be a route-walker first, and later the keeper of a long, untidy correspondence between the Gauge House and the courts. “Keeper of later answers,” one crew might call me—probably when they wanted me to stop asking questions and let them seal a joint.
+
+I would arrive by rail and ask when they intended to drain the spill-fields. That would settle, for a while, what sort of newcomer I was. I would never develop the celebrated keeper’s ear. My hearing would be ordinary and would need protecting. What I could learn would be patience with an unfinished comparison: this warm patch against last winter’s, this empty snail seam against the reservoir record, this new line of sedge against an arrow crossed through forty years ago.
+
+My house would be a subdivided basalt place above the western reservoirs, with brick repairs, one narrow courtyard tree, and a kitchen floor whose history occupied more pages than the deeds of the house. I would inherit its seep book before I inherited any say in what happened to the walls. On the first clean page, I would write very little. The older entries would already have taught me that a house could be intimately known and still surprise everyone.
+
+My round would include things that did not appear together on any single chart: a quarry pond, an inspection well beyond the ridge, the underside of a household stair, three clumps of sedge, and a masonry joint where pale snails gathered after rain. People would bring me their disagreements. The Gauge House might say a pond had answered a draw-down; a household book might insist that its wall had begun answering two days earlier. I would copy both accounts. A good day would not be one on which I solved the plateau. It would be one on which I prevented two confident accounts from destroying each other before a third observation could make them useful.
+
+Waiting, by itself, would not count as wisdom. I would have to learn what observation made waiting useful. Sometimes that would mean leaving a seep open through the seasonal rise. Sometimes it would mean helping to open a wall immediately. I would make mistakes. Once, I would counsel watching a seam when it ought to have been cut back that day, and the repair would be harder because of me. A family would sleep elsewhere while we rebuilt. I would enter that in the record without softening it, and afterward I would be less in love with my own caution.
+
+There would be ordinary happiness. In the courtyard, with the outer door shut, someone could speak my name without using a lamp. My tree would be unimpressive by any standard brought up from below, but one year it might bear six fruits. We would share them with the seriousness usually reserved for a successful foundation repair. A child in the court would learn the small, private form of the sign for disbelief and use it whenever I claimed to be going out for only a short round. I would continue to say *dry at present*, even when the wall had been dry for years.
+
+As I aged, younger walkers would take the longer crossings. I would remain at a table near the Gauge House door, copying household observations into the margins of surveys, keeping obsolete arrows legible. Eventually my name and dates would be cut into a silt block and set plainly into some later repair. I would hope it was a low, unimportant wall. If the inscription were copied when the wall came down, that would be good. If the old block were broken for fill, that would also be good. I would not want remembrance to become another structure everyone else had to maintain around.
+
+My closest likeness in the city would be return water, though on a much smaller scale: not a hidden intention, only an answer whose significance became visible some distance from its cause. I would not be the secret mind of the Sump. I would not want to be. That would make the city too easy to explain and other people’s attention too small a thing.
+
+If anything of me lasted, it would be a bodily habit rather than a doctrine: a pencil pausing before an arrow was drawn; a walker noticing that the sedge had changed; a keeper touching a rail, frowning, and then reaching for the gauges instead of claiming to know. Perhaps someone would hesitate before sealing an unexplained opening, not because I had told them to, but because the house book still contained the record of what happened the last time.
+
+And after I was gone, a pump would change load. Hours later, beyond the ridge, water would rise. In the western house, someone would move a bed away from the wall and open the book. Beneath the new entry there might still be a line in my hand:
+
+*Old path possible. Do not close before the rise. Holding at present.*
+
+Then the book would shut, the courtyard door would open, and the chord would come in. Nothing would have been defeated. Something would have been noticed in time.
+
+That would be enough of a life for me.

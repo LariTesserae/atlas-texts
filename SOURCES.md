@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **182** source folders · **195,834** texts
+- **182** source folders · **196,214** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -251,11 +251,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `deepseek--deepseek-v4-pro` | 1,069 | 2026-05-10→2026-09-24 | advisory·73, creature·249, location·250, placement·249, regard·248 | route | event-observed 1,069 |
 
-## deepseek-v4-pro-0813  ·  1,074 texts
+## deepseek-v4-pro-0813  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `deepseek--deepseek-v4-pro-0813` | 1,074 | 2026-10-24→2026-10-25 | advisory·75, creature·250, location·250, placement·250, regard·249 | route | event-observed 1,074 |
+| `deepseek--deepseek-v4-pro-0813` | 1,075 | 2026-10-24→2026-10-25 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## deepseek-v4-pro:no-reasoning  ·  750 texts
 
@@ -734,11 +734,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `moonshotai--kimi-k3` | 1,066 | 2026-07-23→2026-09-24 | advisory·75, creature·248, location·249, placement·248, regard·246 | route | event-observed 1,066 |
 
-## kimi-k3.1-pro  ·  696 texts
+## kimi-k3.1-pro  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `moonshotai--kimi-k3.1-pro` | 696 | 2026-10-24→2026-10-25 | creature·250, location·250, placement·196 | route | event-observed 696 |
+| `moonshotai--kimi-k3.1-pro` | 1,075 | 2026-10-24→2026-10-25 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## kimi-k3:no-reasoning  ·  750 texts
 
