@@ -1,0 +1,9 @@
+Below the floor of a larger cavern is a chamber no bigger than a pantry. Its ceiling slopes low enough to brush a shoulder, and its walls have been worn into shallow, overlapping hollows, as if water once passed through here in sheets. It no longer does. The stone is dry to the touch in most places, cold enough to sting through a glove.
+
+Plants crowd the chamber from floor to ceiling. Moss makes thick, springy pads in the hollows; pale fern fronds unfold through them, their stems packed closely together. A mat of fine roots binds the gravel underfoot. Most of the leaves are dark and leathery, edged with frost. In a crack where a little moisture gathers, a cluster of small, green rosettes has grown around an old metal fitting.
+
+There is almost no light. A narrow band set into the ceiling gives off a dull red pulse at long intervals, too faint to illuminate the chamber all at once. It moves slowly along the band, and the plants nearest it lift or turn by degrees. The band was placed here long ago. Its surface is unmarked, though the stone around it has split, and it draws its power from a sealed device buried somewhere deeper in the rock.
+
+Condensation appears on the coldest nights as a scattering of pinpoints. Some freeze where they form; others creep down the fern stems and disappear into the moss. A shallow basin under the wall holds a skin of ice over a few spoonfuls of water. It fills and empties so slowly that the mineral rim around it has built up into a delicate white ledge.
+
+The chamber is quiet, but not silent. Now and then a root eases a grain of gravel loose. Ice gives a minute crack in the basin. From beyond the wall comes a low, intermittent hum, felt more clearly through the floor than heard in the air. There are no tracks among the plants, no wings or burrows. When a frond dies, it folds down into the dense green beneath it and remains there, slowly becoming part of the dark bed that feeds the rest.

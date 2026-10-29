@@ -1,0 +1,9 @@
+In the low ground there is a hollow no larger than a room, hidden behind a curtain of rushes. The rushes grow thick around its rim, but inside there is mostly space: a shallow basin of dark water, a few pale stones, and air cold enough to sting the teeth.
+
+The stones are freshly broken. Their edges remain sharp beneath a skin of ice, and black silt has only begun to collect in the seams. Water seeps through them steadily, gathering in clear beads that swell, shiver and fall. After rain, the basin rises until it covers the lowest stone; by morning it has usually drained away again, leaving a fringe of green moss shining on the rock.
+
+The hollow is much louder than it looks. Beneath the basin, water is forced through a narrow crack. It coughs and surges, drawing air down with it, then expels it in a hard, repeated thump. The surrounding earth amplifies the sound until the place seems to contain a running engine. Sometimes the rhythm catches and quickens; sometimes it stops for several breaths, and the silence fills with smaller noises: wings flicking against wet leaves, the fine ticking of ice, a vole rustling in the roots.
+
+Life keeps mostly to the edges. Beetles shelter under the rushes, and minute black flies gather on the warmer sides of the stones. Small frogs come and go through the flooded grass. When one drops into the basin, the thumping changes pitch for an instant, as though the water had noticed its weight.
+
+At dusk, vapor gathers above the hollow. Each pulse from below sends a tremor across the water and loosens another bright drop from the rocks. The mist parts, closes, and parts again. Beyond the rushes the marsh lies dim and open; down here, the cold little basin goes on working through the night.

@@ -1,0 +1,9 @@
+The moss is the oldest visible inhabitant, though no one pad can be said to have begun it. Its living tips make a soft green surface over layers of older growth, pressed dark and fine beneath. In the hollows it holds what little water arrives, giving it up slowly to the fern roots threaded through it. Some pads have grown together across the stone; others remain separate, with cold gravel between them.
+
+The ferns rise pale from this bed, crowded so closely that a new frond must find its way between the stems of older ones. They turn toward the passing red pulse, not quickly enough for the movement to be seen, but enough that their growth records its path. A frond that has missed the light for too long becomes thin at the edges and folds down. Its neighbors grow over it.
+
+The dark-leaved plants are lower and tougher. Frost collects along their margins without immediately harming them, and their leaves persist through many cycles of the light. Beneath them, fine roots spread through the gravel and into the moss. When moisture comes, the roots take it up; when none comes, the plants wait.
+
+The rosettes in the crack are small enough to shelter against the old fitting. Their inner leaves are a brighter green than the outer ones, which press close to the metal and stone. Water lingers there a little longer than elsewhere, and the rosettes have made use of it, producing new offsets that crowd around the old.
+
+There are quieter lives in the dark bed beneath all of them. Microscopic decomposers work through the fallen fronds, slowly releasing their substance to the roots. Little is lost from the chamber. What dies remains among the living for a long time, gradually becoming available to them again.

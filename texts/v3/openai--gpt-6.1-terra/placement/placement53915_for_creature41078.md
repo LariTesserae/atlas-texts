@@ -1,0 +1,15 @@
+I think I would live a level below the street, in a room whose window used to be a door. The paving has risen around it, and now people’s feet pass at eye height: boots carrying grit from the upper terraces, children’s shoes turning sideways to avoid a puddle, the occasional narrow feet of a grazer that has come farther down than it meant to.
+
+At first I imagine myself keeping the seam-light on the old stairs. But the people who use those stairs already know not to scrub the glowing cracks. They don’t need someone appointed to watch them. I would probably begin with a more ordinary job, clearing the drains that run beside the steps.
+
+Each morning I would lift the little grates and work the grit loose with a bent strip of metal. The work would leave a pale crescent beneath each nail, no matter how often I washed my hands. Some of the grit would go back to the works for sieving; some would be too full of leaf fragments and bird droppings, and I would carry it to a garden where someone had asked for more soil.
+
+On the stairs I would have to be careful. A crack can carry water away, or hold just enough of it for the film to live. It takes time to tell which is which. I would make mistakes, cleaning a seam until the light vanished from it, or leaving a blocked one until water spilled across a tread and froze there. The people who came down in the dark would let me know.
+
+One of them might be an older mechanic from the works, who tests the wall with her fingertips before she trusts the steps. She would stop to tell me that a particular seam had gone dark, and then, because she was there, ask for the metal strip in my hand and straighten its bent end. I would want it bent again by morning. We might have the same discussion several times.
+
+At home I would keep one chip of stone on the windowsill, though I would know better than to expect much from it. I would wet it too often at first. Later I would leave it alone for days and find, on coming home after rain, that the fine green thread across it held a little light. I don’t think I would ever find out whether the film made the light itself. I would learn which side of the sill let it last longest.
+
+In dry weeks, the water gatherers would pass my window before dawn. I could hear the nested pans separate as they climbed. If there had been an argument the day before, perhaps they would speak quietly, or not at all. I would come out with my own pan and take the lower path, checking the grates as I went. There would be less water to carry and more loose grit in the wind.
+
+By evening, when the lamps began to falter, I would sometimes stand at the top of the stairs and watch someone descend. Their hand would move along the wall; a glimmer would show them the next worn edge. Then they would turn the corner and disappear below my window, and I would still have to go home and shut the door, brushing the day’s grit out of its seam first.

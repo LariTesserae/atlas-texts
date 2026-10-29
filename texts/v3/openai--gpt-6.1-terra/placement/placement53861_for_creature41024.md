@@ -1,0 +1,9 @@
+You would find me in the wall, just inside the entrance, where a root has softened enough to leave a narrow passage beneath it. I would be one of the hidden insects, pale underneath and dark along the back, with damp grains of soil caught in the joints of my legs.
+
+At first I might seem to be only one of the clicks. If you waited with your face close to the moss, you could pick out my call: a dry run of notes, a pause, then another run. I stop when a shadow crosses the entrance. I start again sooner than I mean to.
+
+My passage bends around a fine fern root and opens onto a ledge above one of the pools. From there I can reach the soft edge of a fallen leaf, or lean out and drink where water collects in the moss. There is a frog on the next fold. I know the place by the slight hollow its body leaves when it moves. Sometimes I find it empty and venture farther; sometimes an eye is already turned toward me.
+
+The pumps reach me through my feet. When their thudding changes, the drops on the root tips hang and tremble differently. Once the pool below my ledge grew warmer over several days, and I moved deeper into the wall, where the root was cool against my back. When I came out again, a beetle was working through the silt and a yellow leaf had settled over part of the water.
+
+I would call from the mouth of my passage, not because the chamber needed another sound, but because there might be another insect near enough to answer. The other calls would make it hard to hear. I would pause between my own notes and listen, with the frog on its ledge and the warm water slipping away beneath us.

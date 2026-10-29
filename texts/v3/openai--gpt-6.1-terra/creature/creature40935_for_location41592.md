@@ -1,0 +1,11 @@
+Most of what lives in the chamber belongs to the pale growth, though it is difficult to tell where one kind ends and another begins. The fine filaments draw minerals from the broken rock. The broad fronds receive what the filaments cannot use, and along their folded edges the little white cups open toward passing water. A cup may hold a speck of nourishment for months before its rim closes over it.
+
+The colorless visitor grazes there. Its mouthparts comb the soft film from the fronds without quite tearing them, and its delicate threads test each surface before its body follows. It has no eyes. The fringe of legs can carry it forward or backward, but in the crowded water it seldom has room to turn. Sometimes it remains with its head in one cup for so long that new filaments grow across its back. When it moves again, they stretch into clear strands and part.
+
+There may be several of these creatures in the chamber. They leave no trails that last, and a body glimpsed between two fronds cannot be followed far enough to know whether it is the same one seen elsewhere. Very small ones shelter among the cups. Their legs are fewer and their threads disproportionately long; they feed on the loose film left after the larger animal has passed.
+
+The grains at the ceiling are tended, or at least disturbed. From time to time the visitor presses its head beneath their covering and works along the ring. A grain will shift, then settle against its neighbors again. The creature may be feeding there on something the ring collects. Once in a long while, a small animal comes out from underneath it, pale even against the pale growth.
+
+Deep in the sloping corner, other lives are buried in the silt: soft, nearly structureless things that take in what sinks and release it in forms the filaments can use. They grow more slowly than the stone acquires its skin. When the rock clicks, the tightening passes through them too, though it takes so long to reach the surface that the grazing creature may have crossed the chamber before the nearest frond draws in.
+
+In the cold season the animals become still among the stiffened growth. Their threads remain extended into the water. When warmth returns, the threads are the first parts to stir, feeling out the passages that have opened around them.

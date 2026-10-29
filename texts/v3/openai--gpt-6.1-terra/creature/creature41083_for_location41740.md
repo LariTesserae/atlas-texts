@@ -1,0 +1,17 @@
+The smallest animals have mouths like rings of fine fingers. They press them against the bubbles rising through the hot water and hold on as the bubbles thin. Sometimes a bubble breaks beneath several mouths at once. The animals are thrown apart, and for a moment each carries a bright bead against its face before settling back to feed.
+
+Their bodies are clear enough that what they take in can be seen passing through them: a faint silver cloud, which dwindles as it travels. They have six jointed legs, though the forward pair are also used to clean the mouth. On a crust plate they stand shoulder to shoulder, lifting and lowering these limbs among their neighbors’ legs. The dark grains of their eyes turn independently. A plate may bear several generations; the youngest are scarcely larger than the pale specks clinging to its underside.
+
+When a plate tips, the animals on the high edge move downward, toward the water, rather than away from it. They grip its rim while it sinks. Some are lost into the crack, but most transfer to another plate or to the backs of the crawlers at the waterline.
+
+The crawlers are heavier and almost white. Their backs part along several seams, exposing folds that shine with moisture, then close again. Smaller animals sometimes shelter in the seams until the folds open and gently lift them out. A crawler can travel the width of the pool carrying a shifting patch of passengers this way. It also eats them, reaching back with a narrow mouth that can fold almost flat against its underside. The passengers nearest that mouth step away when it begins to move.
+
+In the fracture, the threadlike animals lie so close together that their bodies make a continuous gray surface. Each has a blunt end and a finer end, but either can lead. They draw themselves through the water with slow bends, slipping past one another without apparent difficulty. At intervals one extends across the wall, touches a lingering shadow, and draws it inward. The shadow stretches along the wet stone, growing fainter until nothing can be distinguished in the fracture but the moving threads.
+
+The larger hunters have no fixed outline in the pool. Their bodies spread thin over the rock and gather again, taking on the shape of the water that covers them. Near the edge, one may resemble a droplet with a grain trapped inside. The grain is an eye. It turns toward movement while the rest of the body stays still.
+
+A hunter that catches a crawler folds around it slowly. The crawler’s back continues opening and closing for a while inside the clear flesh. Any small animals riding there scatter; a few remain caught in the folds and emerge later when the hunter releases the empty covering.
+
+Loose grains pass among all these animals. A crawler carries one beneath its body for a time, then leaves it at the mouth of the fracture. Later, one of the clear jointed creatures pushes it against the edge of a plate. The grain slips; another catches it with a leg. The plate steadies long enough for a thread from the fracture to reach it, feel along its edge, and withdraw.
+
+Overhead, the bead grows round. Its reflection travels across the pool before it falls. The animals beneath it lower themselves against the stone, and the hunter’s eye turns upward.

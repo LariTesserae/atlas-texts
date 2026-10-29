@@ -1,0 +1,19 @@
+The grazers are called amber-ears by the people of the lower valleys, though most valley people have seen them only from the rim. Up close, their coats are not quite uniform: each hair is pale at the tip and dark near the skin, so an animal lying down can look like a shallow depression in the stone.
+
+They live in bands that change gradually as individuals leave and join. A young grazer follows its mother at first, then begins to follow whichever animal is moving toward food. The adults tolerate this easily. They watch one another because each sees a different piece of the plateau; a head raised on one side of a basin may be the first warning available to the animals feeding on the other.
+
+Their broad feet have soft, divided pads, useful on smooth stone. Between the pads, seeds and red lichen fragments catch in the hair. When the grazers settle in the channels at evening, small insects come to pick these loose. The animals sometimes lift a foot to give them better access, though they are just as likely to flick one away.
+
+The hunter above the plateau is a long-winged animal with a narrow body and a pale underside. It spends much of the day riding the warm air along the rim, where its shadow seldom reaches the ground directly beneath it. The grazers lower themselves at any passing shadow, even that of a cloud beginning to gather. The hunter succeeds most often at evening, when animals are moving into the channels and their paths briefly converge.
+
+It feeds in a sheltered place, usually on one of the higher shelves. By morning, smaller lives have found what remains. Beetles work beneath the bones, and the bright-eyed hunters gather where the beetles emerge. Little is left exposed for long, although a few white ribs may lie in a basin for years, slowly taking on the colour of the dust.
+
+The scale-backed insects are most numerous around the seams in the rock. They drink from condensation and eat the films that grow where moisture persists for a few hours at a time. Their scales overlap loosely, leaving channels along their backs; in the cool before dawn, droplets collect there and run toward the mouth. During the brightest part of the day they crowd into cracks, sometimes hundreds deep, their bodies making a faint dry rustle as the outermost insects turn inward.
+
+Below them are roots, fungi and other small lives following the water through the stone. The pale jointed plants put much more of themselves underground than they show. A stem may flower after rain and disappear above the surface, while the living tissue below remains capable of sending up another. Some seeds lodge in the same cracks as the parent plant; others travel on grazers’ feet or in the dry pellets left where the bands have rested.
+
+The winged creatures that skim the plateau feed on the smallest insects and on pollen when flowers are open. Their slow wings are broad and flexible, with a dark vein along the leading edge. They gather in sheltered hollows at night, clinging beneath overhangs in loose layers. When dawn reaches them, they drop one by one into the air.
+
+Near the rings, a few kinds of lichen grow farther out from shelter than they do elsewhere. Tiny mites live among their branching surfaces, and the scale-backed insects visit on mornings when dew has formed. A grazer approaching a ring may stop as a bead gathers, then step forward and drink after it falls. There is rarely enough water there for the whole band; the others continue browsing or move toward a known hollow.
+
+The grazers do not seem troubled by the slight delay in the light. A young one sometimes starts at the lingering image of a companion and turns to find the animal already beside it. With age, it pays less attention. By the time the evening shadows cross the basin, the band has usually left the ring behind and gone down into the warmth of a channel.

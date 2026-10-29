@@ -1,0 +1,15 @@
+The place is a shallow basin, no wider than a hamlet, enclosed by a low wall of stacked clay blocks. The blocks were made with fingers: their sides still carry the long parallel hollows of thumbs. The floor, too, is made, a pavement of fired tiles laid over layers of broken pottery and packed ash. There is no soil. Even the few ledges rising from the floor are heaps of shaped brick, fitted together so long ago that their joints have become broad, rounded grooves.
+
+Water finds those grooves. It beads on the cool wall, runs down the thumb marks, and gathers beneath the tiles. After rain the basin fills ankle-deep; then the water seeps away through the pavement, leaving dark seams and little trembling wells. The tiles have been lifted and resettled so many times that they no longer lie quite flat. Water moves under them with a slow clapping sound.
+
+Above the basin, a roof of closely woven reeds admits a dim green-gray light. The reeds are patched with clay wherever they have worn thin. Drops hang from the underside, grow heavy, and fall. Some fall straight; others slide along the reeds for a surprising distance before letting go. The air smells of wet ash and old baskets.
+
+Most of the basin is empty. A person standing in its center would have several paces of bare pavement in every direction. The living things keep to the edges and the spaces underneath.
+
+They are small, pale creatures with jointed bodies and broad, soft feet. Hundreds shelter in the joints between the wall blocks; hundreds more inhabit the loose layers below the floor. They come out when the water rises, flowing around the perimeter in two streams: the larger ones traveling clockwise, the smaller ones against them. Each carries a tiny fragment of clay under its chin. Now and then one stops to press its fragment into a crack, then goes on without it.
+
+The noise is much greater than their size suggests. Their feet drum on hollow tile. Their jaws rasp the wall. When a tile shifts, the creatures beneath it call to one another in short, hard clicks, and the sound passes around the basin until every joint is answering. Water adds its own knocking from below. In a heavy shower the roof rattles so loudly that the whole enclosure seems to shake, although the drops falling through are small.
+
+Vegetation grows only where the creatures have left it room: a few wiry shoots in the damp mortar, and a dark nap of moss on the lowest blocks. The shoots lean outward over the pavement. When they die, their stems remain standing until the next flood loosens them.
+
+At the wall’s base are shallow bowls, also made of clay, some cracked and some whole. The creatures gather in them when the basin begins to drain. The bowls tip under their weight, spilling water and bodies back onto the tiles; then the little animals scatter and resume their circuits. By the time the floor is nearly dry, the cracks they filled in the previous wet spell have opened again.

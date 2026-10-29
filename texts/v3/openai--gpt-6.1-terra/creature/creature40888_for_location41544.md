@@ -1,0 +1,15 @@
+The chamber’s largest inhabitant is a plant, though it is difficult to say where one plant ends and another begins. Above ground, some of its stems climb into daylight among other roots. Below, they run pale through cracks and emerge at the edges of the pools, where they thicken and unfold into fronds.
+
+The fronds are built to keep what water they take. Their surfaces are waxy, their ribs swollen, and each new leaf remains tightly rolled until the one beneath it has opened far enough to shelter it. In the damp hollows the leaves spread wide. Under the lamps they grow smaller and darker, angled toward the weak light. They receive more nourishment from the stems that lead upward than from the lamps themselves.
+
+After rain, fine roots appear in the mud. They are almost colorless at first, and so numerous that a spoonful of the soft crust would hold them together like threads in cloth. As the hollows dry, the finest roots die back. The thicker ones remain, storing water and starch. In a long dry spell an entire stand may lose its fronds and leave only a flattened knot of runners, ready to grow again.
+
+Several kinds of growth occupy the chamber. Some fronds have broad, blunt tips; others are finely divided along their edges. Their runners cross and sometimes bind together, but each kind keeps its own shape when it comes up from the floor. Whether they are varieties of the same plant or separate species that have lived together for generations would be hard to determine without following them into the rock.
+
+Around the pump housing lives something smaller. The white deposit is partly mineral and partly a dense skin of minute organisms. Dry, it is brittle and inert-looking. A drop of condensation wakes the skin where it lands: moisture spreads through it, and fine filaments swell and draw the loosened grains into ridges. The warmth of the brick helps water evaporate from one side of each ridge faster than from the other. By the time the patch dries, the grains have settled flat again.
+
+The living skin does not extend far onto the open floor. It prospers where water, heat and the salts seeping from the old masonry meet. Beneath it, in the mortar and along the buried pipes, it continues in thin films that have never been seen. Some of its neighbors are different still: organisms that darken the mud with iron, and others that live deep in wet seams without needing light.
+
+The recent break in the ceiling has given them another place to spread. The sharp stone is mostly bare, but moisture has begun to collect in its narrowest fissures. A pale runner has found one of the fallen chips and passed beneath it. There is no leaf there yet. The runner may reach a damp seam and establish a new stand, or it may dry out before the next rain.
+
+There are no animals in the chamber that need announce themselves. Its inhabitants open, swell, divide and withdraw so slowly that a visitor can stand among them and see nothing happen. If the visitor returns a week later, a frond may have shifted over the path, a pool may be gone, and the white ring around the pump may be smooth again.

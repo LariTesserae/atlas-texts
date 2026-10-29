@@ -1,0 +1,23 @@
+I would live where three terraces meet at a pillar with a split down one side. The split is older than the houses around it. In wet weather it closes enough to pinch a finger; in dry weather a child can hide a whole fist inside. My mother used to keep a smooth measuring stick there, not because the pillar needed measuring every day, but because she liked having a reason to stop and put her hand against it.
+
+I think at first I would be the person who tends the evening light. I know the bowl I would choose: a broad wooden one set in a ring of stone on the outermost platform, where the railing is low enough for the flame to be seen across the hollow. I would sit beside it with resin wrapped in leaves and a little hooked tool for drawing the wick upright when it slumps.
+
+But that work belongs to whoever is free. Some evenings I would be away, and my neighbor would tend it while mending a net. The children would come to see whether the lights on the opposite terrace had appeared, and she would send them back from the edge without looking up from her hands.
+
+I would be a route-tender, then, though not one of the ones trusted to open a path no one has walked in years. I would keep the bridge between the split pillar and the terrace with the long pool. Most of the time that would mean pulling up tender growth before it could close around the handrail, replacing ties, and making sure the white-scented flowers had room to open.
+
+I would travel with my sister’s daughter, who has a better nose than mine. At the third fork she can tell whether the flowers are open before the bend brings them into sight. I used to think she was guessing until she began telling me, correctly, which ones needed water.
+
+We would carry a hooked pole between us. On the near half of the bridge the dry bark hung beneath the floor is easy to see, but farther out the weave has thickened. There we would kneel and lift the strips one by one. Once we would find a hunter holding very still beneath us, its joints folded into the same angles as the roots. We would leave it there and warn everyone at home to take the upper crossing for a while. Three days later it would be gone, and we would inspect the underside twice before taking the warning down.
+
+The long pool would be our responsibility too. It holds seven broad leaves, or is supposed to. One season a stem would rot, and the seventh leaf drift beneath the others. My niece would find it by feeling through the water with a stick. We would fasten a flat stone to its stem and settle it back among the six, but afterward the pool would look wrong to me. I would keep stopping on the way home to picture the leaves, trying to remember whether the pointed one had always lain nearest the bank.
+
+At the next settlement we would ask what they had seen. One traveler would say there had been seven leaves when she passed, another would remember only six, and an old man would tell us that the pointed leaf had been on the far side since before he was born. We would leave a cutting of the white-scented flower with them and bring back their accounts. No one at home would be pleased, but people would still need to cross.
+
+One evening, after I had been sitting beside the resin bowl for some time, a stranger would arrive by that bridge. She would have expected to reach the long-pool terrace before dark. Instead she would see our light, follow the rail toward it, and come through the split-pillar settlement’s outer arch with wet leaves caught in her pack.
+
+I would know her, a little. She had visited years before with her father, when she was small enough to sleep in a net slung beneath his. Now she would have a child of her own strapped against her chest. I would take the pack while she worked the sling loose, and my neighbor would bring water. The child would wake when the resin snapped and stare at the flame until its mother turned it gently away.
+
+In the morning we would spread food on a deadwood shelf and ask about the bridge. The stranger would describe the fork, the flowers, the place where the railing dips. She would say the pool had seven leaves. After she had eaten and slept, I would ask her again, and she would be less certain.
+
+I would walk back with her as far as the third fork. My niece would come too, carrying the pole. At the bend she would pause, lift her face, and tell us the flowers were open. Then we would go on to the pool and look at it together.

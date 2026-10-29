@@ -1,0 +1,15 @@
+The sea covers a plateau so high that its outer slopes descend for days before reaching any lower country. Once there may have been peaks here. Now the stone has been worn into a broad, almost level upland, with only the gentlest swells remaining. The water above it is warm and deep. A dim green light comes down through it without revealing where the surface lies.
+
+Forests grow close across the plateau. Their trunks are soft columns of interwoven stems, flattened and braided by ages of current. Broad leaves overlap from the seafloor to heights too great to see, and smaller growths fill the spaces between them: pale fans, dark cords, veils of translucent tissue. The density is not quite solid. Water can move through it, and a body could pass, though the plants would close slowly behind.
+
+Currents are always working among the leaves. Warm water rises through the forest in wide columns, carrying spores and loose fibres upward. Colder streams descend around them. Where the flows meet, the plants turn inside out for a moment, showing their pale undersides; then they settle and begin again. The movement travels over the plateau in long bands, like weather crossing a continent, but makes almost no sound.
+
+There is little bare rock. What can be seen beneath the roots is smooth and faintly striped, its old layers exposed by a wear so prolonged that even the hollows have become shallow. Fine sediment rests in them. Each grain is round. From time to time an entire bed of it lifts, hangs in the water for several hours, and comes down some distance away.
+
+Animals are rare enough that their paths remain visible. A long, jointless grazer moves through the undergrowth, leaving bitten edges that slowly seal behind it. Far above, something with a silver belly passes between the crowns. It appears three times, each passage farther back than the last, until the leaves close and there is no certainty which direction it was going.
+
+Distance behaves unevenly here. The nearest trunks can be touched, yet looking between them sometimes reveals a stretch of forest too deep to fit within the space. A current may arrive from a place it is still travelling toward. Leaves occasionally open in the shadow of a passing body before the body reaches them. These dislocations do not seem to injure the plants. Growth continues across them: a root enters one side of an impossible gap and emerges from the other, thicker with age.
+
+In a few clearings there are low rings of stone, each enclosing a patch where nothing grows. The stones have settled into the silt and are as smooth as the surrounding bedrock. They might once have been gathered into walls, though no breaks or doorways remain. Inside one ring, the water is slightly brighter. Inside another, a single leaf turns slowly in a current too small to feel.
+
+The forest does not stand still around these places. Stems lean over the clearings and withdraw; spores drift in and are carried out again. Beyond them the plateau extends through dimness, its foliage lifting and folding under the warm water, its ancient surface almost flat and never quite at rest.

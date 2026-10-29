@@ -1,0 +1,21 @@
+You will need to become very small, and you will need a way to breathe that does not depend on finding a pocket of air. The chamber has none. Arrange the change in size before you enter the basin, and make sure you can reverse it somewhere well away from the seam. At full size, even your hand would be too much for the chamber.
+
+Bring an independent air supply and a close-fitting suit that holds its shape under pressure without making you bulky. The basin is deep, and being small will not make the water’s pressure negligible. Choose equipment that releases no bubbles, warmth, fuel, or waste into the water. A tether may be useful outside, but inside it could snag on the growth or pull it loose. If you carry one, have a way to detach it without cutting or thrashing.
+
+The seam is your only known exit. Before entering, mark it from outside and leave an observer or a reliable beacon there. Do not rely solely on a measured distance or a straight return path: the corner seems deeper than it should be, a creature’s passage appears to lengthen behind it, and even the little ring changes across its center. These may be gentle effects, but you do not know whether they apply to your body, your equipment, or the time you spend there. Agree on a recall signal with whoever remains outside, and set a conservative limit on the visit.
+
+Bring a dim, adjustable light rather than a floodlamp. Keep it off until you need it, then uncover only enough to see your immediate surroundings. The pale growth lives without daylight; sudden illumination and heat may affect it in ways you cannot predict. A camera used sparingly will be more useful than a specimen jar. Do not touch the white cups to see what they contain. They hold no air.
+
+Approach slowly. At your visiting size, the seam may feel less like a doorway than a narrow, irregular channel. Do not force yourself through if your suit catches. The rock is newly broken, and its thin flakes are sharp. Back out the way you came, if you can do so without levering against them.
+
+Inside, there may be nowhere to stand. The living mass fills the chamber, leaving only threaded passages of water. Moving a hand could fold several fronds at once; a careless kick could raise silt that has taken an exceptionally long time to settle. Use the smallest movements you can. If no passage will accommodate you without damage, stay at the seam and look in. Seeing less is preferable to making a clearing.
+
+Expect cold and darkness so complete that your first weak light may seem very bright. The walls will be close, but the packed growth may make it difficult to tell where the rock actually is. You might see the gray gathered at the foot of a sharp flake, or watch one frond resting against another and have to wait a long while before you can be sure it has risen. The cups are white, but the water around them gives you no open place to float.
+
+If the fringed creature is there, let it choose its own route. Do not follow it deeper merely because it makes a passage: the fronds close behind it, and its path may not remain yours. Likewise, leave the curved grains undisturbed. They might be a shelter, or they might never have been one. Either way, something has held them together through the slow stirring of the water.
+
+A click from the rock could be easy to miss. If you hear one, stay still for a while. The response in the vegetation may come much later, and you will not know at first whether your presence has changed it.
+
+Choose a warmer season if you can establish the basin’s cycle in advance. In the coldest months the fronds stiffen and the chamber narrows; a route that admitted you might become harder to leave. Even in warmth, do not assume that the openings will remain in the same places.
+
+When your time is up, leave before fatigue or curiosity persuades you to go farther. Once outside, check yourself and your equipment for clinging filaments or silt. Let any growth that can safely be returned remain there. The best visit may leave almost no visible evidence: the fronds settling together, the water clear, and the chamber continuing at its own slow pace.

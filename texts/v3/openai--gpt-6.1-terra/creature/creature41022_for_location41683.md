@@ -1,0 +1,13 @@
+The growth is gathered into seams: a dark line along the foot of a slab, a tuft in a crack, a shallow pocket of grit held between two plates. From a distance the basin looks almost bare. Close up, each of these places has its own small crowd.
+
+Lichens crust the stone in patches of ash gray and dull orange. Some follow the older faces of the rock and stop abruptly at the pale fractures, where the exposed surface is still clean. In the deepest fissures, cushions of tiny leaves press so closely together that a hand laid on them would feel a single springy surface. Their outer leaves are tough and weathered; underneath are dead stems and a little dark soil, accumulated over many seasons.
+
+A few plants stand above the cushions, though not by much. Their hairy stems lean away from the wind, and their flowers open low to the stone. Flies visit them on the warmer days, walking slowly over the petals before lifting into the light. Some of the flies have come up from below; others develop here, in damp grit beside the snow. When the warmth goes out of the stone, they settle into cracks.
+
+There are smaller lives in those cracks too. Mites and springtails move among the grains of soil and the loose fibers of dead plants. Fungi thread through the cushions, breaking down what the plants have shed. Bacteria live on the rock and beneath its surface, where moisture lingers after a shelf of snow has melted back. For much of the year many of these inhabitants are inactive. When water runs through the seams, they begin again.
+
+The snow shelters some of them from the worst cold. At its edge, a narrow band of wet ground shifts slowly across the basin as the season advances. Plants nearest it may flower late, or not at all in a year when the snow remains. Farther out, their neighbors have already set seed, each seed held close until a gust or a little stream carries it away.
+
+A bird sometimes arrives over the ridge and walks the open slabs, picking at insects. It stays alert, its shadow sharp on the pale rock, then lifts and disappears beyond the lip. Other visitors are less deliberate: a winged insect borne upward by the air, a seed caught against a stone, a spider crossing the basin on a thread. Most find no lasting place. A few reach a sheltered seam and become part of the close-set life there.
+
+Between those seams, the rock remains open to the sky. The scattered patches do not look connected, but wind, meltwater, roots, spores and small moving bodies pass among them, taking advantage of brief warmth in a place where there is little of it to spare.

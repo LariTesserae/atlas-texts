@@ -1,0 +1,13 @@
+At the bottom of an old pumping works, a shallow chamber sits just above the water table. It is small enough to cross in a few steps. Its floor, walls and low ceiling are poured concrete, worn so smooth that their seams can be found only by touch. No soil shows anywhere. The chamber was built into made ground: layers of slag and crushed brick, packed and flooded long ago.
+
+Water lies across the floor in a clear, warm sheet. It gathers against a low lip at the far wall and passes through a narrow grate. More enters through a row of pinholes at the opposite end, so slowly that the level never seems to alter. The concrete is dark with damp, and droplets cover the ceiling without quite falling.
+
+The open middle of the chamber is almost empty. Around its edges, where the water meets the walls, a thick border of green has taken hold. Moss fills the mortar lines; ferns spread from cracks no wider than a coin. Their fronds are broad and glossy, overlapping in dense, still layers. Fine roots hang into the water and trail across the grate. Everything that grows here grows from the thin black sediment caught on the concrete.
+
+The light is ordinary and ample. It comes through a square of wired glass set into the ceiling, level with a paved yard outside. The glass has been scoured milky by weather, but daylight reaches the floor. On warm days the air smells of wet stone, iron and fern.
+
+The noise is immense. A bank of pumps runs behind the far wall, close enough that the chamber resonates with them. Their combined sound is a continuous mechanical roar, too loud for conversation. The water trembles with it, and the fern tips quiver, though neither moves from its place. There are no distinct knocks or cycles to follow, only the same dense vibration filling the little room.
+
+The works have been running for longer than anyone who visits can remember. Edges have rounded, exposed bolts have worn nearly flush, and mineral deposits have filled the smallest hollows. The pumps are maintained from elsewhere; nothing in this chamber needs frequent attention. A pale snail may be found beneath a frond, or an occasional fly resting on the glass, but most days there is no animal in sight.
+
+The water keeps its depth. The ferns replace their oldest leaves as they decay, and the sediment gathers as slowly as it washes away. In the middle of the chamber, beneath the bright square of glass, the concrete floor remains bare.

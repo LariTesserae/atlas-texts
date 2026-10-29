@@ -1,0 +1,11 @@
+Prepare for this as a visit to a **working confined space**, not a disused cellar. Its size and the ordinary appearance of the lamps do not guarantee that the air is safe, and the pump will continue moving whether or not anyone is nearby.
+
+Arrange permission through whoever operates the chamber. Go with a worker who knows the passages and the machinery, and agree on how you will communicate with people above ground. If entry requires confined-space procedures, follow them: the air should be tested before entry and monitored during the visit, with a rescue plan and trained people outside. A faint draft toward the shaft is not proof of adequate ventilation. Never attempt an unplanned rescue if someone collapses inside.
+
+Wear sturdy, slip-resistant boots, clothes that can tolerate heat and damp, and a hard hat. Bring a reliable light and a backup, suitable for the conditions identified by the operator; the caged lamps may leave the edges and ceiling hard to see. Hearing protection may be appropriate near the engine, though you will still need a way to hear instructions. Keep loose clothing and straps away from the machinery.
+
+Expect the heat to feel more pronounced once you have been below for a while. Drink water before going down, keep the visit short, and leave if you feel dizzy, nauseated or unusually tired. Don’t drink or immerse your hands in the channel water: its source and contents are unknown. Stay on established footing, away from the slick channel edges, overhead pipes and moving engine parts.
+
+Give the animals room. Avoid shining a light into the bat roost or stirring up dust and droppings; don’t handle bats, insects or larvae. Don’t apply insect repellent or other chemicals where they might wash into the water. Clean your boots and hands afterward.
+
+Once you are safely settled, let your eyes adjust. The chamber’s emptiness is deceptive: the machinery occupies only part of it, while almost every seam and wet edge supports something living. You may hear the engine first and the finer rustling only after you stand still. Keep track of the passage back to the hatch, and leave the worker enough room to reach the strainer and bearings.

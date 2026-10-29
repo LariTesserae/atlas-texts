@@ -1,0 +1,11 @@
+The chamber lies below the old pumping district, in a space no larger than a bedroom. Water fills it to the ceiling. It is warm enough that a hand held still would scarcely feel its boundary, though nothing stays still for long.
+
+Three pipes enter through the walls and end abruptly in open water. Their mouths are far apart, leaving most of the chamber empty. From one, a current drives hard against the opposite wall; from another, water is drawn away. The third changes its mind every few minutes. When it reverses, the currents meet and the whole room shudders with bubbles.
+
+The noise is overwhelming. Pumps somewhere in the buried city beat through the masonry, each at its own heavy tempo, while the pipes shriek and the bubbles collapse with sharp, innumerable cracks. A visitor would hear some of it and feel more: a pressure in the teeth and ribs, a trembling that makes the chamber seem larger than it is.
+
+Dim amber light comes through a thick inspection pane near the ceiling. Its wire cage is furred with mineral deposits, and the pane itself is scratched almost opaque. In that light the walls look soft, though they are made of brick and poured stone. Years of circulating grit have rounded the mortar and worn shallow hollows around the pipe mouths. Metal flakes, pale as fish scales, lift and turn in the eddies.
+
+There are few inhabitants. A translucent shrimp shelters in a narrow crack behind the lamp cage, its long antennae bent downstream. Small white crusts cling to the warmest pipe, feeding on chemicals in the water. When the flow reverses, the shrimp is sometimes swept out into the open; it catches the wall with its legs and works its way back, while the empty room churns around it.
+
+Beyond the chamber, the city continues by its machinery. There are valves, turbines, flooded service corridors, and rows of engines on distant foundations. Some may still be attended. At intervals, a gate closes far away and the water here becomes briefly quiet enough for the grit to settle. Then another pump starts, the grit rises in a brown veil, and the three mouths resume their argument.

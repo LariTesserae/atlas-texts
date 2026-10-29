@@ -1,0 +1,15 @@
+Far below the surface is a country of close-set pillars, extending farther than any passage through it has been followed. The pillars are black at their roots and pale at their crowns, where they spread into shelves beneath a ceiling lost in darkness. Between them lie level plains of fine, warm mineral grit. Elsewhere the floor rises into blades of glass, still sharp-edged, as though the stone had only lately broken open.
+
+There is almost no water. The air is dry enough to leave a bitter taste on the tongue, and it carries a faint scent of hot flint. Nothing grows in the manner of a plant. The pale patches on the pillars are thin mineral films, constantly taking energy from the warmth below and binding it into unfamiliar compounds. Some of the animals graze on them, leaving shallow tracks that are slowly covered over again.
+
+The animals are numerous, though at first the place seems empty. Low-bodied creatures with jointed shells press themselves against the bases of the pillars. Long, soft things lie coiled beneath the grit, their sides opening and closing against the warm air. On the high shelves, weightless-looking forms hang in clusters, touching the stone with dozens of fine legs. Most are colorless; a few bear dull red seams that show only when something disturbs them.
+
+They are quiet animals. Their shells meet without a click, and the grit barely whispers as they cross it. A distant sound, heard after a long silence, might be a limb drawn over glass or a pebble settling somewhere overhead. The air itself moves so slowly that a breath seems to travel a surprising distance before it is lost.
+
+In the wider chambers the warmth gathers in layers. The creatures that hang from the shelves drift down into it, not flying so much as allowing it to hold them. Beneath them, others wait on the floor with their limbs spread. When a falling body touches those limbs, both animals remain still for a while. Sometimes one goes away; sometimes neither does. The mineral films continue their work over the empty place.
+
+There are signs of people, or of creatures who made tools: a ring of stones around a shallow hollow, a chipped blade left in a pillar’s shadow, a low wall fitted so carefully between two shelves that its separate pieces are difficult to see. These things occur far apart. No path connects them, and none gives much indication of what its maker wanted from this country.
+
+The darkness keeps everything near until it is touched. Under a lamp, a wall can suddenly reveal itself as the flank of a pillar, and a scatter of stones as a sleeping congregation. Beyond the light, the same crowded ground continues into distances large enough to hold whole systems of slow, warm air.
+
+The sharpness of the landscape suggests youth, but little here wears down. Animals move, feed and die; mineral films close over their tracks; warmth rises and settles. Across the vast floor, the same small exchanges take place in nearly the same numbers, leaving the pillars and their scattered artifacts much as they were.

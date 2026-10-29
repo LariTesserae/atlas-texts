@@ -1,0 +1,11 @@
+Prepare for a warm, wet garden reached by way of a very large machine. The garden itself is small; the journey to it may not be. Before setting out, find a safe, authorized route to the top chamber and learn whether its air is pressurized, how its doors work, and when the roof vents open. A chamber among clouds may have breathable air, but its warmth alone doesn’t tell you anything about its pressure or oxygen.
+
+Wear light layers that can tolerate humidity, with a warmer layer for the approach and the cooler air from the vents. Choose shoes with good grip: the paths are narrow, water emerges through the paving, and moss has gathered around the benches. A compact waterproof bag will protect anything you need to keep dry when a localized shower starts. Bring drinking water; the pool is part of a circulating system, not necessarily a safe source.
+
+Clean your shoes and equipment before entering, ideally to whatever standard the garden’s caretakers require. This is a young, closely planted habitat with few visible animals, and seeds, insects, or microbes carried in from elsewhere could be difficult to remove. Don’t bring food scraps, release insects, or take cuttings. Avoid touching the snails and moths, however tempting it may be to inspect them.
+
+Once inside, give yourself time to adjust. The warmth and constant moisture may feel more enclosing than the glass suggests. Stay on the paths, watch your footing near the pool, and leave the reels, nozzles, planting cells, and other mechanisms alone. Vines may be moving very slowly; what looks like a convenient handhold may be something the garden is actively lowering into place. The empty cells beyond the reeds are wet and waiting, not an invitation to step in.
+
+If possible, learn the vent schedule and choose where to stand before the roof opens. The rush of cooler air will bend the trees and may make loose clothing or papers troublesome. Otherwise, plan to move slowly and carry little. A small notebook or camera in a waterproof pouch is enough.
+
+The garden will reward patience more than exploration. Sit on a bench if one is available, listen for the chain and the ticking pipes, and watch the pool’s surface tremble. Much of what is happening is quiet and deliberate: water returning, leaves separating, a vine descending toward soil it has not yet reached.

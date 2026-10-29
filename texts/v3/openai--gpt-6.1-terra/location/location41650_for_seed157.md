@@ -1,0 +1,9 @@
+High on a mountain, above the last open slopes, there is a hollow scarcely larger than a grove. Its walls are old stone, rounded and undercut by water that wore them smooth long ago. They lean inward until only a narrow seam of sky remains. Very little light reaches the floor. Even at its brightest, the hollow is a place of dark shapes and wet surfaces.
+
+Water fills every depression but makes no stream. It lies in black pools among the stones, stands in the cups of leaves, and coats the rock in a thin, unbroken skin. The air is cool and saturated. Ferns crowd the ledges; moss fills the joints beneath them; liverworts spread over the moss in glossy layers. Pale roots grip the walls wherever there is a crack. There is hardly a patch of bare ground, though here and there a slick curve of stone shows through.
+
+Animals occupy the hollow as completely as the plants do. Moths rest under every fern. Beetles hold to the undersides of the leaves, and small snails cover the dampest rock, their shells touching. Frogs sit shoulder to shoulder in the shallows, their backs stippled with beads of water. Among their feet are the tiny pale bodies of creatures that never leave the pools. Higher up, mice are tucked into seams of moss, and a dark, long-bodied bird lies along a ledge with its beak beneath its wing.
+
+Nothing moves. The moths do not lift, the mice do not breathe, and the beads on the frogs’ backs do not fall. The animals are not dead; their eyes are clear, their bodies warm in the cool air. They remain exactly as they are, filling every available shelter and surface without disturbing one another.
+
+A low sound belongs to the hollow: the faint continuous note of water against stone. It neither swells nor fades. The pools stay full, the moss stays green, and the same darkness holds beneath the leaves. No path leads in or out, and there is nothing here that has been built or shaped by a hand.

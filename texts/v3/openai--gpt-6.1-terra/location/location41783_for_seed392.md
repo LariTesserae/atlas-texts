@@ -1,0 +1,17 @@
+The plain is built in broad, shallow terraces, each one only a hand’s breadth above the next. From a distance they look like banks of pale earth, but up close every surface is made: blocks of kneaded clay fitted edge to edge, their seams sealed with a resin that smells faintly of cut fruit. The corners are sharp. Thumbprints remain in the walls, and the little ridges left by smoothing sticks have not been worn down.
+
+It is hot enough that the resin shines. Brightness falls everywhere with the steadiness of a lamp held close, though the sky has no visible sun. It is a vast ceiling of fine white matting, its weave so small that the individual strands can only be seen where it meets the horizon.
+
+Between the terraces lie long spaces of open paving. Water stands thinly in their joints and gathers into shallow basins, clear enough to show the scored clay beneath. Here and there it beads on the underside of an overhanging slab, each drop swollen and luminous. The drops do not fall, but the air below them is damp.
+
+Vegetation grows in dense, widely separated gardens. Thick leaves overlap like lacquered bowls, holding pools of warm water. Vines climb frames of tied cane and pass from frame to frame overhead, making dark chambers beneath the white sky. There are flowers the size of open hands, with folded edges and a waxy grain. Their stems rise from packed beds of fiber and clay; at their roots are tiny knots where one strand has been joined to another. No soil is exposed anywhere, and where a bed ends, its woven border is visible.
+
+Animals are plentiful in the gardens. Green-backed frogs sit among the leaves; small deer with branching antlers stand knee-deep in the basin water. There are pale insects under the foliage, and birds with long tails along the cane frames. From one garden the next may be half a mile away, with only the bright paving and its narrow seams of water between them. The animals occupy their places so quietly that a garden can seem empty until its eyes are noticed.
+
+A frog’s throat is extended. A bird’s wings are half lifted. The deer hold their heads at different heights, as if browsing, listening, and looking up. None goes on to complete the movement. The water in the leaves shows no rings, although one bird’s beak touches it.
+
+There are sounds, but few: a soft ticking somewhere inside the clay, a faint rubbing from the overhead weave, one insect’s thin note held without wavering. The note can be heard beside the nearest garden and also, unchanged, beside the farthest. Walking between them takes time by any ordinary measure—the heat gathers on the skin, the knees tire—yet the view ahead does not grow closer until the garden is suddenly beside you. Looking back, the place you left remains just as far away as it was.
+
+In one terrace wall there is a doorway made of three upright slabs. It opens onto the same plain, seen from the opposite direction. Through it, the nearest deer stands with its antlers against the brightness, though there is no deer on this side of the wall. Its reflection is visible in the basin on both sides.
+
+The joins are everywhere, even in the deer’s fine hide and the translucent wings of the insects. They are careful joins, made with pointed bone, twisted fiber, pressure from a thumb. Nothing shows the wear of use. The leaves remain full, the water remains caught, and the warm clay holds the clean marks of its making.

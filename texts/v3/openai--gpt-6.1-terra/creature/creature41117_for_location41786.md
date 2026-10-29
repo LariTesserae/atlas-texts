@@ -1,0 +1,13 @@
+The most numerous inhabitants are almost invisible: films of life spread beneath the salt, where mineral vapors gather against the crust. They grow along the undersides of the newest ridges and die back beneath the older floors. When a wall opens, a little of their dark powder is exposed at its foot. The blade plants catch this powder on their surfaces, then bow and return it to the ground.
+
+A tuft can survive the loss of a plaza. Its roots run farther than its blades suggest, branching beneath several streets at once. A wall may rise through the middle of it, leaving blades on either side, or an old room may collapse and uncover a root that has not fed for a long time. In the cool light the exposed root is pale. It darkens as the mineral air reaches it.
+
+The animals find the tufts by following these roots. Their bodies are so flat that, seen from above, they can be mistaken for flakes of the pale crust. Each has six limbs set well apart, with a broad pad at the end of each limb. They lift one pad at a time and place it carefully ahead, carrying themselves over the salt without dragging. Their tracks look like small groups of marks made around an empty center.
+
+At a plant, an animal settles over the blades and works among them with the underside of its body. It takes the fine coating there and perhaps the softest edges of the growth, but leaves the tuft standing. Afterward it may remain in place for a long time, its limbs spread around the plant. The blades gradually rise beneath it.
+
+They spend much of their lives apart. When two meet in a narrow passage, one usually waits while the other passes, holding itself high on its limbs. Sometimes both stop. They touch pads, then turn together and travel for a while along the same route. There are smaller animals among them, almost transparent against the ground, which follow close to the larger ones and pause when they pause.
+
+The changing town offers shelter without ever providing a permanent home. An animal can rest in an open room for as long as its walls remain, shaded from the light at the rim. If the floor begins to lift, it rises with it. The first opening of a ridge is too narrow to enter, but the walls continue to unfurl, and the animal waits until there is room for its body. It goes through into a passage that did not exist when it lay down.
+
+Sometimes a wall folds across a tuft or covers the marks of an animal’s passage. The inhabitants do not uncover what is buried. Roots continue growing underneath, and the animals leave fresh tracks on the new floor. By the time the light has moved along the rim, a pale body may be crossing an empty square toward a dark cluster of blades, while behind it a new wall rises cleanly through the prints it left.

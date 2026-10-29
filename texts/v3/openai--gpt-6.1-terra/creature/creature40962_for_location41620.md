@@ -1,0 +1,11 @@
+The bats are the most numerous inhabitants overhead. They hang shoulder to shoulder along the high ledges, shifting and squeaking in their sleep. A bat working its way into the colony disappears among the others; a disturbance spreads through them as a ripple of bodies and briefly opened wings. Toward evening they leave by the clefts, returning with full bellies from the world above.
+
+Beneath the roosts, beetles work through the droppings, disappearing into the deposits and emerging with their legs dusted dark. Pale mites ride on their bodies or move independently through the finer material. Fungi spread in thin films where the deposits stay damp. Among them are the remains of insects the bats have eaten, old wings and fragments gradually broken down.
+
+Cave crickets occupy the floor and the shelter beneath it. They gather in the narrow spaces under slabs, their long antennae feeling ahead through gravel and darkness. When a stone is disturbed, they scatter into neighboring cracks or spring across the open ground. Spiders wait in notches where a cricket or another small animal might pass, repairing the fine strands that collect dust as well as prey.
+
+Salamanders keep close to the wetter fissures. They move slowly over the clay or remain still beside a seep, their skin shining faintly in the little light. In the pools below them, blind crustaceans search the sediment, walking over smooth pebbles and through the silt stirred by each new drop. These small waters may shrink between rains, concentrating the animals in the hollows that stay wet longest.
+
+Near the openings, ferns uncurl from cracks and moss cushions the shaded rock. Fine roots descend farther into the chamber, some ending high above the floor, others trailing among the roosting bats. At the margins of the seeps, bacteria grow on minerals carried in by the water: a thin living layer in a place where most food arrives from outside.
+
+The creatures share the chamber without spreading evenly through it. The bats crowd the heights; beetles and fungi gather under them; crickets fill the dry shelters, while salamanders and crustaceans depend on the persistent damp. Between these concentrations are broad stretches of loose stone, crossed by animals seeking another crack, another deposit, or a place to wait.

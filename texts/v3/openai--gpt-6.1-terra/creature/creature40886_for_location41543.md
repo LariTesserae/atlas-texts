@@ -1,0 +1,15 @@
+The snails come down from the basin when its stone is wet. They are almost white beneath their shells, and a little of the green they have eaten shows through their bodies. Each travels only a short way, taking a narrow rasp of moss or the soft edge of a liverwort, then returns to a seam in the wall. Their eggs lie there in clusters, clear as droplets but firmer, each with a pale knot turning slowly inside.
+
+Among the roots are mites small enough to pass between two threads of fungus. Some feed on the dead portions of the plants; others wait for springtails in the hollows where frost does not reach. A springtail can cross one of these hollows in a single leap. Usually it walks, feeling ahead with its antennae, its translucent body briefly taking on the green of whatever lies beneath it.
+
+The insects in the stair crevice have made several rooms. The outer ones hold fragments of lichen and fern. Farther in, the youngest insects rest together in a bed of chewed fibers. An adult entering with food pauses until those at the entrance have touched it. Then it works its way inward, passing the fragment from one pair of legs to another. The young are paler than the adults and have a fine coat of fur even before their legs can carry them.
+
+Above the crevice, the spider waits with its feet on separate threads. It eats springtails and mites, and occasionally one of the insects, though the insects seldom climb as high as its web. The old husks of its meals collect in a fold at one side. When the fold becomes heavy, the spider cuts it loose, and it settles among the ferns.
+
+Beneath them all is a fungus whose small white caps are only the part that can be seen. Its threads run through the moss and along the buried faces of stones. Some enter the roots; others spread into the lichen rooms, where the insects eat them back. The fungus feeds on old roots and fallen leaves, on empty eggs and the bodies of mites. In several joints between the stones it has grown thick and tough. Fine roots pass through it, and when a root dies, the space it leaves is soon occupied by another.
+
+The fungus does not reach everywhere. Near the basin there is a patch of moss it has never entered, and under the stair it meets a second growth: a dark, flat crust that lives against the stone. Where the two touch, their edges have folded around one another so many times that neither can advance. Water lingers there longer than it does elsewhere. On very cold days the adult insects gather at that place, drinking from the exposed film before carrying damp fibers back to their young.
+
+The shaft of light moves a little as the day passes. It brightens the basin first, then the steps, then a patch of moss where several fronds have grown nearly horizontal. The insects remain in their passages. The snails draw into their shells. Under the leaves, the mites continue to make their fine tracks.
+
+Later, when the light has left the basin, a bead forms at the meeting of the channels. It grows until its weight draws it down the wall. A snail reaches the basin’s lip before the bead does and waits there, its feelers extended against the cold stone.

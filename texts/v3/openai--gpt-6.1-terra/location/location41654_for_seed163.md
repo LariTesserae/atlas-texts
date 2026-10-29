@@ -1,0 +1,15 @@
+The high basin is green from rim to rim, though almost nothing stands upright in it. Moss and sedge cover the ground in a continuous, springy sheet, stretched over hummocks and shallow pools. There are no woods to interrupt the view. A few dwarf willows spread flat against the living surface, their branches so low that water gathers above them after rain.
+
+The basin is young. Along its eastern side, pale rock rises in broad, blunt folds, still largely uncut by streams. Loose slabs lie where frost has pried them apart, their edges sharp beneath their first thin coats of lichen. Farther out, the rock disappears under peat that is only beginning to accumulate. A footstep presses water from it and leaves a dark print that slowly fills again.
+
+Water is everywhere, but it does not run far. It lies in clear seams between the hummocks, seeps through the moss, and beads on the undersides of leaves. The pools are shallow enough to show the green and rust-colored growth beneath them. Near the northern rim, water issues from a line of fractures and spreads into a wide, bright fan. In colder weather a white crust forms around each outlet; by afternoon it has usually melted.
+
+The light is immense. Clouds pass over without closing the sky, and the wet vegetation reflects so much brightness that the basin seems lit from below as well as above. On clear days the distant slopes are visible in exact detail: every fresh scree patch, every strip of lingering snow, every dark line where moisture has encouraged the plants to climb.
+
+The noise reaches across the whole basin. Wind enters through a narrow gap in the western ridge and strikes a bank of steel turbine rotors mounted on low concrete foundations. They turn at different speeds, making a layered roar and a deep, repeating throb. The sound rattles the walls of a small power house below them and follows the drainage channels out into the open ground. Close to the gap it is difficult to hear a person shouting. A mile away, the machinery is still louder than the water.
+
+There are only a few structures: the power house, two maintenance sheds, a weather mast, and a raised metal walkway that crosses the wettest part of the basin. The sheds sit well apart, each surrounded by a apron of stone brought up from below. Cables run between them on short posts. Workers come during the brief warmer season to grease bearings and clear ice from the intakes; for most of the year the place is left to run.
+
+Life keeps low here. In sheltered pockets, small pale flowers open just above the moss. Insects gather over the warmer pools when the wind drops, and occasionally a bird crosses the basin or rests on a shed roof. Tracks of a small mammal appear sometimes in the mud beside the walkway, then vanish into the dense green.
+
+From one visit to the next, little seems to move except the rotors and the reflections on the water. Yet the peat grows, the cracks in the rock widen, and the shallow pools gradually join. The plants advance over the pale stone in margins scarcely wider each year.

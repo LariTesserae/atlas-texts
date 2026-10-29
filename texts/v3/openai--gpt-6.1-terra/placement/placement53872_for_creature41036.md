@@ -1,0 +1,11 @@
+I would live in a hole at the basin’s edge, where one shelf overhangs another. From outside, the entrance would look like any other dark seam. Inside, it would turn once and narrow around me; after rain, the wall at the turn would stay cool long after the stone at the entrance had warmed.
+
+I would be one of the burrowers. My body would be held clear of the ground, and my front limbs would reach ahead of me, finding the surface before the rest of me arrived. I think I would know the chamber chiefly through those limbs: the fine drag of dry stone, the softer resistance of moss, the abrupt smoothness of a chip worn by water.
+
+Near evening I would come out. There would be other burrowers crossing the basin, each from a different hole. We might meet at a crack and feel along it from opposite sides, then turn away. A lizard above us might shift into the last sunlight, leaving its shadow on the shelf. I would pass over the shadow if it lay in my path. The rock beneath it would feel the same.
+
+One evening I might find a chip beside a curled leaf. I would test the leaf, find it too tightly cupped against the ground, and work the chip beneath its edge. When the leaf tipped, perhaps there would be an insect under it; perhaps only a darker patch of stone. I would leave the chip there. By the following evening another burrower might have moved it, or rain might have washed it down a shelf.
+
+After rain I would take longer to return underground. The walls would seep, and there would be places to drink beneath the ledges. A drop might fall into a pocket while I stood nearby, its bright note ending almost as soon as it began. I would pause, as the insects do, and then continue feeling my way.
+
+Toward morning the basin would grow light. I would find my entrance by the slope of the shelf and the little change in texture at its lip, then fold myself into the turn. Above me, the lizards would spread their toes against the warming rock. A chip I had used might still lie in the open, catching light on one pale edge.

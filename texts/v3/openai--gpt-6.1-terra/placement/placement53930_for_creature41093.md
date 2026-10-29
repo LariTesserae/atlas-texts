@@ -1,0 +1,15 @@
+I think I would be near one of the cisterns, though not always in the same place. In the morning I would be the person coming down the lane with a stick over one shoulder and a chipped bowl in my hand. After rain, the stick would be for clearing the channels; in dry weather I would use it to reach the damp grit at the bottom of the cistern steps. The bowl would be for carrying the grit away, or for catching a trickle while someone repairs a joint.
+
+I would know the town by its slopes. A lane that looks level can carry water toward the wrong courtyard; a stone that has settled only a little can leave a puddle standing all week. I would have made some of those mistakes myself. There is a bend behind the reed sorter’s house where I set the paving too neatly, all the stones flush with one another. The water has nowhere to turn there. Every shower leaves a fan of silt across the threshold, and the reed sorter calls me before I have put my sandals on.
+
+She lets me keep the silt for the garden beds, which is generous of her, since I am the reason it arrives.
+
+I would have learned the work from several people rather than one. Someone showed me how to test a fall with a shallow pan of water. A mason taught me to leave a little roughness where mortar must grip. A child showed me that the drain beside the grain yard was blocked, though she did it by floating a reed boat into the opening and waiting for it not to come out.
+
+On clear days there might not be much water to follow. Then I would help where ground was being opened for another courtyard. I would loosen gravel from the gray marl and pass it back in baskets, saving the better stones for the edges of a channel not yet laid. The people building the house would want to know where to put their cistern. We would stand for a while in the bare space, imagining a roof over our heads and where its rain might run.
+
+Sometimes I would get it wrong at first. A doorway would be moved, or a neighbor would point out that runoff from the bank could reach the proposed site. We would scrape the marks away and begin again. There is room for that, while the ground is still open.
+
+I would sleep in a small house already a few seasons old. Its north wall stays cool and grows dark at the base after rain. I have meant to lift two paving stones there and see whether water is collecting beneath them, but the damp has not spread, and other people’s channels have needed attention. A jar stands beside that wall; every morning its outside is wet enough to mark my palm.
+
+Toward evening I would bring the stick home and lean it in the corner. If a shower were coming, I might go out once more to the troublesome bend, so the reed sorter could have a quiet morning. Otherwise I would sit by the low wall outside my door. From there I could see a strip of the far bank above the roofs, and perhaps someone carrying a basket along it, too far away for me to tell whether they were coming home or going back for another load.

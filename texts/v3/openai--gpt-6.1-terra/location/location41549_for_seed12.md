@@ -1,0 +1,13 @@
+The town occupies the shoulder of a mountain that has never been above water. Far overhead, the sea is pale with a light too faint to show the surface. Below, the slope falls into blue-black water, and above it the mountain continues in broad, newly risen terraces, their edges still soft with warm silt.
+
+Stone is forming here. Along the ridge, mineral-rich water seeps from long seams and leaves pale crusts wherever it meets the cold. The crusts grow into shelves, then into blunt pillars, enclosing pockets of darker water. Little has yet been worn smooth. The ground has the rounded, unfinished look of something still being made.
+
+Vegetation takes hold wherever the stone has cooled. Broad translucent fronds overlap in the shallows of the terraces; farther down, dark stalks rise taller than the houses, carrying folds of leaf that collect the drifting silt. Their roots bind the fresh deposits. From a distance the growth looks almost continuous, but paths of bare rock wind through it, kept open by the people who live here.
+
+Their settlement extends across several terraces. Low chambers of fitted stone are roofed with slabs and weighted with mineral nodules. Some stand inside thick-walled bubbles of trapped air, their entrances reached through shafts from below; others are flooded through, used for storage or for growing pale strands of food. Ropes of twisted fiber mark the routes between them. Small fields are enclosed by fences woven from living stems, and stone basins catch the warm seepage before it disperses.
+
+The people work slowly, using flaked blades, bone picks and wedges of fired clay. They can tell by touch which new crust will bear weight and which will crumble. A wall may take many seasons to finish: stones must be gathered from the ridge, fitted underwater, then allowed to settle while fresh mineral deposits seal the joints. There are no straight streets for long. When a seep opens beneath a path, the path is moved.
+
+Sound carries, though there is not much of it: the faint knock of tools, a scrape as a roof slab shifts, the low bubbling of water through a hidden cavity. Occasionally a long-bodied grazer passes through the outer fields, parting the fronds without hurry. The people watch for it and wait until it has gone before repairing whatever it has pulled loose.
+
+At intervals the water near the ridge grows cloudy. A new seam has opened, and for days the town is veiled in fine white particles. They settle on roofs, leaves and shoulders. Then the water clears, leaving every surface a little heavier and the mountain a little taller.

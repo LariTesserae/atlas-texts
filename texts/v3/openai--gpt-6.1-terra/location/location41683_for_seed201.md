@@ -1,0 +1,5 @@
+High above the treeline, a narrow basin opens between two black ridges. It is no larger than a village green. The rock around it is sharply broken, its pale fractures still clean, and in places whole plates have shifted against one another without yet crumbling. Beyond the basin’s lip, the ground falls away so steeply that cloud sometimes passes beneath it.
+
+The light is almost continuous. It strikes the pale stone and the small shelves of old snow, then rebounds into the hollows, leaving few places truly dark. Even the shadows have a cold blue brightness. At this height the air is thin and bitter, but the basin faces the sun, and its stone gathers a little warmth during the day.
+
+Most of the basin is open space: bare slabs, clear air, the wide intervals between things. The growth is gathered into

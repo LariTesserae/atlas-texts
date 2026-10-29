@@ -1,0 +1,7 @@
+In a cup beneath an overhanging slab live animals small enough that a dozen could shelter under a grain of grit. They are nearly clear. When the water melts around them, their bodies unfold slowly, and fine hairs begin to beat at one end, drawing water and whatever it carries toward their mouths.
+
+They feed on bacteria and on scraps of organic matter brought up the mountain by the wind. There is little food, and they move through it slowly. Most days they have only an hour or two before ice closes over the cup again. Then they contract, losing water from their bodies, and remain dormant among the grit. Some are caught beneath the ice with the bubbles; others are left on the stone as the last liquid retreats.
+
+They are scattered through the basin in cups and sheltered hollows. A gust can lift a dried animal or an egg and carry it into another pocket, though many must blow out over the rim. Those that land where meltwater gathers may wake the following day, or after a much longer interval. The animals in one cup need never meet those in the next.
+
+At midday, their beating hairs make currents too small to disturb the reflection in the water. A falling drop tumbles them through the cup. They settle, unfold again, and continue feeding until the surface begins to freeze.

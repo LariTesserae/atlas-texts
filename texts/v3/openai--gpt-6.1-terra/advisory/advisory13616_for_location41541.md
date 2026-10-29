@@ -1,0 +1,13 @@
+The first preparation is **getting small enough without damaging the chamber**. It is no larger than the hollow of two hands, and even digging down to expose it could collapse the root roof or drain the marsh around it. If your means of travel cannot place you inside at a size appropriate to the lanes—and bring you back out again—visit remotely with a small probe rather than excavating.
+
+Before entering, observe for at least a full cycle of the fern’s movement and, if possible, through a flood. The routes are temporary: a lane open tonight may be narrowing tomorrow. Choose an exit that does not depend on a bridge remaining in place, and arrange a recall method that works in darkness and through wet roots.
+
+At that scale, ordinary dampness may be dangerous. Water that looks like a bead from outside could obstruct a passage or pin you against a surface. Bring a protected air supply, a way to stay warm, and a means of freeing yourself without cutting living roots or pulling apart the bridges. Check that your equipment and shrinking method do not expose you—or the settlement—to unfamiliar microbes or chemicals.
+
+Prepare to travel **by touch rather than sight**. The inhabitants navigate without lamps; a bright light may disturb animals adapted to darkness and advertise your presence to hunters. Learn the raised knots and wall textures before moving independently. A quiet, low-intensity light held in reserve may be useful for an emergency, but do not assume that what looks like an empty patch is uninhabited.
+
+Move slowly, and keep your weight off the woven crossings until you know they can bear it. Even brushing the moss may scatter hundreds of small animals. A distant footstep can bow the roof and send water into the lanes, so when the plants shift or a trickle begins, get clear of the floor and wait somewhere secure without blocking the inhabitants’ route.
+
+If the builders notice you, give them space. Do not handle their tools or attempt to “improve” a bridge; what looks fragile may be suited to floods and constant rebuilding. Leave no markers, food, or discarded equipment behind.
+
+Finally, expect the visit to be less like entering a room than entering a place in motion. The roof breathes under footsteps, the floor carries water, and the settlement follows the fern into space that did not exist the night before. Be ready to leave before curiosity persuades you to stay in a closing lane.

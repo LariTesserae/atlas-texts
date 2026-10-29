@@ -1,0 +1,7 @@
+The plants live shoulder to shoulder along the walls, their roots threaded through porous mineral beneath the paving. Some fronds rise straight before bending toward the light; others grow out almost horizontally and make a dark shelter for the younger leaves below. Their surfaces are thick and waxy, with fine scars where they have rubbed against neighboring blades.
+
+A new frond emerges tightly folded, pale along its crease. In the hottest hours it gradually opens, pressing older leaves aside. The motion is too slow to see, though by evening a frond that stood against the wall may have reached into the space beside a doorway. Oil moves through it slowly, carrying what the roots and leaves have drawn from stone and air.
+
+The oldest growth is lower down. Its edges harden and split into narrow strips; eventually the whole frond curls inward and falls. It remains among the roots, darkening the mineral bed as its oily tissue breaks apart. Fresh leaves push past it from the same crowded places.
+
+The colony has no need of the courtyard’s open center. It reaches into that space only when a draft bends it or a bar of light draws it there. All day the fronds turn by small degrees; all night they rattle together above the fallen leaves. By morning they have settled into new positions, and the young growth is ready to unfold again.

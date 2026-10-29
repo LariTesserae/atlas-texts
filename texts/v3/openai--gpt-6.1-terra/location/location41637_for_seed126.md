@@ -1,0 +1,17 @@
+The plain is bright enough to make distances difficult. It extends under a pale, steady sky in shallow terraces of ivory and ochre, each terrace so broad that its far edge is lost before the next begins. Nothing rises very high. Even the long ridges are low, their crests rounded into forms that look soft until you touch them: they are hard as fired ceramic and warm through the sole of a boot.
+
+The ground was made in layers. Where a seam has opened, it exposes sheets thinner than paper, packed together by the million. Some are latticed like woven cloth; others hold orderly arrangements of dark grains, or tiny sealed chambers with silvered walls. The exposed edges have been worn almost smooth. Here and there, a circuit continues across a gap on a bridge finer than a hair.
+
+Everywhere there is evidence of immense age, though little has been allowed to fall apart. The ridges have been abraded down, their old angles softened by the passage of mineral dust. The dust itself is manufactured: angular, uniform, and continually sorted by the wind into bands of different color. In one place the bands curl around an obstruction that no longer projects above the surface, preserving the outline of a vanished tower.
+
+The air is dry and close. It holds a faint metallic smell, and at midday heat gathers in hollows only a few handspans deep. There is no standing water, no dampness beneath the stones. The atmosphere carries other vapors in small, carefully maintained amounts; they condense at night as a fine yellow film, then lift again when the light returns.
+
+Life is sparse, but not absent. Small plants grow in the seams, spaced far apart: jointed black stems bearing a few rigid, translucent leaves. Their roots enter the constructed ground and follow its channels, taking what they need from a slow traffic of dissolved minerals and charged particles. Some have spread flat against the surface, forming patches that are easy to mistake for a change in the material beneath them. At dusk their leaves turn edge-on, all within the space of a few minutes.
+
+Between them, the plain is crowded at a smaller scale. Dust grains move in ordered streams along the shallow grooves. Microscopic machines open and close the pores in the ground. Warm air rises through vents no wider than pinholes, while cooler air slips down through others. Farther away, whole square kilometers alter their color as buried structures turn beneath the surface. The changes travel slowly, like shadows from clouds, though the sky remains clear.
+
+The few animals are difficult to see. One kind resembles a sliver of dull glass, with several delicate feet folded underneath. It waits among the stems and feeds on the smaller devices that collect there. When it moves, it crosses the bright ground in brief, precise runs, stopping often enough that it can be mistaken for a discarded fragment.
+
+The place is almost silent. Wind passes over the rounded ridges without finding much to catch on. Occasionally there is a dry ticking as the surface contracts in evening shade, or a faint hiss where dust is being drawn into a seam. Most of the work of the landscape happens below the range of hearing.
+
+Toward the horizon, the terraces become indistinguishable from the sky. The same pale brightness seems to continue upward, crossed by fine horizontal lines. Watching for a long time, one can see those lines shift: great suspended structures, moving with the warmth of the day, tending the plain from a height too great to judge.

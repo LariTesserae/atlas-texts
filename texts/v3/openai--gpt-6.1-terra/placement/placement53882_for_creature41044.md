@@ -1,0 +1,17 @@
+I think I would live near the lowest square, in a room that used to be reached from the lane. The lane has been raised since then, so there are three steps down to my door. In wet weather I set a board across the top step, not because it keeps all the water out, but because it gives me time to notice.
+
+The room is joined to a newer kitchen. It was my grandmother’s room once; now I sleep there among the things that have not found a better place. There are spare jar lids under the bed and a bundle of wool in the corner. One wall is pleasantly straight. The other follows the line of an older house, which is gone except for that wall and a little of its floor.
+
+I would be a person who works with stone, though not the best one in town. I can dress an edge and fit a slab closely enough to keep the worst of the wind out. I am slower at splitting stone. Once, trying to hurry before a change in the weather, I spoiled a piece that had taken two of us all morning to bring down from the slope. The woman who had helped me did not say much. She turned the pieces over and showed me where each could still be used.
+
+I do a fair share of work on the gutters. They pass close to my door, and I see what collects in them. In the mornings I lift the grates near the cistern and take out the grit; after rain, I walk farther uphill to see whether a joint has come loose or a channel has filled with chips. I carry a wooden scraper and an old cloth. Sometimes I find a child already there, doing the work badly and hoping to be praised for it. I praise the part that is done, then show them the grit packed against the downhill edge.
+
+From the square I can hear much of the town without seeing it. The lintel work at the east wall has a measured knock, followed by a pause while the woman shifts the wedge. Her father’s scraping travels farther than one might expect. When it stops, I sometimes wait for it to begin again before realizing that I am standing with the grate in my hands.
+
+There is a basin across from my steps. I had imagined, at first, that I would sit beside it often, watching the birds. More likely I would pass it several times a day without looking. Still, in a dry spell I might notice how low the water had become, and set a small stone at its edge to see whether the level changed overnight. The birds would come whether I watched them or not.
+
+On cold evenings I would take my bowl into the kitchen and sit with the others by the fire. We would talk about the work that needed doing, and about people who had gone down to trade. Someone would remember a cart arriving years ago with one wheel bound in rope, and someone else would say that was a different cart, a different winter. If there were enough of us, one person could mend while another cooked, and the room would warm more quickly.
+
+When a cart came over the rim, I would go out with everyone else, leaving the grate or the scraper where it lay. I would help unload if there was room for me, and ask for news once the animals had been seen to. There might be wood among the goods, or grain, or a parcel wrapped for somebody in the upper houses. By then the birds would have found whatever I had loosened in the gutter.
+
+Later I would return to the square and finish the work. I would lower the grate carefully into its place, check that it sat level, and carry the grit to the edge of the paving. Then I would go down the three steps, brushing the dust from my hands against the doorframe as I went in.

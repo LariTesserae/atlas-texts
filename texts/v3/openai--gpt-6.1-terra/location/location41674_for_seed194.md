@@ -1,0 +1,11 @@
+The city lies inside a shallow fold in the plain, under a roof of living material thin enough to flex but thick enough to admit no light. The entrance is a narrow seam. Once through it, a person can stand upright in the cool hollow.
+
+Nearly all the space inside is empty. The floor, walls and ceiling, however, are one continuous organism: a dry, fibrous growth with the toughness of bark and the fine grain of old bone. Its surface has been worn almost level over an immense span of time. There are no stones here, no soil beneath it that anyone has found. Even the dust is shed by the plant.
+
+The city was made by cutting into this living surface. Shallow rooms open off a single street; low benches, troughs and thresholds remain joined to the ground from which they were carved. Their edges have rounded as the plant slowly grew and was worn back again. At the far end, a row of notches records intervals whose meaning has been lost. The first notches are nearly closed.
+
+There is no water in the hollow. The plant draws what it needs from gases filtering through the roof and moves a slow, waxy sap through its fibers. Nothing flowers. It reproduces by laying down delicate dry threads across abandoned cuts, then thickening them over centuries. There are no animals to carry seed or graze its surface, and no inhabitants now, though smooth handprints remain pressed into the walls at the height of the old doorways.
+
+The place is extraordinarily loud. The roof swells and contracts with changes in the air outside, and every movement travels through the hollow plant as a low, sustained booming. Sometimes a finer crackle passes along the street as a thread breaks somewhere in the walls. The sounds linger, overlap, and seem to come from rooms that are no longer there.
+
+A visitor must find the city by touch: the seam in the plain, the yielding roof, the first worn step down. Inside, the air is cool and utterly dark. The floor is almost flat, but under a resting hand it can be felt moving, very slightly, with the long pulse of the roof.

@@ -1,0 +1,11 @@
+High inside a mountain that has not yet finished rising, there is a room no larger than a courtyard. Its floor is a pale mineral shelf, split by a seam so fine that only the moisture reveals it. The walls lean inward, raw and sharply flaked, and through a narrow opening overhead the sky is a dark, thin violet. This far up, the surrounding peaks seem less like mountains than the first edges of a new crust.
+
+The room is hot. Heat comes through the stone in slow, uneven pulses, as if something below were testing its strength against the weight above. Once in a while a breath of colder air slips through the opening and a sheen appears on the floor. It gathers into a few clear beads, which tremble, move toward the seam, and vanish. They leave behind tiny white rings.
+
+A city is built into the walls, though almost none of it projects into the room. Rows of door-sized recesses climb the stone, linked by lines too narrow to be paths. At certain angles the lines have depth: you can see a sequence of lit chambers receding inside one another, each smaller than the last. The entrances are empty. There are no furnishings visible, no gardens, no soot or scraps, and nothing moves along the routes between them.
+
+The city seems to maintain the room rather than occupy it. Dark plates flush with the rock flex when the mountain shifts. Fine cracks close again behind them, leaving only a slight change in the grain. Sometimes one of the recessed chambers brightens and the air immediately in front of it folds inward, taking a little heat with it. The light travels from chamber to chamber without ever illuminating the whole wall.
+
+There is almost no sound. A bead of water makes a soft tick as it falls from an overhang. Deep inside the stone, a structure occasionally gives a single resonant note, too low to locate. Minutes later a different wall answers. Between these sounds there is the dry, intimate hush of a place sealed a long way from weather.
+
+Nothing grows here. No roots have found the fractures, and no insects gather at the damp seam. Yet the room has its own small cycle: heat rises, cold air enters, water appears and is taken away; the mountain strains, and the embedded city quietly adjusts. At irregular intervals the opening overhead narrows by a fraction. When it widens again, the visible piece of sky has changed shape.

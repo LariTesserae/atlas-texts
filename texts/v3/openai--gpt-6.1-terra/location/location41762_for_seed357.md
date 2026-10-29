@@ -1,0 +1,19 @@
+The plateau is high enough that clouds pass across it rather than over it, but the air is hot. Rain arrives warm and leaves the surface warmer still. Between showers, vapor rises from the ground in long, low sheets, and the distant rim of the plateau disappears behind them.
+
+Nothing here rests on stone. The entire upland has been made by plants.
+
+They have raised it in layers: mats of interlocked root, thick rafts of stem, fallen leaves pressed into black felt, and fresh green tissue grown over every break. The oldest layers are dense enough to bear the weight of a lake. Where a steep bank has sheared away, they show in bands of olive, cream and rust, each band laid across the one below with the care of woven cloth. Water runs through them everywhere, dripping from the cut faces and gathering in shallow basins.
+
+The surface is mostly open. A springy green floor stretches for miles, broken by widely spaced towers, ridges and pools. The towers are living bundles of stalks grown tightly around hollow centers. Some stand straight; others lean, their upper branches flattened by the passing clouds. Their crowns are small for their height, so that even where several grow together there is room to see the weather moving between them.
+
+In the middle distance, long walls rise from the floor. They are not barriers in any settled sense. They lift when their lower stems swell with water and fall apart when the stems dry or split. A wall may stand for days, holding a pool against it, then come loose along its whole length. The water spreads out with a deep rustling rush, and the loosened stems take root where they land. By the next morning, a low green seam may be growing across the basin.
+
+The ground is young and sharply made. Crests have narrow edges; fresh folds rise from the floor like pleats pulled upward in cloth. Some are pale and translucent, still growing, with dark water visible moving inside them. Others have hardened into glossy green ridges. They break abruptly rather than wearing down, leaving clean tears that leak sap for hours.
+
+There are no insects among the leaves, no birds above the water, no tracks at the margins. When pollen is released, the wind carries it in broad yellow veils. Seeds drift on the runoff or fall into the wet fabric below their parent plants. Much of the plateau grows by contact: a fallen stem touches a damp surface, sends out fine white threads, and joins the place where it has landed.
+
+The loudest sound is water moving through the hollow towers. Gusts press on their open crowns and force air down through chambers partly filled by rain. Some towers give a low, continuous note; others knock or whistle as the water level changes. Across the open ground come the softer sounds of stems rubbing together, leaves snapping flat in the wind, and pools spilling over their living rims.
+
+Storms cross the plateau quickly. Under a heavy shower, the broad leaves close over the floor, directing water into channels that were almost invisible a moment before. Pools rise. Towers flex. A ridge may lift along one side as the roots beneath it drink, tilting the water away. When the rain stops, the leaves open again to ordinary gray daylight, and steam drifts through the spaces between the towers.
+
+From a high edge, the region looks spacious and nearly still. The changes become visible after a few minutes: a line of pale growth advancing around a pool, a wall bowing under the weight behind it, a tower slowly straightening as its soaked outer stems contract. Then the wall gives way, and the sound of the released water travels a long way across the green.

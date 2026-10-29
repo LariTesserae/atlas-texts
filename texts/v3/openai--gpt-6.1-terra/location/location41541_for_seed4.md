@@ -1,0 +1,11 @@
+Beneath the edge of a low marsh, there is a chamber no larger than the hollow of two hands. The ground around it is cold and wet, but inside, the water holds mostly to the walls. It gathers there in clear beads, then slips down through the living floor.
+
+The chamber is entirely plant-made. Broad roots meet overhead without quite touching, leaving narrow black seams between them. Pale stems brace the roof; moss lies flat along the floor, and a new fern, still tightly furled, forms one wall. Everything is young. The root tips are sharp and white, the surfaces unweathered. The hollow opened only when a buried bulb swelled and pushed the roots apart.
+
+There is room to move through it. Three open lanes cross the floor between widely spaced stems, and along each lane small bridges of woven grass lift clear of the wettest places. A settlement has grown around these crossings. Its builders cut the grass with flaked stone and bind it with strips of softened root. They keep no lamps. In the darkness they find their way by the raised knots along the bridges and by the different textures of the walls.
+
+The chamber is crowded with other lives. Mites shelter in the moss; springtails gather beneath each bead of water; blind larvae occupy the soft wood of the roots. Tiny hunters wait at the mouths of tunnels, while smaller creatures pass continuously through the fibers around them. When the floor is disturbed, hundreds spring away almost at once. Nothing can be seen, but their departures are felt as a brief, fine pattering against the bridges.
+
+It is otherwise a quiet place. Water touches water. A stem shifts with a slow dry creak. From far above comes the occasional pressure of a foot crossing the marsh, bowing the roof and sending a cold trickle down into the lanes. The inhabitants climb out after each flood to clear the crossings and lay their bridges again.
+
+The fern is still growing. Each night its curled end presses a little farther into the chamber, narrowing one lane and opening another behind it. The settlement moves with the opening, carrying its cut grass and stone tools into the fresh space before the plants close over the old one.

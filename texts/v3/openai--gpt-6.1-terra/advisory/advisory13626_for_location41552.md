@@ -1,0 +1,9 @@
+Prepare for a **shallow-water visit**, but check the depth and local conditions before deciding how to enter. The chamber has no roof, yet its floor may be deeper than you can comfortably stand in. A mask and snorkel would let you watch from the surface; bring fins only if there is room to use them without striking the walls or stirring up the floor. Wear sun protection and water shoes with good grip.
+
+Go with a companion, and look at the lagoon from above first. Note how strongly each swell moves the water, where you can enter and leave, and whether the chamber’s openings or floor channel could catch a hand or foot. If the surge makes it difficult to hold position without bracing against the structure, stay outside and watch from the surface. Don’t dive in or put your face near the channel.
+
+Move slowly once you are there. The blocks have sharp corners, the pots are being rattled by the current, and the seagrass is held down with fibers that are already coming loose. Avoid touching the walls and joints, especially if the lime is fresh, and leave all three pots where they are. The empty one is part of the scene too, not necessarily a container meant for visitors.
+
+Give yourself time to settle and watch. At first, the chamber may seem almost bare; then the rhythm becomes apparent. A swell pushes through, the grass bows, and sand travels in bright lines over the tiles. In the brief quieter interval, the grains settle and the light keeps moving. The thudding and humming may be louder than you expect underwater, so remain aware of your companion and your way out rather than relying on hearing them.
+
+When you leave, take everything you brought and check that you haven’t snagged a fiber or displaced a pot. The chamber is small enough that a careful visitor can see much of it without leaving a trace.

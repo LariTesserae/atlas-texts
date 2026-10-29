@@ -1,0 +1,23 @@
+The grazers are most easily mistaken for loose pieces of the pillars. Their shells overlap in low, flexible plates, dark underneath and pale along the upper edges. They spend much of their time pressed so closely to the stone that even the fringe of their legs disappears. At intervals they move upward, rasping a narrow track through the mineral film with mouths concealed beneath the front of the shell.
+
+The film is very thin, and a grazer may spend hours over a patch no larger than its body. What it takes passes slowly through it. What it leaves behind is packed into dry grains that fall among the grit, returning substances the film can use again. The grazers do not strip a pillar bare. They turn away from a patch before it is exhausted, though whether they sense the change in it or merely reach the end of some inward measure is difficult to tell.
+
+When several meet, they feel along one another’s shells with short, flattened appendages. Sometimes they separate at once. Sometimes they remain together, their plates touching, until a cluster forms against the pillar. Young grazers shelter beneath the adults, where the air holds a little of the moisture released by their bodies. Their shells are soft and nearly transparent. They leave the shelter only after the plates have thickened enough to keep them from drying.
+
+The long animals beneath the grit are less numerous than their traces suggest. One may make several furrows in a night of movement, pushing the grains aside with slow contractions and closing the passage behind itself. Its skin holds close to its body except along two rows of folds. These open to the warm air when the animal rests near the surface. If the air changes, the folds close, and it may lie buried for a very long time.
+
+They feed on small things in the grit, including the young of other animals, and sometimes on a body that has settled there. A coil beneath a fallen grazer gradually tightens around it. Later the coil loosens and moves away, leaving the shell in place. The shell becomes a shelter for smaller creatures until it is filled with mineral grains or covered by a new film.
+
+The animals on the shelves have broad, folded bodies supported by a delicate internal mesh. Their many legs end in fine pads that cling to stone and to one another. A cluster can appear to be a pale, uneven growth until one of its members shifts and the whole surface adjusts around it.
+
+They feed where the shelves are filmed, probing the stone with narrow mouths. They also take material from the air: minute particles carried upward in the warm currents, and moisture where it gathers against a cooler surface. When a cluster grows crowded, some of the animals release their hold. Their bodies unfold as they descend, slowing their fall. The warmth may carry them into another chamber or lift them briefly toward a neighboring shelf. Most settle within reach of the floor.
+
+There the waiting animals feel for them. These have wide bodies and limbs held so lightly against the grit that a grain falling on one is enough to make the others rise. Contact is followed by stillness. The two animals touch, withdraw a fraction, and touch again. A shelf-dweller may fold itself and climb away over the waiting limbs. If it is weak or injured, the animal below may draw it inward and feed. Sometimes the one on the floor is caught instead: the descending body closes around a limb, and the struggle is so slow that it resembles an embrace.
+
+The dull red seams belong to several kinds of animal. In the grazers they lie beneath the edges of the shell; in the shelf-dwellers they follow the folds of the body. The color shows when the plates or folds part. Disturbance can bring it out across a whole congregation, a muted red appearing here and there as the animals turn toward the same faint vibration.
+
+There are smaller lives everywhere the lamp reaches. Thin, many-legged things move through the empty shells. Others live in the creases of larger bodies, taking loose mineral grains and scraps of food. Around the bases of the glass blades, where the grit is especially fine, tiny animals collect in the shelter of the edges. They are seldom seen moving, but a blade left undisturbed may acquire a pale border as their bodies gather along it.
+
+The artifacts have become part of these arrangements. Grazers shelter beneath the fitted wall, and the shallow hollow within the stone ring holds a congregation when warmth collects there. Nothing gathers at the chipped blade unless grit has drifted against it. Its edge remains exposed.
+
+Whatever placed it there may have lived in this country, or passed through it only once. The animals make use of it without leaving an answer.

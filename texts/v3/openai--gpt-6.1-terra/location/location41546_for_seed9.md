@@ -1,0 +1,15 @@
+The garden occupies the topmost chamber of a mountain-sized machine. From outside, it would look like a small glass crown among the clouds, but inside there is room for only a grove, a shallow pool, and the narrow paths between them.
+
+Everything here has been made. The ground is a thick quilt of fired-clay cells filled with manufactured loam. The rocks are poured mineral foam, still pale at their seams; the trees rise from sockets bolted into the chamber floor. Even the moss began as a slurry brushed over warm surfaces. It has grown beyond the brush marks now, gathering thickly around rivets and creeping up the legs of the benches.
+
+The chamber is high enough that clouds sometimes press against the glass. The air stays warm. Water circulates beneath the paths and emerges wherever the clay has been left porous: along the sides of steps, through the roots of ferns, from the undersides of stones. It gathers in the pool, drains away, and returns as a fine spray from nozzles hidden in the canopy. A shower can begin over one half of the garden while the other remains in sunlight.
+
+The plants grow close together but have not yet settled into a mature landscape. Young trees carry enormous leaves on trunks scarcely thicker than wrists. Vines reach the glass and are caught by slow-turning reels, which lower them gently toward the floor so they can root again. New fronds unroll against older ones. In the warm damp, their edges sometimes adhere for a day before separating.
+
+There are no gullies or worn banks. The gravel is angular and clean, the molded stones still bear shallow numbers, and every channel has a regular lip. The place looks less like a garden recovered from an earlier age than one still being assembled. At the far end, beyond a curtain of reeds, a row of empty planting cells waits with water already glistening in their bottoms.
+
+Machinery is present everywhere but mostly out of sight. Pumps pulse below the pool. A chain moves behind the wall at intervals, lifting water to a reservoir above the glass. Copper pipes expand in the warmth with small ticking sounds. The loudest event is the daily opening of the roof vents, when damp air pours out and a cooler wind bends the treetops in one direction.
+
+Animals are scarce. A few translucent snails travel the undersides of leaves, eating a film that forms there each night. Occasionally a dark moth appears near the lamps after evening misting; no one has found where it comes from. Most movement belongs to the garden’s mechanisms and its plants: water rising, leaves turning, vines being lowered, roots taking hold in fresh soil.
+
+On a clear day, sunlight reaches the chamber through a great depth of air. The glass casts a faint grid across the pool. Under it, the water trembles constantly, although the pump beneath makes almost no sound.

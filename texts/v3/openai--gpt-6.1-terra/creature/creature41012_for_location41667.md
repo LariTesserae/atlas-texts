@@ -1,0 +1,19 @@
+The person at the window is waiting for the wind to shift, not to stop. It rarely stops for long enough to be useful. When the reeds closest to the shelter lean away from the raised path, they pull the hood tight, check the lamp fastened to one shoulder, and open the door against the pressure of the air.
+
+Their name is Iven. They live here with eleven other people, spread among the shelters along the gravel rises. Two of the shelters hold families; one is a storehouse and workshop, though someone sleeps there whenever the water is high. The paths between them are marked with short posts that can still be found by hand when snow has buried the boards. Every post has a different pattern cut into it, so a person crawling home in darkness can tell how far they have come.
+
+Iven is going to the willow stand. A warning has appeared on the shelter’s small display: pressure falling along the outer edge of the anchoring mesh. It may only mean that the current has found a way beneath the roots. If it spreads toward the path, Iven will set a marker for the people who tend the machines in the morning. Tonight there is little to do but look and keep looking.
+
+They go bent nearly double, one mitten sliding from post to post. At the edge of the light, the willow stand is moving as a single mass, its stems still upright but no longer rooted where they were. Water has got underneath. A pale deer stands on the gravel beyond it, watching, its coat plastered into narrow ridges. When Iven’s lamp turns toward it, it steps higher onto the crest and disappears behind the snow.
+
+The deer spend the winter following firm ground through the marsh, browsing willow tips where they can reach them above the ice. In summer they move farther out, scattering over the sedges with their calves. The people know several of the animals by the shape of their antlers or the scars on their flanks, though a deer seen on one ridge may be many miles away the following day.
+
+The birds are less easy to recognize individually. Tonight they huddle in the lee of banks or among the densest reeds, gripping stems that whip almost flat. When a gust breaks over them, whole groups lift and settle again. By summer there will be nests tucked into the tussocks, and the air will be full of birds moving between open water and the higher ground, carrying insects, seeds and scraps of plant matter to their young.
+
+Below them, the voles have made rooms in the moss and peat. Some chambers hold stores of roots and cut stems; others are lined with shredded grass for sleeping. A flooded passage may cost a vole its food as well as its shelter. The animals keep several exits, and the people sometimes find their small tracks crossing the snow from one thicket to another, even during weather like this.
+
+The buried machines register such movements only faintly, if at all. They attend mostly to the slow gathering of weight, the pull of water through gravel, the sudden loss of support under a bank. Their mesh tightens around the approaches to the shelters and yields elsewhere. After a season, pieces of it sometimes work free and lie among the roots like dark thread. The people collect what they can; a willow root grown around a strand has to be cut carefully, or left.
+
+At the willow stand, Iven pushes a marker into the gravel beside the path. The water has not reached it yet. They watch a while longer, until the tilted trees settle against a ridge of ice and the opening beneath them fills with reeds. Then they turn home, keeping the marker’s small reflective face behind them in the lamp until the first path post comes to hand.
+
+Inside the shelter, someone has left a pot warming near the stove. Iven hangs their dripping hood above a tray, records the position of the new channel, and eats. The walls continue to tremble. On the display, the pressure readings change by small degrees while, beyond the window, the marsh goes on finding its way through the dark.

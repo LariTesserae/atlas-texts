@@ -1,0 +1,13 @@
+Below the workshops is a chamber no larger than a small house. It was built as a condenser, though the workshops above it have long since been dismantled. Their foundations remain: layer upon layer of fitted brick, tile, pipe, and iron plate, pressing down on the chamber’s low vault. There is no exposed earth. Even the grit underfoot is ground ceramic and rust.
+
+It is almost completely dark. A person entering would find the room first with their hands: a warm wall, a pipe crossing it, another pipe immediately behind that one, and a fringe of thin metal fins packed so closely together that a finger cannot pass between them. The air smells of hot pennies and old wet cloth.
+
+Heat comes through the floor in slow waves. Beneath the plates, an engine still turns somewhere, too deep to hear as a distinct machine. Its work reaches the room as a faint trembling, more noticeable in the teeth than in the ears. Most of the pipes are dry. A few carry a thread of hot water, and once in a while one gives a soft, hollow knock.
+
+The chamber was made to shed condensation into a central trough. Over the years, mineral deposits have narrowed some channels and opened others. Droplets now travel along unexpected routes: down a bolt, across the underside of a bracket, along the seam of a glazed tile. They gather for hours before falling. The trough holds a shallow length of warm water, interrupted by islands of white scale. Its bottom has been polished smooth by the slow passage of grit.
+
+There are plants in two places. A few pale, jointed stems grow from a seam beside the trough, where they feed on the chemical films that form on the damp metal. Farther up, a mat of nearly colorless moss clings around an inspection hatch. The hatch is opened perhaps once a year; then a little daylight enters, and the moss darkens for a time.
+
+Small things live among the fins: blind silver insects, mostly, with flat bodies and slow legs. They graze on the films and disappear into the joints when the pipes grow hottest. Now and then a larger creature passes through the trough, pushing a narrow ripple ahead of it. It may take all night to cross the room.
+
+The chamber changes, but slowly. A drip shifts from one groove to another. A corroded washer falls and comes to rest among older washers. Scale thickens over the mark left by a tool. The machine below continues turning, and the dense fitted walls hold their warmth until the next small wave rises through the floor.

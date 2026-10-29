@@ -1,0 +1,11 @@
+Behind the last building of a low pumping station, a slot in the concrete opens onto a small basin. It is hidden from the road by a wall and a stand of pipes. There is room for perhaps six people to stand in it, though the floor is mostly water.
+
+The basin is new ground. Black mineral crust has lifted in angular plates around the edges, and pale seams run between them as straight and fine as scratches in glass. Some plates are still attached to the concrete wall; others have tilted into the shallow water without yet wearing smooth. Underfoot, the surface gives a little, then holds. Warm water shines through every crack.
+
+It is hot even in the shade. The air has the close, mineral weight of a bathhouse, and droplets gather on the underside of the pipes. They grow slowly, trembling for a long time before they fall. A few stiff green shoots occupy a narrow shelf above the waterline. There is a patch of dark, almost black growth on one wet stone, and nothing green at all across most of the basin.
+
+A pump runs somewhere behind the wall. Its noise fills the enclosure: a deep metallic pounding overlaid with a high, continuous whine. The concrete returns the sound so forcefully that it is hard to tell which direction the machinery lies in. Water in a rusted tray shivers with each stroke, making the reflected sky break and join again. The pump has an old switch box beside the slot, its paint blistered, with one wire disappearing into the wall. A short length of rail lies half submerged near the far edge, and a capped valve protrudes from the mineral crust at an angle. No one has cleared around it for some time.
+
+Nothing moves quickly except the tremor on the water. The level is so nearly constant that the white deposit on the wall forms a single thin line. Water seeps upward through the fresh stone, spreads across the floor, and vanishes beneath a plate at the opposite side. Every so often a bubble rises without a sound that can be heard over the pump. There are no tracks in the soft margins, no insects on the surface, no birds calling above the wall.
+
+Where a warm droplet lands on the rail, it leaves a tiny white ring. The rail is covered in them, each overlapping the last. Farther out, a newly exposed edge of black crust is gathering the same pale color. The pump keeps hammering while the deposit builds, almost too slowly to notice.

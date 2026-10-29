@@ -1,0 +1,11 @@
+The pale band along the wall is alive. It has no leaves, and its fine threads do not reach upward; they spread where the warm water passes, following minute differences in the stone. Each thread is soft enough to bend under a fingertip. Together they make a nap, thin in some places, thick enough in others to hold the water a little longer against the wall.
+
+What feeds it comes dissolved in the seep. The growth takes what it can and leaves its own faint sourness behind. Within it are smaller lives still, too small to feel individually: cells pressed together in the wet, sharing the narrow surface between water and stone. Some may live deeper, in cracks the threads have entered, where the chamber’s open space is no more available to them than the sky.
+
+The many-legged creatures move among these places. Their bodies are narrow and jointed, made for passing between a mineral fold and the wall behind it. They have no need of eyes. They find the growth by touch and by whatever traces it releases into the water; they find one another, if they do, by ways as quiet and close. A hand laid on the floor is merely another warm obstruction until one climbs across it. Its feet take hold and let go so lightly that the sensation is almost lost in the wetness.
+
+There may be young hidden in the nap, or in the seams beneath it. There may also be long intervals in which no creature crosses the chamber at all. Nothing larger appears to live here now.
+
+The person who shaped the bowl remains only in what their hands left. The three stones can still be lifted from the shelf; their smoothed sides fit against one another. The cord has become rigid, but its twist can be felt beneath the mineral crust. The bowl has the slight unevenness of clay pressed into shape, and its water is as still as the water below.
+
+None of these things tells the small creatures anything about the maker. The pale growth does not reach the dry shelf. It continues along its narrow band, taking hold where the seep allows, while the creatures come and go through the wet seams, almost too few to notice.

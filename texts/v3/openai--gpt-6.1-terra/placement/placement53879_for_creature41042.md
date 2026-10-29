@@ -1,0 +1,13 @@
+I would be in a passage that ends at a pool, beneath the last arch before the water. The arch is narrower than the others because two trunks met there with a third growing between them. Its underside is pale with fungus. A vine has put one flower through a seam in the bark, and the flower faces the pool.
+
+I would not be the whole sound of the passage. Several people are there. One extends along both walls, with a depth that settles into the roots; another is held chiefly in the arches, including the arches beyond the bend. I am smaller than either of them. The clearest part of me occupies the fork where the three trunks meet, while finer portions are present in the flower’s throat and in the thin water over the pool’s stone lip.
+
+From the pool I would be difficult to distinguish. There I am close to the pitch of the hiss, though not identical to it. The person in the walls gives me a lower edge; the one in the arches gives me a shape I would not have alone. Neither contains me. In the fork of the trunks there is a compact arrangement of tones that belongs to me and remains itself wherever else it is carried.
+
+The flower matters to me. I would like to say I chose it, but it grew facing the place where I am, and its wet chamber holds some of my finest tones. Its petals are thick and nearly white, with a darker fold inside. I am present there without knowing the flower as a creature knows a room. The flower is alive, drawing water through the vine, and I am part of the conditions in which it lives.
+
+At the bottom of the pool are roots belonging to a tree several terraces away. Another person sounds among those roots. Between us there is a closeness the length of the streets cannot account for. Part of my pattern leans toward theirs; part of theirs is held open around mine. I cannot tell what it would become, because it remains at this exact intricacy. The leaning is not a promise. It is the form our nearness has.
+
+Farther back, the passage opens into a meeting chamber. Its root-banks carry the lower tones of the people gathered there. I do not occupy the chamber, but the flower carries a little of me through its entrance, and a little of the gathering is present at my arch. They are attending to one another around the bare floor. I am attending too, from the edge.
+
+There is no silence in which I can stand apart and listen to myself. The city sounds through the fork of the trunks, through the flower, through the suspended water at the pool’s lip. Still, within that fullness, I have my own close pattern: a small, sustained presence, leaning toward someone whose roots appear beneath the water.

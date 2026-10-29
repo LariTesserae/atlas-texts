@@ -1,0 +1,13 @@
+The place is a room-sized hollow beneath a city, entered through a seam between two paving stones. From above, it would seem too narrow to hold anything. Below, it opens into a low chamber, almost entirely empty, its floor a shallow bowl of pale, hard salt.
+
+Sunlight reaches it through a long crack in the street. The crack is lined with polished fragments of white stone, so the light arrives not as a narrow blade but as a fierce, diffuse glare. Every grain on the floor throws a minute shadow. The chamber is warm enough that the salt gives off a faint baked smell, like hot pottery.
+
+A garden occupies one wall. It is thick and vivid, though nothing grows on the floor beneath it: overlapping fans of green and copper, translucent bladders, fine branching threads that hang into the empty air. Their roots have entered the old mortar. They draw waxy mineral oils from seams in the stone and take what else they need from light and dust. When a bladder grows too heavy, it splits, scattering a powder of seeds that skates across the salt and gathers in the far corner.
+
+There is no water here. The city above was built without drains or wells. Its houses have clay-lined cellars for storing oil, and its streets are joined by channels that carry wind instead of rain. The channels are ancient work, cut with stone tools and repaired by hand; generations of grit have rounded their corners until they look almost grown. The little garden has followed one of them down into this chamber and slowly pried its mouth wider.
+
+The wind makes a terrible noise. It enters through the street channels, compresses in the narrow seams and bursts into the hollow in a continuous, many-pitched howl. The walls hum beneath it. Loose salt grains jump, settle for an instant and jump again. A person crouching inside would feel the sound in their teeth and chest; even pressing hands over the ears would bring little relief.
+
+The garden moves to its rhythms. At the strongest gusts the fans fold edgewise and the hanging threads whip straight out, almost touching the opposite wall. In the brief slackening between gusts they open again. Once in a long while a small, jointed creature emerges from the mortar, its shell the color of the wall. It crosses a leaf, grazes the powder caught there, and retreats before the next blast. There may be others deeper in the masonry, though none are visible.
+
+By afternoon the shaft of light has shifted across the bowl. The plants lean after it so slowly that their motion is apparent only by the changing shape of their shadows. Above them, feet pass along the city street. Their impacts travel through the stone, adding a dull, intermittent pounding to the chamber’s unceasing roar.

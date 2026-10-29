@@ -1,0 +1,11 @@
+High in the flooded crown of a manufactured mountain, a maintenance chamber opens onto a drop. The chamber is no larger than a garden shed; the drop beneath its grated floor runs through miles of submerged machinery. There is no dry summit. Warm water fills the chamber and continues upward through a shaft too narrow to see the end of.
+
+Every surface here was made. The walls are cast ceramic, the floor a mesh of thick metal ribs, and even the pale pebbles caught in the corners are worn-down fragments of bolts. Water has worked on them for an immense time. The ribs have been pared into smooth, steep fins, and the ceramic between them has softened into shallow hollows. Along one wall, the remains of a staircase rise almost vertically before ending at a blank seam.
+
+Three gardens grow in the room, well apart from one another. Each is a dense tuft of ribbon weed anchored in a joint, its leaves broad and green and constantly turning in the current. Between them there is open water. Tiny translucent grazers move over the leaves in groups, while silver fish wait in the gaps and dart in when the grazers stray. A long, jointed swimmer lives under the grate; now and then it reaches a delicate arm up between the bars, and the fish scatter.
+
+The noise is enormous in so small a place. Pumps hammer far below, and a loose plate somewhere in the shaft knocks against its housing. The sound enters the chamber through every wall. Yet the animals seem to hear one another: the grazers fold flat at a fish’s approach, and the jointed swimmer withdraws before the great intake begins.
+
+Several times each day, the flow reverses. The weeds stream the other way, grit lifts from the corners, and the chamber fills briefly with food brought up from the depths. When the current settles, the grit falls again, a little farther along the floor.
+
+Light comes down the shaft through a chain of old glass lenses. It is the clear, ordinary light of afternoon, though it reaches a place that has been under water longer than anyone can remember.

@@ -1,0 +1,11 @@
+The animal is nearly all legs. Its body is a clear, soft joint suspended between them, with a darker thread inside where the water goes. Its feet hold to the fine hairs of the roots, each foot finding several hairs at once. It can stand upside down for a long time without moving, even while the roots beneath it grow.
+
+It knows a droplet before the droplet falls. The swelling draws a root hair taut, and the animal follows that small tension upward. It places its mouth against the underside and drinks. Sometimes the droplet grows faster than it can drink; then the creature rides it down a little way, legs stretched, until the water brushes a leaf and breaks. It gathers itself on the leaf’s wet surface and climbs back.
+
+When a blow lands outside, the animal folds. Its legs lie alongside its body, and its body settles into a crease among the roots. A second blow may come before it has unfolded from the first. The roots twitch around it, the leaves knock together, and a little rain passes over its back. When the noise pauses, it opens one leg, then another, testing each hold before putting its weight on it.
+
+The moss lives close against the new shelves. Its smallest shoots are pale at the base, where they have been pressed into mud, and green at their tips. Water climbs to them through the shelf. A fernlet above must lift two moss shoots and the edge of another leaf to make room for its next frond; it does this slowly, holding them up long enough for the folded tip to slip free. The plants keep turning toward the pinhole, though they shade one another more with every turn.
+
+Their roots do not wait for the clay to cool. They enter the seams while a thumbprint is still sharp, dividing around a reed fiber and meeting again on the other side. A root that reaches a fresh corner finds it yielding. It presses in, takes water, and holds a little of the corner together.
+
+When the wooden tool comes through, the animal folds even if the walls are quiet. Clay touches root and leaf; a new tuft is set among the older ones. After the tool withdraws, the tuft is crowded and wet and facing no particular way. Its tips begin to turn. The animal unfolds beneath it, feeling among the unfamiliar root hairs until it finds one that will hold. Above its mouth, a bead of water is already forming.

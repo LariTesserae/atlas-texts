@@ -1,0 +1,23 @@
+The broadest inhabitants of the plateau are difficult to recognize as living things. In the porous stone beneath the basins, films of microbes grow along the channels where warm brine meets cooler water. They take energy from changes in the minerals dissolved there. Some form soft black threads; others leave orange-brown skins that peel away when the water shifts. Tiny grazers move through these films, and where a channel opens near the surface, pale mats send fine roots down among them.
+
+The mats grow slowly. In the faintest hours around midday, their exposed surfaces spread and flatten; afterward they curl inward, keeping what moisture they have gathered. A mat may cover a stone for decades before a browser finds it. If eaten down to the rock, it can often grow again from threads sheltered in a crack.
+
+The browsers are squat animals with wide, jointed feet and heavy mouths close to the ground. Their backs are ridged with folds that collect condensation. At rest, each animal draws its head under its body and becomes a low, breathing mound. They move in loose herds, though the members of a herd may be too far apart to hear one another. Each leaves a changing trace in the damp ground, and the others follow it.
+
+A browser spends much of its time testing the ground with the bare skin beneath its jaw. It can distinguish a buried pocket of water from a conductive seam, though both disturb the local current. At the waxy stalks it scrapes salt from the base with a hardened lip, then mouths the stem for moisture. A heavily visited circle of stalks may have smooth, polished stones all around it.
+
+The young stay close enough to touch their mothers for their first season. Their feet are narrow then, and they sink into the soft margins of basins. When a herd crosses shale, the adults slow on the loose stretches; the young make a sharper, quicker rattling among the deeper sounds.
+
+Under the stones live the burrowers. They are small, blunt animals with dense fur that holds air against their skin. Several generations may occupy one chamber system, extending it toward damp ground and sealing passages that have become dry. They bring particular stones into the nest: dark, heavy pieces that carry the current well. The stones are placed along the walls and around sleeping hollows, usually in lines that run with the current through the ridge.
+
+When the current changes, the burrowers become restless. They turn the stones, move their young, and sometimes excavate an entirely new chamber while the old one remains sound and dry. Their abandoned tunnels shelter insects, spores, and animals too soft-bodied to dig for themselves.
+
+The long-bodied hunters often wait near these colonies. They lie along the slope with their limbs tucked into shallow grooves, feeling through the ground with pads on their flanks. Their snouts bear a fringe of moist filaments sensitive to weak electrical changes. A hunter can tell when something is moving below a stone, but not always what it is; it may wait hours for the movement to come near enough to resolve.
+
+Larger hunters follow the browsers. They stand taller, on spare limbs, and travel slowly enough that their steps are lost among the small movements of cooling rock. They do not pursue a herd for long. Usually they approach across the current, where their own trace is less likely to reach the animals ahead, and rush only at the end. An unsuccessful hunter may feed instead at a burrow or spend days at a warm fissure, conserving its strength.
+
+Above them pass the soft-winged animals. Their wings are broad for their bodies, and they favor the warmer currents that rise from fractures. Some take insects from the air; others descend on damp ground to pick at the small creatures left exposed as a pool drains. They land awkwardly, folding their wings in several stages, and run a short distance before settling. On a still night, a group feeding together can be heard making fine tapping sounds against the stone.
+
+After rain, the pool margins draw nearly everything nearby. Burrowers emerge to collect mineral grains. Winged animals come down. Browsers press their mouths into the wet gravel, and hunters wait beyond the busiest ground, where the movements are easier to separate. As the water sinks away, the smallest inhabitants remain longest, working through the darkened crust until it dries.
+
+Farther down, beyond roots and burrows, the microbial films continue to grow wherever the brine finds a passage. A fracture may close and starve one colony while opening a new channel beside it. Much later, a root may reach that channel, and later still an animal may find the plant growing above.

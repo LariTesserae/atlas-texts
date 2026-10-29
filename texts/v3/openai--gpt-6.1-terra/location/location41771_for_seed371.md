@@ -1,0 +1,9 @@
+High on a mountain, a cleft no larger than a small church opens between two walls of dark stone. The drop beyond its lower lip is hidden. Above it, the ridge is a serrated line against a sky so heavily clouded that even at midday the cleft is nearly black.
+
+The rock is fresh and angular. A recent fall has split the upper wall, leaving pale scars and a heap of sharp blocks among older ledges. On those ledges, vegetation crowds every sheltered surface: moss in thick cold cushions, dwarf willow braided through alpine heath, ferns pressed flat beneath overhanging slabs. Their leaves overlap so densely that the ground is difficult to find. Some plants have been buried by the fall; others bend over the new stone, their roots still gripping seams that have shifted beneath them.
+
+There is little standing water. Rain comes in brief, wind-driven bursts, then vanishes into the fractures. Beads cling to the undersides of leaves and gather on the colder rock, falling one at a time into the moss. The air smells of wet mineral and crushed greenery, though much of the cleft remains dry enough that loose grit skitters across the stone.
+
+Wind pours over the ridge in uneven blows. It flattens the willows, releases them, then strikes from another direction, sending them thrashing against one another. Small stones tick down the walls; occasionally a larger one drops with a crack that echoes between them. From somewhere far below comes the intermittent grind of machinery, carried upward through the ravines. It swells and fades with the wind, sometimes almost drowned by the rush of leaves.
+
+No animals move in the cleft. The only tracks are the narrow trails cut by falling grit, already being scattered by the next gust.

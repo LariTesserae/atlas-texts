@@ -1,0 +1,11 @@
+The whole place fits inside a hollow in the seabed, no larger than a cupped hand. It is filled with cold water and sealed on three sides by pale mineral flesh: stone so new it still gives slightly when pressed. A narrow seam overhead admits a little light, green-gray and uncertain. Nothing here casts a sharp shadow.
+
+Along the inner walls stands a city made without tools. Thousands of tiny, translucent animals have settled shoulder to shoulder, each secreting a delicate sleeve around its body. Their sleeves meet and thicken into terraces, chambers, covered passages. New ones are being added even now. The oldest quarter is scarcely older than the newest; its roofs are still soft, and the outlines of individual builders show through.
+
+Water travels through the city by a hundred small openings. It carries drifting grains, eggs, and the bodies of creatures too slight to swim against it. The inhabitants draw it in and release it again, and the passages alter with their breathing: one lane narrows while another opens, a chamber fills, a membrane folds back. There are no straight streets for long.
+
+Other animals live among the builders. Thread-thin swimmers slip between the terraces. Pale crawlers graze the mineral walls, leaving clean paths that slowly cloud over again. Near the floor, a many-legged hunter waits beneath an arch, almost indistinguishable from the moving fringe around it. Its prey pass close enough to brush it. Sometimes one vanishes, and the rest continue without scattering.
+
+Vegetation is scarce. A few dark filaments grow at the seam where the light enters, their tips trembling in the inward current. Farther down, the animals depend on what the water brings. Fine particles settle on the roofs and are gathered in; their discarded shells become part of the growing walls.
+
+The hollow is nearly silent. Water shifts against water, soft bodies touch and separate, and fresh mineral settles over fresh mineral without any sound a human ear could catch. Yet nothing is still. The city is feeding, building, closing behind itself. In time its passages may fill the pocket entirely, leaving only the thinnest routes through which cold water can enter and the next inhabitants can begin.

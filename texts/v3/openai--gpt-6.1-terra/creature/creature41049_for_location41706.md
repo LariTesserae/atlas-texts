@@ -1,0 +1,11 @@
+The most numerous inhabitants are small enough to be overlooked individually. Moss covers the lower brickwork in close cushions, dark where water has just passed over it and lighter at the tips. Liverworts lie across it in flattened scales and ribbons. In the joints, fern roots have worked into the soft mortar; their fronds open into the passages and brush the walls opposite.
+
+Near the lamps, trailing plants occupy every bracket and length of pipe they can reach. Their stems climb toward the cages, then hang down again under the weight of leaves and water. Some have rooted where a hanging stem touches a ledge. Others are held in place by a tangle of older roots, with no soil visible around them. When a lamp is changed or a pipe disturbed, a whole curtain may shift together.
+
+The grates support smaller colonies. Sediment catches against the bars, roots enter it, and the roots catch more sediment. Fine green growth covers the damp metal between them. Beneath the surface, bacteria and fungi live among fragments of dead stem and leaf, breaking them down slowly in the wet. The drains remain open in places, though their openings are narrower than the ironwork suggests.
+
+There are plants in the houses too. They come through window frames and spread across sills; they follow damp lines down interior walls. A fern growing on one side of a passage may meet its reflection in the window opposite. Behind another pane, leaves press outward against the glass. Where a door is regularly used, the growth is rubbed back along its edge.
+
+At the far wall, the fern bank is crowded enough that individual plants are difficult to separate. Older fronds lie beneath the new ones, brown and softening at their bases. The youngest are still curled. Water passes through them all on its way to the drain.
+
+The pump and lamps need attention, and the narrow streets leave room for whoever comes to tend them. The vegetation grows back over the places that are cleared: around a bracket, across a step, into the edge of a grate. Most of its changes are too slow to see. A frond lengthens by the lamp; a root finds a wet joint; a worn passage grows narrower by a leaf’s width.

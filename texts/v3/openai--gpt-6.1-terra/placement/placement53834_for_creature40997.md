@@ -1,0 +1,17 @@
+I would live near the back of the hollow, where a crack in the floor keeps one side of the house warm and leaves the other cold enough for storing jars. The roof would be low. I would have to stoop to enter, though the children could run in upright until they grew too old to think of running indoors.
+
+At first I think I would be a keeper of jars. That sounds like a task one person might be given, and I like the idea of knowing each vessel by its small flaws: the one with a ridge inside its neck, the one whose base will never sit quite level, the one that must be carried with both hands because a handle came away years ago.
+
+But the jars belong to different households, and the people who fill them know them too. I would be the person called when a stopper has dried out, or when a jar begins to smell wrong. I would make new stoppers from layered fiber and softened root skin, and I would test them by holding the jar near my ear as I turned it. I might listen for a little escaping air, though mostly I would be feeling for a loose fit with my thumb.
+
+I would also take on the work that comes to anyone with a free morning. I would help lift a slab from a roof while its owner cleared the roots growing beneath it. I would sit with someone stripping stalks, tapping each joint on the stone before splitting it. Once, finding a large insect still inside, I might carry it out on the blade of my tool rather than shake it into the workshop.
+
+My house would have been someone else’s first. Perhaps my mother’s brother lived there, and after he died I began by using his cold wall to store the jars I was working on. His combing frame stayed under the eaves. I moved it twice to sweep around it, then found a place where it could hang. For a long time there was a shallow bowl beside the doorway, cracked across its bottom. Nobody wanted it, but nobody needed the space. One day I broke it the rest of the way and used the pieces to prop a rocking jar.
+
+There would be a lizard beneath the warm side of the house. I would recognize her by a pale seam down her back, although I might spend several years mistaking her for another with a similar mark. In the cool part of the day she would lie with her head just outside the slab. If I came home quickly she would disappear; if I came home at my usual pace she would let me pass.
+
+A child from a nearby house might start accompanying me on my rounds. At first I would give them the small stoppers to carry, which they would drop, and then a bag to carry them in. They would notice things I had learned to step past: a grazer sleeping with one ear folded under its cheek, or dust puffing from a cushion when a bird landed on it. They would want to know what lay under the pale, level growth beyond the workshops.
+
+I could tell them there was a doorway there once. I would not be old enough to remember the person who lived behind it, but I would know the threshold stone because someone had shown it to me. Together we could kneel at the edge and feel for it, taking care not to lift more of the cushion than we had to. The stone would be cool on top and warm farther underneath.
+
+Then we would put the growth back as gently as we could and go on to the next house, where someone would be waiting with a jar between their knees and a stopper they could no longer pull free.

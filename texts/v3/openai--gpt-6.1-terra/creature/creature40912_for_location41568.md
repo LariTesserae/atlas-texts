@@ -1,0 +1,7 @@
+The inhabitants are sprigs, though none has a stem that sways. Each is a small, fixed arrangement of clear, brittle tissue, branching only where its narrow seam permits. The roots are almost impossible to distinguish from the brightness around them. Toward the tips, a pale yellow gathers, as if the last extremities held a trace of something the rest had already surrendered.
+
+Dry mineral vapor passes through them. They take from it what they need and leave behind the fine white substance that surrounds them. At the same time, they dissolve material from the surfaces nearest them. Each sprig adds to the chamber and opens its place within it, working so slowly and evenly that its outline remains unchanged.
+
+No two occupy quite the same space. One is pressed close along a column; another stands where several ridges meet, its branches extending into seams on either side. Their shed material joins without visible boundaries. The ceiling above one sprig may include what was laid down by its neighbors, just as the ridges below it contain the work of growths too far back to distinguish.
+
+The note passes through them as it passes through everything else. Their tips do not quiver. They continue feeding in the cold, steady light, each held in its own narrow opening while, around and between them, their accumulated substance makes the close-fitting form of their world.

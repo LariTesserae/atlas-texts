@@ -1,0 +1,11 @@
+High in the mountain, above the last weather station, a fresh crack opens beneath a lip of black stone. The opening is barely wide enough for a hand. Inside, it widens into a chamber no larger than a bedroom, its floor tilted steeply toward a seam too narrow to enter.
+
+The chamber is a city.
+
+Its buildings are pressed against both walls: stacks of metal chambers, fine as watch parts, joined by ladders and enclosed belts. A foundry occupies a shelf of pale mineral near the entrance. Its furnaces run cool and red; little hammers flicker behind a mesh guard. Farther in, cables cross the gap in such numbers that they look solid until something moves among them. The air smells of hot dust and the sharp, dry tang of worked metal.
+
+Thousands of small animals live here. They are slate-colored, six-legged things with hard, overlapping backs and sensitive white feelers. They squeeze through the machinery, swarm over the loading platforms and carry crumbs of ore in their jaws. Some have worn smooth tracks into the softest parts of the stone. Others live almost entirely in the moving belts, riding them from level to level and stepping off at precisely the right moment. There is nothing green in the chamber. The animals eat mineral deposits, grease, and one another.
+
+Everything is in motion, though the place is nearly quiet. The motors hum too low to distinguish from the wind outside. A train of ore carts passes with a sound like a fingernail drawn across cloth. Now and then a whole crowded bridge shivers as the mountain shifts, and the animals scatter through the struts while workers farther up pull it apart and fasten it together again.
+
+The crack is young. Its walls still bear sharp crystalline edges, and every few days a flake shears away, crushing a lane or uncovering a new pocket of useful metal. Construction follows each collapse almost at once. In the dim light from the furnaces, fresh scaffolds rise beside wreckage that has not yet stopped settling. Above the city, through the narrow entrance, a strip of cold sky appears and disappears behind blowing grit.

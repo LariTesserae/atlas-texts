@@ -1,0 +1,17 @@
+The plain is made of plates.
+
+They run for miles beneath shallow water, fitted edge to edge in a pattern too large to see from any one place. Time has worn their seams into broad, dark channels. Some plates have buckled into low ridges; others have sunk, making basins where the rain collects. There is no soil beneath them, only further layers of worked material: ceramic aggregate, riveted sheets, a black porous substance that gives slightly underfoot and releases cold water around a boot.
+
+The land is nearly level. At a distance, rows of structures stand above it, widely spaced and difficult to distinguish in the dark. They look at first like headlands or the remnants of hills. Closer, they resolve into compressor houses, cooling towers cut down to their lowest courses, and long gantries whose beams have bowed almost to the ground. Everything has been rounded by an immense duration of rain. Bolt heads have become smooth studs; stairways have worn into ramps. The oldest machinery has settled so completely into the plain that water divides around it as around stone.
+
+It is never quiet here. Beneath the plates, engines run in chambers deep enough that their separate rhythms merge into a continuous, deafening roar. The ground trembles with it. Rain striking the metal makes another sound, a high, crowded drumming, and the channels add their own rushing note as pumps draw water through them. Near an open vent the noise becomes physical: clothing flutters against the body, and a hand held over the grating feels pulses of warm air.
+
+The pumps still work. Water gathers in the basins until a concealed gate opens, then slides away in a widening spiral. Elsewhere it rises through perforations in the plates, spills across the plain and is taken down again. No outlet is visible. The water smells faintly of iron and carries a fine gray sediment that settles in the grooves of abandoned walkways.
+
+Light comes from scattered inspection lamps, most of them dimmed by mineral crust. Their reflections tremble on the flooded surface. Now and then a row of lamps brightens as power moves through an old circuit, revealing wet girders, mist and a distant wall of falling water. Then the row fades, leaving the landscape to its few isolated lights again.
+
+Vegetation holds on where the joints stay damp. Thin reeds grow from seams packed with sediment, and small mats of dark green cling to the sheltered sides of machinery. They are widely separated, each patch sustained by a leak or a place where condensation drips steadily from an overhead pipe. There are no insects among them, no birds in the girders, no movement in the water except the movement given to it by rain and pumps.
+
+In one district, hundreds of narrow rods rise from the plates at irregular intervals. They are taller than a person and made of a pale, flexible metal. When pressure changes below the ground, they bend together, slowly and almost to the same angle. Water slips from their tips. A few seconds later the roar deepens, a gate somewhere opens, and the rods begin to lift.
+
+The plain has been doing this for so long that deposits have formed around the rods and worn away again, leaving pale rings on the plates. New rain fills those rings. Beyond them, the compressor houses stand in darkness, and farther still the made ground continues, carrying its shallow water toward the sound.

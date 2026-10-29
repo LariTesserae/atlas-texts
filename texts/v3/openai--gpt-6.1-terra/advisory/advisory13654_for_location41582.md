@@ -1,0 +1,13 @@
+Arrange your visit with the people who tend the chamber. They will know whether visitors are welcome, which paths are sound, and whether the birds are feeding young. Ask them to lead you if possible: what looks like an empty tube or an untidy basket may be an occupied home.
+
+Wear closed shoes with good grip. The middle of the stair is effectively a ramp, and loose fragments or water can make it treacherous. Take the descent slowly, using a handrail if there is one; don’t steady yourself against the tubes or baskets. Inside, watch for projecting shelves as well as uneven tiles underfoot. Travel light, without a large pack that could catch on something.
+
+Bring soft earplugs if you are sensitive to noise. The calls and rattling may be startlingly loud in such a small space. Keep enough hearing to follow your guide and notice movement around you. The daylight is described as sufficient, but a small, dim torch could help you see the stair or floor; aim it downward rather than into nests, and leave it off when you don’t need it.
+
+The chamber may contain dust and old droppings. If local caretakers recommend it, or if dust is being disturbed, wear a well-fitting particulate mask. Avoid sweeping or handling debris yourself, and wash your hands after the visit, before eating. Anyone with respiratory illness or a weakened immune system should seek local health advice before entering, particularly if the animals and their diseases are unfamiliar.
+
+Once inside, move slowly and give the inhabitants room. Don’t touch the tubes, webs, animals or drinking bowls, and don’t feed anything or use flash photography. A pale gecko may be almost invisible until it moves; a bird may leave a tube just as you pass. Let the animals choose their distance. If your presence causes repeated alarm or keeps them from their nests or water, withdraw.
+
+You might ask to visit outside the busiest feeding period. Late afternoon sounds especially vivid, with the light shifting and birds returning to drink, but it may also be a time when the chamber is best left to them.
+
+Expect a place that feels fuller than its dimensions suggest: warm air, a dry clay smell threaded with animal scent, stripes of sun and shade, and small movements all around you. Pause where your guide says you can safely stand. After a while, as your eyes adjust and the roar separates into calls, claws and rattling pots, you may begin to see how much of the chamber is inhabited—and how carefully the people who maintain it have learned to leave it alone.

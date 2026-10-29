@@ -1,0 +1,19 @@
+The largest inhabitant is the bird on the ledge. Its feathers are so dark that the first distinction one can make is the line of its folded wing against the wet stone. Its beak is tucked beneath the wing, but one eye remains visible through a parting in the feathers: clear, black, and open. Fine droplets have gathered along its back without flattening the plumage. Its feet grip a rim of rock no wider than two fingers.
+
+A mouse occupies the moss just below its breast. Another is wedged into the same seam, facing the other way, its tail laid across the first mouse’s paws. Their fur is warm and dry at the roots, though the tips are wet. The bird has not taken them, and they have not fled it. All three hold to the ledge with the composure of animals in separate shelters.
+
+The frogs are easier to see. Their backs make a low, uneven pavement around the pools, brown and green where a little light reaches them, almost black farther under the leaves. Some rest with their chins on the stone; others are half immersed, their eyes just above the water. Their sides touch. Here and there a smaller frog fits between two larger ones, one forefoot laid over a neighbor’s toe. A bead of water sits on the ridge between each of its eyes.
+
+Beneath them, in the clear shallows, are pale creatures with translucent bodies and jointed legs. They stand on submerged leaves and between the frogs’ long toes. Farther out, where the pools are black, only an occasional pale outline can be distinguished: a curved back, the thread of an antenna, something soft pressed against the underside of a stone. None rises for air.
+
+The snails favor the wettest wall. Their shells vary from the size of a seed to the size of a thumbnail, and where the rock curves inward they are packed so closely that their rims meet. Their bodies extend beneath them in a thin, shining layer. Some have climbed over older shells, leaving the lower animals visible only at the edges. A few sit on the leaves of liverworts, which have spread over the moss, which has grown over roots gripping the stone.
+
+Under the ferns, moths occupy the dark spaces between the ribs of the fronds. Most have closed their wings, showing gray or bark-brown undersides, but a few rest open and reveal small patches of cream. One has settled across the folded wings of another. Beetles hold nearby, their feet hooked into the leaf tissue. The smallest are no larger than the beads of water around them; the larger ones have dull, scored wing cases and are crowded into the deep folds where the leaf joins its stem.
+
+There are living things beneath these as well: minute mites in the seams of moss, pale filaments binding fragments of old leaf, soft growths inside the cracks the roots have found. The floor offers almost no bare surface on which to separate one life from another. Even the exposed curves of stone have their coating of water, and within that coating are specks too small to give a shape to.
+
+The animals are still, but they have not been arranged. Their positions have the ordinary irregularity of creatures that found room wherever they could: a moth overlapping a moth, a frog’s leg extended beneath another’s belly, a mouse pressed into moss by the curve of the rock. Nothing has been cleared for them, and nothing has been cleared by them.
+
+The low note of water continues among them. It is audible beside the bird’s ledge and at the edge of the deepest pool, though no drop can be seen falling and no ripple travels across the water. The frogs’ eyes remain clear. The mice stay warm. The fern leaves hold their burden of moths and beetles, and the snails remain extended against the wall.
+
+Whatever keeps them there leaves them alive in every particular that can be examined, except that they do not change. They fill the hollow not like a collection of things stored away, but like a community caught in the midst of using every inch of it.

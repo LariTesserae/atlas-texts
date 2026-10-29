@@ -1,0 +1,13 @@
+Beneath the paved floor of an old city there is a chamber no larger than a pantry. Its ceiling is low enough to touch, though there is no clear place to stand. Moss has filled the floor from wall to wall, rising over buried stones and the bases of pillars in thick, fitted cushions. Ferns grow through it so closely that their fronds hold one another upright.
+
+The city above was built of chalk blocks and timber. Its drains, foundations and abandoned wells overlap here, though none opens fully into the chamber. A narrow stair descends from a sealed doorway and disappears after three steps beneath the moss. On one wall, hand-cut channels meet in a shallow basin. They no longer carry a stream; now and then a bead of condensation gathers at a junction and slips down into the fern roots.
+
+The air is bitterly cold. Frost persists on the exposed edges of the stones, but the moss beneath it remains dark and soft. Each plant seems to occupy the exact space it needs. Pale liverworts fill the seams between the cushions; a fine, silver grass grows wherever a thread of soil has collected on the old masonry. Small white fungi rise among the fern stems, their caps pressed flat against the undersides of leaves.
+
+Light enters through a crack in the ceiling. Above it, in the city, a courtyard is paved with white stone. Sunlight falls into the crack and is reflected from one pale surface to another until the chamber is bright throughout. Even under the ferns there is enough light to see the tiny tracks of mites in the frost.
+
+The animals are easy to overlook. Translucent springtails rest in the folds of the moss. Snails with shells the color of old milk cling to the basin. In a crevice beside the stair, a colony of small, thick-furred insects has packed the stone with chambers of chewed lichen. They move very slowly, tending their young and carrying fragments of leaves through passages scarcely wider than themselves. A spider lives above them in a web so close and finely woven that it resembles another patch of frost.
+
+Almost nothing makes a sound. The city overhead has been empty for a long time, and its walls are too thick for wind to enter. A drop may fall from the basin’s lip without being heard; it lands on moss and is absorbed.
+
+The stones have rounded with age, and roots have widened their joints, yet the chamber is not collapsing. Each loosened block is held by another, each old root replaced before it rots away. The plants grow, but their outer edges remain in the same places, trimmed by cold, by snails, or by the pressure of neighboring leaves. The courtyard above admits the same narrow shaft of light. Day after day it reaches the basin, the stair and the crowded green floor.

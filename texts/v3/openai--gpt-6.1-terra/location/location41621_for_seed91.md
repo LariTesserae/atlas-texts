@@ -1,0 +1,13 @@
+The land lies below the surrounding plain, in a shallow basin dug out over the last few decades. Its sides are still sharp: dark ledges, straight cuts, ramps where machines once descended. From the rim, the far side is barely visible through the dim winter air.
+
+Almost everything in the basin is plant matter. A low mat of moss and wiry sedge covers the floor, interrupted by bare strips of black earth and the pale, torn edges of old peat. The mat is thin on the higher ground, where frost has lifted it into small ridges. In the hollows it is thick enough to swallow a boot. Sparse young pines stand far apart, their lower branches buried in a crust of snow.
+
+There is little open water. A few shallow pools occupy wheel ruts and depressions left by excavation. Most have frozen clear enough to show brown stems trapped beneath them. At midday, moisture gathers on the sheltered faces of the machinery and sometimes falls in slow drops, making dark spots in the moss. By evening those spots are hard again.
+
+Along one side of the basin runs a low industrial building, long enough that its far end fades into the gloom. It houses pumps and ventilation equipment for workings farther below. The fans are enormous, and their noise dominates the whole place: a dense mechanical roar with a lower pounding inside it. The sound reflects from the cut walls and comes back from several directions at once. Near the building, conversation is impossible. Even out among the pines it is loud enough to make the basin feel smaller than it is.
+
+The machinery does not appear to move quickly. Belts turn behind wire guards; vapor drifts from a vent and settles in the cold air. A few yellow lamps burn over the doors. Their light reaches a short distance across the moss, catching the rims of frozen footprints and the bent heads of last summer’s sedges. Beyond them the basin is gray and open.
+
+Life is present mostly as a texture underfoot. Lichens have begun to stipple the exposed stone, and moss is working into the seams between discarded concrete slabs. A vole has left a narrow trail beneath the snow near a mound of peat. Once in a while a bird crosses the basin without landing, its wingbeats lost beneath the fans.
+
+The plants will eventually soften the cuts and cover more of the abandoned tracks. For now, the newest slopes remain angular, their loose material held in place by frost. The moss grows slowly over their lower edges while, day and night, the engines keep running.

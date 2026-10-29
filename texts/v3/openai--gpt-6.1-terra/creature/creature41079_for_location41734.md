@@ -1,0 +1,11 @@
+The basin’s most numerous inhabitants are easy to mistake for grit. They are called seamlings, small flat animals that live beneath the pebbles, where the water is slower than it looks. Each has a soft grey body and a back covered in overlapping plates. When a pebble rolls, the seamling clings to it for as long as it can, then lets go and settles beneath the next.
+
+They feed on the dark films growing on stone. A seamling extends a fringe of fine, sticky threads into the passing water, gathers the loosened algae, and draws the threads back to its mouth. Where the current strips a rock clean, seamlings may go hungry for days. Where it leaves a film undisturbed too long, the growth becomes thick and sour, and they cannot eat it. They do best along the shifting edges.
+
+They are not equally at home in every pool. The young live in the shallows, among gravel small enough to move with them. Older seamlings grow broader and seek the deeper shelves. Some become so large that they can no longer turn easily in open water; they spend years pressed into a single hollow, with only their feeding fringes showing. When a shelf dries, they close their plates and wait. After a long enough drought, the empty plates remain attached to the stone like little pale scales.
+
+The bubbles in the deepest pool sometimes carry their eggs to the surface. These are clear sacs, each containing a cluster no larger than a pinhead. Most break against the rock or are swept into the culvert. A few lodge in algae until rain raises the water again, and the young emerge into whatever channel has opened around them.
+
+Water beetles hunt the smallest seamlings, probing under flakes of shale with their front legs. The grey bird comes for the larger ones after heavy rain, when the old hollows flood and their occupants must either move or drown. It has learned to watch the water below the pump house, where the culvert spills them out among the pebbles.
+
+Inside the broken pump, a different community has taken hold. Worms live in the rust-softened joints, and a pale fungus spreads through the rotting ends of the roof timbers. The turning wheel scatters water over them. In dry weather, when it stops, the worms retreat into the seams and the fungus draws back from the exposed wood. The seamlings beneath the culvert gather there too, waiting for the wheel to begin clicking again.

@@ -1,0 +1,25 @@
+The people who tend the lamps live above the old street. There are three of them now. They keep a key to the district in a cupboard at the pumping station, beside a ledger swollen by damp. Each visit is entered with the date, the depth on both gauges and a note of any work done. Most entries are brief: *east lamp replaced*, or *pump two running warm*. The oldest keeper has filled more pages than the other two together.
+
+They know the animals well enough to move carefully among them. Before lifting a stone to clear the drain, they wait for the white crustaceans underneath to scatter. They wipe the pump-house wall around the snails rather than across them. Once, when a fish was trapped behind a loose plate, one keeper held the plate back while another guided it out with a folded piece of card. The fish remained between the bars afterward, facing the incoming water.
+
+The keepers also watch the basin. They do not make a separate entry when the extra building appears; it appears often enough. Instead, the oldest keeper records a small mark beside the second gauge reading whenever the top window is lit. In years of heavy rain there are long rows of these marks. During a dry spell they become intermittent, then stop until the water rises again.
+
+Something lives in that upper room.
+
+At first it was known only by changes in the light. A shadow would pass slowly across the window, pause, and pass back. Later, when the lamp over the basin was made brighter, the keepers could see the outline of a figure. It is difficult to tell its size. The window is narrow, and the water is rarely still for long. What looks like a shoulder may be the back of a chair; what looks like a bent head may be a coat hanging from a peg.
+
+The figure spends much of its time near a table beneath the window. It handles small objects there, laying them out and bringing them close to the light. One morning it held up something with a jointed outline. The keeper watching thought of a crustacean, though it could just as easily have been a tool. When the figure put it down, it remained on the table for several days.
+
+There are curtains in the room, thin enough for light to pass through. They are drawn on the coldest mornings. On those mornings the water beneath the reflected window films over first, and the figure sometimes comes close enough to clear a small patch. The motion appears in the basin: a hand moving across the glass, then the dark oval it has made. Whether the hand is warm or carries a cloth, the keepers cannot see.
+
+The figure has noticed them. Years ago, the oldest keeper raised a hand over the basin. The figure stood at the window without moving. The keeper lowered the hand, checked the gauges, and began putting tools away. Then the figure lifted an arm. By the time the keeper turned back, it had gone from the window. The gesture was entered in the ledger, though the keeper left the space beside it blank the next time someone asked what it had meant.
+
+Since then there have been other gestures, none repeated often enough to become a language. A hand raised. Two fingers against the glass. Once, both arms extended toward the dark rooms below. The keepers have tried answering with their own lamp signals, but the figure either does not understand them or cannot see them clearly. The water carries the movements unevenly, breaking a hand into strips and joining it again.
+
+No one has seen what occupies the lower floors. Their windows darkened gradually, over many years. The oldest keeper remembers light in the second storey, and a shape that moved behind it, though not well enough to describe. There may be rooms there still, furnished and inhabited beyond the reach of their lamps. There may be empty rooms. When the top window opens, which it does only a little, the curtain draws inward as if air were passing through the building.
+
+The figure tends its light. That much is clear. Now and then the room goes dark for an hour or a day, then returns with a different steadiness or color. Once it failed for nearly a month. The second gauge continued to rise and fall; rain came through the grilles; the pump gears turned. The keepers checked the basin on every visit. When the light returned, it was dimmer, and the figure sat beside it for a long time without coming to the window.
+
+Around the basin, the district’s other inhabitants continue their ordinary work. Snails cross the mortar seams at night. Moths rest in the warm housings and emerge when the lamps have been on for a while. The blind eel comes from its pipe to feed where the current gathers against the wall. On visits when the water is high enough, a keeper may stand among them and look down.
+
+From the room in the reflected building, the keeper must be visible too: a figure in a lit square, bending over an opening in the water. Sometimes the figure at the window bends at the same moment. It is not always possible to tell who moved first.

@@ -1,0 +1,13 @@
+The town occupies a shallow stone basin, no more than a few streets across. A low retaining wall follows its rim; beyond it, the ground rises gently into bare, weathered shelves. The buildings are widely spaced: a pump house, a row of dwellings, a squat factory with six chimneys, and a station with no tracks visible outside it. Their brickwork has softened at the corners, and the paving between them is worn into broad, shallow hollows.
+
+It is cool here. Water gathers on the undersides of pipes and falls occasionally into the hollows, where it stays in thin, clear films. There is no moss around the puddles, no grass in the joints, no stain of green on the walls. The only colors are the pale stone, dark brick, iron rust, and the dull silver of wet surfaces.
+
+The factory runs continuously. Its engines draw heat from somewhere beneath the basin and drive a network of belts, pumps, and ventilators. Through the tall windows, wheels turn behind a haze of vapor. The lamps are on, though daylight reaches every street: ordinary gray daylight, bright enough to show each crack in the masonry.
+
+The animals live mostly inside the machinery. They are small, jointed things with hard, translucent bodies, packed so closely into the ventilation ducts that their legs make a kind of moving lining. Others occupy the gaps behind bricks, the drains beneath the streets, and the cavities in the great wheels. When a panel is opened, they spill out in thousands, cling to its edges, and flow back into the warmth. They feed on mineral deposits and on a fine bacterial film that grows where the pipes sweat.
+
+Their noise fills the basin. The engines throb, the belts slap, and beneath and above those sounds is the immense, steady rasp of the animals rubbing against one another. Every duct and hollow wall carries it. The streets themselves are almost empty, yet nowhere is quiet.
+
+The town has been in this condition for longer than its surfaces seem able to record. A drop forms beneath a pipe, falls into the same puddle, and leaves the same small ring. A belt carries its load around a wheel; the animals shift to admit it and close behind it. The puddles do not deepen, the deposits do not thicken, and the number of bodies in each duct remains precisely sufficient to fill it. Even the wear on the paving has stopped at a comfortable depth.
+
+At the basin’s edge the sound is loudest, reflected from the retaining wall. A few steps beyond it, on the bare shelves, the air is abruptly still. Looking back, one can see the six chimneys releasing six unwavering threads of vapor, and a single insect crossing the wet stone between the pump house and the factory. It reaches a crack, disappears, and another emerges from the same crack, facing the other way.

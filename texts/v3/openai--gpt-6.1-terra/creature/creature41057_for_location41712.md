@@ -1,0 +1,7 @@
+In the joint behind the ferns lives a small, pale animal, flattened enough to pass between the stone and the moss. Its body is soft, with a faint line down the middle and a fringe of short feelers at the front. When it is still, which is most of the time, it looks like a fragment of the limestone’s damp skin.
+
+It comes out when a film of water gathers on the rock. Then it moves slowly along the joint, feeding on the minute growths that spread over the stone and through the moss. It does not go far into the hollow. The open clay dries too readily, and even the nearest slab is a long journey across bare ground. If the joint becomes dry, the animal retreats deeper into it, folding itself into a crevice where moisture lasts.
+
+There are others, though they are seldom close together. Their eggs are laid singly in the moss, each enclosed in a clear covering that holds a little water. The young are almost colorless. At first they remain among the threads of moss; later they venture onto the stone and find other seams.
+
+The ferns shelter some of them, and the moss shelters more. Beneath both, in the wettest cracks, smaller lives go on: mites and roundworms, bacteria, the fine threads of fungi. They consume what falls or dies there and become food in turn. Nothing they do is easily seen from the entrance. The hollow remains quiet, and the line along the wall remains thin.

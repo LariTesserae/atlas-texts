@@ -1,0 +1,9 @@
+The ribbon colonies begin low against the stone. Their mats fit the hollows and grip the raised mineral seams, thickening wherever the current leaves enough dust for them to use. From this base the ribbons rise, fork and curl back among their neighbors. The oldest towers have open centers, where the water runs more slowly and loosened strands hang for a time before finding their way out.
+
+A tower is never quite the same shape from one hour to the next. Its ribbons trail in the current, separate, gather again. When a stronger flow comes over the ridge, the whole colony bends, exposing the worn mat beneath. Some of its outer growth breaks away. The colony draws what it can from the dead edges still attached to it; the rest travels out over the silt, dark threads turning slowly in the water.
+
+The pale growths downslope spread differently. They keep close to the rock, branching until their colonies meet in cushions. Their surfaces open to the flow and close again, taking in minerals. Fine threads emerge and drift away among the ribbons’ heavier fragments. Most settle in the basins, where silt covers them. A few reach exposed stone and hold.
+
+The two kinds grow on the sheltered sides of the upright stones, too. There the current passes over polished faces and leaves a quieter space behind. Small pale cushions have formed in those spaces, and a few dark ribbons rise from them, bowing downstream. When the deep note travels through the shelf, it reaches these colonies as it reaches the great towers: at the root first, then along every loose length.
+
+Within the stone rings, the roofs have protected patches of old cord. Elsewhere the mineral crust has split, and the cord’s braided strands have come apart. They no longer grow, but living ribbons grow nearby, fixed to the same shelf, lifting and settling through the long hours in which the chambers beneath them sound.

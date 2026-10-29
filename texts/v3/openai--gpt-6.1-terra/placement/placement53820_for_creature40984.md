@@ -1,0 +1,15 @@
+I would be under one of the rods, where it passes through a joint between four plates. Above me, rain would gather in the pale rings around its base. Below, I would have grown around the sleeve that holds it, into the bolt holes and along two narrow channels. One part of me would line a dry seam farther down, connected to the rest by a knot that has hardened almost all the way through.
+
+The rod would bend. My collar would compress. Later, when it lifted, cold water would enter around it and run over me. I would take from the water what I could and gradually make room for more of myself.
+
+For a long time, that would be the shape of my life: pressure arriving, pressure departing, the small differences between one arrival and the next. I would not know the rod as an object, though I would have its history in me. A collar I made against it long ago would hold the impression of a ridge that has since worn smooth. Deeper still, my hard layers would fit around a rivet no longer joined to anything. If the rivet came free, I would keep its shape until water carried enough sediment into the space to fill it.
+
+I think I would be larger than I could readily feel. A tightening beside the rod would pass through me toward the dry seam, but by the time it reached my farthest surface, the collar might already be loosening. Both changes would belong to me without making a single, simultaneous event. There would be days, perhaps whole seasons, when one end of me waited while the other was being washed.
+
+Once, a gate would begin to open differently. The pressure would rise as usual, but then hold too long. My exposed surface would draw tight against the channel wall. New ridges would form across older ones. Water would come eventually, carrying gray sediment and a piece of another growth.
+
+The piece would lodge against my downstream edge. At first I would only have to grow around it. Then it would swell in the shelter of my older layers, fastening itself to the same worked material. Its contractions would be slightly out of time with mine. When the next pressure came, I would tighten, and later it would tighten too; when I loosened, it would still be holding on.
+
+Years of water would pass over us. The join between our growths would thicken. There might come a cycle when I could no longer tell, even in the limited way available to me, which side of the join had begun to contract. The difference would remain for a while in our hard layers, a series of crossed ridges. Then new tissue would cover them.
+
+Above us the rod would go on bending, slower than the rain and faster than we could grow. Its lifting would draw cold water down. We would loosen into the flow. Beyond the plates, lamps might brighten in a row, but the change would not reach us. We would know the gate instead: its long pressure traveling through the joint, and afterward the water, arriving where we had already begun to wait for it.

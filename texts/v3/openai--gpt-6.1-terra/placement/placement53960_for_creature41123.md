@@ -1,0 +1,11 @@
+At first I would place myself beside the hottest spring, where the stone hums. But there is little to hold on to there, and the steam hides the movement of wings. I think I would live a little farther down, where the water has cooled enough for green things to spread over the gravel.
+
+I would be small. The rain would strike the leaves above me hard enough to shake the insects loose, and I would wait underneath, watching for what fell. Not a frog: I would want to follow the water when it disappeared beneath the root mat, then rise above it and see where it came out again.
+
+Perhaps a bird, then, though not one often seen crossing the open valley. My feet would be made for the hanging roots, my body narrow enough to turn between them. I would work sideways along a mossy branch, finding the folds that stay wet even after the sun reaches them. A thin beak could open those folds without tearing them apart. Sometimes there would be an insect inside; sometimes only a bead of water, which would tremble and fall.
+
+The branch I return to grows from a tree leaning out of the valley wall. Below it, a warm stream divides around a fallen trunk. Ferns have come up through the trunk’s rotting wood, and the grazers pass there in the mornings. I hear them before I see them: the parting of the fronds, then the steady tearing sound as they feed. Once they have gone, the larger bird comes down behind them. I stay in the roots until it has finished.
+
+My nest is not high. It is tucked into the sheltered side of the leaning tree, where a curtain of moss keeps off the worst of the rain. In a storm I can feel the tree take the weight of the water. The nest sways; drops find their way through the moss one by one. I have gathered fine roots to line it, and a strip of pale, dry grass from a place above the steam.
+
+By afternoon the rain is often over. The rocks shine, and the bird across the valley gives its hollow double call. I answer with something thinner, not quite a whistle. Then I go back to the wet folds of moss. There is a larva there, gripping the underside of a leaf, and it takes several tries to pull it free.

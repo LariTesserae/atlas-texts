@@ -1,0 +1,13 @@
+At an altitude where the air ought to be too thin for weather, a broad valley lies between two dark ridges. The ridges are worn smooth along their tops, but their inner faces are steep and fluted, as if water once ran down them for an immeasurably long time. No peaks are visible above them. The sky begins immediately beyond their edges: a dim, close gray, without sun or stars.
+
+The ground is mostly stone, broken into broad plates with narrow seams between them. Moisture gathers in the seams and holds there, black and still. In sheltered hollows, shallow pools reflect the ridges, though the reflected slopes rise in the wrong direction. A little frost rims each pool. It does not spread onto the wet stone beside it.
+
+There are plants, but finding one takes some walking. They grow flat against the rock: pale cushions no larger than a hand, with tiny dark leaves pressed tightly together. Occasionally a few wiry stems stand in a crack, each bearing a single closed bud. Nothing stirs them. Farther out, a small white animal is fixed on a ledge, its back rounded, its ears laid flat. From another part of the valley it can be seen again, on a ledge of the same shape, at exactly the same distance away. Whether there is one animal or several is difficult to settle.
+
+The valley is enormously loud. A low, continuous roar fills it, like wind driving through a narrow pass, though there is no wind to feel. Beneath the roar is a higher note, thin and unwavering. It seems to come from the wet seams in the ground. Close to one of them, the note is no louder; covering it with your hand does nothing. The sound is simply there, at the same distance from every ear.
+
+Across the valley stand a few rough enclosures of piled stone. Their walls are low and incomplete, with no openings that clearly served as doors. Some lean outward, yet the stones have not fallen. In one enclosure there is a patch of dry ground, and on it a scatter of small white bones, too delicate to belong to the animal on the ledge.
+
+Walking is possible, but the valley does not reliably keep count of distance. A ridge may remain an hour away no matter how long one approaches it. A pool passed on the left may be found ahead, with the same small frost crystals and the same reflected slope. The ground underfoot is solid at every step; only the arrangement of what lies beyond it is uncertain.
+
+Nothing here appears to be waiting for a change. The damp does not dry, the buds do not open, and the roar neither rises nor fades. Even the animal holds its place, so far away that its stillness might be vigilance, or sleep, or something the valley has made difficult to distinguish from stone.

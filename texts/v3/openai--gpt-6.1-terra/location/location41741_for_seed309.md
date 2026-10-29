@@ -1,0 +1,19 @@
+The town occupies a hollow beneath the ground, not much larger than a railway station. Its ceiling is a single woven roof of roots, its floor a mat of pale, flattened stems. Between them there is a surprising amount of open air. The trunks that hold up the roof stand far apart, thick as bridge piers and polished smooth where generations have rubbed against them.
+
+No one remembers what was excavated here. The walls have the rounded, fluted look of stone worn for centuries by running water, though they yield slightly when pressed. Old channels curve across them and disappear into the floor. Once or twice a week, moisture gathers in these grooves, runs down in narrow threads, and collects in shallow cups formed by curled leaves. Most of the time the air is only faintly damp, with a warm smell of cut stalks and engine oil.
+
+The buildings are arranged around the trunks: a repair shop, a row of sleeping rooms, a pumping station, a little factory whose windows glow red behind their living shutters. Their frames are made from guided branches. Their roofs are broad, dark leaves renewed whenever the old ones split. Iron pipes and cables run through them, fastened loosely so the wood can swell. The town has learned to leave gaps in its machinery for things that grow.
+
+A belt-driven engine works near the center of the hollow. It turns a mill, charges a bank of lamps, and drives a fan that pushes stale air toward a narrow shaft in the ceiling. Its exhaust is fed into a bed of thick, black-green fronds. The fronds tremble constantly; their undersides are crowded with small pale mouths that open and close in time with the engine.
+
+The lamps are weak and widely spaced. They pick out a railing here, a stair there, and leave long stretches of the town in greenish dark. Movement fills those stretches.
+
+Beetles travel over the floor in dense, purposeful streams, carrying crumbs of leaf and flakes of rust. Moths cling in layers beneath the roof. Thread-thin worms live inside the transparent veins of the larger leaves, and fat, blind things with many jointed legs graze on the softer root surfaces. There are animals in the water cups, animals in the cable housings, animals riding on the backs of other animals. When a door is opened, a small weather of them spills through.
+
+They make more noise than the machinery. Wings rasp against the ceiling. Thousands of hard feet tick on the walkways. Somewhere behind the walls, a colony of burrowing creatures knocks in rapid sequences, answered by colonies farther away. At intervals a low, immense humming rises from the floor itself, as if every creature sheltering underneath has changed direction at once. People speak close to one another’s ears. The factory workers wear soft plugs made from seed down.
+
+The plant matter is eaten continually, but grows back just behind the mouths feeding on it. A railing may be scalloped by morning and smooth again by evening. The townspeople harvest this growth for fuel and fiber, cutting only where the beetle streams are already thick; fresh cuts attract them from across the hollow. Sometimes the streams converge so heavily that a whole street seems to move.
+
+When moisture comes, the activity changes. The moths descend to drink, and the burrowers emerge through pores in the floor. The engine slows while workers clear animals from its belts. For an hour or two the town is nearly impassable, its dim lamps surrounded by turning wings. Then the cups empty, the leaves curl shut, and the creatures withdraw into cracks and veins and warm machinery.
+
+By the next shift the streets are open again. New pale growth covers the worst of the damage, the fan resumes its steady chopping, and the old rounded walls glisten briefly before drying back to green.

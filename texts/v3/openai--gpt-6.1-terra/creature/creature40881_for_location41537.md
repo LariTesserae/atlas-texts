@@ -1,0 +1,13 @@
+The most numerous inhabitants are too small to make out individually. Plankton drifts through the bright upper water and gathers wherever a slow eddy holds it. Some passes through the pumps; some is carried back out again. New clouds arrive with the incoming water, so the basin’s smallest population is always changing.
+
+Silver fish follow the richer patches. In open water they form loose, restless shoals, but near a tower they tighten into a bright seam along the sheltered side. When the flow changes, the first fish move, then the others follow, spilling around the structure to take up position opposite. They feed facing the current, snapping at whatever it brings them. Beneath the surface, their eggs collect in folds of algae and in quiet gaps between bolted plates. Many are swept away before they hatch.
+
+On the concrete and steel live small grazers: soft-bodied animals with flattened undersides and shells no larger than a fingernail. They cross the thin algae films slowly, leaving clean trails that persist until the growth spreads over them again. They are most common in the upper reaches, where there is light enough for the algae. A few have followed seams and cables farther down, feeding on the sparse coating that forms around the lamps.
+
+Fish shelter among the beams around the intakes. Some slip easily through the lattice; larger ones patrol outside it, turning after a shoal and abandoning the chase when it scatters through the bars. The hunters are built for short efforts. They may hang nearly motionless in the lee of a support, then strike into open water and return with a fish held crosswise in the mouth. Far from the congregations, one can travel for a long time without seeing more than a single animal.
+
+The warm discharges draw their own temporary crowds. Tiny drifting animals collect where the rising water spreads, and fish gather below them. When the discharge stops, the crowd disperses. A lamp has a more dependable circle of visitors: plankton in the light, small fish at its edge, and hunters passing just beyond it.
+
+Larger animals enter the basin from time to time. Some stay for weeks, learning the shelter of a particular tower or following the fish between feeding places. Their calls carry through the water over the hum of the motors. Near a pumping station the noise is so strong that their calls can scarcely be heard at all.
+
+Most of the concrete floor remains bare. The grazers have not reached much of it, and there is little for them to eat there yet. In the rippled fans of silt, a few small animals burrow and feed; when a current lifts the surface grains, they close themselves down and wait. Around them, the formwork marks are still sharp enough to feel.

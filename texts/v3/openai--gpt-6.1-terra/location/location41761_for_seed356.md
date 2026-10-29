@@ -1,0 +1,13 @@
+The lowland goes on beyond any horizon that could be seen. It is almost entirely dark. A faint mineral pallor sometimes gathers above the ground, too weak to reveal distance, and shows only the nearest surfaces: upright leaves, black with moisture, and the pale seams where they join.
+
+The ground is made of plants. Broad, interlocked roots form a level skin over warm mud, while thicker growths rise from it in ranks and irregular clusters. Some are narrow as reeds; others spread into high, hollow trunks whose folded sides stand close together without quite touching. Their edges are clean and sharp. Nothing appears worn down. Even the pools have crisp margins, held in place by living rims.
+
+Water is everywhere near the surface but seldom deep. It lies in the cupped bases of leaves, beads along root channels, and presses slowly through the porous ground. The air is mild and saturated. On the taller growths, condensation gathers in such a fine, even layer that their surfaces feel slick rather than wet.
+
+There is no daylight here for the plants to use. Their roots reach into seams of mineral-rich mud, drawing a slow current from differences in the ground. Inside the great hollow growths, stacked membranes carry this charge from one living layer to the next. Sap is separated, concentrated, and passed along fixed channels. Certain leaves make the compounds their neighbors need; certain roots return salts to the mud. Across immense distances the same exchanges proceed in parallel, a production too widespread and too steady to have a center.
+
+It is industrial in its scale and order, though nothing has been built. There are no chambers cut into the trunks, no roads through the growth, no tools or animals among it. The plants grew their own conduits and filters, and their pale inner surfaces are as precise as folded sheet metal. A hand laid against one would feel a minute electrical tension, not quite a vibration.
+
+The plain makes almost no sound. Water moves through it without falling. The upright leaves hold their positions; their soft tissue yields to pressure and resumes its shape. Occasionally there is a faint settling noise from deep in the root mass, so quiet that it is difficult to tell how far away it occurred.
+
+The same warm dark extends across the low country, over young ridges of living material and flats where the roots lie nearly level with the water. Nothing here waits for a season. The current passes, the sap circulates, and the great fields maintain themselves in an equilibrium so complete that, after a while, the place seems less motionless than continuously at work.

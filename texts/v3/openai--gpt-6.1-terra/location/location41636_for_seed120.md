@@ -1,0 +1,13 @@
+High above the cloud line, inside the newest course of a hand-built mountain, there is a chamber no larger than a cupped pair of hands.
+
+Its walls are thumb-pressed clay, still warm and soft enough to take another print. Each wall has been made in pieces and pushed against the next; the seams bulge inward, leaving almost no open space. Reed fibers hold the clay together. Thin shelves of kneaded mud project from it, crowded with moss, fernlets and pale roots. Nothing has worn smooth yet. The newest surfaces are still arriving: a bead of clay slowly rounds itself on the ceiling, and a fresh corner pushes out beside it.
+
+The chamber is hot. Water gathers everywhere without ever becoming a pool: it beads on the leaves, hangs in root hairs and sweats through the clay. Now and then a drop swells large enough to fall, but there is so little room that it strikes three or four things on the way down. It lands with the noise of a boulder. The moss shakes; the reed fibers hum; water runs along a seam and is drawn upward into a shelf of mud.
+
+Light comes dimly through a pinhole left by a reed. On the other side are clouds far below and the faint, cold blue above them. The beam scarcely reaches the chamber, yet the plants turn toward it in a tight green spiral. Their leaves overlap so completely that a growing tip must lift the leaf above it to unfold. Underneath them, roots creep through every wet joint, stitching the new work together almost as quickly as it is made.
+
+There is one small animal: a translucent, long-legged thing that lives among the root hairs. When the walls grow loud it folds itself flat. It feeds on the droplets before they fall, reaching up with its mouth while its feet remain planted on the ceiling.
+
+From time to time, a wooden tool enters through the pinhole. It cannot possibly fit, but it comes through anyway: a broad, blunt spatula, slick with clay. It presses a new shelf into place, packs another tuft of moss against it, and withdraws. Each time it leaves, the chamber is slightly higher in the world. The clouds sink farther away, though the pinhole remains the same size and the walls have not moved.
+
+The work is never quiet. New clay crackles as roots enter it. Water drums through the crowded leaves. Beyond the walls, hands slap wet courses onto the mountain, and every blow fills the little chamber with a roar. The long-legged creature waits through it all, then unfolds and drinks again.

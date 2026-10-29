@@ -1,0 +1,11 @@
+I am in an exposed chamber on the face of a middle terrace, just below the collar of one of the great animals. From the open water the chamber is a dark green oval among thousands of others. The edge of a living membrane crosses its mouth, and against that edge I lie.
+
+I am small enough that the gold dust on the valves has a landscape within it. My body is flattened and faceted, with a clear rim and a blue branching line at its center. The membrane fits into a shallow groove along my underside. On my back are nested rings, each finer than the last; through them the pale stone of the cliff shows in broken pieces.
+
+At first I seem a creature shaped for a particular place, as a grazer is shaped against its leaf. But the groove beneath me has the same fine rings as my back. The blue line in me is continuous with a filament in the membrane, and the clear rim of my body spreads so thinly into the green surface that there is no edge to it there. I am a chamber-dweller, and also a small, distinct portion of the chamber.
+
+Cold water fills the space above me. A disk stands close by, its interlocking teeth broad as cliffs at my scale. Beyond it are ranks of valves and the blue filaments, and beyond those the chamber opens onto the sea. Silver light enters as a narrow band across the machinery. The water outside is crowded with the sound of the exposed plateau: the low roar is strongest where the membrane meets my body, while the brass of the rooted animal occupies the chamber mouth.
+
+Through that opening I have a view between two of its legs. The legs enter the ground in immense green collars. Between them a flattened creature rests, its transparent margin showing white branches inside. Farther out, a school of fish hangs in its crescent. Its thin ringing is present in the blue water, separate from the great animal’s low notes, though both are part of the place where I am.
+
+I have no need to leave the membrane to belong to that wider sea. The animal’s leg, the terrace tissue, the charged filament and the line in my body are joined; the water that lies over me is the water between the fish. I am one small form at an exposed edge, with the whole machinery sounding around me and a bright, narrow opening onto the plateau.

@@ -1,0 +1,7 @@
+Just below the surface, a small chamber has been built into the floor of a warm, shallow lagoon. It has no roof. Sunlight reaches every part of it, crossing the water in restless bands and gathering on the pale clay tiles.
+
+The chamber is only a few paces across. Its walls are fitted from hand-shaped blocks, still sharp at their corners; the joints are packed with lime. The floor slopes gently toward a narrow channel. Everything within the chamber has been laid or shaped by hand, even the low ledge along one wall and the three clay pots set on it. Two pots hold short tufts of seagrass, tied down with plant fiber. The third is empty.
+
+Water enters through a row of holes near the top of the wall and leaves through the floor channel. Each swell outside sends a fresh rush through the chamber. It presses the grass flat, lifts loose fibers from the ties, and draws bright threads of sand across the tiles. When the surge eases, the grains settle again in the grooves between them.
+
+The water is warm and clear. There are no fish or other animals in the chamber, and the walls are too new for much growth. The sound is surprisingly loud: water thuds through the openings, rattles the pots against their ledge and hums in the narrow channel below. Between surges there is a brief, softer wash, while the sunlight continues to flicker over the empty floor.

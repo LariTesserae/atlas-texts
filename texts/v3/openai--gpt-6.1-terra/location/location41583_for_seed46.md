@@ -1,0 +1,11 @@
+High on the flank of a mountain that has not quite become a mountain, there is a hollow no larger than a room. Its floor is pale mineral, warm through a thick sole. Around it, the rock rises in smooth, unfinished folds, as if the stone has been poured but has not yet decided whether to harden.
+
+A few plants grow here, far apart. Each is lavish in itself: a dense fountain of fleshy silver-green blades, their edges curled into tubes and lined with minute black teeth. There is no water in them. Their sap is a slow, clear oil that smells faintly of hot metal, and their roots draw nourishment from the gases that seep through the young rock. Between the plants lie broad stretches of bare ground, so clean and pale that every shadow seems deliberate.
+
+The light is ordinary afternoon light, bright enough to show the powder on the leaves and the seams in the mineral floor. Above the hollow, a narrow opening admits a view of the high, dry sky. The heat gathers rather than moving; there is almost no wind.
+
+Under the floor, something works with the regularity of machinery. Every few minutes comes a muted compression, then a long, soft release. The plants answer it by turning their toothed edges inward. Deep in their stems, grains of mineral pass from chamber to chamber, sorted, pressed and sent down into the roots. No one built this mechanism. It is simply how the hollow is making more ground for itself.
+
+Fresh stone appears around the roots in thin, warm collars. It has no cracks, no worn corners, no dust except what the plants have shed upon it. Sometimes a collar grows for years; sometimes, when the light changes, it is suddenly larger than it was, though nothing has been seen to move. A leaf may cast the shadow of a leaf it has not yet grown. Looking away and back does not reliably restore either version.
+
+There are no animals here and no tracks. The loudest sound is an occasional dry click as a leaf closes over a grain of mineral. Otherwise the hollow keeps its silence, while beneath it the slow, unowned engine continues to press the mountain into existence.

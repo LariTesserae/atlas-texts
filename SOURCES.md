@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **182** source folders · **196,214** texts
+- **183** source folders · **197,289** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -589,6 +589,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `openai--gpt-6.1-sol` | 1,075 | 2026-09-29 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gpt-6.1-terra  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-6.1-terra` | 1,075 | 2026-10-29 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## grok-3  ·  1,000 texts
 

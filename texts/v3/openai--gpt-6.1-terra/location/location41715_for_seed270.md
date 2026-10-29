@@ -1,0 +1,13 @@
+Beneath a low salt flat, a chamber no larger than a pantry opens around the buried foot of an old pumping engine. Its roof is a slab of pale stone, worn thin in one place. Daylight comes through the slit and falls across the floor, bright enough to show the separate grains of salt moving there.
+
+The country above has been flattened for so long that the old hills survive mostly as differences in color. Wind has taken their edges, then their slopes, and at last nearly everything that made them hills. Here in the shallowest part of the basin, it still carries fine dust across the surface. Some of that dust sifts through the slit, together with dead insects and scraps of dry organic matter from beyond the flat.
+
+Almost every surface inside the chamber is occupied. Small, gray-bodied beetles crowd the dusty ledges; thinner, long-legged hunters move among them, lifting themselves over the mass. Mites pack the seams in the stone. Pale larvae work through the remains caught in the corners, leaving neat piles of husks. When a shadow passes over the opening, the beetles draw in close to the walls, and the hunters come down after them. The floor seems to flow, though individual creatures are always bumping, climbing, reversing, or being seized.
+
+There is almost no free water. The animals obtain what they need from their food and lose very little to the cool, dry air. Eggs are tucked deep into cracks where the temperature changes slowly. There are no plants, not even around the opening; whatever can be eaten must arrive from elsewhere, or already be moving inside.
+
+The engine is mostly a casing now: an iron cylinder, a short length of pipe and a flywheel half buried in salt. Its enamel has worn away in patches, exposing rust the color of dried blood. One bearing still turns when the wind finds the exposed wheel aboveground. At intervals the shaft gives a rough half-rotation, sending a tremor through the chamber. Creatures scatter from it, then gather again around the warmer metal.
+
+The place is loud for its size. Beetle shells rasp against stone. Wings buzz briefly in the shaft of light. Hunters click as they grapple with prey, and loose grains hiss down from the ceiling whenever the machinery moves. Above it all comes the irregular grinding of the bearing, sometimes stopping for hours, sometimes running long enough to shake dust from every ledge.
+
+Near the slit, the light shifts slowly across the crowded floor. The animals follow its warmth, piling over one another until the bright patch is dark with bodies. When it reaches the iron pipe, they spread up its sides, searching its worn joints and the sheltered spaces behind it.

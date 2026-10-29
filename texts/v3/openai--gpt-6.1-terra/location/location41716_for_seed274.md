@@ -1,0 +1,11 @@
+The place lies only a little above the sea, in a hollow roofed over by rock. Its entrance is a low slit between two shelves of limestone. Beyond it, the ceiling rises enough for a person to stand, though the hollow itself is no larger than a small house. Dim light reaches the far wall after rain, reflected upward from the water at the entrance.
+
+Water fills almost every depression. It lies in broad, shallow basins and in seams between stones, spreading over the floor in a film wherever the rock is level enough to hold it. The higher surfaces are wet too. Beads gather on their undersides, and a thin, steady seep issues from the back wall. The air is warm and close; anything carried inside soon feels damp.
+
+The limestone has been worn into crowded, settled forms: rounded knobs, fluted walls, little rims around the pools. There is hardly a flat patch big enough to sit on without shifting a stone or putting a hand in water. Pale mineral crusts cover the rock near the seep, grading into darker gray where the water is deeper. Silt has collected in sheltered pockets, smooth and fine as flour, though it is always saturated.
+
+No plants grow here. The entrance admits too little light, and the surfaces nearer it are washed bare. A tiny pale snail sometimes rests on a submerged stone, and, more rarely, a crab comes in from the water outside. For long stretches there is no visible animal movement at all.
+
+Someone once made use of the hollow. Three stones have been stacked beside the driest wall to form a low shelf, and a shallow clay bowl stands on it, whole except for a chipped lip. A narrow groove has been scratched into the rock above, guiding part of the seep toward the bowl. Water spills over its edge and returns to the pools. The shelf is mineral-stained but sound; the bowl appears to have stood there for a very long time.
+
+The hollow is mostly quiet. An occasional drop lands with a soft, distinct sound, and water whispers through the groove. Outside, the sea can be heard faintly when a wave reaches the mouth. Inside, the level of the pools remains nearly constant. The seep supplies them, the lowest seam carries the excess away, and the worn stone holds its shape from one wet season to the next.

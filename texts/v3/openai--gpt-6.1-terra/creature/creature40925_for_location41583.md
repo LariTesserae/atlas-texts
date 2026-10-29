@@ -1,0 +1,9 @@
+The plants live separately, though their roots enter the same warm machinery. Each keeps a little distance from the others: a fountain of blades, broad at the base and narrowing to points that bear a fine mineral powder. The youngest blades are almost white. As they thicken, they take on the muted green of old silver, and their edges curl until the black teeth face one another across a narrow channel.
+
+Gas rises through the rock and passes into the roots. The plants take what they need from it, leaving behind substances they cannot use. These they gather into grains. A grain travels slowly through the plant, held in one chamber until the pressure beneath the floor changes, then passed into the next. If a blade closes around one, the teeth meet with a dry click. The clear oil inside carries the faint smell of hot metal; on the hottest afternoons a trace of it reaches the air.
+
+Their growth is difficult to follow. A new blade may first appear as a shadow between two others, perfectly sharp on the pale floor. It can remain there through an afternoon with nothing above it to account for it. Later there may be a blade, or there may only be the ordinary arrangement, with no sign of damage or loss. The plants do not seem troubled by either condition.
+
+Around each one, fresh stone gathers in a collar. Close to a stem it is smooth and almost waxy, still warm from its making. Farther out it takes the powder shed by the blades, so that the oldest part is not necessarily the cleanest. Some collars widen so gradually that their growth can only be noticed against a seam in the floor. Others acquire a new edge between one glance and the next.
+
+When the compression comes from below, the plants draw their toothed margins inward. For a moment each fountain becomes a little narrower, its blades held close over the work inside. Then the pressure eases. The blades open, the grains continue downward, and the hollow is quiet again.

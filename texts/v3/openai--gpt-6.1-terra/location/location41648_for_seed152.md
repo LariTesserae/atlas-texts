@@ -1,0 +1,11 @@
+Inside the buttress roots of a great tree is a hollow no larger than a room. The roots arch overhead, leaving narrow seams through which a little greenish light reaches the floor. The air is warm and mostly still. It smells of leaves, damp clay and the faint sweetness of sap.
+
+Much of the floor is bare. Here and there a fern spreads a dense, glossy crown, and a moss cushion swells over the base of a root. Between these patches lie broad spaces of pale earth, fine enough to hold the print of a beetle’s foot. The ground is being made rather than worn away: flakes of bark, dropped seeds and tiny pellets of soil collect in shallow seams, slowly becoming a floor. A fresh red root tip has just entered at one edge, pushing through the loose material.
+
+There is no stream. After rain, water gathers briefly in a curled leaf or along the underside of a root, then disappears into the soil. Even in dry weather, a few beads of condensation form in the coolest creases. Mites come to drink from them. A snail rests nearby, its shell tucked against a moss stem, waiting for the air to grow wetter.
+
+The hollow contains a small settlement of termites. Their galleries rise from the soil in low, rounded partitions, clustered along one side of the chamber and leaving the center open. The newest walls are soft and dark; older ones have dried to the color of dust. Narrow openings connect the chambers, and workers pass through them carrying grains of earth and pale fragments of wood. There are no straight streets, but the traffic follows familiar routes, parting around a fern and rejoining beneath a root.
+
+Other lives occupy the gaps. Ants cross the open ground singly. A spider waits under the rim of a leaf, and a small frog sits so still against the clay that it is easy to overlook. Once, an insect passes within reach, and the frog moves with a quickness the rest of the hollow has not prepared you for. Then it settles again.
+
+Almost none of this can be heard. A droplet occasionally falls from the roof; a dry wing brushes a leaf. The chambers are being enlarged, roots are advancing, animals are feeding and hiding, but the place holds its quiet. By morning, one of the damp walls may have grown a little higher, and the bare floor beside it may carry the fine tracks of visitors already gone.

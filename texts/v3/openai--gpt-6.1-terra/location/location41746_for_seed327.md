@@ -1,0 +1,11 @@
+High above the last forest, a hollow opens in the side of a mountain. It is no bigger than a village square, though the drop beyond its lip is so immense that the eye has trouble measuring it. The hollow itself is mostly air: a great, clean space between a curved wall of pale stone and the cliff edge. A person standing in the middle seems very small.
+
+Water works down the wall in hundreds of fine threads. Some run continuously; others appear only when cloud presses against the mountain and leaves its moisture on the rock. They gather in shallow grooves polished over a very long time, then spill from the lip as a thin, wavering fringe. The stone is rounded where the water touches it and sharp where frost still has its way.
+
+Vegetation clings close. Moss makes thick green cushions in the wet seams, and low flowering plants spread glossy leaves across shelves warmed by the sun. There are no trees and almost no stems tall enough to interrupt the empty space. On the sheltered side, a little meadow of sedges bends beneath the drip from an overhang. Its soil is black and cold, scarcely deeper than a hand.
+
+The hollow is loud. Water ticks and splashes, wind strikes the curved wall, and colonies of small cliff birds call from holes in the stone. Their voices rise in waves when a shadow passes overhead. Insects gather over the wet ground whenever the sun reaches it; the birds dart out through them, turn abruptly over the abyss, and return to their nests. Small, thick-furred mammals live among the stones at the meadow’s edge, emerging to feed on leaves and fallen eggshells. A hunting bird occasionally comes level with the ledge on the rising air, and for a moment everything smaller vanishes.
+
+Near the back wall stands a low shelter made from stacked slabs, with a roof of overlapping stone. It has no door. Inside are a shallow hearth, a few flakes of dark worked stone, and a bundle of dry grass tied with twisted fiber. Someone still visits: a narrow path through the moss leads to it, and a small basin has been pecked into the rock to catch clean water.
+
+Clouds move quickly at this height. They may fill the hollow until its far wall disappears, then tear away to reveal bright air and the distant country below. After each passing cloud, the wet stone glitters, the dripping grows heavier, and the birds begin calling again.

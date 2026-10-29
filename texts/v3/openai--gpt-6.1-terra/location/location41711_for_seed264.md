@@ -1,0 +1,11 @@
+The land lies low beneath a broad, pale sky. From the shallow center of the basin, shelves of dark stone rise only a little before flattening again, their edges worn into long parallel curves. The farthest shelves fade into a warm haze. There are no trees or grasses to interrupt the view, only scattered stones and, here and there, a small dark pool.
+
+The rock is smooth in some places and deeply fluted in others. Whole slopes have been worn into ribs, as though water once ran down them for an immense length of time. The channels still carry moisture, though little of it reaches the basin floor. Water beads on the warm stone beneath overhangs and collects in the hollows. Around the pools, a thin white crust marks the steady limit of the damp.
+
+A loud, continuous noise fills the basin. It has the pitch and weight of an engine heard through a wall: a deep hum, with a finer metallic rattle above it. Air moves through chambers in the rock, and water presses through narrow seams below. At certain places the two sounds come together with such precision that the ground seems to be running some vast machine. There is no machinery to find, no worked metal or foundation—only the same weathered stone, warm to the touch.
+
+The sound is not equally loud everywhere. In the lee of a low ridge it falls away enough for droplets to be heard striking a pool. Then, a few steps farther on, the hum rises again and makes the ribs of rock faintly perceptible underfoot. The air tastes mineral and damp. Fine mist hangs near some of the larger openings, but the stone a short distance away remains dry.
+
+Animal life is scarce. At one pool, a pale, many-jointed creature rests just below the surface, its limbs spread against the stone. Another occupies a crevice several ridges away. Neither needs to move often. When mist gathers thickly, their surfaces darken; when it thins, they become pale again.
+
+The basin appears settled into a very old balance. Water gathers and passes through the rock; air enters and leaves; the sound continues. The pools keep their outlines, the mist stays close to its openings, and the ridges hold their long, worn shapes. Under the ordinary daylight, the whole place has the bearing of a landscape that has been just like this for a very long time.

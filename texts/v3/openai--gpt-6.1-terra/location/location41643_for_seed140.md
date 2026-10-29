@@ -1,0 +1,15 @@
+The hollow sits high on a mountain so old that its summit has been worn down to a broad, level shoulder. Within it is a basin no larger than a hamlet, bounded by a low rim of stone. The rim is rounded everywhere: there are no sharp edges left to catch a hand, only shallow grooves where water has passed for a very long time.
+
+There is no light. The cloud cover is permanent, and whatever sky lies above it never brightens. The basin is known by touch, by sound, and by the scents that gather in the warm air.
+
+A person entering it would first feel the ground give slightly underfoot. A thick mat of growth covers the floor: broad, cool fronds without stems, cushions of mosslike tissue, and long ropes of root that lie exposed before sinking again into the damp. They make their living from the warm mineral water that rises through the rock. Some draw nourishment from buried films of bacteria; others have soft, breathing surfaces that take compounds directly from the air. When a frond is disturbed, it folds with a slow muscular pressure and remains folded for days.
+
+For all this lushness, the hollow feels almost vacant. The growth keeps close to the ground and the enclosing rock, leaving the space above open. There are no trunks, no branches, nothing to brush against a face once one has stepped past the rim. The air is warm and wet but moves freely through the basin.
+
+Animals are plentiful, though most never rise far from the mat. Small, many-legged grazers travel beneath it, making a steady dry rasp as they feed. Larger creatures rest in the shallow water, their bodies flattened against the stone, and drag themselves a few paces at a time to find a warmer seep. High in the empty air, soft-winged hunters pass back and forth, listening. Their wings make no sound that a human ear can catch.
+
+The noise comes chiefly from the basin’s edge. Water gathers under the rim and forces its way out through narrow mouths in the stone. Each mouth produces a sustained note, and together they make a rough, powerful chord that can be felt in the chest. Beneath it are the clicks and scrapes of feeding animals, the occasional slap of a body entering water, and the long wet creak of the living mat as it settles.
+
+Near the center stands a small structure, scarcely taller than a person. Its walls are smooth and faintly warm, interrupted by seams so fine they are easier to feel with a wet fingertip. Inside is a single dry platform. The structure has no door, though it admits anyone who approaches slowly enough; the wall yields around them and closes afterward without a sound. It appears to be tending the basin in some way. Water that enters beneath it emerges carrying the minerals the fronds need, and the animals gather around its base when they are ready to shed their skins.
+
+Nothing changes quickly here. Rain can continue for weeks without making a stream, because the ground takes it in. Then, long after the rain has stopped, water begins to issue from a new place in the rim and adds another note to the hollow’s chord. The old mouths fall silent one by one. The vegetation grows over them, and the animals adjust their paths through the dark.

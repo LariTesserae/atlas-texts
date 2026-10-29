@@ -1,0 +1,9 @@
+The hollow is scarcely lower than the land around it. Its rim is an old, worn swell, so gradual that a person walking in from the fields might notice it only by the way the sky opens. The whole place is no larger than a small grove. Nothing rises above knee height except a few reed stems and the thin, leafless ends of shrubs.
+
+Plants cover every surface. Moss makes a close, springy floor, interrupted by mats of crowberry and the fine blades of sedge. Where the ground gives underfoot, the depth beneath is more plant matter: black peat packed with ancient roots. There is almost no exposed stone or soil. Yet above this continuous green floor the hollow is remarkably empty, a broad volume of cool air with room for birds to cross it in a single unbroken flight.
+
+Water gathers sparingly. After rain, shallow seams shine between the moss cushions; most days the surface is merely damp, with droplets caught under the leaves. The plants hold the moisture long after the surrounding ground has dried. In the middle, a patch of sedge remains dark even in a dry month, though there is no open pool.
+
+The noise is out of proportion to the size of the place. In daylight, small birds call from the low cover and rise in loose bursts when disturbed. Grasshoppers rasp in the drier edges. Beneath them is a steady industrial rumble from beyond the rim: machinery working somewhere out of sight, punctuated by the scrape of metal and, occasionally, a long pneumatic hiss. The sounds carry clearly through the open air. Nothing has been built in the hollow itself.
+
+The ground has worn down over an immense span of time, until water can find little slope to follow and the old contours are almost spent. The living surface repairs itself around footprints and burrows. Seasons alter its color, birds come and go, and rain briefly fills the seams, but the shape of the hollow and its thin, crowded skin of plants remain much as they were.

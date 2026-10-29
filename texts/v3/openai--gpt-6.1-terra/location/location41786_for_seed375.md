@@ -1,0 +1,13 @@
+The town occupies a shallow basin no wider than a cathedral. From its rim, nearly every street can be seen at once: pale lanes crossing a dark floor, bending around plazas, ending at walls that rise clean and sharp from the ground. There are no doors. The walls are not built of blocks, but grown in thin, upright sheets from the mineral crust. Where two sheets meet, their edges have fused into a seam finer than a hair.
+
+Most of the town is empty space. A plaza might hold a single dark tuft; a long avenue might contain nothing at all. The buildings are narrow as folded paper, enclosing rooms open to the sky. They stand in such orderly ranks that the place seems inhabited even when nothing living is visible.
+
+It is cool. A dim light comes through the basin’s high, translucent rim, making the wall edges glow while the rooms between them remain gray. The ground is dry salt and black mineral, with no trace of a channel or a pooled surface. Beneath the brittle crust, slow chemical changes push the earth upward in low, straight ridges. These are the town’s newest streets.
+
+The ridges grow perceptibly while one watches. A line lifts across a plaza; its crest parts; two delicate walls unfurl, leaving a passage between them. Elsewhere, an old wall whitens from the base and folds inward, adding a little more floor to an adjoining square. There is no crash or scrape. The material comes apart without friction, each fragment settling into the powder below.
+
+Sparse vegetation gathers where the streets intersect. The plants resemble clusters of narrow soot-colored blades, stiff in the cool air. Their roots spread beneath the salt and feed on mineral vapors rising through it. At intervals the blades turn, all at once, toward a newly forming wall. They hold that position until a fine dust has collected on their surfaces, then bow and release it onto the ground.
+
+Rarely, a small animal crosses an open space. It is flat and pale, with six widely spaced limbs, and moves by lifting itself from one point of contact to the next. It grazes on the dark plants without visibly diminishing them. When a street begins to rise beneath it, the animal pauses until the new walls have opened a way through.
+
+Nothing here makes a sound. Even the loose salt falls in silence. The animals leave tracks, the plants shed dust, and the town continually revises its plan, but none of these movements disturbs the stillness. By the time the dim light shifts along the basin rim, an avenue may have vanished and three new rooms may stand where it was.

@@ -1,0 +1,13 @@
+At the lowest point of the bowl lives an animal so flat that it is easily mistaken for the last of the water. Its back is dark and faintly reflective, with a rim that lies close against the floor. When a drop strikes nearby, the rim lifts. Fine branches spread from underneath it and draw the water inward before it can evaporate.
+
+There are usually three or four of these animals in the room. They spend the hot part of the day at the center, overlapping where the bowl is coolest. Toward evening they separate and move outward with a slow, rippling motion, each no larger than a hand. Against the worn floor their undersides leave temporary tracks of clean metal and grit.
+
+They eat the small things that fall from the ribs: moth scales, dead beetles, pollen, the occasional living insect too exhausted to climb. An animal folds itself around a meal and remains there for hours. Lizards sometimes approach to take insects from beneath its lifted edge. The animal does not chase them away, though it may settle flat and keep them waiting.
+
+Its back is not quite a shell. It can be folded, and at the approach of rain the animal draws its edges upward until it resembles a shallow cup. After a heavy shower the cup may hold water long after the floor around it has dried. Moths come down to drink from it. So do the lizards, putting their forefeet on the rim and lowering their heads carefully. The animal bears their weight without closing.
+
+On the underside are rows of short, stiff hairs that rest against the bowl. They register the engine’s changing strain through the metal. When the deepest note begins to swell, the animals gather near the center and press close together, sometimes with their rims layered five or six deep. They remain like this for days. By the time the vines have opened, a few pale eggs can be found beneath them, attached to the floor in the narrow spaces between their bodies.
+
+Most of the young are carried away as dust before they have grown enough to hold their place. Those that survive spend their first season in the felt sleeves, where the damp lasts longer and the beetles are small. They are pale there, and their backs are soft. Only when they descend to the bowl do they darken.
+
+The adults have no evident interest in the view. A bat passes through the center, the ribs ring, and a vine lets fall a flower. One animal reaches it first and folds over the petals. Another continues slowly upslope, following the faint wet line left by a drop that has already reached the bottom.

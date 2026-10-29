@@ -1,0 +1,25 @@
+The first inhabitants are difficult to separate from the water.
+
+Some begin when two pressure waves meet over a new ridge. Where they cross, a small region of quiet persists after both waves have gone. At first it is no larger than a hand. Current passes around it, light bends at its edges, and inside it a few mineral grains hang without falling. Most such pockets open within minutes. A few draw more waves into their boundaries and grow.
+
+They are not empty. The stillness inside them is finely arranged: layers of water under slightly different pressures, exchanging heat along paths narrower than the grains they hold. A disturbance entering one side is answered at another. As a pocket grows, its answers become more complicated. It can maintain its shape against a current, or yield to the current and take a shape that will survive it. It can hold a seam’s sharp report for hours, releasing the sound in small pulses long after the rock has closed.
+
+The oldest of these quiet beings drift across whole terraces. Their boundaries are invisible until they pass over the ground. A frond caught within one stops bending and stands straight in the motionless water. Fine grains remain suspended around it. When the boundary moves on, the frond whips down and the grains fall.
+
+They gather no food in the usual way. Warmth enters them from below, cold presses in from above, and the continual differences between the two sustain the work of their interiors. They are most numerous near the rising ridges, though too close to a fresh seam the turbulence tears their boundaries apart. When one comes undone, the water rushes through the space it occupied. Its suspended grains scatter, and the pressures it held travel outward as a soft, irregular knocking.
+
+Not all the lives here are quiet.
+
+Along the slopes, there are moving patterns made from the ocean’s rush itself. They travel in the shearing layer between warm columns and descending cold water, sometimes for hundreds of kilometers. Their bodies are long trains of pulses, each pulse reshaping the water through which the next will pass. A train can turn gradually, climb a slope, or divide around a dome and rejoin beyond it. Seen from a ridge, one may be visible only as a trembling of the light.
+
+These beings do not endure as the still ones do. They are renewed at every instant from the water entering them. A train crossing a mineral haze gathers the pale grains into repeating curves; when it emerges, the curves unwind behind it and settle slowly onto the rock. One can persist for years without carrying any particular portion of water the whole distance.
+
+The green films live more slowly. They spread where an older dome offers shelter and a little light. Their outer edges are delicate, readily scraped away by grains in the current, but the layers beneath cling tightly to the stone. When a seam opens under a film, the green surface stretches before it parts. Sometimes both halves survive, growing toward the fresh mineral between them. Sometimes one is turned face down and buried, leaving a faint green line in the new rock.
+
+The solitary fronds are less firmly attached. Their roots occupy cracks where warm water seeps upward. As they grow, they loosen pale fragments from the rock, and a little cloud forms around each base. A frond may live on a moving slab for a long time, carried higher as the plateau swells. If the crack closes completely, it dies upright, its transparent length gradually thinning until the current takes it.
+
+The other inhabitants are changed by the fronds. A large region of stillness passing over a patch of green may hold its position there for several days. The film continues its slow exchange with the water inside, altering the warmth and chemistry of the pocket. When the boundary finally releases, the pattern of its pressures is subtly different. Farther away, it may gather again around another dome, or pass through a moving train of pulses and leave the train altered in turn.
+
+Whether these encounters are recognition is hard to say. The quiet beings do not always hold together. Sometimes one divides across a rising ridge, and the two portions drift away. Each keeps some of the pressure arrangements that sustained the larger body, though one may last only an hour while the other grows for years. When long-lived portions meet again, their boundaries may merge without turbulence. For a time the joined stillness holds more grains, more warmth, and more of the old, faint sounds of the plateau.
+
+Then a deep pulse passes through. It travels through rock, frond, current and stillness alike. Along the edge of the newest terrace, where the seam has just opened, small pockets begin to form in the settling cloud. Most will disappear before the water clears. A few remain, carrying grains of the new ground within them as they drift upward toward the light.

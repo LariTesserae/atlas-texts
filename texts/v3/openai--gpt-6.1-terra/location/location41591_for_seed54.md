@@ -1,0 +1,17 @@
+The city occupies a high basin whose rim is visible only when the cloud thins: a jagged absence against a slightly paler darkness. Nothing grows on the rim. Its slopes are raw black stone, still sharply jointed, with pale mineral seams standing proud of the surface. The basin floor is newer still. Broad plates of rock lie edge to edge, as if set down recently and not yet persuaded to fit.
+
+Water fills the gaps. It wells up between the plates, spreads in shallow sheets and gathers beneath the city in cold, dark reservoirs. Along the exposed margins it freezes into raised lips, then seeps over them and freezes again. There are no river-cut valleys, no rounded beaches. Even the wettest stone keeps its factory-sharp corners.
+
+The buildings stand close together on short, thick piers. Many have settled partway into the water, so that their lower stories are submerged and their upper stories lean together over narrow channels. They are made from the same black material as the basin, though their walls have a faintly translucent depth. At intervals a wall adjusts to pressure without opening or cracking; a leaning tower will return to vertical over the course of several years.
+
+Between the buildings hang enclosed walkways, pipes, suspended rooms and cables as broad as roads. Some carry heat. Others hold the city in place against forces that cannot be felt on the surface. Their fastening points have no visible bolts or welds. The structures are ancient enough to be occupied, but the ground beneath them is still coming together: new shelves of stone rise slowly from the water, lifting piers and buckling the lower walkways.
+
+Animals cover nearly every available surface.
+
+They crowd the piers below the waterline, their flat bodies overlapping like roof tiles. Larger creatures hang beneath the walkways in clusters, gripping with jointed limbs and lowering pale, almost invisible feeding veils into the channels. In open water, immense backs drift among thousands of smaller bodies. The animals move so slowly that a crossing can take days. Yet the whole basin is in motion: veils unfurling, limbs releasing and finding new purchase, backs rising by inches through the black water.
+
+There are no plants. Warm mineral water comes up from deep fractures under the basin, and microscopic life feeds on what it brings. The smallest animals strain this life from the water; larger ones graze on the dense living crusts of their neighbors. Dead bodies sink into the submerged streets, where other mouths are already waiting.
+
+The noise is tremendous. Water presses through the city’s lower works with a constant grinding rush, amplified inside the stone. The animals add a lower sound: innumerable throats pulsing together, not in unison but close enough to make the buildings resonate. It is loudest on the enclosed walkways, where the floor trembles underfoot. Out on the water, the sound spreads into a vast, steady roar.
+
+There is almost no light. A few service apertures show a dull red glow deep inside the buildings, and now and then a feeding veil gives off a brief gray flicker. Otherwise the city is known by pressure, sound and the cold spray settling on every surface. In the darkness, creatures rest against its walls while new ground rises beneath them, too slowly for any one of them to notice.

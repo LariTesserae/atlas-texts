@@ -1,0 +1,11 @@
+Below the floor of an abandoned room, a thumb-width crack opens into a chamber no larger than a cupped hand. The rock around it has been worn into folds and hollows, all of them dark and smooth from water. There is no soil and nothing green. The air is cool enough that a finger held inside comes away wet.
+
+A settlement occupies the chamber’s lowest shelf. Its buildings are tiny dry-stone cells, crowded shoulder to shoulder, their roofs made from flakes of slate. Narrow passages run between them and meet at a round basin cut into the living rock. There are steps too shallow for a human fingernail, thresholds polished by use, and a covered drain assembled from hundreds of overlapping chips. Everything has been fitted by hand, without mortar. A pale mineral crust follows the joints but has not filled them.
+
+Water enters through a seam in the ceiling. It gathers there, elongates, and drops into the basin. The basin overflows into the drain, which carries the water under the houses and back into the rock. Now and then a bead squeezes up between two paving stones and hangs there without breaking.
+
+The falling water makes an astonishing noise. Each drop strikes a different part of the basin and sends a sharp report through the chamber; the hollow stone catches it and rolls it back. Beneath that is the steady roar of the drain. Outside the crack, the room is silent. With an ear close to the floor, one can hear what sounds like a crowd working behind a wall.
+
+A few pale, jointed animals live among the foundations. They are small enough to pass through the seams in the masonry, though one sometimes pauses in an open doorway, its body flattened against the stone. There is no sign that they built the place. On the basin’s rim lie several worked flakes, a little stack of pebbles, and a shard with a hole drilled through it. Whoever left them is absent, or keeps to passages too narrow to see.
+
+The water level remains exactly at the lip of the basin. The same stones show the same wet margins; the same droplet hangs between the paving stones for as long as it is watched. The noise continues without hurrying or faltering. Dust may collect on the floor above, and the room may cool toward night, but down here the little streets hold their shape, and the water keeps arriving.

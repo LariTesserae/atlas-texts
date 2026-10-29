@@ -1,0 +1,7 @@
+The hollow is shallow and small enough to cross in a few minutes, though in the dark its edges are difficult to find. Low banks of weathered sandstone enclose a floor of fine grit and pale, fractured stone. The ground is nearly level. Here and there a rock rises from it, its corners softened by a long passage of wind.
+
+It is warm even now. Heat held in the stone rests close to the ground, and the air is dry enough that the mouth soon notices it. There is no visible water, no dampness beneath the loose stones. The darkness is not quite complete: a little starlight catches the upper edges of the rocks, leaving the spaces between them almost black.
+
+A few shrubs grow far apart. Their branches are thin and tightly jointed, with small leathery leaves held close to the stems. Around each one, a slight mound of grit has gathered over time. There are also patches of dark crust on the harder ground, easily mistaken for stains. Nothing rustles among the plants. No tracks cross the open spaces.
+
+The hollow is very quiet. A grain of sand may shift down a stone’s face; a dry stem may click once against another. Then the stillness returns. Nothing here has been arranged or made. The stones lie as they have settled, and the sparse plants occupy only the places where they can persist. In the dark, the hollow seems to hold its shape without effort.

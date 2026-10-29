@@ -1,0 +1,15 @@
+The town occupies a shallow notch high on a mountain, where a recent fold of dark stone has lifted a floor no larger than a village square. The rock is still sharp-edged. Its fractures run straight for several paces before branching, and a person can trace the pale seam where the ground opened. Beyond the notch, the slopes drop away into dim air.
+
+There is little standing water. Rain comes briefly and disappears into the cracks; by morning, beads have gathered on the undersides of stones. The people set out shallow clay dishes to collect them. A few feet from each dish the ground may be dry enough to powder under a heel.
+
+Vegetation grows in separate, extravagant masses wherever a seam holds moisture. Ferns uncurl over the roofs. Velvet moss swells around stone foundations, and pale, many-fingered leaves hang from trellises of split wood. Between these thickets lie broad spaces of bare gravel and fitted paving. The paths are kept open, though the plants reach across them each night and must be tied back or cut.
+
+The buildings are low and close to the ground, with walls of stacked stone and roofs weighted by flat slabs. There are streets, a little central court, a covered place for storing seed, and a drainage channel that winds through the settlement to a cistern. Everything has been made with stone blades, bone picks and fire-hardened stakes. Doorways are narrow, and most have a second, smaller opening near the floor.
+
+The smaller openings are for the animals. They are everywhere: packed beneath the moss, pressed into the joints of the walls, suspended among fern stems. Hundreds of translucent grazers, each the size of a thumbnail, move in slow currents over the leaves. Their bodies darken as they feed, so that a green frond gradually fills with blue-black spots, then clears again when they descend. Larger creatures with flat, jointed limbs wait along the paving seams. At dusk they emerge to gather the grazers, folding them into soft pouches under their bodies.
+
+The people leave strips of peel and bruised leaves outside their doors to draw the grazers away from stored food. In return, the flat creatures keep the houses nearly clear. They come and go through the little openings and are never chased out, though in the coldest hours they cover so much of the floor that there is hardly a place to put a foot.
+
+The town is almost silent. The animals have no calls that a human ear can hear, and their limbs make little impression on moss or gravel. Now and then there is the tap of a clay dish being emptied, the scrape of a stone tool, or the faint patter of droplets falling from a roof. Most of the movement is visible before it is audible: leaves shifting as grazers pass beneath them, a crowd pouring down a wall, a pale hunter unfolding itself from a crack.
+
+Toward evening, mist gathers above the notch and dims what light remains. The leaves close around the animals still feeding on them. People cross the court with their collected water, stepping carefully between the dark streams on the paving. By morning the mist will have left enough moisture for another day, and the streets will need clearing again.

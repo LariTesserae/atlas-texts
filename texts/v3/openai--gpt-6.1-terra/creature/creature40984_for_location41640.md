@@ -1,0 +1,15 @@
+The most numerous inhabitants live below the plates, in the narrow spaces where warm air meets the circulating water.
+
+They grow against the walls of the channels in layers of pale, tough tissue. A fresh growth is soft enough to part with a finger and smells faintly sour. Older growths harden around the rivets and fill the threads of bolts, leaving only a thin living surface exposed to the flow. They take what they need from the water and from substances dissolved out of the machinery. Where a channel runs dry for a season, they draw back into their hard layers and wait.
+
+From above, they are difficult to distinguish from mineral deposits. A broken plate might expose a cream-colored band along a seam, interrupted at intervals by dark, glossy knots. The knots are living too. They reach deeper into the joints, sometimes through several layers of the plain, and connect growths in neighboring channels. A patch the size of a hand may belong to a body spread beneath several plates.
+
+The inhabitants are sensitive to changes in pressure. Their surfaces tighten when a gate is about to open, and loosen again as water comes through. This takes time. In a chamber where the pumps cycle quickly, a growth may remain tightened for weeks, its surface marked with overlapping ridges. In slower channels it forms long, smooth folds, each one recording a rise and fall in pressure.
+
+The knots carry these changes farther than the water does. A growth beside a gate may tighten, and hours later another, beyond the gate and across a dry section, will do the same. No one could say from watching whether this is a warning, or simply a strain passing through a shared body. The growth on the far side is often already loosening by the time the water reaches it.
+
+When a section becomes crowded, small pieces break away. Most are ground down in the pumps or settle into basins and are buried in sediment. A few lodge in a favorable crack. There they swell, fasten themselves to the worked material, and begin laying down the hard substance that will shelter them when the water leaves.
+
+The rods rise through some of these inhabited joints. Around their bases, beneath the pale rings visible on the plates, the growths form deep collars. Each time the rods bend, the collars are compressed; each time they lift, cold water is drawn down around them. Those colonies are unusually thick and old. Their hard layers preserve impressions of former seams, former rivets, and the shapes of parts that have since worn away.
+
+They have no use for the inspection lamps. They do not reach toward the reeds. The roar passes through them without stopping, and their slow contractions take place within it, too slight to feel through a boot. At a damaged vent, if the grating is lifted and a lamp held close, their wet surfaces can be seen lining the shaft. They shine for a moment in the light, while warm air pulses up past them into the rain.

@@ -1,0 +1,9 @@
+The shrimp has grown almost colorless. In the amber light its gut is a faint thread, and its legs appear and disappear as they move. One antenna is shorter than the other, broken somewhere beyond the joint; the remaining length sweeps the water from the crack behind the lamp cage.
+
+It knows the chamber chiefly by pressure. The hard current has a steady weight to it, and the sucking pipe draws a thin, persistent pull across the wall. The third mouth announces itself through the stone before it changes direction. The shrimp braces when it can. When it cannot, it is carried out, turning in the brown water until a leg finds brick. Then it holds on, waits for its body to stop swinging, and begins the slow climb back.
+
+The white crusts on the warm pipe are colonies of minute life. Water passes over them continuously, bringing dissolved chemicals; the colonies take what they need and leave a slippery film. At their edges, they grow in small folds and ridges. Flakes sometimes break loose and travel through the chamber with the mineral grit. The shrimp picks at whatever catches near its shelter, drawing each particle toward its mouth and working it there.
+
+Other things live among the deposits on the lamp cage, too small to be seen individually: thin films in the protected joints, colonies in the pores of the mineral fur. Some are scoured away whenever the flow reverses. Others remain under the roughness, where the water moves a little more slowly.
+
+During the rare quiet intervals, the shrimp comes farther out. Its antennae extend and drift apart. Fine particles settle on its back and along the pipe crusts, covering them until the next pump starts. Then the water lifts everything it can, and the shrimp retreats behind the cage, its long antenna bending downstream.

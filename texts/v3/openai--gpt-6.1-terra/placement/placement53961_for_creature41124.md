@@ -1,0 +1,19 @@
+I would be on the sheltered side of a pipe in the factory nearest the pumping station. The pipe bends there, and the water passes more quickly over its outer curve than beneath it. A wheel turns a little way off. Each rotation gives the pipe a small change of temperature: cold, less cold, cold again. I could feel it along the whole of my sole.
+
+I would be one of the dark animals, though not a large one. A pale seam would run down my back where I had once been torn against a piece of metal. My filaments would lie toward the factory door, following the water on its way out. When a pump changed speed, some of them would stand up before the rest, and I would press more firmly against the pipe.
+
+I would not have been born there. My capsule had been fastened to another pipe, higher in the building. When I came out, a current took me up past the blind windows and over the roofs. I caught on a lamp branch among three salt flakes and stayed there while they grew smaller around me. The lamp was blue at its center. Through my body, while I was still pale, its light could reach the branch beneath.
+
+Later I moved down the lamp and along the street. At the pumping station I found the fronds, with clear animals moving over their stems. I fed there until I was large enough to cross the open stone between the station and the factory wall. Even then I nearly lost my hold. The current lifted the back of my body, and I had to leave part of my skin on the stone to keep from rolling away.
+
+The pipe where I live now has a ring of mineral crust on one side. Beyond it, near the bearing, another dark animal has held the same place for longer than I have. Sometimes the water brings me the pellets it releases from its skin. They come apart against the bend and leave a little fan of grit below us.
+
+When a plate sheds its salt, I feel the impact through the metal before the pieces reach the room. If I leave the pipe soon enough, I can climb onto a sheet as it passes the lower beams. The surface is rough, and things caught inside it make darker threads and spots. Clear animals gather along the edges once the sheet reaches the street. I feed among them until the salt has thinned and the current begins to lift it again. Then I let go and find a wall.
+
+The return can take a long time. Once a larger visitor passed through the channel while I was outside. Its body displaced enough water to pull grit from the joints of the buildings. I held beneath a sill until the water cleared. When I reached the pumping station, several fronds were bent against the wall, and the clear animals were gone from their usual places. I found some days later beneath a loose edge of crust.
+
+At the pipe, the other animal was still beside the bearing. A thin border had formed around its body while it held there, a shape larger than itself. As I approached, my movement disturbed the water and the border opened at one end. For a while it hung beside the pipe, wavering, before the wheel drew it apart.
+
+I would stay close to that wheel. In time I might fasten capsules beneath the bend, where they would be sheltered from the strongest flow but still receive the small changes of temperature. I would move away before the young emerged. They would need room to grip the pipe, and I would need to feed. Some might remain; others would be carried out through the factory and up toward the faint blue lamps.
+
+I would know the wheel had changed by the way the pipe felt beneath me. If it stopped, I could wait there for a while, holding to the cold metal as my outline slowly gathered. Then I would lift one edge of my body and begin to feel my way toward another part of the factory, where the water still moved.

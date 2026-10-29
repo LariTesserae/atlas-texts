@@ -1,0 +1,17 @@
+The lizard at the basin is old enough to know the stones. She can cross the crescent without looking down, placing her feet on the rough outer edges where they will not slip. The middle stone gives her a view of the basin and the litter around it. From there she waits for crickets, watching them approach the water in short, uncertain runs.
+
+Her back is the color of the floor, though a line of pale scales shows when she bends. One toe is missing. She rests in the warmth of the upper ledges during the day and retreats beneath the ferns when the stone grows too hot. In the narrowest passage behind the basin there is a pocket of softer grit, sheltered from drips. Twice she has left eggs there. The young that came from the first clutch scattered into cracks she could not follow.
+
+The crickets know the basin differently. They live close to its rim, under flakes of limestone and in the dense skirts of dead fern. Their bodies are pale where they have shed their skins. When the water dwindles, they climb the roots to drink from beads so small that a moving leg can knock one loose. They are quick to disappear at the lizard’s approach, but hunger brings them out again before she has gone far.
+
+Under the fungal fans, beetles work through the softened root. Some are broad and dark, with backs that hold a dusting of grit; others are small enough to pass between the folds of the fungus itself. They feed in the sheltered damp and leave fine crumbs behind them. Mites and other minute animals live among those crumbs. When a fan dries and curls away from the root, its occupants move deeper into the pocket or seek another patch of rot.
+
+A spider has stretched her web between two fern stems above the basin. It catches little in the dry weeks, and she repairs it sparingly, drawing in a broken strand and laying another. After rain, when the crickets and moths move more freely, the web trembles often. Droplets also gather on it, bowing the threads until she pulls them loose or lets them fall.
+
+The bats spend the bright hours pressed together near the entrance. From below, an occasional ear can be seen turning, or a foot adjusting its grip. At dusk they separate from the fissure one by one and pass out through the gap beneath the thorn trees. They return before morning, bringing the smell of the air outside with them. Their droppings collect below the roost, where small scavengers work through the dry grains.
+
+The plants remain where their roots or spores found purchase, but they too have their ways of enduring. A fern frond can wither at its tip while the green nearer the stem persists. The vines hold to their slow routes down the ceiling. In the brightest seam, broad leaves tilt toward the light; beneath them, the velvet growth stays damp after the exposed stone has dried.
+
+After a good rain, the hollow’s inhabitants meet at the basin. The lizard drinks with her body held low and her eyes open. Crickets gather at the opposite edge. A moth settles on wet stone, and a beetle pushes through the litter to reach a shallow runnel. They do not all remain together for long. The lizard moves, the nearest crickets vanish, and the water begins its slow withdrawal.
+
+Days later, when only a dark mark remains in the basin, she still returns to the middle stone. She pauses there, facing the place where the water was, then turns to watch the fern litter. Beneath it, the crickets are moving again.

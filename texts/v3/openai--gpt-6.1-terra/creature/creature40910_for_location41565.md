@@ -1,0 +1,17 @@
+The garden is not one plant. At least three kinds have grown into and over one another until, in the glare, they appear to share a single dense body.
+
+The broad copper fans belong to the oldest. They grip the mortar with flattened roots, and their surfaces are tough and faintly greasy. Each fan folds along its ribs when the wind rises; the fold is not quite symmetrical, so the gust presses it tighter rather than tearing it open. In sheltered creases near the wall, the fans collect dust. Their edges slowly curl around the richest deposits.
+
+The green growth is younger and quicker. It sends thin searching stems along the copper ribs, then spreads its own translucent leaves wherever light can reach them. Its bladders begin as small clear knots. As they swell, powder darkens their interiors, and the seams along their sides become white and taut. A few have burst against the wall; their dry skins remain caught among the roots, rattling whenever the wind slackens enough for them to move.
+
+The hanging threads are hardest to distinguish. Some are roots exposed to the air, some are stems, and some are the bodies of a third growth that has almost no need for leaves. Its branches are sticky at their tips. They catch the finest dust and the powder from the bladders, along with flakes shed from the other plants. Where a thread has snagged repeatedly on the wall, it thickens and begins to creep into the mortar.
+
+The jointed grazers live among these hidden roots. The one that sometimes ventures out is no longer than a fingernail, with a low, plated body and legs that end in hooked pads. It is pale in some lights and mortar-gray in others; dust adheres to its shell and changes its color from day to day. Under its head are short scraping parts, which it draws across a leaf in quick, deliberate strokes. It eats the powder caught there, and also the tender films that grow in the leaf’s sheltered folds.
+
+It does not cross open salt. When it leaves the masonry, it keeps at least one foot hooked around a rib or stem, and it pauses with its body pressed flat whenever the leaf begins to fold. It can feel the gust building through the plant before the full force reaches it. Most of its feeding is done in the brief intervals when the fans open.
+
+Deeper in the mortar are others: pale young with soft plates, adults with chipped shells, and eggs tucked into the narrow spaces where mineral oil has made the stone faintly glossy. They scrape oil from the roots and eat the dry skins of burst bladders. From time to time one cuts through a fine root and holds the end until a bead gathers there. The garden grows more slowly around their galleries, though its roots also bind the loosened mortar that shelters them.
+
+In the far corner, where the wind deposits the seed powder, little has taken hold. There are husks, dust, and a few tiny green points that appeared after unusually heavy falls of seed. Most flattened and vanished within days. One survives beside a flake of white stone, its first leaves scarcely wider than the grain shadows around it. The stone gives it a strip of shelter when the wind comes from the street channel. Its roots have not yet reached the wall.
+
+Above, the feet continue to pass. Each impact brings a tremor into the chamber. The grazers grip their perches; the garden folds and opens; the small seedling bends behind its stone. None of them waits for quiet.

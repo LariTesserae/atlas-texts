@@ -1,0 +1,15 @@
+The plain lies only a few meters above its drainage level, though it stretches far enough for the far side to have its own weather. It is paved in fitted plates of pale ceramic, each one slightly tilted toward a seam. Warm water gathers in those seams and travels slowly beneath them, so that the whole surface has a damp sheen without ever quite becoming a lake.
+
+There is no soil under the plates. Beneath them are more plates, then galleries of pipework, then enormous cast foundations whose bottoms no one has reached. Even the shallow basins are lined and riveted; their water was made in the distillation halls below. The clouds are made there too, released through vents across the plain in measured quantities. By afternoon they stand in bright towers on the horizon, reflected upside down in every channel.
+
+The place looks newly finished. The corners are sharp. The dark metal rims of the basins have not worn smooth, and the ceramic bears the fine parallel marks of the machines that cut it. Water runs constantly across the surfaces but leaves no stain. Nothing crumbles at an edge.
+
+Animals occupy nearly all the available space. Long-backed creatures with plated hides stand shoulder to shoulder in the shallows, facing into a current too slight to see. Small pale things crowd the joints between tiles, opening and closing translucent lids over their bodies. In the galleries below, blind swimmers pass through the pipes; above, broad-winged animals rest in ranks on the crossbeams of the condenser towers. Their bodies, too, have been made: their shells meet at precise seams, and the larger ones breathe through valves set beneath their ribs. They are warm to the touch.
+
+Despite their numbers, they make little noise. The broad-winged animals occasionally lift together and settle one beam farther along, producing a soft, immense rustle. From the water comes the ticking of valves and the faint slap of tails against ceramic. Deeper down, pumps turn with a low hum felt through the soles more readily than heard. There are no voices, no leaves, no wind in grass.
+
+The animals feed on a clear film supplied through pores in the plates. They leave fine mineral waste that drains away and returns, after processing, as the material for new shells. Along the basin walls, small workers scrape the surfaces clean with ridged mouths. They do not deviate around one another; each has just enough room.
+
+Everything moves, but the landscape does not change. Water rises, condenses, falls and returns below. Wings lift and settle. A swimmer passes each inspection window at the same interval. At the edge of a basin, a plated animal lowers its head to drink; another raises its head at the opposite edge. If one could see the whole plain at once, every exchange would be accounted for somewhere else.
+
+The light remains bright and ordinary, with a little haze over the warm water. Far off, where the plates vanish into glare, the condenser towers appear to merge into a continuous wall. Closer by, water beads on the flank of an animal and gathers at the point of its chin. The drop falls into a seam; another forms in its place.

@@ -1,0 +1,15 @@
+The basin is inhabited most densely by plants that do not look, at first, like separate plants. A root passes beneath a path and comes up as a stem among the ferns. A vine disappears into the crown of a broad-leaved plant and emerges on the other side, bearing leaves of its own. When one of these leaves dies, it catches among the others and slowly becomes a dark place in which something smaller can root.
+
+The vine over the iron shed grows quickly in wet weather. Its young leaves face the light; the older ones twist until their pale undersides show. Beneath them, the iron stays cool by day and drips long after the rain has stopped. Fine roots have entered the seams. They do not yet hold the sheets together, but they have begun to fill the places where rust has opened them.
+
+The plants nearest the pump house are tougher. Their stems have broad, flattened sides where they rest against the belt guards, and their leaves are creased along lines made by years of folding. New shoots grow into the moving belts and are sometimes beaten down. Those that emerge beside a channel remain there, thickening along its edge, until the clearance is as close as the older growth.
+
+Some stems enclose lengths of pipe or cable. Others press against the brick, sending small roots into the mortar. The warmth of the motor has drawn a climbing plant through the doorway; it spreads across the housing, except where the vibration keeps rubbing it loose. Its tendrils grip the mounting bolts and coil around one another above the wheel.
+
+On the settling tank, the pale plates are individual plants joined at their edges by fine, flexible threads. They drift apart when water wells up between them, then catch again as the level falls. Their undersides carry brown roots that trail into the tank. A fallen leaf may remain among the plates for weeks, getting softer beneath the water while its upper surface stays almost dry. Eventually the threads part around it, and it sinks.
+
+The frog shelters under the broken rim. Its back is mottled in colors close to the wet concrete, and when the water rises it shifts farther into the crack. It comes out at night to hunt along the edge, stepping from plate to plate where they are close enough to bear it. The moths that rest on the pump house wall leave dusty scales on the brick. Small spiders live in the sheltered corners above them; their webs tremble continuously but hold.
+
+There are other animals, though they are easier to find by what they leave behind: narrow scrapes on a soft stem, a curled strip of leaf, grains of soil brought up between the roots. The basin’s inhabitants make room for one another, or fail to. A shoot grows over a shoot and shades it. The shaded one lengthens toward an opening, or sheds its leaves. Around the motor the plants bend away again and again, and in the tank the pale plates open slowly around whatever the water has brought them.
+
+At night the frog moves, the warm leaves mist, and the wheel keeps turning. By morning there are fresh folds in the leaves beside the belts, and the plates have closed over most of the water again.

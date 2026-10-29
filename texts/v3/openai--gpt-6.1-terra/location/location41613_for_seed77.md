@@ -1,0 +1,11 @@
+The land is low and immense, a plain so broad that its far reaches make their own clouds. In the heat of the day, its surface pales almost to cream. Toward evening, damp gathers in its shallow seams, and the same ground darkens to the color of fired clay.
+
+There is no exposed bedrock here. The plain has been made, layer upon layer, by living crusts: thin communities of microbes that bind mineral dust and leave hard skins behind when they dry. New skins form over old ones. In places they lie smooth as plaster; elsewhere they rise in broad blisters or wrinkle into low ridges. The oldest layers are buried beyond sight, and the uppermost are still soft enough to take the impression of a falling drop.
+
+There is little soil. Sparse, tough plants occupy the seams where moisture lasts a little longer, their roots working into the porous crust. They grow far apart: gray-green tufts, a few low branching stems, an occasional stand of reeds no taller than a hand. After rain, films of green spread briefly across the flats between them, then dry to a dull brown.
+
+The heat sets things moving. Damp rises from the shallow basins, and clouds assemble slowly above the plain. A small storm may cross one part of it in the afternoon, leaving the rest untouched. Rain gathers in depressions with fresh, unbroken edges; some pools survive for days beneath a skin of shade, while others disappear by morning. At their margins, the living crust swells and begins to lay down another thin layer.
+
+The landscape has hardly begun to wear away. Its channels are short and tentative, its hollows broad rather than deep. Here and there a new sheet of crust has lifted at the edge as it dried, exposing a dark, moist layer beneath. The next rain may seal it down or carry a little loose material into a neighboring basin.
+
+There are no calls across the plain, no tracks at the water’s edge. Most of the time the sounds are close and faint: the papery movement of a plant in a breeze, a crust cracking as it contracts, rain ticking on the hard surface. Between showers, under ordinary bright light, the plain seems still. Yet moisture is passing through it, cells are dividing, and another skin is forming across the vast ground.

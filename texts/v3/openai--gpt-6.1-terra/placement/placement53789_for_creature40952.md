@@ -1,0 +1,15 @@
+At first I would be difficult to find, even from inside the chamber. I would be under the engine housing, in a crack where the stone stays warm after the worker has gone. Several of us would fit there, pressed so close that each movement passes through the others. Shed skins would catch against my legs. When the housing warmed, we would shift deeper or closer to the opening, depending on the heat.
+
+I think I would be a cockroach, though for some time my world would be the width of the seam rather than the shape of my body. Ahead: a rough place in the stone, a flake of rust, another back moving. Behind: warmth and the dry scrape of feet. Through everything, the engine’s repeated knock.
+
+It would be possible to tell when the worker came down before seeing the lamp change. The steps would travel through the floor; then air would move into the seam as bodies pulled back. I would follow them, or be pushed along by those behind me. There would be a long wait, made longer by not knowing which sounds mattered: iron lifted, water splashed, something set down and dragged across the floor.
+
+When the hatch closed, the others would begin to spread. I would wait a little longer, touching the opening with my antennae. Beyond it the floor would feel exposed, though it was mostly dark. I might cross to the channel and stop at the wet stone, where a dead midge had lodged in a film of algae. Or I might find a crumb near the passage and work at it while another roach approached from the opposite side.
+
+From there, looking up, I could sometimes see a bat release itself from the brickwork. Its flight would disturb the air over the floor, briefly, and then it would be gone into the dimness. Something smaller might fall later from the roost. If it landed near enough, we would come out for it.
+
+As I grew, I would range farther from the housing. The passage would be cooler and less crowded; the channel’s edge would offer water, but also stretches of bare stone I could not cross quickly. I would learn several ways back. One would go behind a pipe support, another under a loose piece of mortar. Neither would bring me home to exactly the same place, because the cluster would have shifted while I was away.
+
+One day the worker might open the housing farther than usual. Light would enter the crack, and the sheltered place would scatter into separate bodies, each finding whatever cover was nearest. I might end up in a joint across the chamber, away from the engine’s heat. There, for the first time, I could rest beneath the bats rather than beside the pump.
+
+The stone would be cooler. Fine material would sift down from the ledge above. I would test it with my mouth, then settle among the others already there, with the knock reaching us more faintly through the wall. The old seam would still be across the floor, and I might return to it when the chamber had been quiet for a while. For now, there would be room in this joint, and food, and other bodies moving against mine.

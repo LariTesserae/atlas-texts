@@ -1,0 +1,17 @@
+The people in the hollow know one another first by their ways of moving. A heel on a ladder, the brief rattle of a railing, a body turning sideways at the narrowest point in the lane: these carry farther than a voice. Someone coming home late can often tell whose doors are open by the shadows cast across the leaves.
+
+There are children who have never known the braces without vines on them. They are warned about the sharp corners and taught to climb with one hand free. They leave small offerings under the lamps for the moths—bits of leaf, a saucer of water, once a bright screw that a younger child thought might be food. The screw was returned to its jar in the morning.
+
+Several residents work with pipe and wire. One repairs the lamps, sitting with the fitting in her lap and a tray of screws balanced beside her. Another keeps the gutters clear, moving from roof to roof with a hook made from a bent rod. After rain he calls down the levels of the cisterns, and someone below marks them on a board. The marks are rubbed away and made again so often that the wood has gone pale.
+
+The pumping works has more than one keeper. They put their palms against the wall to feel how steadily the motor is running, and take turns checking the stone bed and the mesh around the flywheel. Their tools are kept in a shallow drawer near the floor, where the metal stays warm. When a part needs replacing, the discussion may go on for days in several rooms at once. A piece of pipe is brought out, measured against another, put back, and brought out again.
+
+People leave dishes beneath the sweating joints at dawn, though some mornings yield only enough water to wet a fingertip. Dishes are lent and returned; sometimes an unclaimed one stays in place until someone needs it for a meal. On washing days the balconies become difficult to pass. Neighbors lift damp shirts aside for one another, or hold a dripping sheet away from an open doorway while its owner finds more pegs.
+
+At midday, anyone with delicate work may bring it to the traveling strip of light. A child tries to read there, shifting position as the sun moves. Someone sits with a needle and a torn pocket. The light reaches the pipes and picks out beads of moisture that are otherwise hard to see.
+
+The moss has its own regular visitors: beetles small enough to disappear between the cushions, and people who pause to look for them. A moth under a lamp may be left undisturbed all evening. If it has settled where a door must close, someone eases it onto a scrap of paper and carries it higher, out of the traffic of the lane.
+
+The green shoots in the southern wall have acquired watchers too. One resident measures them with a folded paper strip; another insists the measuring does more harm than good. They agree at least to keep the iron braces nearby clear, cutting the vines back carefully and leaving the shoots alone. Now and then a person presses a hand to the concrete, feeling for a change in its warmth, though no one knows whether warmth would mean anything.
+
+At night the rooms fill with separate, muffled activities: a meal being divided, a hinge being oiled, someone talking softly while another searches a shelf. The newest arrivals still wake to the closeness of the heat. Those who have been there longer notice instead when the familiar tremor in the wall changes, or when a gutter has stopped dripping and a dish can be brought inside.

@@ -1,0 +1,21 @@
+The descent ends at the lip of a chamber so large that its far wall passes for a pale horizon. It lies entirely below the surface. The ceiling is lost in brightness, not darkness: a white radiance filters down through innumerable seams in the rock above, where ice and clear mineral carry daylight from openings hundreds of miles away. Even when night falls outside, the stone continues to glow for a while.
+
+The floor is vegetation.
+
+It is a continuous skin of cold-growing plants, stretched across shelves and spires of young black rock. From a distance it looks smooth as snow. Closer, it resolves into millions of narrow, translucent blades packed side by side, each one edged with a thread of green. They grow horizontally as readily as upward, binding themselves into mats that bridge crevasses and hang beneath overhangs. Where a sheet has torn loose, its underside shows the pale knots by which it held the stone.
+
+There are immense intervals of empty air above this living floor. The plants cover nearly every surface, but few rise higher than a person’s knee. Great cliffs stand a day’s walk apart; between them the chamber opens into bright, nearly vacant space. A moving speck seen far out over the basin may be a loose leaf, or an animal the size of a boat.
+
+The rock is angular and fresh. Whole ridges have the look of something recently broken open, their faces still too sharp to hold much growth. At their feet lie flakes of stone wrapped in the first white shoots. The plants colonize quickly but do not soften a landscape for long: the ground shifts, sheets peel away, and new surfaces are exposed.
+
+The cold is deep enough to make breathing feel deliberate. Most of the time the air is dry. Moisture arrives in narrow weather fronts that form within the chamber itself, when currents passing over warmer fissures meet the cold descending from the roof. A low cloud will gather over a field of leaves, travel for miles, and leave behind a brief fall of fine rain. The drops freeze on contact, weighting the blades with clear beads. In sheltered hollows the beads collect into shallow pools, dark green underneath and skinned with ice.
+
+Weather here can move with startling speed. Warm air rises through cracks in the floor, and the displaced cold air pours down from above. Long strips of vegetation lift in the resulting gusts, streaming from their roots like banners. Sometimes an entire mat comes away and sails across the basin, turning slowly in the light. It may travel for days before catching on a distant ridge, where its loose threads take hold and begin to grow again.
+
+From the lip, these upheavals look almost soundless. Nearby there is a dry whisper of leaves rubbing together, an occasional brittle snap, and the soft patter of ice shaken onto ice. A falling mat makes a long, low rush. Afterwards the quiet closes around it, though the white field continues to move.
+
+Animals are uncommon and easy to miss. Small, six-legged grazers live beneath the mats, cutting pockets in the dense growth and feeding on the tender roots. They leave little round doors that freeze shut behind them. Higher in the air, broad-winged creatures ride the thermal currents, descending only when a sheet of vegetation lifts and exposes the life beneath. Their shadows cross the floor long before the creatures themselves can be picked out against the brightness.
+
+Along a sheltered ridge stand a few low shelters made from stacked stone and tightly woven leaves. Their roofs are weighted with ice and rock. Beside one is a rack of bone tools: scrapers, hooks and long needles for sewing torn mats together. The paths between the shelters have been pressed flat rather than cut, and the plants are already rising along their edges. It is hard to tell how recently anyone passed.
+
+Beyond the ridge the floor falls away into another basin. A line of rain is moving through it, silver against the white growth. Behind the rain, thousands of blades bow together, then lift again; ahead of it, the land remains still and bright. Above both stretches the enormous empty chamber, carrying its slow light from a surface no longer visible.

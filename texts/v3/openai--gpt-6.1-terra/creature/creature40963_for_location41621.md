@@ -1,0 +1,11 @@
+The moss holds most of the basin’s life close to the ground. In the wetter hollows it forms a deep, uneven cushion, green underneath even where the surface has frozen brown. Fine sedge stems pass through it, some still rooted, others lying down where snow has pressed them. Among them are dead leaves, grains of peat, fungal threads and the small invertebrates that can find shelter below the frost.
+
+On the higher ground the moss is thinner. It grows in patches between ridges of lifted soil, gripping what it can. The exposed peat is dark and fibrous, made from plants that lived here or nearby long before the basin was cut. Now a newer layer of plants is beginning over it, slowly and without much soil to work with.
+
+The young pines have room around them. Each stands in its own small territory of needles and crusted snow, with branches reaching low over the moss. Their trunks are narrow, and their growth has been slow enough that even the taller ones are easily dwarfed by the cut walls. In winter their needles give the basin much of its color.
+
+A vole moves through the sheltered space beneath the snow, following runs between food and cover. Its trail near the peat mound is a shallow, continuous groove, interrupted where it has turned or stopped. The animal itself is unlikely to appear in the open; the snow and vegetation offer some protection from cold and from the birds passing overhead.
+
+Lichens live on the ledges and pieces of exposed stone, initially as scattered pale marks. They are joined, in damp cracks, by moss too small to be noticed from the rim. Between the discarded slabs, roots and stems collect windblown matter. The seams retain moisture after the surrounding surfaces have dried or frozen, giving these small colonies a place to persist.
+
+The people who tend the pumps and fans come and go rather than living in the basin. Their footprints cross the illuminated ground near the doors, then harden in the cold. The plants and animals remain when the doors close. Beneath the continuous roar, the moss holds its water, the vole keeps to its covered paths, and the pines stand through another winter above the slowly filling cuts.

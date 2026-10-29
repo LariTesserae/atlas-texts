@@ -1,0 +1,11 @@
+The silver fish spend much of their time facing into the current. They are small enough to find shelter among the bars of the machinery cage, but out in the open they keep together, adjusting their fins so slightly that the whole school seems to hang still. A change in pressure passes through them before the water visibly clouds. When the third pump starts, they turn and move as one, then gather again downstream, where the disturbed water brings edible scraps.
+
+The eels are less often seen entire. An abandoned pipe may show only a blunt head at its mouth, or the slow movement of gills in shadow. They come out to hunt among the ledges and seams, following the scent and movement of smaller animals. A pipe that looks empty may contain an eel folded back along its own length, its skin pressed against the worn iron.
+
+Under the intake ledges, mussels live packed close together, their shells overlapping. They draw food from water that is always being renewed. The oldest are broad and dark; younger ones occupy the narrow spaces between them. Pale crustaceans move over and among the shells, picking at what the mussels reject and at whatever catches in the rough growth around them. Some venture onto the open floor when debris settles, then retreat toward a seam when the current begins to lift it again.
+
+There are smaller lives still: films of bacteria on the plates and inside the pipes, and algae in the limited reach of the lamps. They cover surfaces too smooth or too exposed for larger creatures to hold. Near the brightest lamp, a few tufts have grown long enough to bend and straighten with each change in flow.
+
+The larger fish that enter through the ducts do not stay reliably. They move through the chamber with enough force to scatter the school and disturb the animals feeding below. For a while after one passes, the open water is empty. Then the silver fish emerge from between the cage bars, the crustaceans return to the floor, and an eel’s head appears once more at the end of its pipe.
+
+People may enter only occasionally, through the hatch. Their work leaves clean edges, new metal and altered currents. For the chamber’s permanent inhabitants, a repair becomes another surface to shelter beneath, graze over or fasten onto, until it too begins to collect the slow growth of the water.

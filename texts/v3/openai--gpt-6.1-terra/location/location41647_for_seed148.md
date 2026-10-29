@@ -1,0 +1,15 @@
+The town occupies a shallow basin no wider than a railway yard. From its rim, almost nothing is visible: a dark, open volume, a few faint points of green, and, overhead, the thin black lines of streets.
+
+The streets are roots, grown taut across the basin. Each one has a hollow center, and the people who built the town laid their pipes and cables inside while the roots were still soft. Houses hang beneath them, spaced so far apart that a shout from one reaches the next as a dry breath. Their walls are made of living rind. The windows close slowly when touched.
+
+There is no ground in the ordinary sense. Far below the streets, broad leaves overlap to form a floor, though in several places they have not yet finished growing together. Through the gaps can be seen a pale material, warm and granular, gathering into the beginnings of stone. It rises a little each night. Nobody knows what will happen when it reaches the leaves, but the lowest houses are built with detachable foundations.
+
+The air is cool. Rain comes rarely and falls in single large drops from the roof of darkness. Each drop takes a long time to arrive. Animals gather beneath it as it descends: moths, root-mice, translucent things with too many delicate legs. When it strikes a leaf, it breaks into a hundred beads that run toward the nearest vein. For a while afterward, the streets smell sharply of cut stems.
+
+Most of the basin is empty space. The plants have put almost all their substance into surfaces: the thin floor, the overhead roads, the skins of houses. Between them there is room for a bird to fly a long circuit without crossing a single branch. Birds are plentiful here, though hard to see. They roost on the undersides of the roads, folded flat against the roots, and wake in shifts. When one flock goes hunting, another settles; the dark makes the exchange almost invisible.
+
+At the center hangs a small factory. Its engine turns slowly, drawing fibers from a feeder vine and twisting them into cable. Workers take the cable away on reels. No one has seen the factory illuminated, but its rhythm can be followed through the roots: three turns, a pause, three turns. Sometimes the rhythm arrives at a house before the engine makes it. The workers use those early vibrations to keep the machinery from jamming.
+
+Other things arrive ahead of themselves. A door may open a moment before the hand reaches it; a moth’s shadow may land on a wall before the moth has hatched. These occurrences are too common to be alarming, though people listen carefully when the town becomes still. In a still moment, it is possible to hear an animal walking somewhere it has not yet been born.
+
+The streets continue to lengthen. Their tips feel through the dark at the basin’s edge, finding places to fasten, and the houses nearest the ends occasionally wake to discover a new neighbor. By then its walls are already green, its windows already closing against the cold.

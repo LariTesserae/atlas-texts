@@ -1,0 +1,15 @@
+You would find me at the eastern channels, where a raised iron main crosses the path to the evaporation pans. There is a workshop there with a white square painted on its door and a bench beneath the pipe. I paint the signs that go up around the works, and I keep a few blank boards ready for anything that cannot wait.
+
+The pipe gives the bench a little shade in the morning. By afternoon I have to move the paint tins under it and work standing up, turning the board as the light changes. I paint on both sides when the sign has to be seen from either direction. When it is meant for one crew, I ask them to look at it before I varnish it; they sometimes have a better way of showing the thing than the one I have learned.
+
+Much of my work is ordinary. A red panel needs repainting where the sun has faded it. A door has been replaced, and its old symbol is still leaning against the wall inside. Someone has laid a new path through a yard and asks for a mark at the crossing. I walk back along the path after I have put the sign up, to see whether it remains clear from the places where a person would need it. If a parked wagon hides it, I move it.
+
+On the mornings when the channel screens are cleared, I leave my door open. The workers pass close to it with their long hooks, and if they need another pair of hands they can see whether I am there. I am not much use hauling the screen itself, but I can carry a bucket, or stand downstream and point when a fish turns near the surface.
+
+Once, while the screen was half raised, we saw a pale shape caught against the lower bars. The worker holding the hook stayed where she was while another fetched a net. I climbed down to the narrow ledge beside the water, though I could not see the fish from there. They guided me by pointing, first farther out, then back toward the wall. We got the net beneath it and lowered it into the channel beyond the gate. It stayed in the mesh for a moment before swimming free.
+
+Afterward I went back to the workshop with wet sleeves and found that the board I had been painting had curled in the sun. I soaked the back and weighted it under a sheet of iron. It dried nearly flat, though I still remember which notice it became, and I check it whenever I pass.
+
+I live in the old quarter, in two rooms that were once part of a larger house. The lower room has a thick wall and a table close against it. Friends come there when they want to talk without keeping their eyes on me the whole time. One of them works on the buried mains. She has shown me where to put my hand on the paving outside my workshop to feel the western pumps, and where, a little farther along, one loose cover adds its own quick rattle. I can usually find that one now. I cannot tell her much else about what is happening under the stone.
+
+Sometimes, walking home, I take the longer path past the unused pans. Their walls have slumped low enough that I can step across them. From there I can see the white square on my workshop door, although by late afternoon the pipe throws a shadow over half of it. I have considered moving it higher. I will look again tomorrow, when someone is on the path.

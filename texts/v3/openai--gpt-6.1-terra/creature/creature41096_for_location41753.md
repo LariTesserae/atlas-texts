@@ -1,0 +1,13 @@
+The largest things living in the basin are the green shoots on the shelf. Their leaves are narrow and rigid, with pale grit caught where they join the stems. The roots have found a little darkness beneath the crust. They take what water they can from it, though the shelf is scarcely a hand’s breadth above the flooded floor.
+
+On the wet stone, the dark patch holds closer to its surface. At the edge it is no thicker than a stain; toward the middle it gathers into a soft film. Water moves through it, bringing dissolved minerals and carrying away whatever comes loose. Some of the film is buried as the pale deposit forms. Some continues growing over the new surface.
+
+There is life below the visible crust, too, in the seams where warm water rises. It lives as films on the undersides of plates and as individual cells carried slowly through the gaps. The water does not give them much room. Where it finds a wider passage, they settle; where a seam narrows, they may be pressed into a layer so thin that the next mineral deposit closes over it.
+
+Different parts of the basin offer different chances. At the surface there is light, though little of it reaches behind the wall. Beneath the plates there is less oxygen and more of whatever the water has brought up from below. The living films are not all alike: one may gather where a crack opens, another along its cooler edge, another under a plate that has only recently tilted into the pool. Most are too slight to distinguish from the stone without lifting it.
+
+The pump’s pounding passes through them. Each stroke shakes the water and the surfaces on which they cling, but it has been pounding as long as these particular films have been here. They grow in the intervals as well as through the noise. A cell divides. A strand catches on a rough edge. A little crust forms around a pocket of water, leaving a smaller passage than before.
+
+A droplet falls from a pipe onto the rail. Its white ring dries among the older rings. At the waterline beneath it, where the rust stays wet, there may be another thin settlement, feeding on what the iron and the seeping water make available. The ring itself is mineral, not alive; over time, though, its edge may become a place to attach.
+
+Nothing has to arrive all at once for the basin to become inhabited. The water brings small lives through the stone; the shoots extend their roots; a loosened plate exposes an underside that has never had light on it. As the crust thickens, some places disappear and others open. The level on the wall remains almost unchanged, but along that fixed line the living surface is continually being covered and made again.

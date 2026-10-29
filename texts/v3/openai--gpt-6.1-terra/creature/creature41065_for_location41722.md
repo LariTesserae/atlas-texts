@@ -1,0 +1,15 @@
+The most numerous inhabitants are in the water, though they are rarely visible. They cling to the undersides of submerged stone in thin, colorless films, drawing what they need from the water that comes through the rock. Small swimming creatures graze on them. These are almost transparent, with flattened bodies and two dark flecks near the head. When a shadow passes over a pool they fold themselves and sink; what looks like an empty pool may have dozens resting against its bottom.
+
+The pale scavengers feed on these swimmers when they can catch them, and on whatever the incoming water brings. Their bodies are divided into short, overlapping segments, with many narrow limbs tucked beneath. The front limbs end in curved tips that can grip a mineral crust without breaking it. The crescents they leave behind are made by a harder pair of mouthparts, used to scrape soft material from stone.
+
+A scavenger can remain under a slab for days. A fine fringe along each side of its body gathers moisture from the air, and its folded limbs hold it clear of the water that runs beneath it. In thicker mist it emerges and travels from one sheltered surface to another. It pauses often, sometimes with the front of its body raised. Fine hairs there respond to movement in the stone. The basin’s roar does not stop, but a walking animal produces a different tremor from the steady vibration of the rock.
+
+They are difficult to find partly because they press into such narrow spaces. A full-grown one is longer than a hand but can draw its segments close enough to enter a crack little wider than a finger. Younger animals are nearly clear. Their pale covering thickens as they molt, taking on a dull gray cast from minerals in the water.
+
+The stone piles are theirs. A scavenger chooses a ridge that remains above the pools and works loose plates across it, levering each one with its front limbs. The work takes a long time; several animals may use the same pile in succession, adding or shifting a piece. The gaps underneath hold damp air when the surrounding surfaces begin to dry. Eggs are laid deep in those gaps, attached to the underside of a stone where dripping water will not wash them away.
+
+Not every pile is occupied. Some have stood long enough for mineral deposits to seal their entrances, leaving the eggs or empty cases inside. Others have been opened again: a plate lies beside them, and fresh scrape marks cross the ridge.
+
+When the young hatch, they stay among the stones until their first molt. Then they descend toward the troughs, often after rain has connected the pools. Many are taken by things in the water before they reach shelter. Now and then one survives in a narrow pool of its own, growing there until it is large enough to climb out.
+
+Late in the day, as condensation gathers, a few pale bodies may be seen crossing the exposed rock. They move separately, stopping whenever water runs over them. Beneath them the pools give small, isolated ripples, and under everything the stone continues its slow, resonant trembling.

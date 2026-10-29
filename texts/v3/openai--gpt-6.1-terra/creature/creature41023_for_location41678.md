@@ -1,0 +1,13 @@
+The pale arthropods live mostly below the basin, where the seam widens into a network of cracks too narrow for a finger. The hollow above is only one edge of their territory. They emerge when water rises through the cracks or when a droplet gathers where they can reach it.
+
+Each has a flattened body and six long legs jointed close to the stone. Its skin is nearly transparent; after it has fed, a dark thread shows through the middle. Fine hairs on its feet hold a film of water, allowing it to cross the wet shelf without slipping. The hairs also pick up mineral grains, which it cleans away with small mouthparts whenever it pauses.
+
+It feeds on a film that grows in the cracks: bacteria and other minute organisms sustained by substances carried through the rock. The film is too thin to see on the basin’s rim. Where water moves more slowly, deep in the seam, it gathers in folds. The arthropods graze there, scraping it from the stone, and sometimes eat the soft remains of one of their own.
+
+They are slow to mature. A female fixes a few eggs beneath an overhang, each in a clear case that swells with water. The young hatch looking much like the adults, though their legs are shorter and their bodies almost invisible. For a long time they stay close to the place where they hatched, feeding on the same patch of film. When they shed their skins, the empty shells drift briefly in the current before lodging against grit.
+
+The opening of the maintenance panel changes the air at once. The animals feel it along their legs: a new movement, a slight drying of the stone. By the time a worker’s light has found the basin, any that were crossing it are usually back inside the seam. The low pulses from the city are older and more familiar. At some of them the arthropods stop; at others they continue feeding.
+
+The bore exposed the hollow, but did not create the cracks beneath it. The creatures had lived in those cracks before the first sharp shelf was cut. Now some venture onto the exposed stone, where droplets collect more quickly and where grains brought in on boots offer new places for mineral deposits to form.
+
+One is out beneath the ceiling when the shaft light brightens. It waits with its front legs raised. A drop falls beside it, spreading into a shallow lens. The animal crosses to the edge and drinks, then turns toward the basin. By the time the water has begun to draw through the seam, it has gone in ahead of it.

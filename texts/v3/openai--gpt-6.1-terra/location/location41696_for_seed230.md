@@ -1,0 +1,11 @@
+The town occupies a shallow bowl in the highlands, no more than a few hundred paces across. From its rim, you can see every roof and the pale paths between them. Beyond it the ground rises in bare, rounded shoulders of stone, closing off the view.
+
+The buildings are low and square, made from the same grey rock as the slopes. Their walls are thick and carefully fitted; their roofs carry a weight of flat slabs against the wind. They stand at generous distances from one another, though the lanes, gutters and small paved squares connect them in an orderly plan. Some buildings share walls with older ones, and steps lead down to doorways that were once at ground level. The settlement has been mended so often that it is difficult to say where any one house begins.
+
+Rain is occasional. More often, moisture gathers overnight on the cold stone and runs into narrow channels beside the lanes. These lead to a covered cistern in the lowest square and to a few shallow basins where the water darkens the rock. Most of the paving is dry. In the shaded seams there are cushions of moss, and a few wiry plants grow where grit has collected against a wall. On the rim of the bowl, stunted shrubs lean outward over the stone.
+
+The air stays cool even in daylight. The light is clear enough to show the pecked marks left by stone hammers and the worn edges of the steps. A little smoke sometimes escapes from a roof vent and spreads thinly above the town. There are few people in the open. Someone may be splitting a slab with a wedge, or scraping moss from a gutter with a wooden tool. The taps and scrapes carry across the empty squares, then stop.
+
+Small birds nest under the eaves. Now and then one drops to a basin, drinks and leaves again. There are insects in the damp cracks, and tracks of small animals in the dust beyond the outer houses, but movement is easy to miss.
+
+The place is old without looking abandoned. Water continues to find the channels; loose stones are set back into the walls; roofs are repaired with slabs taken from the slopes. The rounded hills shelter the town as they always have. From one visit to the next, the same basin holds a little water, the same lane remains in shade, and the same quiet lies between the buildings.

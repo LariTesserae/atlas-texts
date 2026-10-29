@@ -1,0 +1,14 @@
+This is a place to visit as an observer, not an explorer who expects to walk around. The entire chamber is smaller than your hand, and almost every usable surface is occupied. Even if you can shrink, you may find no place to stand without touching an animal or damaging the film that feeds it.
+
+**The safest and least disruptive visit would be remote.** If your multiverse equipment permits, send a miniature camera and environmental probe into the outer crack first. Approach from the edge, not through the sulfur seam, and use the lowest light and smallest movements that give you a useful view. Watch whether the animals change their grip or movement in response. If there is no clear route that leaves them room, remain outside and observe from there.
+
+If you do enter in person, settle several things before shrinking:
+
+- **Arrange a reliable return.** Map the crack, confirm that your exit will remain passable at your chosen size, and have a way to return to normal scale from outside the mountain. Leave a companion or automated recovery system at a safe distance.
+- **Bring your own air and temperature control.** The air may contain toxic volcanic gases and may not have enough oxygen; the smell alone cannot tell you its composition. Use a sealed suit with an independent breathing supply, gas monitoring, and thermal protection. Verify that all of it works at your reduced scale. The warm stone and red glow are warnings, not a temperature measurement.
+- **Coordinate with the workers above if possible.** A pause in pounding would make both observation and retreat safer, though drilling may resume and vibration can travel through the rock even when no shaft reaches the pocket. Avoid a visit if the work risks breaking into the chamber.
+- **Carry your own gentle light.** The red gleam is deep in the crack and may not illuminate the animals at all. Keep lighting brief and dim; avoid hot lamps and bright flashes.
+
+Do not scrape or collect the sulfur crust, feed the animals, or try to separate them. They live in a continuous packed layer, and a disturbance to one body travels through its neighbors. Your boots, suit, or exhaust could also introduce contaminants into a very small habitat. Enter only if you can do so without displacing the animals, and leave if their movement suggests you are causing persistent disturbance.
+
+Inside, expect an unusually close, spare experience: angular stone overhead and underfoot, dry heat, the slow pressure of shells shifting against shells. The pounding may be felt through every surface you touch. When the machinery stops, the quiet is not complete; there is still the faint clicking of the animals moving together. Stay only long enough to see what you came to see, then retreat by the same route, leaving the seam and the crowded floor as you found them.

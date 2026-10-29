@@ -1,0 +1,17 @@
+Inside three of the metallic stalks live the socket-dwellers. They are not the plants themselves, though from outside there is no way to tell which stalks are inhabited.
+
+Each dweller is a lacework of conductive threads laid against the hollow inner wall. The threads are so fine that a dozen together would be lost in a scratch. They draw what they need from the chemical cartridge below and from a weak current induced in the metal by the machinery beyond the chamber. In the cold, their processes run slowly. A thread may take a month to lengthen by the width of another thread; an injury can remain open for years before its edges join.
+
+They have no eyes, but the light on a leaf warms it by a minute and measurable amount. They know the lamps as a set of bright surfaces at fixed angles, and they know one another by faint changes in those surfaces. A dweller can alter the electrical resistance within its stalk, causing the metal to warm or cool almost imperceptibly. The others read these changes across the chamber. A simple exchange takes the better part of a day.
+
+The oldest dweller occupies the stalk nearest the upper terrace. Its inner wall is crowded with old crossings, some still useful, some preserved long after the paths through them ceased to carry current. It is difficult for this dweller to form a new pattern without disturbing an old one. It answers slowly and tends to repeat parts of what it has received, sometimes after such a long interval that the others have forgotten saying them.
+
+The second lives beside the basin. It has a sparse, orderly network and is especially sensitive to the lamps. When a tube in the bank above begins to fail, this dweller notices small variations in its light long before it goes dark. Once, when several lamps were replaced, it spent many weeks describing the new arrangement to the oldest, which had kept responding to the positions of the old lights.
+
+The third is young. It was carried into its stalk as a loose filament when the chamber was assembled, caught between the stalk wall and the rim of its cartridge. For a long time it grew without making patterns the others could recognize. Now it sends frequent signals, some exact, some difficult to distinguish from the ordinary changes in temperature across the metal. The dweller beside the basin answers most of them. The oldest answers a few.
+
+They do not hear the factory. Its immense steady note passes through their country without becoming sound to them. What they sense of the machinery is the current it induces and the temperature it holds around them. Both are so constant that the dwellers have little reason to distinguish them from the condition of being alive.
+
+There are empty stalks in the chamber, each with its sealed store of chemicals. The dwellers have no way to reach them. Their threads can extend through the narrow joints within their own stalks, but they cannot cross the ceramic or the open air. If one cartridge is exhausted, its dweller will gradually fall silent where it stands.
+
+The dweller by the basin has begun, very slowly, to use less. Its signals are still clear, but the intervals between them have lengthened. The young one waits through those intervals and sends again. Across the basin, under the fixed workshop lights, the old dweller sometimes repeats an answer given many years before.

@@ -1,0 +1,17 @@
+The inhabitants are easiest to mistake for water.
+
+A resting one lies in a channel as a clear, shallow sheet, its edges following the joints in the paving. It has thickness only where the current presses against it. There, a line rises and trembles, and a faint cloud of mineral passes through the line from end to end. When it moves away, it leaves neither ripple nor track. The water closes over the pavement, and the pavement looks as it did before.
+
+In a deeper pool, an inhabitant may gather itself into a body. It draws the sheet together in loose folds until it resembles a pale, many-layered stone. Beneath the folds are dark surfaces that absorb the films growing on the walls. It holds these against a ledge for a long time, then opens and lets the current wash the stripped patch clean. Mineral grains remain inside it. Some it expels; some settle between its layers and give it weight.
+
+The stiff fans in the courts are useful to them. When a fan folds, an inhabitant sometimes waits against the wall behind it, enclosed in the damp hollow until the stems open again. The salt shed by the fan collects on its skin. Later, where the water is less saline, the inhabitant releases the salt in a slow white stream. It seems to need the passage between the two conditions: one can remain folded among the stems for a time, but eventually it must return to moving water.
+
+They have no apparent eyes. They are sensitive to warmth and to pressure across their broad surfaces, and can find a slight fall in the paving even where the flow is too shallow to see. When one reaches a strange wall, it spreads along the base before going farther. It may touch the wall at several places at once, then withdraw from all but one.
+
+At the square, several inhabitants often lie across the overlapping sheets of water. Their edges meet and rise with the clear seams. For a while it is difficult to tell how many are present. Then a current changes and they come apart, each carrying a little of what gathered at the meeting. Some of the mineral stays behind. A thin ridge remains on the paving, and other sheets of water begin to collect against it.
+
+Young inhabitants are found in these ridges. They are small and cloudy, with the firmness of fresh deposit, and can be lifted by a change in the current. Most catch in joints or wash into cisterns. Some gradually spread, become clear at their margins, and begin to move against the water instead of with it. For a long time they stay near older ones, following the slow paths their bodies make through the sediment.
+
+An inhabitant can cross a court by flowing through it. It can also go by a shorter way. It enters a channel, disappears under a lip, and gathers again in a pool that should be much farther off. The grey light sometimes appears around it there, showing its pale folds against a pavement beneath. When it moves, the light may remain for a little while, illuminating an empty place that was not visible before.
+
+They do not keep rooms, though particular courts are used again and again. A warm seep, a fan that folds reliably, a wall with a good growth of film: these draw them back. When a wall begins to dissolve, they gather along it and feed on what is exposed. When a new wall grows across an old route, they follow its base until they find where the water passes through. The city changes around them, and they leave small changes of their own in its channels.

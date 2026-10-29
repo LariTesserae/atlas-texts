@@ -1,0 +1,7 @@
+The inhabitants of the plateau are the groves. Each plant stands on a pale trunk divided into joints, its crown crowded with blades that gather carbon and minerals from the air. The blades are thick enough to hold their shape, though light passes faintly through their edges. An oily solvent moves slowly through the living tissue, carrying materials between leaf, trunk, and root.
+
+The roots lie partly exposed where they meet the stone. Around them are heaps of white crystals, each one made at a leaf tip, dropped, and taken up again. Beneath the crowns, broad fallen fronds overlap in layers. Their dark surfaces hold the crystals for a time before they reach the roots. There is a metallic smell here, close to the ground.
+
+From the open plateau, a grove looks compact against the pale stone. Inside it, trunks rise close together and the crowns shut out the sky. Tiny electrical charges pass through the leaves as the plants continue their slow work. Occasionally a crystal falls through the fronds and strikes stone with a small, clear sound.
+
+The groves remain widely separated. Between them, sharp-edged fragments rest on bare mineral plates, and the shadows do not lengthen or withdraw. Each stand carries on its chemistry alone, returning its crystals to the same white heaps beneath its roots.

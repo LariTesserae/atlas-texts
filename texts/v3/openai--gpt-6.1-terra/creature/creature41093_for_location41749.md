@@ -1,0 +1,11 @@
+The people who live here are still making room for themselves. Many know how to cut a straight face in clay, turn a drying block without breaking its edge, or judge by touch whether mortar is ready for another course of stone. A person may spend the morning clearing gravel from a future lane and the afternoon tending a hearth in a courtyard already finished, where jars stand in the shade and somebody has swept the floor.
+
+They move carefully through the narrow spaces, turning sideways for a loaded cart or lifting a bundle over a low wall rather than carrying it around. Neighbors share the work of keeping water moving: after a shower, someone follows a channel with a stick, drawing out grit and leaves before they can lodge at a bend. The cisterns are visited throughout the day. A wet jar leaves a dark ring wherever it is set down.
+
+Children have learned which stacks of blocks can bear their weight and which must be left alone to dry. They carry small stones out of the way, watch for the sparrow on the roofs, and find sheltered places between walls where the ground stays damp. From the higher banks they can see people working on the far side of town, too distant to recognize until they come nearer along the lanes.
+
+The small garden beds receive close attention. Their keepers break the crust around each plant and set stones where a careless foot might fall. Grain spread on trays is brought in when rain threatens; afterward it goes out again, turned by hand so the lower grains can dry. Reeds are sorted on roofs, and those fit for use are carried down in bundles.
+
+A few other creatures live alongside them. Mice shelter under the brick stacks, emerging where grain has spilled. The sparrow visits from above, quick to leave if a hand reaches toward it. Fine roots are pushing into the gravel of the banks, and grasses are beginning to hold the margins of the drains.
+
+In the evening, people finish what can be finished before the cool deepens. Tools are gathered from the work yards, drying blocks covered if rain seems likely, and water brought in for the night. A new wall may be only waist-high, but already there is a place beside it where someone sits after work, out of the lane, looking across the roofs toward the cut banks.

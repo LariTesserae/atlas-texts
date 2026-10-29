@@ -1,0 +1,9 @@
+The grazers are flattened almost to the thickness of their shells. Their backs are dark and finely ridged, with pale grains of sulfur caught in the grooves. Short legs project from beneath them, each ending in a hooked foot. On the seam they work their mouths against the film, moving slowly enough that a patch of crust can be exposed without scattering the grains around it.
+
+Among them are animals much the same shape but with narrower heads. They do not scrape at the sulfur. They wait with their legs folded close, touching the bodies that pass, and seize a newly hatched grazer when one comes within reach. A feeding predator may be carried a little way by the shifting crowd, holding on while its neighbors crawl over its shell.
+
+The youngest animals are translucent at their edges. They slip through spaces too small for an adult, then settle where the seam is exposed or where a leg can find a hold. As their shells harden, they take up more room. Their movements are small, but there are so many bodies in contact that a push can cross the chamber.
+
+They have little use for the dull red light. Fine bristles along their limbs and the margins of their shells register contact: stone, sulfur crust, another animal, the tremor of a foot searching for purchase. During the pounding from above, those bristles quiver almost continuously. The animals brace against the rock and one another; a few keep feeding whenever the blows ease.
+
+After the machinery stops, their legs continue their slow work. Shells lift and settle. A hunter tests the edge of a passing body, and a grazer reaches a newly grown patch of film. In the quieter chamber, each contact makes a small, dry click.

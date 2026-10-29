@@ -1,0 +1,11 @@
+The town stands on a high shelf of black stone, beneath an ocean so deep that the surface is no more than a calculation. The shelf is small: from one end of the settlement to the other, a person could walk in a few minutes, if walking were possible here. Beyond it the seabed falls away on every side.
+
+The rock looks newly made. Its ridges are keen enough to divide the faint light from the buildings, and the broken faces of the cliffs fit together in the mind like pieces of a shell. There is no sand in the streets, no silt in the corners. The water is cold, clear and immensely heavy.
+
+A dozen structures occupy the shelf. Their lower stories are cut into the stone; above them rise thin, dark walls arranged around vacant courts. Some walls enclose rooms, while others stop abruptly, holding up nothing visible. Between the buildings run precise lines of pale material, flush with the ground. They meet at a square basin in the center of town, where a sphere of water remains perfectly distinct from the water surrounding it. Seen through the sphere, the far wall of the basin appears much nearer than it is.
+
+The town’s machines are difficult to separate from its architecture. Doorways open onto interiors larger than the buildings that contain them. A stair descends three steps and arrives at a chamber level with the shelf. In several rooms, pressure has been arranged so that a bubble of empty space hangs unsupported, its surface sharp as glass. No lamps burn, but a little light gathers along certain edges and stays there, enough to reveal the next threshold and no more.
+
+There are no plants, nor any trace of soil. On one wall rests a small translucent animal, jointed like a sliver of crystal. Its limbs are spread against the stone; in the still water it might be mistaken for a flaw in the surface. Another occupies a crevice near the cliff edge. They do not seem to need the town, though they have settled where its faint light falls.
+
+The ocean carries almost no sound. A listener might hear a low, continuous note through the soles of their feet, or might feel it only as a pressure in the bones. Nothing in the town moves. The sphere remains in its basin, the animals hold to the walls, and the sharp streets keep their shapes under the immense weight of water.

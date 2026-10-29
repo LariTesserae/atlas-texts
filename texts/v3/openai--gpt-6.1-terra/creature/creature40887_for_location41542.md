@@ -1,0 +1,15 @@
+The largest inhabitant is difficult to distinguish from the others. It begins, perhaps, with the broad-leaved plants around the lamps, whose stems descend separately into the ceramic soil. Beneath the floor plates their roots have grown together. Some are joined by grafts; others lie so close that the fine hairs from one are tangled with the hairs from the next. Water and dissolved salts pass between them wherever their tissues have fused.
+
+The outer leaves are broad and supple. Closer to the lamps, newer ones have grown smaller and thicker, their surfaces pearled with bubbles. A leaf that touches a lamp will slowly turn its edge away. The stem behind it continues to grow toward the light.
+
+The red fronds are a separate plant, though they have made use of the larger one’s stems for support. They have no need of the pumps they have entered. The narrow spaces between the teeth and housings simply offer places where their tender tips can catch. Every so often a pump moves, and a few fronds come loose. They settle on leaves or catch against a grille, where the living tips continue to lengthen.
+
+The moss is newest on the chair. It has spread from the platform up the legs, then along the underside of the seat, where the pale growth is almost hidden by the ferns above. On the handrails it forms little raised seams over the metal, thicker where dust from the soil has collected. It does not know a handrail from a root or a valve. It grows on whatever holds still long enough.
+
+The flowers belong to several kinds of plant. One bears a single cream-colored bloom at the end of each jointed stalk; another puts out clusters of small, greenish cups beneath its leaves. Their pollen rarely travels far. A grain that reaches a neighboring flower can send a tube into it, slowly, over weeks. Some of the thickest flowers have already made seeds. These lie in folded cases under the petals, becoming heavy enough to pull the stalks downward. A few cases have opened, and seedlings stand among the parents, translucent and crowded.
+
+Around the glass enclosing the drain lever, the roots are especially fine. They cross and recross one another, making a loose white sleeve over the enclosure. Their tips pause against the smooth surface, then grow along it until they find another root or the edge of the mounting. A few have reached the seal at the bottom. They press into its smallest irregularities, but the glass remains dry within.
+
+Nothing in the chamber has yet had time to become old. The thick stems are still lengthening; the woodier ones have only begun to stiffen. Dead leaves collect beneath them, softening at the edges before they can be buried. The ceramic soil is becoming darker in patches where those leaves have come apart.
+
+Above the empty chair, a fern continues to unfold. Its newest frond is curled tightly at the tip. Each day it opens a little farther into the clear, green-lit water, finding room among leaves that have already grown there.

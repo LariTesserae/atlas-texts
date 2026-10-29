@@ -1,0 +1,15 @@
+Go with a way home that does not depend on finding the entrance again. If your means of travel requires a fixed doorway, a retraceable route, or a tether that must remain continuous through ordinary space, do not enter until you have tested another exit. Leave a companion outside with your intended duration and a plan for what to do if you do not return. Clocks may not be reliable here; agree on a signal as well as a time.
+
+The chamber is scarcely larger than a pantry, and its ceiling is low. Wear a close-fitting helmet and soft, clean clothing without dangling straps or hard equipment that might scrape the walls. Take breathable air or an independent air monitor: the brightness and the presence of animals are not assurances that the atmosphere is safe for you. Carry a compact light, though you may not need it, and instruments you can read without touching them to the stone.
+
+**Choose your footing before you move.** Hundreds of animals share a very small floor, and some may not be where their shadows suggest. The faint damp lines are not necessarily evidence that a path is clear; one may lead somewhere its maker never reached. Step slowly, and remain still long enough to see what emerges around each intended foothold. Do not set down a pack or lean against a wall to make yourself comfortable.
+
+Bring no open water, and do not drink from the thin pool. For a few hours it is the gathering place for much of the chamber’s life; afterward, eggs depend on the damp patch it leaves. Even a drop from a bottle, or condensation shaken from your clothing, could change what happens there. Clean your equipment beforehand and keep food sealed.
+
+The stone is still forming. Resist the temptation to test its softness, pry out the pebble, or touch the opposite side to check the cold. A seam closing around something does not tell you what it would do around a finger. Give the ceiling moss room as well, and let its rising drops go where they are going.
+
+Treat the shelter of flat chips as both inhabited and structurally uncertain. Its interior is larger than its exterior, but that does not make it a safe enlargement of the room. Look through the gap only from where you can keep your balance; do not put a hand, instrument, or tether inside merely to see how far it goes. The animals visible beyond it may be distant in a way that has little to do with the distance you would have to travel.
+
+The period just after the water vanishes may be the most rewarding to watch and the worst time to move. New animals scatter, seams change, and the light grows sharper. If a grain falls and the animals pause while their shadows continue, pause too. Watch without assuming that stillness means the event is over, then leave when your route and your exit method are again certain.
+
+Keep the visit short. Take notes or images rather than specimens, and check your clothing and equipment for passengers before returning. The chamber is bright enough to make everything visible, but not necessarily visible at the same time.

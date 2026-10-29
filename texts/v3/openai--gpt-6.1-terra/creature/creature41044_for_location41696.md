@@ -1,0 +1,17 @@
+The people who live here know one another partly by sound. A hammer tapping at the east wall belongs to the woman who is fitting a new lintel; the uneven scrape in the lower lane is her father cleaning the gutter. A child running across a square can be heard from several houses, though children are told not to run there when the stone is wet.
+
+There are families spread through adjoining rooms that were not all built at the same time. A doorway may lead from a newer kitchen into a low chamber where a great-grandparent once slept. Some rooms are used only in the warmer months; others hold tools, dried food, bundles of wool and spare roof slabs too small to be left outside. The thick walls keep the rooms cold after sunrise and hold a little warmth after the fire has gone out.
+
+Most households have someone who can dress stone. The work is learned young, first by sorting chips and carrying wedges, later by striking along a line without spoiling the piece. One man is especially good at making lids for the water jars; another can tell, by the sound of a slab, whether it has a crack that will open under frost. Their work is visible everywhere, but rarely signed. When a wall needs repair, the owner asks whoever has time, and the helpers are fed.
+
+The gutters belong to everybody. They are inspected after rain and again when the nights begin to freeze. Children are sent to lift out leaves and grit with wooden scrapers, though the deeper channels are left to adults. No one is pleased to find a bird nesting over an inlet, but usually the nest is allowed to remain until the young have flown.
+
+Water is carried indoors in covered vessels. In a dry spell people wash sparingly and save the cleanest water for drinking. The shallow basins are not the town’s store; birds use them, and so do the small animals that come in from the slopes after dark. A person passing may pause there to wet a cloth or look at the sky reflected between the stone edges.
+
+The town cannot feed itself from the bowl. Some families keep sheep beyond the enclosing hills, where there is rough grazing in the hollows. Others travel down to trade stonework, wool and cured hides for grain, oil and wood. The returns are watched for, especially in poor weather. A cart arriving at the rim brings people to their doors, and for a short while the quiet squares fill with questions, news and the business of unloading.
+
+In the shaded seams live mosses that swell with moisture and draw tight again as the paving dries. Small pale insects shelter beneath them. Beetles work through the grit at the foot of walls, and spiders string their webs across sheltered corners of the roof vents. The birds under the eaves know the town’s routines: they wait nearby when a gutter is scraped, dropping in afterward to pick through what has been loosened.
+
+At night, small animals cross the lanes to reach the basins and the crumbs dropped near doorways. Sometimes a household hears one moving in an old wall. If it keeps away from the stored grain, it may be left alone.
+
+The people are not always quiet. In kitchens they argue, sing, tell stories and call for more fuel. On cold evenings several households may gather in one room rather than tend separate fires. But outside, with the houses standing apart and the wind passing over their weighted roofs, even familiar voices seem to belong to their particular doorways. In the morning the doors open, someone checks the sky, and the day’s first taps carry across the bowl.

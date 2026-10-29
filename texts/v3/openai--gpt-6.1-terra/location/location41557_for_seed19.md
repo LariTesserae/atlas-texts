@@ -1,0 +1,19 @@
+The plateau lies so high that the lowlands are visible only as a pale curve, a little darker than the sky. Its surface is almost level. Whatever mountains once stood here have been worn down to their roots: broad islands of black stone, flush with a field of fine, pink grit. Around each island the grit is combed into shallow lines, though there is no wind to make them.
+
+The air is cool. Ordinary daylight falls across the plateau, bright enough to show the grain of the stone and the faint shadows under every raised thing. There are no clouds. Nothing glistens; there is no water in the rock, the air, or the bodies gathered here.
+
+The bodies are everywhere.
+
+From a distance they resemble a covering of pebbles. Closer in, the pebbles resolve into animals: squat, many-jointed creatures with shells the color of old bone, each tucked against its neighbors. Their backs are grooved and dusted with mineral powder. Some have the broad faces of grazers, some the narrow hooked mouths of hunters, some no visible mouths at all. Small ones occupy the hollows in larger shells. Others stand in vertical files, balanced on one another’s heads, making columns a few handspans high.
+
+They are alive. Beneath their translucent edges, thin organs hold a steady amber light. They feed by taking apart the salts under them, and other creatures feed on the powder left in their tracks. None is moving now, nor was any moving when the first stone shelters were built among them. A creature may have its jaws closed around another and both remain alive, fixed at that exact point in a meal. The shelters contain scratched pictures of the same jaws, the same prey, the same gap between tooth and shell.
+
+Sparse vegetation rises through the animal cover. It is difficult to tell where one plant ends and another begins: gray filaments emerge in one place and reappear a long way off, joined beneath the grit by flat, mineral-sheathed roots. The plants hold their stiff leaves open to the light. Around each leaf is a ring of tiny animals, so numerous that their overlapping legs form a dark fringe. They do not visibly eat the plant, and the plant does not grow beyond them.
+
+There is almost no sound. Occasionally, very far away, comes a dry tap. It seems to travel no closer, however long one listens. A person walking across the plateau hears the grit shift underfoot, and the small scrape of shells against a boot, but even these sounds have a curtailed quality, as though the open space has little room for them.
+
+The shelters are scattered across several miles of the high ground. Each is a low ring of fitted stones with a slab laid over it, just large enough for a person to crawl inside. Their makers left flint blades, shallow bowls and cords twisted from the gray filaments. In several shelters, the bowls contain neatly sorted animal shells. In others, the shells are still inhabited. The occupants hold their places even when the bowls are lifted.
+
+Looking out from a shelter, one can see a black stone island on the horizon. It has a notch in its upper edge and a pale band along its base. The same island is visible from every other shelter, always at the same distance and in the same direction from the doorway. Yet a traveler crossing between two shelters passes over the ground where one view ought to exclude the other. On the way, the island remains ahead.
+
+The creatures nearest that path are worn smooth along their upper shells, as if many travelers have brushed past them. Farther out, their shells are sharp and ridged. The difference gives the landscape a history, though it offers no sign of an occasion on which anything here changed.

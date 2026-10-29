@@ -1,0 +1,11 @@
+Near the summit, where the air has been thinned almost to nothing, a new fissure opens in the mountain. It is no wider than a small house and deep enough that daylight enters only as a pale seam. Its walls are fresh black stone, sharp-edged and closely fitted, as if the mountain had just been broken apart and might close again.
+
+The fissure holds a little warmth from below. Water condenses on the rock in beads, then gathers along the edges until it is heavy enough to fall. A few shallow pockets have formed where the drops land. The surrounding stone stays dry, except after the occasional cloud passes directly through the opening and leaves everything slick. Thin patches of dark-green growth cling near the wettest places; elsewhere the walls are bare.
+
+Animals occupy almost every surface. They are pale, flattened creatures, hand-sized, with many jointed legs and translucent skin through which their slow workings can be seen. They overlap in the cracks, cling beneath one another on the overhangs, and crowd around the water pockets. Those nearest the water drink while the others wait, feeling their way forward with delicate forelimbs.
+
+The noise begins as a dry scraping. Each animal draws a ridged limb across the stone at intervals, and the sound carries throughout the fissure. Thousands of these rasping calls overlap, rising and falling into a coarse, almost continuous roar. From outside, it might be mistaken for wind passing over the summit. Inside, it is possible to hear the small pauses as groups of animals fall still and begin again.
+
+They are sensitive to moisture. When a drop falls, the creatures nearest it turn toward the sound; when mist enters, whole sections of the wall slowly loosen and rearrange themselves. Some use loose chips of stone to reach water caught in narrow seams, probing until a bead runs out along the chip’s edge. The chips are left where they fall.
+
+In the deepest part of the fissure, where no daylight reaches, the animals’ bodies give off a faint gray sheen. It comes and goes so slowly that it is difficult to see any individual brighten or fade. After time in the dark, the crowded walls seem to emerge a little, then recede again. Above them the opening remains narrow and still, with the high sky occasionally visible through it.

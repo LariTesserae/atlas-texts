@@ -1,0 +1,11 @@
+A low, hot plain stretches beneath a ceiling of dark leaves and cloud. It is open enough that the eye can follow it for miles, but there is no unobstructed view: stands of vegetation overlap, each a deeper shade of green than the last. Beyond them, broad backs of pale mineral rise barely above the wet ground. Their surfaces are smooth and soft-looking, as if the land had only just gathered itself there.
+
+Water lies close beneath everything. It seeps into footprints as soon as they are made and beads along the undersides of leaves. There are shallow pools, warm as skin, and narrow channels hidden under mats of root and moss. Between them the soil is firm enough to cross, though it yields slightly under weight. No river has cut a valley here; the channels wander over the plain without banks or direction.
+
+Plants crowd the open spaces as thickly as the shade. Tall fronds spread above broad, dark leaves, and finer growth fills the intervals between their stems. Moisture gleams on every surface. The air smells of green sap, warm mud and the faint sourness of standing water. What light reaches the ground is dim and diffuse, with no visible source.
+
+Animals occupy nearly every layer. Small translucent creatures cling beneath the leaves, grazing side by side. Heavy-bodied amphibians sit in the warm channels, their backs level with the surface. There are long-legged animals among the fronds, and low, many-footed ones moving through the moss. Wings flicker in the canopy; pale fish hang in water so shallow their outlines show through it.
+
+The sound is continuous and moderately loud: calls from the vegetation, the dry ticking of insects, wet throats pulsing near the ground. Individual voices rise from it and subside. The animals move, feed and call, but their numbers and places remain remarkably constant. A pool is emptied of one small swimmer and filled by another. A leaf bends under a new weight just as the weight on its neighbor lifts.
+
+The mineral backs remain smooth and unmarked. The channels never deepen, and the lush growth neither advances nor retreats. The plain has the appearance of a world still coming into being, yet it stays exactly at this stage: warm, dim, crowded and unfinished, with water always waiting just beneath its surface.

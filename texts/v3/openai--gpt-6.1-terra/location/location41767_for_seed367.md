@@ -1,0 +1,11 @@
+High on an old plateau, a narrow opening leads into a room no larger than a garden shed. Its ceiling is a single slab of stone, resting on walls fitted together without mortar. Above it, the plateau has been worn almost level. The stones inside are rounded too, their corners softened by ages of grit moving through the opening.
+
+The room was once part of a settlement built into the hillside. Beyond its back wall are other chambers, linked by passages too low to walk through. Here, shelves and little alcoves have been cut into the rock, and fragments of hand-shaped clay are wedged into the joints. Nobody has lived here for a long time, but the construction still organizes the place: each ledge catches a different depth of dust, each crack offers a differently sized shelter.
+
+There is no pool, damp patch or dripping seam. The air is warm and dry, and the floor is covered in fine mineral powder. Plants nevertheless crowd the walls: gray-green succulents rooted in the old mortar, mats of tough, narrow leaves, and pale lichens spreading over the stone. Their growth is slow, but there are many generations of it, layered until the shelves seem upholstered. Tiny roots work into joints that a knife blade could not enter.
+
+The only daylight comes through the entrance and a slit near the ceiling. It reaches the floor as a thin, bright band. Most of the room remains in a brownish half-light, where movement is easier to see than color.
+
+Insects occupy nearly every surface. Ants stream along the edges of the slabs and disappear into the wall; small beetles push through the powder below them. Moths cling beneath the leaves, and spiders have stretched dusty threads across the mouths of the alcoves. Lizards wait among the clay fragments, making brief, violent dashes into the traffic. Above them, a cluster of bats shifts in its crevice, quarrelling over space.
+
+There is sound everywhere: the dry patter of feet, wings knocking against stone, the scratch of claws, a constant faint rasp from insects feeding inside old stems. When wind crosses the plateau, it draws air through the passages and sets loose husks skittering across the floor. For a moment the whole room stirs. Then the wind passes, and its smaller movements become audible again.

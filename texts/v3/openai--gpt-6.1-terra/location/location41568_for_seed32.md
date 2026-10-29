@@ -1,0 +1,9 @@
+Under a flat expanse of pale crust is a chamber no larger than a cupped hand. It has no floor in the usual sense: the lowermost space is filled with tightly fitted ridges, and the ridges rise into columns, and the columns spread against a ceiling made of the same fine, chalk-white substance. Every surface was laid down by the sparse growths that live here. There is no stone behind the walls, no older ground beneath them.
+
+The growths look like short sprigs of glass, colorless at their roots and faintly yellow at the tips. They stand in the narrow seams between the columns, drawing a dry mineral vapor through their brittle tissues. They need no water. As they feed, they lay down material so slowly, and shed it so slowly, that each sprig keeps precisely its shape. What they shed becomes the chamber; what they dissolve makes room for them to remain.
+
+Light fills the place without casting much shadow. The walls themselves give off a cold, steady brightness, caught and multiplied in every seam. Their edges have been worn smooth over an immense span, not by rain or wind but by the patient contact of adjoining surfaces. Nothing sharp survives except the glassy tips.
+
+The chamber is packed, but not silent. A loud, unbroken note comes through it, as though the whole structure were singing with its mouth closed. It has no discernible source and never swells or fades. The little sprigs do not tremble to it; the close-set columns do not shift. There are no animals to hear it and no loose grains to dance.
+
+It is cool everywhere. If one could enter the chamber without disturbing it, there would be almost nowhere to stand: only the thin seams, the bright growths, and the white architecture pressing gently in from every side.

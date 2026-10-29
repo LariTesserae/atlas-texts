@@ -1,0 +1,9 @@
+High inside a working dam, a narrow service court lies between two walls of poured concrete. It is no larger than a small room, open to the sky through a slot where the walls fail to meet. Beyond that opening, a bank of cloud passes close enough to hide the upper gantries. The court has the cold, thin air of a place far above the valley floor.
+
+Nothing here rests on exposed ground. The floor is steel plate, laid over a reservoir of pipes and pressure chambers; the walls rise from it in clean, hard planes. Their corners are still sharp. Bolt heads retain the marks of the tools that tightened them, and pale numerals stenciled beside the valves have not yet faded. The dam is new enough that water has made stains but not worn channels.
+
+Water is everywhere. It beads on the walls, gathers beneath the seams and spreads over the floor in shallow sheets. At intervals a pipe discharges into a grated trough, filling it to the rim before the pumps draw it down again. Mist blows through the slot overhead and settles on every cold surface. A few threads of moss have established themselves in the packing around a drain; elsewhere, tiny green patches cling to wet mortar. There is no sign of insects or birds.
+
+The noise is immense. Turbines turn behind the concrete, their low continuous roar joined by the clatter of gates and the hammering rush of water forced through constrictions. When a valve opens somewhere below, the plates underfoot shudder and the sound swells until speech is impossible. Drops falling from the overhead braces cannot be heard, though their impacts stipple the pooled water.
+
+Dim work lamps burn behind wire cages. Their reflections stretch and break each time the floor trembles. Between discharges the water briefly settles, and the court looks almost still: bare walls, a few dark seams of green, a grate under a skin of water. Then the next gate lifts, the trough rises, and fresh mist comes drifting through the opening above.

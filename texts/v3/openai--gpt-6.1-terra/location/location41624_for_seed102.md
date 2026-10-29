@@ -1,0 +1,9 @@
+Below the salt plain is a chamber no larger than a pantry, its ceiling a single dark slab held up by the pressure of the earth. The floor is warm, pale mineral, broken into sharp-edged plates. Nothing has had time to wear their corners down.
+
+Six plants grow here, widely spaced. Each has a thick black stem and a crown of soft, intricately folded fronds, dense enough to hide a hand. Their surfaces gleam with an amber fluid that is not water; the chamber contains no water at all. Fine threads from their roots run across the floor rather than into it, joining the plants in a loose hexagon.
+
+Small animals crowd the undersides of the fronds. They are the color of old ivory, with thin legs and bell-shaped bodies, hundreds to a plant. Between the plants there is almost nothing: bare salt, a few fallen flakes, a stone cup set upright beneath one root. Beside the cup lies a blunt scraper made from the same black material as the plants’ stems. No marks lead toward or away from it.
+
+The chamber is loud. Every little animal holds a note, and together they fill the pocket with a deep, continuous chord. The slab overhead answers with a higher ringing, so strong that the salt plates tremble visibly, though they never shift. Near the floor, loose grains stand on their points.
+
+The plants do not grow, and the animals do not feed in any way an observer can see. Their amber fluid circulates through the roots and back again without diminishing. The animals remain under their fronds, sounding their separate notes. Even the trembling grains return to precisely the same positions, over and over. There is warmth, sound, and the suggestion of innumerable small lives, but no sign that anything here has ever moved from one condition into another.

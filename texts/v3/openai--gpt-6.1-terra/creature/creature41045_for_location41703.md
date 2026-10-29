@@ -1,0 +1,5 @@
+The most enduring inhabitants are difficult to see. Heat-loving microbes occupy a few sheltered seams, where moisture lingers against the warm rock. Their films are so thin they scarcely change its color. As the pool shrinks and fills, some are wetted and exposed again; others remain in narrow cracks where the temperature and dampness change more slowly.
+
+Near the fissure, a pale springtail keeps to the cooler grit. Beneath a loose chip it finds the moisture that seeps down from above. It moves only a little way from this shelter before the floor grows too hot. A fallen drop may darken the grains around it, then slowly disappear.
+
+The springtail does not visit the steaming pool. The microbes do not spread across the bright, dry walls. Each occupies a small part of the chamber, shaped by differences in heat and water that would be easy to miss from above.

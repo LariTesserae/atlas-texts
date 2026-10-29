@@ -1,0 +1,15 @@
+I think I would begin beneath the pump house, in the narrow water where the culvert empties over stone. Not inside the pipe, where a sudden rush could carry me out, but just beyond it, among pebbles that have learned to knock against one another without going far.
+
+I would be a seamling, small enough at first to shelter under a piece of brick. Its underside would be rough and red, quite unlike the pale basin rock. When water came through the culvert, the brick would tremble before it moved. I might learn that tremor before I learned the wheel’s click: the warning that it was time to grip, or let go.
+
+The water there would bring food from several places. Film lifted from the basin walls, fragments shaken loose from the pump, and sometimes a fine rust-colored dust would pass over my hiding place. I would extend my threads and draw them in again. Much of what I caught would be inedible. After a flood, there might be so much silt that I would have to keep the threads tucked away until the water cleared.
+
+As I grew, the brick would become less useful. I imagine trying to turn beneath it one day and finding that the edge of my back had caught. It would take several attempts to work free. The next shelter might be a curved iron fitting, half buried in gravel, where the current entered at one end and left more slowly at the other. Worms would live in its seam. When the wheel turned, drops would fall nearby; when it stopped, the fitting would cool and the water around me would gradually sink.
+
+I might stay there for years, though not all at once. A heavy rain could lift the fitting and send me out into the open. The bird might be standing above, its feet among the pebbles, waiting for the water to expose something large enough to take. I would not know it as a bird, perhaps. I would know the shadow, the interruption in the light, and then the sudden disturbance when its beak entered the water.
+
+If I escaped, I might not get back under the iron. I would be broader by then, less able to follow the young into the gravel. Farther from the culvert there is a hollow in the rock where one wall is kept clean by the current and the other grows a dark coat. I could settle at the boundary, with room to lift my feeding fringe into the passing water.
+
+The wheel would still be audible there, faintly, through the stone. Sometimes it would click for days; sometimes it would fall silent. Young seamlings would pass through my hollow after rain, gripping bits of gravel or being carried without purchase. Some would remain nearby. Others would vanish beneath the shelf.
+
+In dry weather I would close my plates and wait. Water would continue to pass somewhere inside the basin wall, though less and less of it would reach my hollow. Perhaps the wheel would begin again before I dried out. I imagine feeling the first new trickle along the edge of my back, then opening one plate a little way to let it in.

@@ -1,0 +1,9 @@
+In the seam, under the overlapping fern roots, lives a small salamander. It is the color of the wet rock, except for a pale line along either side of its belly. When it is still, which is much of the time, its back is difficult to distinguish from the smooth, dark stems pressed against it.
+
+It has a broad head and short legs, and its toes spread when it climbs. It can work its way through the moss without disturbing the surface much, pushing between the stems with its nose, stopping wherever there is a pocket of water. Its skin needs the damp. When the outer edge of the mat begins to dry, it withdraws deeper into the seam and waits there, folded close to the stone.
+
+It feeds on the small life among the moss: pale larvae, mites, soft-bodied things scarcely larger than the grains of grit below. It takes them with a quick movement of its head. There are long intervals between these movements. The salamander rests with its chin against the rock, its throat working faintly.
+
+The roar fills its home, but the salamander does not need to hear a droplet fall. Through its feet and belly it feels the slight impact on the stone. Sometimes, after a run of wet weather, it comes out onto the flat stones beneath the seam and drinks from a film of water gathered in a hollow. The split bowl offers a darker shelter, though it seldom ventures that far across the dry floor.
+
+In the coldest part of the year it becomes thinner and slower. The moss closes over the place where it lies. Water continues to gather on the ceiling and fall; the high note in the passage comes and goes. When the seam is wet again, the salamander moves through it, leaving a narrow opening between the stems that gradually closes behind it.

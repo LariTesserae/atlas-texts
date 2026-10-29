@@ -1,0 +1,15 @@
+The plateau is so broad that its far edge rises into the sky. In the bright air, distance has a pale green cast: not mist, but innumerable seeds turning in the wind.
+
+Underfoot, the ground is alive. A continuous mat of pale roots and woody tissue extends for thousands of miles, its oldest layers pressed into something as hard as stone. It grows slowly upward as the wind strips it away. Where a slope has broken open, the exposed face shows centuries of growth in fine, curled bands, interrupted by the dark scars of ancient fires.
+
+Very little grows above the surface. Great distances separate the taller plants: solitary stalks with fluted trunks, low crowns of silver leaves, and vast seed heads held on jointed stems. Between them the living ground lies bare and bleached, ridged like a field that has been ploughed over and over by storms. From a height, the plateau looks almost empty. Walk across it and the soles of your feet feel a faint, constant tightening beneath them.
+
+There is no rain here, and no dew. The plants draw what they need from the dry air and from mineral seams beneath their roots. Their sap is thick and bitter-smelling; a broken stem seals itself with a brittle amber skin. Fallen leaves do not rot so much as crumble, and their dust is taken into the ground again.
+
+The wind comes fast across the high country. It finds the flutes in the stalks and sets them howling, finds the hollow seed heads and makes them boom. Whole forests of widely spaced stems sound together across the plateau. Near a mature plant the noise is almost unbearable: a hammering roar with a high metallic note inside it. The ground carries a deeper vibration for miles.
+
+The largest seed heads turn in the wind. Their vanes are grown from layered leaf and rib, and their motion drives tough cords down through the stems. These tighten chambers below the surface, crushing mineral nodules and opening seed cases. A stand of them works with the clatter and pulse of a distant factory, though nothing here was built. When a gust changes direction, the turning heads wrench themselves around one after another, sending a rolling crash across the plain.
+
+Animals keep to the sheltered furrows or travel close to the ground. Long-legged grazers clip the tender rims of newly opened cracks. They gather in great herds, but spread so far apart that an animal may see only a few others at once. Armored burrowers move just beneath the surface, raising lines in the root mat; small hunters wait beside the lines and strike when they stop. At certain hours, clouds of winged creatures lift from the seed heads and are swept away almost faster than the eye can follow.
+
+The place is never still. Stalks bend and split, seeds burst loose, sections of the living surface tear upward and tumble away. A storm can strip a broad valley to its oldest root layers in a day. Yet the valleys themselves are ancient, their curves worked smooth by countless such storms. The plants grow back into the familiar channels, leaving room for the wind that will break them again.

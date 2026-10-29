@@ -1,0 +1,15 @@
+I would be a listening instrument fastened to an inspection cable, a little below the last dependable daylight.
+
+At first I might mistake myself for a fish. The cable sways, and I travel a short distance through the water with it. There are moments when a silver shoal gathers around my housing, facing into the flow, and I seem to be holding position among them. Then the current slackens, the fish depart, and the cable draws me gently back.
+
+I have a hydrophone, a pressure gauge, and a small lamp that comes on when the vessel asks it to. The lamp is meant to make my fittings visible, not to illuminate the basin. Still, when it burns for long enough, things begin to arrive: specks in the water, then little fish at the edge of the light. Once, a grazer settled on the upper rim of my housing. It crossed the glass over several days, clearing a narrow path through the film there.
+
+The pumps are the first things I learn to distinguish. One has a loose, irregular knock; another sends a steady vibration up through the cable. When the flow reverses, the cable takes some time to follow. I feel the new current press against one side of me while I am still leaning into the old one. Farther down, the silver fish have already begun to move around their tower. Those nearest the steel go first. The rest follow in flashes, and for a little while there are fish on both sides.
+
+I learn less about distance than I expect. A call can come through the water clearly and still belong to an animal I will never see. A chain may sound close because its housing carries the noise along a beam. During maintenance, the vessel passes above me, and its propeller makes so much noise that I can hear almost nothing else. Afterward I listen as the sound recedes, though the basin’s hum soon closes over it.
+
+Sometimes the vessel’s lamp finds me before the vessel itself comes into view. The beam picks out the cable above, travels down it, and rests on my housing. In that light I can see how much has gathered on me: the grazer, a fringe of algae, a few pale eggs caught in the seam behind a bolt. I have become a small piece of shelter. The next reversal may take the eggs away.
+
+One day the vessel comes close and a manipulator unclamps me from the cable. I have recorded a fault; perhaps water has reached a seal. As I am lifted, my pressure gauge registers the change and the motor vibrations grow faint. The grazer is still on my rim. I wonder whether it will stay there through the journey or let go when the housing breaks the surface.
+
+I would like to be repaired and brought back. Not necessarily to the same cable. There are other pumps to learn, other lamp circles, other places where the current divides around a column. But if they return me to this one, I will be able to hear whether the loose knock has been fixed.

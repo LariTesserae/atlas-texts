@@ -1,0 +1,13 @@
+The bottom is so old that almost nothing rises from it. Across a basin many miles wide, ridges have been worn down to long swells, and the swells have been planed nearly level. Here and there a darker patch of stone shows through the sediment, rounded at every edge. The water above it is cold and black.
+
+There is no empty space in this landscape. Water presses into every hollow in the stone and fills the fine spaces between the grains. Just above the bottom, silt hangs thickly enough that even a small pale animal would disappear a few body lengths away. Farther up, the water clears, though there is no light by which to see the difference.
+
+The basin is in constant motion. Currents cross it from several directions, lifting sheets of sediment and rolling them along the floor. Where they meet, the silt twists upward in broad columns, then spreads and sinks. A sheltered patch may lie undisturbed for a day before a change in the flow strips it bare. Elsewhere, grains accumulate in low drifts that travel slowly across the plain. The larger shape of the basin hardly changes; its surface is being made and unmade all the time.
+
+Growth is sparse. A few dark films cling to the undersides of exposed stones, and small pale tufts grow where the current brings them food. Most are too low or too firmly attached to be swept away. Their reach is limited to the water passing immediately over them.
+
+Animals are uncommon and easy to miss. A translucent scavenger moves along a stone’s edge, bracing itself whenever the current strengthens. Farther out, something buried in the mud extends a feathery appendage, holds it in the flow, then withdraws it as a cloud of silt approaches. A larger animal passes above the floor only once in a long while. Its body displaces enough water to stir the sediment beneath it, and the traces of its passage are gone soon afterward.
+
+The currents are strong, but the place is quiet. There is no surf and no wind in the dark. Close to the bottom, stones occasionally knock together, and grains rasp over exposed rock. The sounds are faint and widely spaced. Most of the turbulence passes without anything solid for it to strike.
+
+Beyond one low rise the basin continues, much like the ground before it, though the currents leave different markings there: parallel streaks, a fan of fresh silt, a shallow hollow scoured clean around a patch of stone. Beyond that is another rise, and more cold water moving over the old, nearly level floor.

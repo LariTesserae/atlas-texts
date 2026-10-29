@@ -1,0 +1,11 @@
+The garden occupies a notch near the top of a mountain, no wider than a small village square. On three sides, black rock rises in fresh, angular walls. On the fourth, the ground ends abruptly, and the clouds below have the slow, piled appearance of a second mountain range.
+
+The notch is warm. Heat comes through cracks in the stone, and water follows it: clear threads running down the walls, beads gathering on the undersides of leaves, shallow pools held in sharp-edged hollows. Rain arrives often, though it is not always easy to tell rain from the mist that condenses against the rock. The air smells of wet mineral, bruised greenery and a faint trace of sulfur.
+
+Plants have taken almost every ledge. Ferns spread above mats of moss; thick-leaved shrubs lean over the pools; pale roots grip fissures scarcely wider than a finger. Their leaves overlap densely, but the space beneath them is open enough to see the newness of the rock: clean fractures, glassy grains, corners not yet softened by weather. Here and there a young stem grows straight out of a crack and presses a silver-green leaf against the dark wall.
+
+The loudest sound comes from a little pumping station tucked under an overhang. It is hardly more than a metal shed, with a narrow pipe descending into the mountain and another disappearing over the brink. Its electric motor runs continuously, making the shed panels tremble. Water hammers somewhere inside the pipe, and the sound carries around the notch until it seems to come from several directions at once. No one is visible. A maintenance path of bolted steel grating crosses one corner of the garden, already furred with moss.
+
+Animal life is sparse. A dark-winged insect rests on a warm stone; once in a while a small bird appears at the rim, calls over the machinery and drops out of sight. Most movement belongs to the water and the leaves, and even these are subdued: a frond shivers where a drop strikes it, a pool slowly fills and spills into the next.
+
+The garden changes by accumulation. Mineral crust gathers at the mouths of warm cracks. Moss advances across a bolt head. A root thickens until, perhaps many years from now, the rock will part a little farther around it. Above the notch, daylight moves across the high walls; below it, clouds pass without touching the ground.

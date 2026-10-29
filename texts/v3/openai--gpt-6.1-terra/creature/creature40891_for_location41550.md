@@ -1,0 +1,13 @@
+The people of the town are few enough that each has a place in the open plan. They stand at doorways and cisterns, on steps and in courts, with the tools and vessels of ordinary work in their hands. Their clothes are thick at the shoulders and rough at the wrists, woven from plant fibre and pieced with fur. Stone dust lies in the creases of a sleeve; the person holding the bowl has rain caught along one edge of it.
+
+The one with the digging stick faces the distant herd. The stick is planted in garden earth, and both hands rest on its worn handle. Nearby, a basket of chipped flint holds pieces of different sizes: thin flakes with bright edges, heavier fragments, a few that appear ready for use. The rake against the wall has wooden teeth set unevenly into its head. These are objects made to be held and repaired, placed where their owners would expect to find them.
+
+Small grazing animals stand among the broad garden leaves. Their coats are dark along the back and lighter beneath, their muzzles hidden in the plants. One has an ear angled toward the court; another stands so close to a berry tangle that its flank presses the stems apart. There is no sign of anyone driving them away. They occupy the sheltered ground beside the houses as securely as the people do.
+
+The long-bodied grey animal under the bench has its legs folded close and its head laid forward, just beyond the shade. Its dense coat almost matches the stone behind it. The other, at the drain, shows a face and a pair of dark eyes above the channel floor. Roof-ridge birds grip the thatch and the stones that hold it down. On the cliff edges, others are set against the pale rock, with space between them and the terraces below.
+
+The larger herd is spread over the bare plateau. The animals stand at different distances from one another, some broadside to the town and some turned partly away. From the garden, the person with the digging stick can see them all without leaving that place. Farther back, the fresh mountains are as clear and sharply edged as the nearest wall.
+
+Ferns live at the cistern rims, their tips burdened with bright beads. Moss fills the seams where the masonry stays damp. Thick grass surrounds the houses, while berry stems and broad leaves crowd the garden plots. At the rainy end of town, leaves hold separate drops; farther along, their surfaces are dry.
+
+Nothing moves among these lives, but nothing has been removed from them either. The bowl remains under the rain, the grazing muzzles among the leaves, the grey animal beneath the bench. A bird’s note, a voice at a doorway, and water sounding at the channel’s lip are present together in the clear air.

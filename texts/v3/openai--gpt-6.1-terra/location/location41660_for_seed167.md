@@ -1,0 +1,13 @@
+The basin lies deep beneath a warm sea, lower than the ridges that enclose it. Its floor is a broad stretch of dark silt and worn limestone, interrupted by low terraces and the mouths of buried springs. The rock has been softened into hollows and rounded shelves over a very long time. Where currents cross it, the silt gathers in slow, shifting drifts.
+
+There is almost no light. Once in a while a pale creature opens along a seam in its body, shows a thread of blue, and closes again. The brief glow reveals particles suspended everywhere: mineral dust, shed skin, the fine debris sinking from the waters above.
+
+Across the basin stands a city of living walls. Its builders are soft-bodied animals fixed to the stone in close colonies. Each secretes a chalky cup around itself; as generations settle upon the cups of their dead, the structures rise into ridges, arches, and clustered towers. Narrow passages remain between them where the current runs too strongly for larvae to attach. The passages join and divide across the basin like streets, though no one planned their course.
+
+The walls are crowded. Worms occupy their pinholes; translucent animals cling in overlapping sheets; flat, many-legged scavengers move through the cracks. In the larger chambers, shoals of blind fish hang almost motionless, facing the flow. They scatter when a broad-bodied hunter enters, then collect again behind it. Farther out, where the city thins, animals lie half-buried in the sediment with only their feeding arms exposed.
+
+Vegetation is scarce. A few leathery growths fringe the warmer springs, and thin films cover some sheltered stone. Much of the basin’s life depends instead on the springs themselves. Bacteria draw nourishment from chemicals in the water, forming pale mats that are grazed, sheltered, and carried inside other bodies. Around each spring the animals grow especially thick, their towers joined at the base and their openings turned toward the rising water.
+
+The place is quiet but not still. Water moves through the colony passages and lifts sediment from the floor. Feeding arms open and fold. A tower weakened at its base gradually leans into its neighbor, making a new roof over an old channel. Its animals continue to grow on the side newly exposed to the current.
+
+Occasionally a shell scrapes stone or a chamber collapses with a muffled crack. Otherwise the sounds are faint: the small rush of water through crowded openings, the stirring of bodies in silt. Beyond the outermost colonies, the basin continues into darkness, marked here and there by another warm spring and another dense gathering taking shape around it.

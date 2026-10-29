@@ -1,0 +1,19 @@
+The district lies one flight below the old street, in a shallow hollow of brick and worn limestone. From above, it looks like the uncovered floor of a building that was never finished. Down here, its boundaries are clear: a retaining wall on three sides, and on the fourth a row of iron grilles through which water enters from the buried city.
+
+There are six narrow buildings, a pump house, and a paved square no larger than a garden. Their lower courses stand in water. The upper windows are dark, though a few hold the dull yellow light of industrial lamps. Pipes cross between the buildings at head height, making an overhead network as deliberate as streets. Their insulation has long since fallen away. Condensation gathers along the metal and drops into the square.
+
+The paving slopes almost imperceptibly toward a drain that no longer drains. Water spreads around it, clear enough to show the rounded stones beneath. Each stone has a pale upstream face and a dark downstream face, worn that way by a current too slow to see. Where brick meets limestone, years of seepage have opened soft seams. The corners of the buildings have become blunt; the mortar has receded into fine, branching channels.
+
+Only a little grows here. There is moss on the shaded side of the pump house and a thin grass rooted in one high crack, where it reaches for the faint light from the opening above. The rest is mineral, metal, water and the black shine of wet masonry.
+
+Animals are everywhere once the eye has adjusted. Small white crustaceans live under the submerged stones. Snails gather on the pump-house wall, some in the water, some just above it, leaving tracks through the condensation. Fish no longer than fingers hold themselves between the iron bars of the grilles. At intervals a blind eel eases out of a pipe and hangs in the open water, its body barely moving.
+
+The animals keep mostly to edges and hollows, so the square itself remains spacious and still. Even the moths, which shelter in the lamp housings, come out only a few at a time. Their wings are translucent, with a faint pattern like the map of a drainage system.
+
+The pumps continue to work. No one here remembers when they were last attended. Their housings are furred with rust, but through inspection windows one can see the gears turning, slowly enough that their movement is difficult to catch. The motors make a low hum that seems to come from the walls rather than any particular machine. Occasionally a relay clicks. A drop lands. Then the quiet settles again.
+
+The water carries away most other sounds. A footstep at one end of the square reaches the other as a soft pressure against the ear; a voice spoken beside the basin is heard only by the person nearest it. The people who tend the lamps have learned to signal with their hands. They come down rarely, replace a bulb or check a gauge, and leave the animals undisturbed.
+
+One gauge records the depth of water in the square. Another, mounted beside it, records the depth of water in a square that is not there. Its needle rises after rain and falls during dry weeks, always a little behind the first. At certain levels, the reflection in the basin shows an extra building beyond the pump house: four storeys of narrow windows, with light in the top room. Nothing stands in that place when the water is looked through directly.
+
+The reflected building has been appearing for as long as the oldest lamp keeper can remember. Its windows have gradually darkened, one by one. The top room is still lit, and on cold mornings the basin beneath it gathers a skin of condensation before any other water in the district does.

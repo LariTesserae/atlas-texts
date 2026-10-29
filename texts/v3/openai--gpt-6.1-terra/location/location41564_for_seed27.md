@@ -1,0 +1,15 @@
+The plateau is a single plant.
+
+It spreads beyond sight beneath a dim copper sky, its surface worn almost level by ages of wind. From a distance it looks like gray stone: a broad, high country of shallow basins, long ridges and pale dust. Up close, the stone has a grain. Fine fibers run through it in every direction, packed so tightly that a boot makes a hard, ringing sound. When a piece breaks away, its exposed edge slowly darkens and closes.
+
+There is no water here, not even buried ice. The plant lives on dry chemistry. At night its upper skin opens pores to the thin air, taking in gases and sealing them into brittle sacs. By the weak light of day, the sacs split and feed a slow circulation of oils and metallic salts through the living plateau. The process has continued so long that the oldest ridges have been grown, scoured flat, and grown again many times.
+
+Space dominates the place. Upright growths are rare, though all the ground between them is alive. They stand miles apart: black fans folded against the cold, branching towers with no leaves, enormous white cups tipped toward the horizon. The cups turn imperceptibly through the day, tracking a light too dim for the eye to follow. Some have settlements inside them.
+
+The nearest town occupies a chain of shallow depressions. Its streets are grooves in the plant’s surface, and its buildings rise from the same substance, coaxed into arches and thin-walled chambers. There are no doors in some of the walls; residents approach and wait while the fibers loosen around them. Above the town, a loose arrangement of bright points hangs in the air. The points maintain the chambers at a tolerable pressure and temperature, though they have no visible connection to one another or to the ground. When a storm approaches, they drift outward to meet it.
+
+The storms carry no rain. They are fronts of charged dust, cool and electrically bright, rolling across the plateau with a noise like heavy surf. The town can be heard before it can be seen: its outer walls sing as the dust passes over them, and the great cups answer at lower pitches. The whole valley fills with layered booming. Even between storms there is a constant dry crackle from the opening gas sacs, punctuated by reports as larger chambers burst far underground.
+
+Animals are plentiful, but they use the openness. Low, six-legged grazers travel in widely spaced lines, scraping the plant’s outer skin with ceramic mouths. Small transparent creatures ride the rising warm air above the town and descend at dusk to hunt among the gas pores. Farther out, pale runners pursue the grazers across the flats, vanishing into distance for hours before the sound of their feet arrives.
+
+Nothing here grows quickly in a human sense, yet the landscape is never still. Dust streams, animals cross, pores open and close. At the edge of a street, a fresh scrape in the ground slowly knits shut while, overhead, the bright points move into a new formation and the first low note of the next storm sounds through the town.

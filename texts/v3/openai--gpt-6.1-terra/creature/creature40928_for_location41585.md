@@ -1,0 +1,13 @@
+The people who live here keep close to the pumps. Their homes are the few buildings whose doors open often, where containers stand beneath roof drains and washed clothes are brought in before the afternoon heat. They know which walls seep after rain, which drains will take water and which will merely hold it. On their way to work they step over wet patches on the pavement without looking down.
+
+At the works they tend screens, valves and pumps, and watch water pass from one basin to another. Salt collects on their boots and stiffens at the cuffs of their clothes. Some have learned to recognize a change in the machinery from its sound: a knock that has grown sharper, a pump running under strain. When a pump stops, someone goes to it promptly. The water has a way of finding the town again.
+
+During the hottest hours the workers stay inside where they can. A fly trapped between a window and its white coating may be the only thing moving in a room. Later, doors open again. People cross between the inhabited buildings, carrying tools or water, and pause in whatever shade the walls still cast.
+
+Most of the city’s inhabitants are smaller. Larvae crowd the fresher channels, hanging just below the surface until a passing shadow sends them down. Beetles move through the wet stones at the edges. In the ponds, brine shrimp gather so thickly that their movement gives the water a rusty cast; at the margins, smaller crustaceans shelter among rubble and in the slack water behind it.
+
+The films on submerged surfaces sustain many of them. Fine material arrives in the canal, settles, and is worked over by bacteria. Animals graze or filter what they can from the water, and other animals take them in turn. A pond that looks bare from its concrete bank may be busy along every inch of its bottom.
+
+Flies bring this abundance briefly into view. After rain they cover the warm margins of the ponds, lifting in sheets when disturbed. Birds walk through them with measured steps, leaving sharp prints in the soft ground. Some pick at the surface; others probe the shallows for larvae and crustaceans. They work the same stretches of water day after day, crossing one another’s tracks until the mud is almost entirely marked.
+
+At evening they gather on levees, roofs and narrow ledges above the streets. A bird may remain there through the warm night while, below it, droplets fall into a tank and insects collect at the waterline. By morning, the workers are out again, the birds are back along the ponds, and the overlapping footprints have begun to fill with rain.

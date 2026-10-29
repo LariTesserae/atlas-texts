@@ -1,0 +1,21 @@
+The runners are easiest to mistake for a single creature. A hundred of them can stream through a gap in a fallen slab without seeming to slow, their six legs finding purchase on one another as readily as on stone. Up close, each has a blunt, pale head and a back through which darker tissues show. They push rather than bite their way through a crowd, lowering their heads and working their legs until the bodies ahead give way.
+
+They eat whatever they can hold down. At a fresh fall of wings or shed shells they arrive before the pieces have stopped settling, and where a larger animal is injured they gather at the wet edges of the wound. Other runners gather around *them*. A body can vanish beneath the press while the animals at its outer edge are still arriving.
+
+The broad animals move through this traffic with an almost patient weight. Their padded limbs spread on soft ground, leaving prints that fill slowly with water or smaller bodies. Folds of skin hang around their legs, and the hunters shelter there, climbing with them and feeding on loose tissue or on the tiny animals caught in the creases. Now and then a broad animal lifts a limb and rubs it hard against a ridge, leaving a smear and a brief scramble of dislodged riders.
+
+Their mouths are underneath, difficult to see except when one turns on uneven ground. Rows of soft parts pass over damp stone, scraping up its living film. Afterward the rock looks scarcely different, although the animal may return to the same wet patch again and again until it dries.
+
+Above them circle the pale-winged fliers. Their wings are thin enough for the daylight to show through, crossed by a fine framework that flashes as they turn. They descend when rain comes, some settling on wet stone, others taking runners or scraps from the crowded floor. In the turning columns beneath the skylights they strike and brush against one another; torn wings drift down among the ridges. As the openings shift, the columns shift with them.
+
+There are smaller lives still: the moving films on the walls, and creatures no bigger than grains that gather in damp hollows and sift through the debris left by feeding. Water reveals them. A dry-looking streak begins to shine, and soon its surface is in motion.
+
+The people know which sounds close at hand can be ignored. The ticking of runners against a shelter wall may go on all night; a fine, persistent dropping of grit from the roof brings them outside. They sleep in short watches behind fitted stones, and keep their bowls inverted when they are empty. A runner can squeeze through an astonishingly narrow opening if there are enough others behind it.
+
+Their tools are made and remade from what the chamber offers. Sharp flakes come off the new stone readily, though many break after a little use. Cord is worked from tough animal fibers, dried and twisted into lengths that can be knotted together when a shelter must be moved. People carry more than their own water when they can: a shower may pass within sight of a group without reaching them, and a dependable seam may stop overnight.
+
+At the pools they approach carefully, sometimes driving the runners back with poles, sometimes waiting for a broad animal to leave. The broad animals do not always move away from a person, but they can step onto a bank and break it down, or crowd the smaller animals against anyone caught at the rim. Water gathered afterward tastes of disturbed stone.
+
+The shelters are not fixed villages. A rising shelf may make one safer for a time and leave its neighbors exposed. A fall can open passages beneath a floor where people once slept, and the animals enter those spaces long before anyone can decide whether to recover the stones. The three-stone markers help the groups find one another, but each return journey requires looking again: a familiar path may end at a new ridge, and a marker that stood above a trough in the morning may be leaning into it by dusk.
+
+When the light leaves the floor, the people draw their entrances nearly shut. Outside, bodies continue to pass over the stone. Wings sometimes rattle against a shelter and fall still; feet tick through the gaps in its walls. A person awake in the dark can hear the low rubbing of a broad animal nearby, then, beneath it, the slower sound of the ground beginning to move.

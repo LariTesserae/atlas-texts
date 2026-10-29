@@ -1,0 +1,9 @@
+The hollow is chiefly inhabited by things that stay close to the ground. Moss grows over old moss, its pale tips living above stems that have darkened and begun to soften. Crowberry threads through it, putting out tough little leaves and berries that birds can carry away. Sedge holds the wettest middle with a mesh of roots; at the rim, where the cushions dry sooner, grasses and low shrubs have more room.
+
+Small birds use the cover without being hidden by much. A meadow pipit may stand on a stem to call, then drop back among the blades. Others arrive for a season or a morning, crossing the hollow in a few wingbeats, feeding on seeds and insects, lifting together when a shadow comes over the rim. A nest tucked into the moss would be difficult to see until a bird left it.
+
+There are grasshoppers at the edges, and spiders with small webs stretched between stems. Under the surface, springtails and mites move through the damp litter. Beetles shelter there too, and their larvae feed among the roots. Fungi work through dead plant material, though the wet, airless peat preserves much that would decay more quickly elsewhere.
+
+A vole can make a run beneath the vegetation without opening a conspicuous path. Its burrow leaves a little loose peat, soon caught by moss and rootlets. Birds and small mammals take the berries; some seeds pass through them and find another patch of wet ground.
+
+The machinery beyond the rim is audible to all of them, though it never enters the hollow. Calls continue over the rumble, sometimes clear in a pause between scrapes. When rain comes, insects shelter beneath the plants, birds settle low, and droplets collect in the crowded leaves. Long after the fields have dried, the moss and the dark sedge in the middle still hold water for the small lives moving among them.

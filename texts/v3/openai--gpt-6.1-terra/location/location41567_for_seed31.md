@@ -1,0 +1,13 @@
+The town stands high on a broad plateau, where shallow water lies among newly formed ridges of dark stone. From the rim, the land falls away into haze; inland, it extends for miles in a succession of level basins and low, sharp-backed rises. The rock has not yet softened much. Its broken edges remain angular, and long cracks run straight across the ground, filled nearly to their lips with clear water.
+
+The air is warm and damp. Cloud gathers around the higher ridges without quite hiding the sun, so that the light is even and pale. Water beads on the stone walls and collects beneath their eaves. In places it seeps out of the rock itself, making narrow dark streaks that join the pools below. There has been rain recently, or perhaps the dampness is so constant that the distinction hardly matters.
+
+The settlement occupies several of the rises. Its buildings are low and widely spaced, their walls made from slabs of the local stone fitted together without mortar. Most have flat roofs of timber and packed clay, with broad overhangs supported by forked poles. Paths of laid stone connect them across the wet ground. Where a path meets a deeper channel, it crosses on a small timber platform or a row of carefully placed blocks.
+
+There are no people in the streets, and no animals anywhere: no birds on the roofs, no insects skimming the pools, no calls from the open country. The town is quiet enough that the soft movement of water can be heard beside a doorway. A thread of it runs through a notch in one wall into a clay-lined basin, then passes on through another notch toward the marsh.
+
+Vegetation grows where soil has gathered: reeds in the shallows, coarse grasses between the paving stones, low trees with glossy leaves at the edges of the settlement. The trees stand apart from one another, leaving wide views across water and stone. Moss covers the shaded sides of some walls, while their upper courses remain bare.
+
+Beyond the last houses, the paths become less distinct but continue for a considerable distance, linking pools, terraces and scattered shelters. Some are raised just above the water; others lie under a thin, transparent sheet of it. The place seems to have been made with this wetness in mind. Channels and basins hold the water where it can sit, and the buildings occupy ground that stays dry enough beneath their roofs.
+
+Nothing moves quickly. Condensation gathers on a leaf and eventually falls. A faint breeze passes through the reeds, then stops. The plateau remains open and still under its bright cloud, with the empty town spread across it and the dark, unrounded ridges standing beyond.

@@ -1,0 +1,11 @@
+The fish keep to the channels, where the water is deep enough to cover their backs. They face the faint current or rest among grit and scraps washed in from the canal. A shadow crossing the water sends them under the edges of the grates. When the pumps draw steadily and no one disturbs them, they come out again, nosing along the channel bottoms.
+
+Frogs spend the hottest hours beneath the plinths, pressed into the damp clearance between machinery and concrete. Their skins pick up dust where they touch the floor. At night they venture into the open to hunt the insects that fall from the lamps or settle on the wet slabs. Some crouch at the rims of puddles; others stay close to the shelter of a pump, where a sudden movement can take them back into darkness.
+
+The lamps draw small moths, flies and beetles into the yard. They strike the warm covers, settle, lift off and circle again. Geckos wait on the wall above them, pale against the brick, their toes spread wide. They can remain still through the passing of a worker and the slam of a door, then move abruptly to seize an insect. A few shed skins cling in sheltered corners, almost transparent in the brown light.
+
+High above them, pigeons have made loose nests on a beam, using twigs and bits of material brought in from beyond the gates. They shift their feet on the metal and tend their young in the narrow space under the tanks. To drink, they descend to the puddles, stepping carefully at first and dipping their beaks between the ripples. Their cooing is mostly lost beneath the motors.
+
+Moss occupies one permanently wet groove. Beside the gate, grasses push through a narrow seam and lean toward the available light. Algae darkens some of the shallow water, and bacteria live in films on submerged concrete and pipework, feeding on what the canal water carries in.
+
+The workers know the yard by its gauges, valves and sounds. They cross it with grease guns, tools or clipboards, pausing at each raised plinth before moving on. Their visits are brief, but they leave traces: a fresh smear on a bearing housing, a disturbed puddle, a boot print that slowly fills with water. After the steel door closes, the animals return to the spaces around the machines. The fish emerge from beneath the grates, the frogs wait under the plinths, and the geckos continue to hunt in the lamplight.

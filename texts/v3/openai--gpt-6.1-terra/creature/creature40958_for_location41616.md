@@ -1,0 +1,13 @@
+The silver insects spend most of their lives between surfaces. Their bodies are thin enough to enter the narrowest spaces between the fins, and the pale scales on their backs lie flat against them, like overlapping tiles. They have no eyes. With long mouthparts they scrape the films from warm metal, working slowly along an edge until they meet another insect, a deposit of scale, or a place too hot to cross. Then they turn.
+
+Their eggs are laid in the sheltered heads of bolts and beneath the curled lips of rust. Newly hatched insects are almost transparent. They stay near the eggs for a long time, feeding on the film there, before spreading into the adjoining seams. When a hollow knock passes through a pipe, they become still. A moment later they go on grazing.
+
+The jointed stems beside the trough grow from a common holdfast buried in the seam. They are firm at their bases and soft toward their tips, where moisture collects. What looks like a fringe of fine roots on each stem is exposed to the air: it holds the chemical films on which the stems depend. Sometimes an insect climbs one and eats part of that fringe. The damaged branch may grow a new tip, or remain blunt for years.
+
+The moss around the hatch is drier and tougher. Most of it lies pressed against the metal in a nearly colorless crust. When the hatch opens and daylight reaches it, the outer threads swell and darken. A little of that growth survives after the hatch is shut; much of it dries back. Scale and insect husks collect in the mat, and its oldest parts have become difficult to distinguish from the material caught in them.
+
+The creature in the trough is rarely visible all at once. It is long, flattened, and divided into shallow segments, with a dark seam running along its back. Its underside grips the polished bottom in a succession of slow contractions. The ripple it pushes ahead may reach an island of scale several minutes before the animal itself.
+
+It feels along the trough with two short, flexible lobes at its front. Where grit has lodged against a deposit, it draws the grains through its mouth and leaves them behind in a clean fan. It eats the films among them, and sometimes an insect that has fallen into the water. The insects can swim briefly, beating their slow legs against the surface, but there is little in the trough for them to climb.
+
+When the floor grows hotter, the trough creature gathers itself beneath a projecting tile, where a trickle from an upper pipe keeps the water a little cooler. It may remain there through several waves of heat. Later it comes out again, passing a washer that has settled on the bottom. Its body bends around the rim; the washer shifts a fraction, and a few grains slide into the space it leaves.

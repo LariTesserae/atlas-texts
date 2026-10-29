@@ -1,0 +1,13 @@
+A high ridge lies beneath warm, clear water, its highest points only a few armspans below the surface. From there the land falls away in long shelves and steep, dark clefts. Other ridges are visible through the blue distance, their crests carrying pale green growth. They are high mountains still, though the water has risen above them all.
+
+The stone is young. Along the upper slopes it breaks into sharp plates and crowded fins, black where it has freshly split and amber where a thin skin of mineral has settled over it. Some edges are so clean that a passing frond catches and remains there for a season, slowly wearing through. In the deeper clefts the rock is smoother, but even there little sediment has gathered. The folds and fractures of its making are easy to follow.
+
+Plants cover nearly every level place. Broad, translucent leaves overlap in low beds, their veins filled with a milky fluid. Above them stand dense groves of branching green stalks, each one weighted at the tip by a cluster of small, heavy leaves. They lean only slightly, and all in different directions; there is almost no current here. Between their roots grow soft cushions of mosslike life, dark emerald on the outside and silver within.
+
+The light changes with depth rather than distance. Near the ridge tops, sunlight enters freely and lays moving patterns over the stone. A little farther down, the light becomes green and steady. In the clefts it collects strangely in the pale plant tissue, so that a leaf can remain visible after the rock behind it has disappeared.
+
+There are open stretches, too: broad slopes of bare stone where the growth has not yet taken hold. Fine grains rest in their hollows, each surrounded by a faint halo of clear water. Over many years the grains gather into patches, and the patches hold the first minute plants. Nothing rushes to occupy the new ground.
+
+Animals are scarce. Now and then a nearly transparent swimmer passes between the stalks, bending its long body once or twice before becoming still. Small shelled grazers cling beneath the leaves, where their feeding leaves narrow, colorless paths. On some days no movement can be seen except the slow turning of a leaf toward the sun.
+
+The place is almost silent. Occasionally a bubble works loose from a seam in the rock and rises through the vegetation, touching leaf after leaf before it clears the ridge. Its small disturbances travel a short way and fade. Far above, the surface shifts gently, and its brightness moves across the mountains without ever quite reaching their feet.

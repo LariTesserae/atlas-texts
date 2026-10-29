@@ -1,0 +1,15 @@
+I think I would be found at the mill, though not always inside it. If you came looking in the morning, someone might point you around the back, past the dripping bundles, to where the washing water returns to the canal.
+
+There is a narrow ledge there, just wide enough to stand on with one hand against the brick. A screen catches loose fiber before it can go downstream. It needs clearing more often in the rainy season, when leaves come through the intake too. I have a short-handled rake for it, and a hook made from an old piece of wire for the strands that wind themselves around the bars.
+
+I work in the washing room. Most days that means watching the water, shifting baskets, and telling whoever is feeding the line when the fiber coming through is still gritty. I can hear when the pump is laboring, though one of the brothers from the engine yard is better at saying why. When I cannot clear a blockage myself, I go and fetch him, and he arrives with his trouser cuffs tied up and a tool wrapped in a rag.
+
+At first I thought I might live above the washing room, because the light from its windows reaches the canal after dark. But it would be too warm there, and the pump starts before dawn. My room is farther up, over a passage between two houses. The floor has a slight slope toward the window. I keep my shoes on a shelf and a pot of mint on the sill, where it grows long and thin reaching for the light. The woman downstairs says I should cut it back. Every so often I do, and bring her half.
+
+On my way to work I pass the shop. If the owner is moving her crates away from the rain, I help her with the heavy ones. She knows when I have forgotten my oil or soap, and sometimes has it ready before I ask. In return I bring her bits of cord from the mill, the lengths too short for tying bundles. She uses them for the bean plants at her back window.
+
+Children sometimes wait near the outflow to see what comes through. Leaves, usually, and pale shreds of reed. Once a little folded boat emerged from the dark beneath the mill, caught against my screen, and sat there with water pouring through its middle. I lifted it out with the rake and put it on the wall to drain. A child claimed it a few minutes later, though it had opened almost flat. We found a broader leaf, and she showed me how to fold the ends so they would hold.
+
+After that I began leaving an occasional sound leaf on the wall. They don’t always get taken. On windy days they blow back into the canal and I have to fish them out again.
+
+When the mill stops at night, I notice it even from my room. There is a moment when I listen to make sure it is the ordinary stopping time. Then other sounds become clear: a pan being set down, somebody on the stairs, water falling from one leaf onto another outside the window. If the rain is heavy, I may go down once more to look at the grating at the end of our passage. Usually it is clear. If it isn’t, I pull the leaves away and wait for the water to go down before coming back upstairs.

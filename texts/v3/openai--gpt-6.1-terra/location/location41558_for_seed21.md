@@ -1,0 +1,11 @@
+The basin is small enough to cross in a few minutes, though the air makes walking feel like work. It lies high above the surrounding cloud banks, in a notch between two black ridges. The stone is young: glassy in places, rough and vesicular in others, with edges that have not yet learned to crumble. Heat rises through it even after rain. Water collects in the hollows, clears, and begins to steam.
+
+There is room between things here. A stand of broad-leaved plants occupies one warm seep; another grows alone against the far wall, its leaves thick and pale underneath. Ferns spread along a narrow runnel, but much of the basin is bare rock, darkened by moisture. The plants are lavish where they grow, their leaves overlapping like hands held above the water. Now and then one folds inward, slowly enough to be missed unless you were watching for it.
+
+Rain comes briefly from clouds below the rim. Droplets lift past the ridge, hang in the hot air, and settle into the basin. The shallow pools rise without rippling. When they are full, they release a thin thread of water through a crack in the stone; a few minutes later, the crack is dry again. The water reappears higher on the wall, beading out of rock that has no visible opening.
+
+Near the center stands a structure the size of a garden shed, made of a material that resembles pearl seen through smoke. It has no door. One side faces the largest pool and holds the reflection of the ridge, even when a person stands between them. At its base, several transparent filaments enter the ground. They shift position over the course of a day, avoiding the roots and following the moving water.
+
+Whether the structure causes the rain or merely tends to it is hard to tell. When its surface clouds, the pools grow still and the plants turn their pale undersides toward it. When it clears, water begins to travel uphill again. The filaments leave fine temporary tracks in the wet stone, each one closing behind them.
+
+Life moves quietly. A long-legged creature, almost the color of the rock, drinks at a pool and remains there for an hour, watching the water climb the wall. Something small ticks inside the fern bed. The occasional drop striking a leaf can be heard across the whole basin. Above the ridges the daylight is ordinary and bright; below them, the clouds pass in silence, hiding whatever lies beneath.

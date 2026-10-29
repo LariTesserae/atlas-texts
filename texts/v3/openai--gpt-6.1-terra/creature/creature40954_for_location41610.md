@@ -1,0 +1,17 @@
+The people who live here know which parts of a wall are still growing. They can tell by the give under a thumb, or by the fine dampness that collects on a sleeve. When they hang a shelf, they fasten it to the iron beneath rather than trust the root, which may carry it gradually upward or turn it toward the light.
+
+There are not many of them. From the rim, a person crossing the square can be followed almost the whole way home. Even so, the town has its private places: rooms behind the thick walls, the dim end of the works, the hollow under a roof where a child can lie and listen to the hinges settle.
+
+In the morning, someone opens the works and checks the belts before the roof begins to rise. The vine is easier to draw through the rollers while it is still supple. Workers sort the cut lengths by thickness, feed them in, and watch for knots that might catch. Their hands bear shallow, pale marks from the fibers. At the end of a shift they brush green dust from their cuffs and stand the new spools beneath the eaves, leaving space between them for air.
+
+Some of the cord is used in town: to bind a sagging roofline, lace a gate, or pull a young root into place against a frame. The rest waits in rows. From time to time a small cart comes down the road and takes spools away. Its wheels leave two darker tracks on the springy surface; by the next morning the runners have begun to lift again.
+
+The houses need steady attention, though seldom urgent repair. A doorway cut too late can narrow enough to catch a shoulder. A window may acquire a fringe of leaves overnight where water has found a seam. People trim these back with short knives and lay the cuttings in the open, where they dry into brittle curls. They know which shoots to leave alone: the ones crossing a weak place in the frame, or reaching toward a patch of roof that has begun to dip.
+
+There are children who learn the town first by its surfaces. They can run barefoot over the smooth paths and tell where the mat is thin or newly mended. They set washers and bottle caps beside the cracks in the square and come back to see whether the ground has taken them. Sometimes an adult retrieves a lost thing with a hooked bit of wire; sometimes it is left beneath the runners, joining whatever else the town has slowly covered.
+
+The small gray moths spend the bright part of the day under the eaves and machinery, their wings closed like scraps of worn cloth. The many-legged creatures live deeper in the seams, where there is moisture even after the exposed leaves have folded. They come out briefly when a wall is cut back or a damp board lifted, and disappear before anyone has looked at them for long.
+
+The roots live differently from all of these. They take what arrives: the night’s moisture descending along iron, the light admitted when a roof opens, the space made by a blade. In the open ground they grow low and densely; against the frames they thicken and climb. They make no distinction between a house and the bank around it, although generations of hands have taught them different shapes.
+
+By evening the workers leave the spools in their ordered rows and close the works. People cross the square carrying tools, or supper, or nothing at all. A door sticks and is pushed shut with a hip. Inside, the rooms remain cool. Along the seams the first dampness gathers, and the leaves that will open by morning begin, invisibly, to fill.

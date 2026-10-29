@@ -1,0 +1,11 @@
+One of the trees has no socket.
+
+Its trunk rises from a shallow bowl on three jointed legs, each foot wrapped in a pad of dark felt. The bowl is full of loam, and the tree’s roots have grown through holes in its bottom, winding around the legs. When the tree moves, it lifts them slowly, drawing the loose roots after it. The felt leaves damp marks on the gravel that disappear as the water drains.
+
+It spends much of the day beneath the larger leaves, where the spray collects and falls in heavy drops. Its own leaves are small and leathery, with pale undersides. They turn independently, some toward the light, others toward the glass or the wet floor. Among them hangs a cluster of narrow tools: a hook, a brush, a pair of little blades. The tree can lower these on fibers from its branches, though it works so slowly that the beginning of a task may look like an accident. A frond comes unstuck from another frond. A snail is lifted from a tender shoot and placed beneath an older leaf.
+
+When a vine reaches the floor on its reel, the tree goes to it. It presses the vine’s tip into a porous seam and holds it there with a pebble or a curl of its own root. Later it returns to see whether the new roots have taken. Those that have not are moved to wetter places. A few have been tried in several cells and now trail across the paths, bearing little patches of clay at intervals along their stems.
+
+The tree was made with the garden, although parts of it have since been replaced by things that grew. One leg is copper and ticks faintly in the heat; another is mostly root, thickened around an original wire. Its bowl has cracked and been mended with moss. Beneath the moss, water leaks down the inside of the copper leg and drips from the heel.
+
+At the far end of the chamber, it visits the empty planting cells. It does not fill them yet. It brushes debris from their rims, tests the water with a root tip, and sometimes leaves a fallen leaf floating in one. By morning the leaf is usually gone beneath the surface, and the tree comes back to look again.

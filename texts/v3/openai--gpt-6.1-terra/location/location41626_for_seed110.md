@@ -1,0 +1,11 @@
+High in the mountain, beyond the last thin seam of soil, there is a chamber scarcely larger than a person curled on their side. No entrance admits the sky. The darkness is complete: a hand held against the face cannot be seen.
+
+The air is warm and densely wet. It lies close to the skin, carrying the smell of mineral water, clay and a faint sourness from living things. Water stands in the low places and occupies the hairline spaces between them. The floor is a close-set field of soft ridges, rounded nodules and shallow cups, all packed so tightly that a fingertip cannot find a flat space among them. The stone feels newly laid down, tender in places, though nothing here has been worn away. Its edges are blunt because they have never been sharp.
+
+Along one wall, a narrow band of pale growth can be felt as a fine nap beneath the moisture. It is the chamber’s only substantial vegetation, if vegetation is the right name for something that has never known light. A few isolated threads extend into cracks, drawing nourishment from the warm seep. Elsewhere the surfaces are bare, though crowded with mineral beads and folds.
+
+There are signs that someone once reached this place. Three small stones sit together on a dry shelf above the water, their sides rubbed smooth where they meet. Beside them lies a short length of cord, stiff with deposits, and a shallow bowl shaped by hand from clay. The bowl contains water indistinguishable by touch or taste from the water in the floor. Nothing suggests how the maker came or went.
+
+Very occasionally, a tiny blind creature crosses the back of a hand: many-legged, cool despite the warmth, moving with a delicate insistence. It vanishes into one of the seams. There may be only a few in the chamber. They leave no sound that can be separated from the soft internal noises of a listener’s body.
+
+The water does not drip. It rests at the lips of the cups and clings to the ridges in thick, unbroken films. The air never dries and never becomes rain. The mineral shapes have the look, to the fingertips, of formations still arriving—bulges not yet hardened, layers not yet wholly joined—but they remain exactly so. The place has the intimacy of something at its beginning, held there: warm, crowded, unfinished and still.

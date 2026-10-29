@@ -1,0 +1,13 @@
+The lizards are palest where the light is strongest. Their skin has the fine, broken pattern of the stone, with narrow darker lines that run from the eyes along the flanks. They lie with their toes spread into the scallops of the shelves, heads slightly raised. An insect moving at the edge of the moss may draw several pairs of eyes before a single lizard advances.
+
+Their shadows are darker and more distinct than the animals themselves. When a lizard lifts its body and moves away, the shadow sometimes stays flattened against the old resting place. Its outline loosens first at the toes, then at the tail, until the light has filled it in. A lizard returning to the same shelf may settle partly over a shadow that is not its own. There is no sign that the lizards distinguish these remnants from ordinary shade.
+
+Under the moss live small, soft insects, nearly colorless except for the gray of what they have eaten showing through their bodies. They shelter among the stems during the dry hours and come out onto the damp rock at night. Some feed on the moss; others work at the thin growth spread over the stone beneath it. After rain, their numbers become apparent along the lower edge of the mat, where they gather to drink.
+
+The water pockets hold smaller lives still. The translucent creatures there move with quick, almost invisible strokes, pausing against the sides to graze. As a pocket shrinks, they crowd into its deepest seam. There they remain when the exposed stone around them has gone white and dry, stirring again when seepage reaches them.
+
+The burrowers have narrow bodies held above the ground on jointed legs. The front pair are longer and more delicate, suited to feeling along a crack or testing a leaf before the animal puts its weight nearby. Each emerges from its own hole near evening, though several may work along the same shelf. They make their way slowly, stopping wherever the stone changes texture.
+
+A loose chip is sometimes useful to them. One may brace it between its front limbs and push it under a curled leaf, or drag its edge across a crust until a little powder comes away. Another may later investigate the abandoned chip, walk over it, and continue on. By morning the basin has a slightly different scattering of pale fragments.
+
+The burrowers take shelter before the chamber is fully bright. Then the lizards spread out along the upper shelves, and the insects withdraw beneath the moss. The smallest animals remain in their dark pockets, where the stone stays cool longest. As the sun crosses the opening, lizards and shadows make their separate, gradual movements over the rock.

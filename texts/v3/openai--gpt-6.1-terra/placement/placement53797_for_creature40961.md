@@ -1,0 +1,19 @@
+I would live for part of the year beneath the roof of an abandoned shelter, on a shelf below the upper rims. Its bark has rooted so firmly into the floor that pulling it free would tear the shelf. I would leave it as it is and clear only the hearth and a narrow place to sleep.
+
+The shelf is not large. A black ridge rises through one end of it, split open along a seam of pale stone. On the other side, two old cables cross in the dark. One is broad enough to walk upright; the other is round and polished by grazers. Their junction shifts a little each year as the shelf grows. I would watch it from the shelter, learning where the cables usually knock together in the wind, so that I could hear when they began to knock differently.
+
+I would be a person who tends the route through that junction. Not its owner, and not the only one who knows it. Travelers would have made cuts there long before I arrived, and grazer herds would have worn some of the best footholds. My work would be to keep the marks useful as the growth moved: loosen a binding before it disappeared into the bark, deepen a notch, take down a pale strand if it seemed to lead somewhere safe and no longer did.
+
+I would carry cord, a stone blade, and a small gourd with a crack near its mouth. The crack would make it unsuitable for storing water, but good enough for carrying dry fibre. In wet weather I would tuck it under my clothing.
+
+At first I think I would be diligent about the marks and impatient with the waiting. I would set out after a cold night, find a familiar passage drawn shut, and spend too long trying to push through it. The films along the wall would have contracted, bringing whole branches inward. A gap that had easily admitted a person two days before might now catch my shoulders.
+
+Eventually I would back out. Perhaps I would find a grazer standing on the other side, its muzzle among the leaves. If it moved away along the growth, testing each step, I would follow as far as I could safely see. It might show me a passage around the contracted wall. It might lead me onto a shoot too slender for me, and I would have to return to the shelter and wait for the cold to ease.
+
+On days when wet air arrived, there would be little route work. I would set the shelter’s containers beneath the nearest cups, then keep watch while animals came to drink. Small things would emerge from the bark around my feet, and I would have to lift each vessel carefully before setting it down. If the wet current lasted, I could fill the cork-wrapped joints under the eaves and leave a little water for whoever came next.
+
+Travelers would stop sometimes. I would ask where they had come from and whether the higher crossing still held. Their answers would be more useful than the old marks I had seen from below. I could tell them which way the junction had shifted, or warn them about a pale fibre that I had not yet been able to reach and remove. If they were going that way, I might ask them to take it down.
+
+One season a herding group might arrive after dark, following the blue tips toward the shelter. Their animals would fill the broad cable behind them, pads gripping the bark, young held close underneath. We would make room beneath the eaves as best we could. In the morning, after they had gone, the freshly cropped shoots around the shelf would show me where the herd had passed.
+
+I think I would remain there until the junction changed too much to tend from that side. Before leaving, I would clear the hearth, refill the fibre gourd if I could, and cut a mark at the shelter entrance showing which route I had taken. The roof would stay. Its roots would keep growing into the shelf, and for a while the dry space underneath would still be useful.

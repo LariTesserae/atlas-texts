@@ -1,0 +1,9 @@
+The hollow lies just above the floor of a broad, cold valley, where the ground has been worn down into shallow shelves of stone. Its entrance is a slit beneath an overhang, easy to pass without seeing. Inside, the space opens to the size of a small room. Most of it is empty: bare air, a floor of dark grit, walls curved smooth by water that no longer runs here.
+
+A mat of moss covers one long seam in the rock. It is thick and soft-looking, almost black until a little light reaches it, when its green becomes unexpectedly rich. Tiny ferns grow out of the same seam, their fronds overlapping so closely that the stone beneath them is hidden. Elsewhere there is scarcely anything. The plants live on condensation and the occasional rain that finds its way through cracks above; between wettings, the grit on the floor stays dry.
+
+The hollow is deafening. Wind crossing the valley enters a narrow passage in the rock and sets up a deep, continuous roar, with a high note that comes and goes inside it. Near the passage the sound is painful. It fills the small chamber so completely that a stone dropped on the floor can be felt through a hand but barely heard. The air within the hollow itself moves very little. The ferns stand almost still.
+
+Someone once stacked flat stones beneath the seam, perhaps to catch what dripped from it. A shallow wooden bowl rests among them, split along one side and silvered with age. There is no path leading to the place, only a few worn marks on the lip of the entrance. A pale moth sometimes shelters behind the bowl. In the moss, minute creatures move slowly among the wet stems, feeding and vanishing into the dark.
+
+Cold settles here for most of the year. Moisture gathers on the ceiling, grows heavy, and eventually falls. The moss spreads a little farther over the stone, then dries at its edges and waits. Outside, the wind can change direction in an afternoon; inside, the shape of the room has held for a very long time.

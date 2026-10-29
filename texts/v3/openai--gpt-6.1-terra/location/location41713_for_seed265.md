@@ -1,0 +1,19 @@
+The lowland is warm, and there is no light in it. The dark is not weather and does not lift. A lamp can be lit here, but its flame gives heat without making anything visible. People who cross the basin carry measuring lines, tapping rods, and sealed jars of scented oil with which to mark a route.
+
+The ground is new. Long shelves of black stone have risen only recently from beneath the water, still sharp along their edges. Between them lie shallow channels, flats of soft mineral mud, and pools whose sides have not yet slumped. Water presses close beneath almost every surface. A boot left standing on firm ground slowly fills around the sole.
+
+The basin runs for many miles. Its openness is known by the long travel of pressure through the ground: a foot set down beside one marsh can be felt, faintly, by animals resting on a shelf beyond the next. There are ridges and hollows, broad stretches of drowned gravel, and a low escarpment where warm water seeps through parallel cracks. None rises very high. The air is close and wet, with the smell of clay, iron, and the sour skins of fruit.
+
+Plants are scattered. A wiry reed grows along some of the channels, its stiff leaves edged like saws. On the higher shelves, fleshy growths no larger than a thumb hold water in folded cups. Their roots creep into fresh stone, widening the smallest fractures. They grow slowly enough that an old path between them can remain open for years.
+
+Animals occupy nearly everything else. Small shelled creatures cluster under stones and in the shallow water, pressing against one another in layers. Long-bodied grazers move through the mud with their mouths against the ground, gathering the films that form there. Soft-winged insects rest in the warm air, so numerous that a person walking through them feels a fine, intermittent brushing against the face. Farther out are heavier animals, seldom encountered whole: a flank crossing a handline, a broad foot settling into water, the patient warmth of a body resting just beyond reach.
+
+They are mostly quiet. There is a thin clicking from the shell beds, an occasional breath through a reed, and the small sound of water entering a new crack. When a large animal moves, the mud takes much of the noise. A traveler learns more from the change in pressure underfoot than from listening.
+
+Scattered across the basin are pumping houses, each on a little island of poured concrete. Their engines run slowly and steadily, drawing mineral water through pipes that extend into the marsh. The machinery is enclosed in thick casings; beside a pump house, one feels its work in the teeth and wrists before hearing its low hum. Workers visit along guide ropes, carrying parts and empty tanks. The ropes are anchored close together near each building, then spread into long routes across the flats.
+
+The routes need attention. A person may follow a rope out from a pump house, count the knots, and arrive at a different house from the one intended. The rope itself has not moved, and its knots are where they should be. At intervals, the basin seems to lay two places over one another: water from a familiar pool tastes suddenly of minerals found miles away, or a hand finds the same split in a stone at two points along a path. The overlap can persist for months. Animals pass through it readily, leaving tracks that begin on one shelf and continue on another.
+
+The workers adapt by keeping several records for each journey: knot counts, scents, the temperature of the water, and the particular vibration of the pump beneath their feet. When these disagree, they wait. Usually, after a long while, one of the places becomes easier to reach than the other, and the line can be tied off to suit it.
+
+Meanwhile the water keeps rising through the young stone. It gathers in the cup plants, wets the casings of the pumps, and fills the hollows under resting animals. Very slowly, it softens the sharpest edges of the land.

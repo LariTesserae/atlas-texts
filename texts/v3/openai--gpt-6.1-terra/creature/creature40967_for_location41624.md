@@ -1,0 +1,11 @@
+The little animals have no mouths that can be found. Each ivory bell is closed at its lower rim by a fine membrane, and each membrane holds its own pitch. Some are taut as drumskin; others are pleated so delicately that the folds can be mistaken for shadows. Their legs end in flat pads pressed against the fronds. No two animals touch, though they crowd so closely that the spaces between them are narrower than the legs themselves.
+
+A hand placed beneath a crown would feel the chord through the air before it reached them. The animals nearest it would not scatter. Their notes would continue, each distinct at close range: a low, felt humming; a thin edge of sound almost too high to hear; a tone with a roughness in it, like a finger held against glass. Together they make the deep chord, and the slab gives back its clear, high answer.
+
+The plants hold the animals above the warm floor. Their fronds are soft enough to take the shape of a finger, though the folds beneath that pressure would be as intricate as before. Amber lies along every crease. It passes through the black stems and out into the threads crossing the salt, a continuous circulation among all six crowns. Where the threads meet, they remain separate for a short distance, running side by side so closely that their gleams merge.
+
+There is no visible distinction between one plant’s fluid and another’s. Nor is there a visible distinction between the animals, except for the small differences that give them their notes. Those differences are enough to make the chord: hundreds of separate bodies held under each crown, none sounding quite what its neighbor sounds.
+
+The stone cup is empty. A thread of root passes above it without entering it, and amber moves through that thread without falling. The scraper is smooth along its blunt working edge. It could be held; the cup could receive something. Neither bears any sign of a hand, and the clean, sharp plates around them offer no account of their arrival.
+
+The animals and the plants may be keeping one another alive. They may be keeping the slab ringing. They may be doing neither. For as long as they are observed, the amber circulates, the membranes sound, and the grains return to their points. The chamber is full of activity that leaves everything exactly where it was.

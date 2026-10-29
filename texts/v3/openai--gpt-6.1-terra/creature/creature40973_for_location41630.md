@@ -1,0 +1,11 @@
+The largest inhabitant is difficult to distinguish from the drainage. It lies in the narrow margins of the streets: a continuous band of soft, translucent tissue, thin enough that light passes through it. Where a drain opens, the band thickens and folds inward. Water draws through these folds, bringing dissolved minerals from the rock and fine particles from the roots above.
+
+It has no center. A section cut off by a shifting pavement can close at both ends and continue living on the water pooled around it. When two sections meet again, their edges press together for several hours before joining. The low note heard in the chamber comes partly from these seams, which tighten and release as water moves through them.
+
+The ferns grow in pockets the tissue leaves open. Their roots hold sediment that would otherwise wash away, and the inhabitant feeds on material shed by the roots. Beneath the higher pavements, the liverwort mats do much the same work, catching droplets before they can reach the drains. When a street changes height, a little of each mat tears loose. The fragments lodge farther down and begin again.
+
+The inhabitant is sensitive to the weight of water. A droplet landing on one pavement causes a minute contraction along its margin; a succession of impacts can be felt several levels away. The drains widen in response, sometimes before the water arrives. They do not always widen in the right place. After a shift, small pools may remain stranded until a new channel opens or a fern root breaks through the edge.
+
+The machinery moves the streets, but the living band has grown around its controls. In some margins it presses against the clear pavement so closely that the boundary between tissue and mechanism is hard to find. When the plans change, it goes with them, stretching into a finer film and gathering itself again as the street reforms.
+
+For a short time afterward, the whole colony is busy closing gaps. Then the droplets establish their altered paths, the drains deepen their roar, and the band settles into the shape of the city.

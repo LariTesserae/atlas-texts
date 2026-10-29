@@ -1,0 +1,7 @@
+A shallow limestone hollow lies beneath a broad overhang, no larger than the floor of a small chapel. The land around it is low and nearly level; only at the hollow’s edge does the ground fold down into shadow. Daylight enters from one side, enough to show the pale stone but not enough to warm it directly. The air is mild and close.
+
+The floor is mostly bare: hard clay, fine grit, and slabs of limestone worn smooth at their edges. A little water rests in seams between the slabs. Elsewhere the stone is dark with damp, though the soil a few steps away is dry and powdery. Along the back wall, a thin line of moss follows a joint in the rock. Two small ferns grow apart from one another where the joint reaches the floor; their fronds are dull green and still.
+
+Near the entrance, three stones stand in a short, uneven row. They may once have bordered a path or marked the edge of a small plot. Nothing remains around them to make their purpose clear. Beyond the row is a patch of open earth, then the pale rise of the hollow’s rim.
+
+There are no calls or wingbeats here. The overhang shelters the place from most wind, and the air carries almost no sound. Moisture lingers in the shaded cracks, the plants take what they need from it, and the rest of the hollow stays bare. Its surfaces have the settled look of a place long left alone.

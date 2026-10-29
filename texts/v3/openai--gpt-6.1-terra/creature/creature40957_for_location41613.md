@@ -1,0 +1,19 @@
+Most of the inhabitants are spread thinly over one another, and many are asleep.
+
+At the surface, where light reaches, live cells that can make use of it. Some are joined end to end in minute filaments. In damp weather they move between grains of dust, trailing sticky sheaths that bind the grains together. Other cells form small colonies in the sheltered sides of wrinkles. They give the wet crust its fleeting green; as it dries, pigments and dust conceal them again.
+
+They do not all wake at once. A little evening moisture may soften the uppermost skin without reaching the layers beneath it. A storm can wet the crust more deeply, and then different communities stir in sequence: those close to the light, those accustomed to dimness, those that live where oxygen becomes scarce. Some draw nitrogen from the air and leave it in forms their neighbors can use. Some feed on the sheaths, fragments and waste of other cells. When the water goes, many contract, seal themselves in coatings or simply slow until almost nothing measurable is happening.
+
+The dead remain among the living. Old filaments and abandoned sheaths hold dust even after their makers have gone. Minerals gather in the binding material, and the surface hardens. Under each new skin are older ones, crowded with cells that may survive a long burial if a crack eventually admits water. Not everything buried waits successfully. Much of the plain is made from bodies too small to distinguish from the ground around them.
+
+In the seams, the larger inhabitants grow.
+
+The gray-green tufts present narrow, tough leaves to the sun. Their roots descend through openings in the crust and branch where a little damp persists. Around those roots, microbes find sugars leaking from living tissue and nourishment from tissue that has died. In return, some help make scarce minerals available to the plant. The partnership shifts as the seam wets and dries; a root that has been a refuge may become a dry wall against which a few cells remain dormant.
+
+The low branching plants grow slowly, keeping much of their wood close to the surface. Dust catches among their stems. A fallen leaf may lie there until rain presses it down and the crust begins to grow over it. Beneath a tuft, shade can preserve moisture for an hour or two longer than on the open flat. That small extension is enough for another interval of feeding and division.
+
+The hand-high reeds occupy the wettest hollows. For part of the year their stems stand over hard ground, their roots enclosed in dried layers. After a storm, water collects around them and their bases disappear beneath a shallow pool. Algae spread in the light. Bacteria work on material washed from the crust and from the reeds themselves. As the pool shrinks, its inhabitants become concentrated along the edge, then in the last dark patch at the bottom. Some will endure there; others will become food for those still active.
+
+A lifted crust sheet shelters another sort of neighborhood. Its underside stays damp and dark after the exposed surface has begun to pale. Fine fungal threads may run through the loose material there, among bacteria feeding on whatever the last rain brought beneath the flap. If the sheet settles, the inhabitants are enclosed. If it breaks away, light falls on them, and the next community begins to assemble.
+
+Across the immense plain, these lives are out of step. Beneath one cloud, cells are dividing and reeds are standing in water. Far away, in full sun, a filament has been dry for weeks. At the margin of a pool, the soft crust is taking shape around fresh grains of dust. It will harden into ground, and later something living will cross it—not on feet, but by growing through the narrow spaces it leaves.

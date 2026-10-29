@@ -1,0 +1,13 @@
+High above the drowned valleys, a glass-roofed chamber clings to the crown of a manufactured mountain. It is completely full of warm water. The water beyond the walls is darker and deeper, but here a bank of pale electric lamps gives the plants an ordinary green, as if the chamber were a grove on a bright afternoon.
+
+The chamber is about the size of a small cathedral. Every part of it was made: the mountain beneath it is a stack of cast-iron caissons, the soil is milled ceramic mixed with slow-release salts, and the water arrived through pipes. Even the stones among the roots have serial numbers pressed into their undersides.
+
+The plants have filled nearly every available space. Broad leaves overlap the lamps without quite shading them; fine red fronds thread through the gears of stationary pumps. Stems grow in close ranks between the floor plates, forcing up the brass screws one patient turn at a time. A pale moss coats the handrails, the pressure gauges and the sealed doors. There are flowers too, thick-walled and waxy, held open underwater for years. They shed their pollen in little white clouds that drift only as far as the next leaf.
+
+Nothing swims among them. The leaves tremble occasionally when a pump makes an adjustment, but there are no animals to set them moving.
+
+The machinery is built into the walls behind the foliage. Flywheels turn in oil-filled housings; electrodes feed the lamps; a row of porcelain valves admits a measured trickle of mineral water. The works are so heavily insulated that their noise reaches the chamber as a faint, continuous note, felt more readily in the teeth than heard. At long intervals a relay clicks. Sometimes a bubble forms at a joint and stays there for days, bright and perfectly round, before sliding upward into the crowded leaves.
+
+The place is new. The iron ribs still have sharp casting seams, and the painted depth marks are legible all the way to the floor. Here and there a root has bent a grille or cracked a tile, but the broken edges remain clean. The plants grow faster than the chamber weathers; they have almost concealed the fact that it was completed only recently.
+
+At the center stands a square platform with a single empty chair bolted to it. Ferns have grown through its back and folded over the seat. On the floor beside it is a lever marked **DRAIN**, its handle enclosed in glass. Thin roots have pressed against that glass from every side, seeking a way into the small dry space around it.

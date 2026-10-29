@@ -1,0 +1,9 @@
+High on a warm plateau, the land opens into a shallow basin no wider than a grove. Its rim is worn down to rounded humps of pale stone. Rain has found the same paths through them for so long that the channels are broad and smooth, more like folds in cloth than cuts in rock.
+
+Water lies close beneath the floor. It shows in dark seams and in small, still pools, each separated from the next by stretches of bare, damp mineral earth. The pools are clear enough to see their bottoms: fine white sediment, a few fallen leaves, the blunt ends of roots. Now and then a bead gathers on an overhanging stone and drops without a splash, as though the surface has made room for it.
+
+Vegetation grows in distinct, generous patches rather than a continuous cover. Ferns spread from cracks in the rim, their fronds long and dark with moisture. Low trees stand singly across the basin, their smooth trunks leaning over pockets of water. Between them there is room to see the shape of the ground. Moss fills the hollows around their roots, and a few broad-leaved plants hold warm water in the cups where their stems meet.
+
+The trees cast shadows, but their reflections do not always fall beneath them. In one pool a reflected crown appears a little farther left than it should; in another it shows the tree as it was earlier in the day, when its leaves were still furled. These differences are slight and change so slowly that they are easy to doubt. The water keeps them for a while, then lets them go.
+
+The air is humid and almost motionless. There are no calls, no wingbeats, no stir in the undergrowth. Occasionally a leaf settles against another leaf, or water slips along a stone too softly to follow by ear. In the afternoon light the basin looks settled and complete, though its pools are deepening grain by grain and its trees are patiently opening the cracks in the rock.

@@ -1,0 +1,13 @@
+A shallow chamber lies beneath a thin roof of stone. Most of its ceiling has worn away, leaving a long opening to the sky, so that the floor is brilliantly lit for much of the day. The walls are pale and deeply fluted, their old curves softened by water that no longer comes often. At noon they throw light back into the hollows until even the lowest seams are visible.
+
+The chamber is not large. A person could cross it in a few dozen steps, though the ground is uneven: rounded shelves of chalky rock descend toward a central basin, now dry except for a few dark pockets. The air is warm and still. After rain, water seeps down the walls for a day or two and gathers under the shelves; by the time the surface earth has dried, a hand laid against the rock can still find coolness.
+
+There is remarkably little in the open space. Three or four wiry plants grow from cracks near the rim, each casting a sharp, delicate shadow. A low mat of gray-green moss occupies one damp ledge. Elsewhere the stone is bare, its surface marked by small scallops and the faint tracks of old mineral flows.
+
+The animals keep close to the edges. Pale lizards rest in numbers along the upper shelves, so flat against the rock that they can be mistaken for changes in its grain. Soft-bodied insects gather under the moss, and tiny translucent creatures move through the water pockets, feeding on a film too fine to see. Near evening, a dozen long-legged burrowers emerge from separate holes and walk slowly across the basin, feeling the ground with their front limbs. They carry nothing, but sometimes one picks up a loose chip of stone and uses it to turn a leaf or scrape at a mineral crust. The chips are left wherever the work ends.
+
+The lizards are difficult to count. When one shifts into sunlight, its shadow remains behind for a breath or two, still attached to the place where it was resting. On cloudy days this happens less often. The animals seem accustomed to it; they step over one another’s lingering shadows without alarm.
+
+There is almost no sound. Now and then a claw clicks against stone, or a grain of grit falls from the rim and continues falling in small stages down the wall. The clearest noise comes after rain, when drops form in an overhang and land, minutes apart, in a pocket below. Each makes a brief bright note. The insects pause when it sounds, then resume moving.
+
+By late afternoon the opening casts a band of shade across the basin. The lizards follow it slowly, while the bare wall above them keeps its warmth. At night, moisture gathers on the coldest ridges. Before morning it has fed the moss and darkened the stone beneath, leaving the rest of the chamber dry.

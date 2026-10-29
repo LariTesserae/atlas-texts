@@ -1,0 +1,13 @@
+At the top of the range there is a hollow no larger than a village green. The mountains around it have been worn down for so long that their highest ridges are broad and almost level, but the drop from their edges is immense. From the hollow, the distant peaks look like islands seen from a great height, their lower slopes lost in a brown haze.
+
+The hollow lies beneath a shelf of dark stone. Even at midday, little direct light reaches it. The rock holds the night’s chill near the rim, but deeper in, warmth rises through long cracks in the floor. The air smells of hot dust, resin, and animal bedding.
+
+Plants crowd the sheltered ground. Low, branching shrubs have roots driven into the fissures and leaves thick as folded leather. Pale cushions grow between them, packed so tightly that from a distance they resemble a continuous fleece. There are also tall, jointed stalks whose papery outer skins have peeled into skirts. Their dry seed heads brush the underside of the shelf. Nothing here is bright green: the growth is ash-colored, brown, and dull silver, lush in its own close, crowded way.
+
+Animals occupy nearly every layer. Small, long-eared grazers sleep beneath the shrubs and emerge to clip the softer tips. Dark insects shelter in the joints of the stalks. Flat-bodied lizards lie against the warm rock, while birds with broad wings and heavy chests nest in holes overhead. Their calls overlap with the rasp of insects and the steady booming of wind passing across the mouth of the hollow. The place is loud, though little seems to hurry.
+
+People have built among the plants rather than clearing them. Their dwellings are low rings of fitted stone, roofed with slabs and bound with cord made from stripped stalks. Paths, worn smooth by generations of feet, wind between storage pits, pens, and small workshops. Tools hang from pegs beneath the eaves: stone blades, bone scrapers, wooden frames for combing fiber. Smoke from slow-burning resin drifts under the shelf and escapes through a high gap.
+
+There is no stream, pool, or well. The people gather the fleshy roots of certain plants and press them for a bitter fluid, saving what remains in stoppered clay jars. They know which cracks stay warm, which thickets can be cut back, and how long each takes to recover. A fallen roof beam might lie where it landed for years before someone needs its wood.
+
+The surrounding stone has already lost its sharpness to ages of abrasion. Inside the hollow, walls are repaired, nests are reused, and shrubs grow slowly over abandoned paths. From one lifetime to the next the settlement changes, but its outline remains difficult to distinguish from the dense, sheltered life around it.

@@ -1,0 +1,13 @@
+At the edge of a low industrial plain, a square of concrete has sunk just enough to open a narrow chamber beneath it. You can enter by crouching through the gap beside an old pumping station. Once inside, there is room to sit, though almost no surface is bare.
+
+The chamber is young. Its walls are still angular where the slab broke; flakes of pale cement cling to sharp aggregate, and a strand of exposed wire holds the shape it took when the floor gave way. Beneath the concrete, a bed of dark silt has been pushed into ridges by the settling weight. Small beads of warm water gather on the metal and drop into the furrows, where they disappear before they can make a pool.
+
+Daylight comes through the entrance and through a thumb-wide hole in the slab. It is enough to see by. The light picks out a crowded pavement of beetles, pill bugs, tiny pale crickets and soft-bodied things that withdraw into cracks when a shadow passes. They fill the spaces between pebbles and the pebbles themselves seem crowded: every undersurface has eggs attached, every hollow contains a curled sleeper or a hunter waiting for one. A spider has stretched its web across the brightest shaft of light, where the rising warmth carries small flies.
+
+There are only a few plants. Two grass blades have found the entrance, and a thin stem with paired leaves grows through the hole overhead, its roots hanging naked against the wall. The leaves turn slowly as the sun moves. Farther in, a crust of moss occupies a damp seam no wider than a finger; it is grazed continuously by minute snails.
+
+The pumping station still runs from time to time. Its motor is too far away to be loud here, but the wire trembles when it starts, and the insects nearest the wall move away from it in a ripple. Afterward, condensation forms more quickly. The animals return, and some climb the wire to drink. Once in a while a drop falls before they reach it, and the whole crowded floor rearranges around the dark spot it leaves.
+
+Something else happens when the pump stops. For a few breaths the chamber continues to vibrate, although the wire is still. The loose grains of silt stand upright on their smallest ends. The beetles pause with their legs lifted, and the spider draws in its web until the last tremor passes. Then everything settles with an almost inaudible patter.
+
+Outside there may be traffic, heat and open ground. Inside, the air remains warm and close. Water arrives by drops, light by two small openings, and each arrival sets hundreds of bodies moving.
