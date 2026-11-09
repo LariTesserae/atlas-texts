@@ -1,0 +1,43 @@
+**The Cold Garden**
+
+The way in is a wound in the world. A break in a wall that no one remembers building — a fall of masonry, a stair of worn stone that ends in a drop of three meters into cold air. You land on moss. The dark closes over you like water. The smell is of wet stone, of green things, of a sweetness you cannot name: the smell of a place that has never seen the sun.
+
+You are twenty meters below the grass, below the root-line, below the frost-line, below the memory of the sun. The chamber is small — nine paces long, six wide, a ceiling a tall person could touch with a raised hand. It is a pocket of the earth, a hollow in pale limestone veined with flint, worn by water into smooth flutes and curtains that freeze mid-flow. The walls gleam like liver where they are bare. Everything else is green.
+
+---
+
+The moss is the first thing you feel and the last thing you see. It covers the floor in cushions and turfs a hand's breadth deep, springy, saturated, so that every step is a slow squash and a long drip. It climbs the walls in curtains and beards, hangs from the ceiling in strands that brush your forehead, fills the alcoves with soft dark drifts. Liverworts lie flat on the stone in scales the size of thumbnails, and in the wettest corners filmy ferns unfurl leaves a single cell thick. There are no flowers. There is no sun. The green is the green of deep water, of caves, of the underside of leaves.
+
+The chamber is a cold trap. The air is near freezing, still, heavy with moisture; your breath mists; the stone sweats. Condensation beads on every surface and gathers into drops that fall with a patience you can measure your life against. The drips fall into cups worn in the stone — little wells within the well — and from the cups they run in runnels to a shallow pool in the floor's hollow. The pool is clear, cold, perhaps a pace across, its floor a mosaic of moss and pebbles and the slow glitter of mineral. After rain on the surface, hours later, the drips quicken; the pool rises by a finger's width; then the place settles back into its long rhythm. The water is the chamber's blood. It is never still, never hurried.
+
+---
+
+Someone was here before the moss. The marks are faint and scattered, as if the builders knew they were only borrowing the place. A basin of dressed stone, carved from the living rock, worn smooth as a bone, holds water in a shallow bowl. In the chamber's center, a plinth of squared blocks rises from the moss, and over it stands a small structure: a canopy of stone, a little roof on four stubby pillars, no bigger than a sentry box, its capstone green with moss. Inside the canopy, on the plinth, sits the cold heart of the garden. A conduit of pale metal — not quite bronze, not quite ceramic, not quite anything you can name — runs from the plinth into the rock and is lost. In one wall, a low arch of old tiles, their glaze long gone, frames a blocked doorway; beyond is only dark and the smell of wet. Mason's marks are cut into the stone at waist height: a cross, a wheel, a letter in a script no one reads now. A stone bench, a niche, a fragment of a vessel, a ring of the same pale metal. The built is sparse, patient, partial. The place is not a building; it is a hollow that has been politely asked to keep a few things.
+
+---
+
+The machine is the size of a head, a lattice of the pale metal, grown rather than made, its filaments fine as hair and thick as fingers in a tangle that might be a sphere, or a heart, or a seed. It is cold — colder than the air, colder than the water, cold enough to hurt your teeth when you lean close. It hums, but the hum is below hearing; you feel it in the bones of your jaw, in the fillings of your teeth, in the water of your inner ear. It has no seam, no switch, no wire. It draws its power from the difference between the cold deep and the warm above — a slow heat engine running backward, a difference engine, a prayer. It has run for centuries. Perhaps for millennia. It will not stop.
+
+And it sings to the moss. The song is not sound; it is a field, a radiation, a gift that chlorophyll can hear. The moss grows toward it, away from it, in patterns you can read if you stay long enough: the cushions thicken near the plinth, the ferns lean in, the liverworts spread in rings. The machine is a sun that gives no light. It is a lamp for plants in a place where no lamp should work. The builders knew what they were doing. They made a garden in the dark, and the machine is its gardener, its sun, its clock, its spring.
+
+The filaments are not quite metal. Under close looking — which you should not do for long, because the cold bites — they are a symbiosis: mineral and fungus and something else, a cultured lichen bred or grown into a machine. It is alive and not alive. It repairs itself slowly, knitting breaks with new growth, growing like a crystal, like a coral, like a patience. The builders are gone. The lichen remains. The garden remains. The machine tends what it was made to tend, and it does not know that the hands that made it are dust.
+
+---
+
+The ecology is small and closed and old. The mosses and liverworts and ferns are the producers; the fungi — the lichens on the stone, the molds in the peat, the machine itself — are the decomposers and the distributors. The machine condenses the water and releases it in a rhythm; it sings the field that feeds the green; it carries the mineral in its filaments and gives it up slowly to the stone and the moss. The old moss dies and is buried and becomes peat, and the new moss grows over it, and the stone is slowly dissolved and slowly rebuilt. There are no animals. No insects in the moss, no bats in the dark, no fish in the pool, no worms in the peat. The water is too cold, the dark is too complete, and the machine's song is not for them. The place is a garden without a single mouth but its own.
+
+---
+
+The sound of the place is the sound of water and patience. Drips, irregular, falling into cups and into the pool, each with its own small voice: a tick, a plop, a bead. The hum of the machine, felt rather than heard, a bass note below the threshold of hearing that makes the silence feel thick. The moss releases water with a sigh when you step off it. The stone settles with a tick, a creak, a long slow exhalation. Between the drips, the silence is not empty; it is a presence, a listener, a weight.
+
+There is no light. The dark is total, a darkness you can taste, cold and mineral on the tongue. If you stay long enough, your eyes begin to make their own light — the blue and gray of the dark-adapted eye, the phosphenes, the prisoner's cinema. The machine gives no light for you. But if you hold your hand near it, you can feel the cold radiating, and if you are very still, you may see — or think you see — a faint blue bruise in the mist above the plinth, the color of deep ice, of Cherenkov light, of a glow that is not warm. It is not for you. It is for the moss.
+
+---
+
+The place keeps its own time. The drips count the hours; the pool counts the seasons; the moss counts the years; the machine counts the centuries. Every few decades, the machine's song shifts — a change you feel as a pressure in the teeth, a new note in the hum — and the moss blooms. Not with flowers; with spores. A quiet bloom, a dusting of green-gold in the dark, a faint sweet smell, a soft rain of spores that settles on the pool and the stone and the moss itself. Then the song settles back, and the garden is quiet again for another generation. The machine has a long breath, a slow pulse, a patience that makes the stone look hasty.
+
+The rules here are few and old. Cold. Dark. Wet. The machine tends. The moss grows. The water wears. The stone holds. Nothing enters that is not water, spore, or patience. Nothing leaves that is not vapor and the rare visitor. The place is a closed system, a small world, a pocket. It is not a cave; it is a garden. It is not a ruin; it is a maintenance. The builders are gone; the maintenance continues.
+
+---
+
+To be here is to be small and watched-over. The cold is a hand on your shoulder. The dark is a blanket. The moss is a bed. The hum is a lullaby in a language you don't speak but your body understands. The place is not hostile; it is indifferent in the way of a garden, the way of a machine that is busy with its own long work. You are a visitor. You are a brief warm thing in a cold, patient, green dark. You will leave, and the drips will count the hours you were here, and the moss will grow over your footprints in a season, and the machine will hum its one note, and the garden will be as it was.

@@ -1,0 +1,111 @@
+# The Sump
+
+A broad subterranean basin, roughly the footprint of a cathedral, hollowed from ancient limestone and later gashed open by geothermal prospectors. The ceiling varies — sagging to fifteen meters in the oldest sections, vaulting to nearly forty where a partial collapse decades ago broke through into an overlying sandstone layer. That breach is the only true window. Thin grey daylight descends in a single shaft, filtered through soil and root and the skeletal remains of a collapsed ventilation tower, landing on the floor in a pale coin of illumination that moves almost imperceptibly across the hours.
+
+The air is warm — twenty-eight, thirty degrees — and saturated. Every surface carries a film of moisture. Condensation beads on metal, runs in threads down stone, gathers on the undersides of leaves and drops with metronomic regularity onto the surfaces below. The sound of water is continuous: a soft, irregular percussion, a thousand tiny impacts on leaf and rust and concrete. The old pipe runs along the ceiling weep at their joints. A narrow channel has been cut into the floor — part natural, part engineered — and water moves through it in a shallow, rust-colored stream, branching into pools where the gradient flattens. The pools are ringed with mineral deposits, pale orange and white, and they smell of iron and something faintly sulfurous.
+
+The lighting is dim and fractured. The shaft from above provides the only natural light, and it is thin, diffuse, already half-drowned by the humidity. Everything else is artificial. The old facility was wired for industrial-grade illumination — caged bulbs on conduit runs, strip lighting in the settlement, signal lamps on machinery housings. Perhaps a third of it still functions, running at partial voltage from the geothermal grid. The color is amber, sodium-yellow, with pockets of green where older fluorescent tubes flicker at the edge of death. Bioluminescence adds its own layer: patches of foxfire on rotting timber, a species of cave-adapted fungus that glows a faint, steady blue-white along the lower walls, and certain vines — the thick, rope-like ones that hang from the ceiling — that carry symbiotic bacteria in their bark, giving them a dim, pulsating luminescence, like slow breath.
+
+---
+
+## The Vegetation
+
+The plants are the dominant fact of the place. They have claimed every surface that offers even a suggestion of purchase — but they have not claimed it densely. There is space here. The cavern floor is a mosaic of groves and clearings, of dense thickets and open stretches of bare stone or compacted sediment. The effect is less jungle, more *park* — an underground park designed by something that understood vistas.
+
+The largest plants are the tree-ferns. They grow in clusters of five to fifteen, their trunks — rough, scaled, reddish-brown — rising two or three meters before exploding into crowns of arching fronds. Each frond is a meter and a half long, vivid green where the light reaches them, pale and elongated where they've stretched toward the dimmer regions. They are the architecture of the space, defining rooms and corridors, creating a canopy that splits the cavern into layers. Beneath them, in the filtered shade, grow lower things: broad-leafed shrubs with waxy, dark foliage; thick mats of moss in saturated greens and yellows; ferns of a dozen species, some no taller than a hand, others chest-high. Vines — some woody, some herbaceous — drape from the ceiling and from the tree-fern trunks, hanging in curtains, bridging gaps between structures. Many of the vines have found the old conduit runs and pipe racks and followed them, turning the industrial skeleton into a trellis.
+
+The plants have grown through and around the built environment with a kind of patient violence. A generator housing on the eastern wall has been split open by the root of a woody shrub — the root is thicker than a thigh, and it has pried the steel panels apart like a can opener. The shrub grows out of the top, its canopy spreading over the housing, its roots gripping the frame. A conveyor structure that once ran from the drilling face to the processing floor is now a ridge of vegetation — vines and moss and small ferns growing along its length, obscuring its shape, though its straight line still asserts itself through the organic chaos. A water tank has become a planter: its lid is gone, its interior filled with soil and leaf litter, a cluster of saplings growing from it.
+
+But the density is low enough that you can always see the bones of the place. There are open floors, clear sightlines, spaces where the only plant life is a thin skin of moss on the stone. The clearing around the central settlement is nearly bare — packed earth and gravel, with only a few hardy weeds pushing through cracks. The plant and the machine exist in a state of negotiated coexistence, neither fully winning.
+
+---
+
+## The Built Environment
+
+The settlement occupies the western third of the cavern — a cluster of perhaps twenty-five structures arranged along the curve of the wall, following the natural shelf of a raised rock platform that keeps them above the water line. The buildings are utilitarian: rectangular, flat-roofed, built from prefabricated concrete panels and corrugated steel, with pipe runs and cable trays running along their exteriors. They were worker housing and operational facilities for the geothermal plant — dormitories, a canteen, a medical station, storage, a control room, a workshop. Some have collapsed partially, their roofs buckled by root pressure or the slow settlement of the rock beneath them. Others are intact but transformed — windows gone, doorways choked with vines, interiors filled with leaf litter and the nests of animals.
+
+Narrow-gauge rail lines run through the settlement and out into the main cavern, connecting the buildings to the industrial infrastructure. The rails are rusted but still in place, their sleepers half-buried in moss and sediment. Ore carts sit on sidings, some overturned, some still upright and filled with stagnant water and decaying leaves.
+
+The industrial infrastructure itself is scattered across the cavern floor and anchored to the walls. The drilling rigs — three of them, now tilted and partly overgrown — stand in the northern section. The heat exchangers, a cluster of finned radiators and pressure vessels, occupy the eastern wall. The turbines and generators are housed in a long, low building at the southern end — the only structure that still seems fully active, its walls vibrating with the machinery inside, its exterior streaked with rust and mineral deposits from the vent pipes. Electrical substations, transformer housings, capacitor banks — all still standing, many still live, their warning signs faded but legible. High-voltage cables run along the walls and ceiling in heavy runs, some sagging, some drooping in loops where their supports have failed. The facility was built to industrial standards, and it has endured — not well, but enough.
+
+---
+
+## The Fauna
+
+The life here is not a presence. It is a *condition*.
+
+Insects are the baseline. Beetles — dozens of species, from tiny black things that live in the moss to large, horned creatures the size of a thumb that click and clatter in the leaf litter. Crickets and cave-adapted katydids, their calls high and insistent, their bodies pale and soft. Moths — great, slow-flying things with wingspans of fifteen centimeters, their wings patterned in muted browns and greens, their bodies thick and furry. Flies in clouds around the water and the decaying matter. Ants — multiple colonies, their trails running along the walls and through the settlement, their nest entrances marked by small cones of excavated soil. Wasps. Springtails in the damp leaf litter, leaping in tiny, explosive movements. The air is thick with them, a constant, soft, shifting haze.
+
+The invertebrates are larger and more various. Centipedes — some twenty centimeters long, fast and sinuous, their bodies a deep reddish-brown, their legs a blur. Spiders — orb-weavers that stretch their webs between tree-fern fronds, their webs catching the light and the insects in equal measure; wolf spiders that hunt on the ground, their eyes catching the bioluminescence in tiny, bright points; cave-adapted species with elongated legs and no eyes, pale as bone. Land planarians, flat and slick, gliding over wet stone. Freshwater crayfish in the pools, their shells dark and mottled, their claws raised in threat.
+
+The amphibians are abundant. Frogs — several species, including a large, moist-skinned thing the size of a human head that sits in the pools and calls with a deep, resonant *wonk* that carries across the cavern. Salamanders, pale and long-bodied, their skin glistening, hunting in the leaf litter and the shallow water. Newts. Their eggs are visible in the pools — gelatinous masses attached to submerged roots and stones, the dark shapes of the embryos visible inside.
+
+Bats. The ceiling is *crowded* with them. They roost in the thousands — perhaps tens of thousands — packed along the rock and the old pipe runs and the undersides of machinery housings. Their bodies are small, furred, brown-grey. Their wings rustle constantly, a soft, continuous sound like rain on dry leaves. At intervals — dawn and dusk above, signaled by some change in temperature or vibration — they swarm out through the ceiling breach in a column that darkens the already-dim air, a spiraling, chittering vortex that takes minutes to fully exit. They return the same way, individually or in small groups, swooping down through the shaft and dispersing across the ceiling. Their guano is everywhere — thick, white-streaked deposits on the surfaces below the roosts, feeding the insects and the fungi and the plants.
+
+Rodents have followed the bats and the settlement. Small, pale, eyeless things — cave rats, perhaps, or something that has diverged further — move through the undergrowth and the settlement in constant, rustling waves. They are bold, unafraid, their whiskers long and sensitive. They eat the seeds and fruits of the plants, the insects, the refuse of the settlement. They are eaten in turn — by the spiders, by the snakes (there are snakes here, legless and pale, hunting in the leaf litter), and by the larger predators.
+
+The larger predators are the strangest fauna. There is a species — or a population, or something in between — of cave-adapted mammals the size of a medium dog, with long, slender limbs, large ears, and eyes that are vestigial, covered by skin. They hunt in packs of four to eight, moving through the groves and clearings with a fluid, silent coordination. Their fur is short and pale — almost white — and their skin is visible through it, pink and mottled. They are not fast, but they are *relentless*, and they are intelligent in a way that makes them unsettling — they use the terrain, the machinery, the plant cover with evident tactical awareness. Their calls are low, almost subsonic, felt in the chest more than heard. They are the apex predators here, and they are not rare. You see their tracks in the damp sediment. You see their scat. You hear them moving in the undergrowth, a soft, deliberate rustling. Occasionally, in the dim light, you see them — a pale shape moving between the tree-ferns, pausing, its head turning toward you, its blind face somehow still *regarding* you.
+
+There are birds — cave-adapted species, perhaps descendants of swallows or swifts, with elongated wings and reduced eyes, hunting insects on the wing. They nest in the machinery and the settlement buildings, their nests woven from plant fibers and moss and scavenged wire. Their calls are sharp and metallic, cutting through the ambient sound.
+
+The pools have their own ecology — small fish, translucent and eyeless, their bodies barely visible in the rust-colored water. Aquatic insects. Tadpoles. The crayfish, stalking.
+
+The life is layered, dense, competitive. It is not peaceful. The predator-prey dynamics are constant and audible — the sudden flurry of wings, the rustle of pursuit, the brief, high-pitched squeal of something caught. The insects swarm and are eaten and swarm again. The bats rise and fall. The blind hunters move through the groves. The whole system is in motion.
+
+---
+
+## Sound
+
+The Sump is *loud*. The sound is not a background. It is a texture, a pressure, a constant physical presence.
+
+The lowest layer is the machinery. The turbines and generators produce a continuous, subsonic rumble that you feel in your sternum, a vibration in the stone beneath your feet. The pumps — water pumps, drilling pumps, cooling pumps — add their own rhythms, cycling on and off with a irregular, mechanical *chunk-chunk-chunk* that echoes off the walls. The ventilation system — still partly functional — produces a steady, low roar of moving air, and the ductwork rattles and hums. The transformers hum at a higher frequency, a thin, electrical whine that cuts through the lower sounds. Occasionally, something in the system surges — a voltage spike, a pressure change — and there is a sharp *clank* or a hiss of steam or a rising whine that makes everything else seem to pause.
+
+Above that is the water. The dripping — constant, irregular, everywhere — creates a soft, percussive patter that merges into a kind of white noise. The stream in the floor channel produces a continuous, gentle rush. The pools receive the drips and the overflow and the movements of their inhabitants with small splashes and ripples. The condensation on the metal surfaces produces a higher, more metallic dripping, a *tink-tink-tink* that is almost musical.
+
+Above that is the life. The insects — the crickets and katydids especially — produce a constant, high-pitched chorus that fills the air, a shimmering, oscillating wall of sound. The frogs add their deeper calls, irregular but frequent. The bats — their constant rustling, their chittering, their wings cutting the air in flight — create a soft, shifting, living sound that moves around the cavern. The birds call sharply. The rodents rustle. The larger predators move with a soft, deliberate sound that is more felt than heard — a displacement of air, a pressure change, a rustle of leaves.
+
+And above all of that, occasionally, there is the sound of the place itself — the stone. A shift in the rock, a settling of the ceiling, a small fall of debris — a *crack* or a *rumble* or a soft *cascade* of gravel. The cavern is old and stable, but it is not static. It adjusts. It speaks.
+
+---
+
+## The Strange
+
+The Sump is not a natural place. It is not a natural place that has been abandoned and reclaimed. It is something else — a hybrid, a collaboration, a negotiation that has gone on long enough to produce something that is neither one thing nor the other.
+
+The plants and the machinery have become interdependent in ways that were not designed and are not fully understood. The geothermal system keeps the cavern warm, and the warmth allows the plants to grow. The plants, in turn, stabilize the humidity, prevent erosion, filter the water, and — in some cases — provide structural support to the machinery. The roots of the largest plants have wrapped around pipes and conduits and anchored them, preventing the failures that would otherwise have occurred. The moss and lichen growing on the electrical housings provide a kind of insulation, preventing the short circuits that the humidity would otherwise cause. The bats' guano feeds the insects and the fungi and the plants, and the plants feed the herbivores and the insects that feed the bats. The system works, after a fashion. It is not efficient. It is not designed. But it persists.
+
+The fauna has adapted to the machinery. There are insects that feed on machine oil — a species of beetle with a dark, iridescent shell that clusters around leaking seals and pipe joints, its larvae developing in the oil-soaked sediment. There are birds that nest in the ventilation ducts, their nests woven from wire and plant fiber and the insulation from electrical cables. There are mammals — the blind hunters — that use the machinery as part of their hunting strategy, driving prey toward the walls and the obstacles, using the geometry of the built environment as a tool. The animals have not just colonized the place. They have *learned* it.
+
+The light is strange. The combination of the sodium-amber industrial lighting, the blue-white bioluminescence, the green emergency lights, and the thin grey shaft from above creates a color palette that has no name — a warm, murky, underwater quality, as if the entire cavern were submerged. Shadows are deep and colored. The tree-fern fronds are green where they catch the light, but their undersides and the spaces beneath the canopy are blue and amber and black. The pools reflect the lights in broken, shimmering fragments. The bats, in flight, are briefly illuminated — pale shapes against the dark, their wings catching the light like translucent membranes.
+
+The warmth and humidity are constant but not uniform. The geothermal vents — the drilling faces, the heat exchangers, the steam pipes — create local hotspots where the temperature rises sharply, where the air shimmers, where the plants grow differently (faster, more tropical, with larger leaves and brighter flowers). The ceiling breach creates a column of cooler air that descends and spreads, creating a microclimate around the shaft — a zone where condensation is heaviest, where moss and lichen are thickest, where the insects cluster. The settlement, with its concrete and steel, holds heat differently than the open cavern, creating a slightly warmer, drier zone around the buildings. The pools are cooler, their surfaces steaming faintly where they meet the warmer air. The place has weather, of a kind — small, local, complex.
+
+---
+
+## The Settlement
+
+The settlement is not abandoned. It is *occupied* — by the animals, by the plants, and by something else.
+
+There are signs of recent human presence. Not many. Not consistent. But present. A fire pit in the central clearing, its stones blackened, its ash fresh. A shelter built in one of the dormitory buildings — a frame of scavenged pipe and conduit, covered with a tarp, containing a sleeping mat and a collection of tools and supplies. A water collection system — plastic sheeting stretched between tree-fern trunks, channeling condensation into a barrel. A garden plot, small and carefully tended, in a clearing near the eastern wall — vegetables growing in soil enriched with bat guano and compost, irrigated by a hand-operated pump drawing from a pool.
+
+Who lives here? Perhaps a small community — a dozen people, maybe fewer. Perhaps a single family, or a handful of individuals who have found their way down through the old access shafts or the ventilation tunnels. Perhaps they are descended from the original workers, or perhaps they are newcomers — refugees, hermits, people who have chosen the Sump for its warmth, its water, its isolation, its strange abundance. They are not visible in the description of the place, but they are present in its traces. They have learned to live with the fauna — to avoid the bat swarms, to guard against the blind hunters, to cultivate the insects that are useful and repel the ones that are not. They have learned to live with the machinery — to maintain the geothermal system, to tap the electricity, to use the water. They have learned to live with the plants — to cultivate the edible species, to use the fibers, to navigate the groves and clearings.
+
+They are part of the ecosystem. They are not separate from it. They are another species in the Sump, another layer in its ecology.
+
+---
+
+## The Rules
+
+The Sump operates according to principles that are not the principles of the surface world.
+
+Water is not scarce, but it is not clean. It must be filtered, boiled, or treated. The rust and the minerals and the biological load make it unsafe to drink untreated. The settlement's water system — the plastic sheeting, the barrel, the hand pump — is a matter of survival.
+
+Light is not a given. The shaft from above is the only natural light, and it is thin and unreliable — weather above affects it, the angle of the sun affects it, the growth of vegetation in the breach affects it. The artificial light is partial, flickering, dependent on the geothermal system. Darkness is a constant presence, and the people who live here have learned to navigate it — to use the bioluminescence, to carry their own light, to move through the groves and clearings with confidence in the dark.
+
+Heat is constant, but it is not comfortable. The warmth and humidity are exhausting. Sweat does not evaporate. The body is always working to cool itself. The people who live here are adapted to it — lean, efficient, slow-moving in the heat — but visitors find it oppressive.
+
+The fauna is not a backdrop. It is a constant pressure. The insects are a nuisance and a resource. The bats are a hazard and a source of guano. The predators are a threat and a source of meat and fur. The people who live here have learned to read the signs — the sounds, the movements, the behavior of the animals — to know when the bats will swarm, when the hunters are active, when the insects will be thickest. They have learned to be part of the system, not apart from it.
+
+The machinery is not a tool. It is a *presence*. It is old, it is failing, it is dangerous. The geothermal system could fail, or it could surge. The electrical system could short, or it could deliver a lethal shock. The steam pipes could burst. The drilling rigs could collapse. The people who live here maintain what they can, avoid what they cannot, and accept the risk as part of the place.
+
+The Sump is not a place that can be mastered. It is a place that can only be lived in — negotiated with, adapted to, accepted on its own terms. It is warm, and wet, and loud, and alive, and strange, and it endures.

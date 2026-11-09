@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **183** source folders · **197,289** texts
+- **184** source folders · **197,537** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -793,6 +793,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `meituan--longcat-2.0-no-reasoning` | 750 | 2026-10-08→2026-10-09 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
+## longcat-2.5  ·  248 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `meituan--longcat-2.5` | 248 | 2026-11-09 | location·248 | route | event-observed 248 |
 
 ## mimo-v2-flash  ·  1,075 texts
 
